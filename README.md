@@ -1,25 +1,19 @@
-# The Ultra Concise Sermons of Charles H. Spurgeon
+# Treasury of David - Markdown Edition
 
-## **Overview**
+This project offers a complete Markdown version of Charles H. Spurgeon's classic work, *The Treasury of David*. Its objective is to provide the original text of the Treasury of David in an accessible Markdown format. This allows for easy reading and seamless portability to any application or environment that supports Markdown.
 
-This project presents ultra concise, markdown-formatted versions of Charles H. Spurgeon’s sermons—each distilled to 250 words or less. Designed for quick recitation and focused exposition, these summaries capture the heart of Spurgeon’s messages, making them ideal for rapid study, teaching, and devotional use.
+## Project Purpose
 
-## **Project Features**
+*The Treasury of David* is a revered biblical commentary on the Psalms by C.H. Spurgeon. By converting this timeless work into Markdown, the project makes the text lightweight, human-readable, and highly compatible with modern digital tools.
 
-- Spurgeon’s sermons, each summarized in 250 words or fewer
-- Faithful to the original texts, preserving key themes and scriptural insights
-- Organized by volume and date for easy navigation
-- Markdown format for readability, compatibility, and integration with modern tools
-- Perfect for quick reference, sermon preparation, or sharing in small group settings
+## Features
 
-## **Background**
+- Original text faithfully formatted in Markdown
+- Clean and consistent structure for each Psalm and commentary
+- Easy to navigate and use in Markdown-compatible apps and platforms
+- Portable and ready for integration into e-readers, note-taking apps, static site generators, and more
 
-Charles Haddon Spurgeon (1834–1892), the “Prince of Preachers,” delivered thousands of sermons that have shaped Christian thought for generations. While his original sermons are rich and expansive, this collection offers concise versions that retain Spurgeon’s core message and biblical exposition. The aim is to make Spurgeon’s wisdom accessible for those with limited time or for occasions requiring a brief yet impactful message.
+## Usage
 
-## **Usage**
-
-- Browse by volume, scripture, or topic to find the sermon you need
-- Use markdown viewers or static site generators to read or present sermons online or offline
-- Recite or adapt concise sermons for devotionals, meetings, or teaching moments
-- Cite or share excerpts for study, encouragement, or discussion
+Clone or download the repository to access the Markdown files. Open them in any Markdown viewer or editor to read or repurpose the content.
 
