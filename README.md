@@ -1,4 +1,4 @@
-# Treasury of David - Markdown Edition
+# The Treasury of David - Markdown Edition
 
 This project offers a complete Markdown version of Charles H. Spurgeon's classic work, *The Treasury of David*. Its objective is to provide the original text of the Treasury of David in an accessible Markdown format. This allows for easy reading and seamless portability to any application or environment that supports Markdown.
 
