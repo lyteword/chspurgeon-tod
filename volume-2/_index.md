@@ -17,3 +17,5 @@ The acknowledgments of obligation made in Volume I, might very justly be repeate
 More and more is the conviction forced upon my heart that every man must traverse the territory of the Psalms himself if he would know what a goodly land they are. They flow with milk and honey, but not to strangers ; they are only fertile to lovers of their hills and vales. None but the Holy Spirit can give a man the key to the Treasury of David; and even he gives it rather to experience than to study. Happy is he who for himself knows the secret of the Psalms.
 
 If permitted by the Great Master whom I serve, I shall now proceed with another portion of this Treasury of David; but the labour and research are exceedingly great, and my other occupations are very pressing, and therefore I must crave the patience of the Christian public. 
+
+&ndash; *C.H. Spurgeon*
