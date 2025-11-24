@@ -1,0 +1,1372 @@
+# Psalm 12
+
+TITLE.&nbsp;*This Psalm is headed*&nbsp;"To the Chief Musician upon
+
+Sheminith, a Psalm of David,"&nbsp;*which title is identical with that*&nbsp;
+
+of the sixth Psalm, except that Neginoth is here omitted. We have
+
+nothing new to add, and therefore refer the reader to our remarks on
+
+the dedication of Psalm VI. As Sheminith signifies the eighth, the
+
+Arabic version says it is concerning the end of the world, which
+
+shall be the eighth day, and refers it to the coming of the Messiah:
+
+without accepting so fanciful an interpretation, we may read this
+
+song of complaining faith in the light of His coming who shall break
+
+in pieces the oppressor. The subject will be the better before the
+
+mind's eye if we entitle this Psalm:"GOOD THOUGHTS IN BAD
+
+TIMES."&nbsp;*It is supposed to have been written while Saul was*&nbsp;
+
+persecuting David, and those who favoured his cause.
+
+DIVISION.&nbsp;*In the first and second verses David spreads his plaint*&nbsp;
+
+before the Lord concerning the treachery of his age; verses 3 and 4
+
+denounce judgments upon proud traitors; in verse 5, Jehovah himself
+
+thunders out his wrath against oppressors; hearing this, the Chief
+
+Musician sings sweetly of the faithfulness of God and his care of his
+
+people, in verses 6 and 7; but closes on the old key of lament in
+
+verse 8, as he observes the abounding wickedness of his times. Those
+
+holy souls who dwell in Mesech, and sojourn in the tents of Kedar,
+
+may read and sing these sacred stanzas with hearts in full accord
+
+with their mingled melody of lowly mourning and lofty
+
+confidence.
+
+## EXPOSITION
+
+&nbsp;*Verse*&nbsp;1.&nbsp;*"Help, Lord."*&nbsp;A short but sweet, suggestive,
+
+seasonable, and serviceable prayer; a kind of angel's sword, to be
+
+turned every way, and to be used on all occasions. Ainsworth says the
+
+word rendered "help," is largely used for all manner of saving,
+
+helping, delivering, preserving, etc. Thus it seems that the prayer
+
+is very full and instructive. The Psalmist sees the extreme danger of
+
+his position, for a man had better be among lions than among liars;
+
+he feels his own inability to deal with such sons of Belial, for "he
+
+who shall touch them must be fenced with iron;" he therefore turns
+
+himself to his all-sufficient Helper, the Lord, whose help is never
+
+denied to his servants, and whose aid is enough for all their needs.
+
+&nbsp;*"Help, Lord,"*&nbsp;is a very useful ejaculation which we may dart
+
+up to heaven on occasions of emergency, whether in labour, learning,
+
+suffering, fighting, living, or dying. As small ships can sail into
+
+harbours which larger vessels, drawing more water, cannot enter, so
+
+our brief cries and short petitions may trade with heaven when our
+
+soul is wind-bound, and business-bound, as to longer exercises of
+
+devotion, and when the stream of grace seems at too low an ebb to
+
+float a more laborious supplication.&nbsp;*"For the godly man*&nbsp;
+
+ceaseth;"the death, departure, or decline of godly men should be
+
+a trumpet-call for more prayer. They say that fish smell first at the
+
+head, and when godly men decay, the whole commonwealth will soon go
+
+rotten. We must not, however, be rash in our judgment on this point,
+
+for Elijah erred in counting himself the only servant of God alive,
+
+when there were thousands whom the Lord held in reserve. The present
+
+times always appear to be peculiarly dangerous, because they are
+
+nearest to our anxious gaze, and whatever evils are rife are sure to
+
+be observed, while the faults of past ages are further off, and are
+
+more easily overlooked. Yet we expect that in the latter days,
+
+"because iniquity shall abound, the love of many shall wax cold," and
+
+then we must the more thoroughly turn from man, and address ourselves
+
+to the Churches' Lord, by whose help the gates of hell shall be kept
+
+from prevailing against us.&nbsp;*"The faithful fail from among the*&nbsp;
+
+children of men;"when godliness goes, faithfulness inevitably
+
+follows; without fear of God, men have no love of truth. Common
+
+honesty is no longer common, when common irreligion leads to
+
+universal godlessness. David had his eye on Doeg, and the men of Ziph
+
+and Keilah, and perhaps remembered the murdered priests of Nob, and
+
+the many banished ones who consorted with him in the cave of Adullam,
+
+and wondered where the state would drift without the anchors of its
+
+godly and faithful men. David, amid the general misrule, did not
+
+betake himself to seditious plottings, but to solemn petitionings;
+
+nor did he join with the multitude to do evil, but took up the arms
+
+of prayer to withstand their attacks upon virtue.
+
+&nbsp;*Verse*&nbsp;2.&nbsp;*"They speak vanity every one with his*&nbsp;
+
+neighbour."They utter that which is vain&nbsp;*to hear,*&nbsp;because
+
+of its frivolous, foolish, want of worth; vain to&nbsp;*believe,*&nbsp;
+
+because it was false and lying; vain to&nbsp;*trust to,*&nbsp;since it was
+
+deceitful and flattering; vain to&nbsp;*regard,*&nbsp;for it lifted up the
+
+hearer, filling him with proud conceit of himself. It is a sad thing
+
+when it is the fashion to talk vanity. "Ca'me, and I'll ca'thee." is
+
+the old Scotch proverb; give me a high sounding character, and I will
+
+give you one. Compliments and fawning congratulations are hateful to
+
+honest men; they know that if they take they must give them, and they
+
+scorn to do either. These accommodation-bills are most admired by
+
+those who are bankrupt in character. Bad are the times when every man
+
+thus cajoles and cozens his neighbour.&nbsp;*"With flattering lips and*&nbsp;
+
+with a double heart do they speak."He who puffs up another's
+
+heart, has nothing better than wind in his own. If a man extols me to
+
+my face, he only shows me one side of his heart, and the other is
+
+black with contempt for me, or foul with intent to cheat me. Flattery
+
+is the sign of the tavern where duplicity is the host. The Chinese
+
+consider a man of two hearts to be a very base man, and we shall be
+
+safe in reckoning all flatteries to be such.
+
+&nbsp;*Verses*&nbsp;3, 4. Total destruction shall overwhelm the lovers of
+
+flattery and pride, but meanwhile how they hector and fume! Well did
+
+the apostle call them "raging waves of the sea, foaming out their own
+
+shame." Free-thinkers are generally very free-talkers, and they are
+
+never more at ease than when railing at God's dominion, and
+
+arrogating to themselves unbounded license. Strange is it that the
+
+easy yoke of the Lord should so gall the shoulders of the proud,
+
+while the iron bands of Satan they bind about themselves as chains of
+
+honour: they boastfully cry unto God, "Who is lord over us?" and hear
+
+not the hollow voice of the evil one, who cries from the infernal
+
+lake, "I am your lord, and right faithfully do ye serve me." Alas,
+
+poor fools, their pride and glory shall be cut off like a fading
+
+flower! May God grant that our soul may not be gathered with them. It
+
+is worthy of observation that flattering lips, and tongues speaking
+
+proud things, are classed together: the fitness of this is clear, for
+
+they are guilty of the same vice, the first flatters another, and the
+
+second flatters himself, in both cases a lie is in their right hands.
+
+One generally imagines that flatterers are such mean parasites, so
+
+cringing and fawning, that they cannot be proud; but the wise man
+
+will tell you that while all pride is truly meanness, there is in the
+
+very lowest meanness no small degree of pride. Caesar's horse is even
+
+more proud of carrying Caesar, than Caesar is of riding him. The mat on
+
+which the emperor wiped his shoes, boasts vaingloriously, crying out,
+
+"I cleaned the imperial boots." None are so detestably domineering as
+
+the little creatures who creep into office by cringing to the great;
+
+those are bad times, indeed, in which these obnoxious beings are
+
+numerous and powerful. No wonder that the justice of God in cutting
+
+off such injurious persons is matter for a psalm, for both earth and
+
+heaven are weary of such provoking offenders, whose presence is a
+
+very plague to the people afflicted thereby. Men cannot tame the
+
+tongues of such boastful flatterers; but the Lord's remedy if sharp
+
+is sure, and is an unanswerable answer to their swelling words of
+
+vanity.
+
+Verse 5. In due season the Lord will hear his elect ones, who cry day
+
+and night unto him, and though he bear long with their oppressors,
+
+yet will he avenge them speedily. Observe that the mere oppression of
+
+saints, however silently they bear it, is in itself a cry to God:
+
+Moses was heard at the Red Sea, though he said nothing; and Hagar's
+
+affliction was heard despite her silence. Jesus feels with his
+
+people, and their smarts are mighty orators with him. By-and-by,
+
+however,&nbsp;*they*&nbsp;begin to sigh and express their misery, and then
+
+relief comes post-haste. Nothing moves a father like the cries of his
+
+children; he bestirs himself, wakes up his manhood, overthrows the
+
+enemy, and sets his beloved in safety. A&nbsp;*puff*&nbsp;is too much for
+
+the child to bear, and the foe is so haughty, that he laughs the
+
+little one to scorn; but the Father comes, and then it is the child's
+
+turn to laugh, when he is set above the rage of his tormentor. What
+
+virtue is there in a poor man's sighs, that they should move the
+
+Almighty God to arise from his throne. The needy did not dare to
+
+speak, and could only sigh in secret, but the Lord heard, and could
+
+rest no longer, but girded on his sword for the battle. It is a fair
+
+day when our soul brings God into her quarrel, for when his bare arm
+
+is seen, Philistia shall rue the day. The darkest hours of the
+
+Church's night are those which precede the break of day. Man's
+
+extremity is God's opportunity. Jesus will come to deliver just when
+
+his needy ones shall sigh, as if all hope had gone for ever. O Lord,
+
+set thy&nbsp;*now*&nbsp;near at hand, and rise up speedily to our help.
+
+Should the afflicted reader be able to lay hold upon the promise of
+
+this verse, let him gratefully fetch a fulness of comfort from it.
+
+Gurnall says, "As one may draw out the wine of a whole hogshead at
+
+one tap, so may a poor soul derive the comfort of the whole covenant
+
+to himself through one promise, if he be able to apply it." He who
+
+promises to set us in safety, means thereby preservation on earth,
+
+and eternal salvation in heaven.
+
+Verse 6. What a contrast between the vain words of man, and the pure
+
+words of Jehovah. Man's words are yea and nay, but the Lord's
+
+promises are yea and amen. For truth, certainty, holiness,
+
+faithfulness, the words of the Lord are pure as well-refined silver.
+
+In the original there is an allusion to the most severely-purifying
+
+process known to the ancients, through which silver was passed when
+
+the greatest possible purity was desired; the dross was all consumed,
+
+and only the bright and precious metal remained; so clear and free
+
+from all alloy of error or unfaithfulness is the book of the words of
+
+the Lord. The Bible has passed through the furnace of persecution,
+
+literary criticism, philosophic doubt, and scientific discovery, and
+
+has lost nothing but those human interpretations which clung to it as
+
+alloy to precious ore. The experience of saints has tried it in every
+
+conceivable manner, but not a single doctrine or promise has been
+
+consumed in the most excessive heat. What God's words are, the words
+
+of his children should be. If we would be Godlike in conversation, we
+
+must watch our language, and maintain the strictest purity of
+
+integrity and holiness in all our communications.
+
+Verse 7. To fall into the hands of an evil generation, so as to be
+
+baited by their cruelty, or polluted by their influence, is an evil
+
+to be dreaded beyond measure; but it is an evil foreseen and provided
+
+for in the text. In life many a saint has lived a hundred years
+
+before his age, as though he had darted his soul into the brighter
+
+future, and escaped the mists of the beclouded present: he has gone
+
+to his grave unreverenced and misunderstood, and lo! as generations
+
+come and go, upon a sudden the hero is unearthed, and lives in the
+
+admiration and love of the excellent of the earth; preserved for ever
+
+from the generation which stigmatised him as a sower of sedition, or
+
+burned him as a heretic. It should be our daily prayer that we may
+
+rise above our age as the mountain-tops above the clouds, and may
+
+stand out as heaven-pointing pinnacle high above the mists of
+
+ignorance and sin which roll around us. O Eternal Spirit, fulfil in
+
+us the faithful saying of this verse! Our faith believes those two
+
+assuring words, and cries,&nbsp;*"Thou shalt," "thou shalt."*&nbsp;
+
+Verse 8. Here we return to the fount of bitterness, which first made
+
+the psalmist run to the wells of salvation, namely, the prevalence of
+
+wickedness. When those in power are vile, their underlings will be no
+
+better. As a warm sun brings out noxious flies, so does a sinner in
+
+honour foster vice everywhere. Our turf would not so swarm with
+
+abominables if those who are styled honourables did not give their
+
+countenance to the craft. Would to God that the glory and triumph of
+
+our Lord Jesus would encourage us to walk and work on every side; as
+
+like acts upon like, since an exalted sinner encourages sinners, our
+
+exalted Redeemer must surely excite, cheer, and stimulate his saints.
+
+Nerved by a sight of his reigning power we shall meet the evils of
+
+the times in the spirit of holy resolution, and shall the more
+
+hopefully pray, "Help, Lord."
+
+## EXPLANATORY NOTES AND QUAINT SAYINGS
+
+&nbsp;*Verse*&nbsp;1.&nbsp;*"Help, Lord."*&nbsp;'Twas high time to call to
+
+heaven for help, when Saul cried, "Go, kill me up the priests of
+
+Jehovah" (the occasion as it is thought of making this Psalm), and
+
+therein committed the sin against the Holy Ghost, as some grave
+
+divines are of opinion. 1 Samuel 22:17. David, after many sad
+
+thoughts about that slaughter, and the occasion of it, Doeg's
+
+malicious information, together with the paucity of his fast friends,
+
+and the multitude of his sworn enemies at court, breaks forth
+
+abruptly into these words,&nbsp;*"Help, Lord,"*&nbsp;help at a dead lift.
+
+The Arabic version hath it,&nbsp;*Deliver me by main force,*&nbsp;as with
+
+weapons of war, for "the Lord is a man of war." Exodus 15:3.&nbsp;*John*&nbsp;
+
+Trapp.
+
+&nbsp;*Verse*&nbsp;1.&nbsp;*"The faithful." "A faithful man,"*&nbsp;as a
+
+parent, a reprover, an adviser, one "without guile,"&nbsp;*"who can*&nbsp;
+
+find?"Proverbs 20:6. Look close. View thyself in the glass of
+
+the word. Does thy neighbour or thy friend, find thee&nbsp;*faithful*&nbsp;
+
+to him? What does our daily intercourse witness? Is not the attempt
+
+to speak what is agreeable oft made at the expense of truth? Are not
+
+professions of regard sometimes utterly inconsistent with our real
+
+feelings? In common life, where gross violations are restrained, a
+
+thousand petty offences are allowed, that break down the wall between
+
+sin and duty, and, judged by the divine standard, are indeed guilty
+
+steps upon forbidden ground.&nbsp;*Charles Bridges,*&nbsp;1850.
+
+&nbsp;*Verse*&nbsp;1. A&nbsp;*"faithful"*&nbsp;man must be, first of all,
+
+faithful to himself; then, he must be faithful to God; and then, he
+
+must be faithful to others, particularly the church of God. And this,
+
+as it regards ministers, is of peculiar importance.&nbsp;*Joseph*&nbsp;
+
+Irons,1840.
+
+&nbsp;*Verse*&nbsp;1. Even as a careful mother, seeing her child in the way
+
+when a company of unruly horses run through the streets in full
+
+career, presently whips up her child in her arms and taketh him home;
+
+or as the hen, seeing the ravenous kite over her head, clucks and
+
+gathers her chickens under her wings; even so when God hath a purpose
+
+to bring a heavy calamity upon a land, it hath been usual with him to
+
+call and cull out to himself such as are his dearly beloved. He takes
+
+his choice servants from the evil to come. Thus was Augustine removed
+
+a little before Hippo (wherein he dwelt) was taken; Paroeus died
+
+before Heidelburg was sacked; and Luther was taken off before Germany
+
+was overrun with war and bloodshed.&nbsp;*Ed. Dunsterville in a Sermon*&nbsp;
+
+at the Funeral of Sir Sim. Harcourt,1642.
+
+&nbsp;*Verse*&nbsp;1.&nbsp;*"Help, Lord; for the godly man ceaseth,"*&nbsp;
+
+etc.:—
+
+## Back, then, complainer, loathe thy life no more,
+
+Nor deem thyself upon a desert shore,
+
+Because the rocks the nearer prospect close.
+
+Yet in fallen Israel are there hearts and eyes,
+
+That day by day in prayer like thine arise;
+
+Thou knowest them not, but their Creator known.
+
+Go, to the world return, nor fear to cast
+
+Thy bread upon the waters, sure at last
+
+In joy to find it after many days.
+
+&nbsp;*John Keble,*&nbsp;1792-1866.
+
+&nbsp;*Verses*&nbsp;1, 2, 4. Consider our markets, our fairs, our private
+
+contracts and bargains, our shops, our cellars, our weights, our
+
+measures, our promises, our protestations, our politic tricks and
+
+villainous Machiavelism, our enhancing of the prices of all
+
+commodities, and tell, whether the twelfth Psalm may not as fitly be
+
+applied to our times as to the days of the man of God; in which the
+
+feigning, and lying, and facing, and guile, and subtlety of men
+
+provoked the psalmist to cry out,&nbsp;*"Help, Lord; for there is not a*&nbsp;
+
+godly man left: for the faithful are failed from among the children
+
+of men: they speak deceitfully every one with his neighbour,
+
+flattering with their lips, and speak with a double heart, which have
+
+said, With our tongue we will prevail; our lips are our own: who is
+
+Lord over us?" R. Wolcombe,1612.
+
+&nbsp;*Verse*&nbsp;2.&nbsp;*"They speak vanity every one with his neighbour:*&nbsp;
+
+with flattering lips and with a double heart do they speak."The
+
+feigned zeal is just like a waterman, that looks one way and rows
+
+another way; for this man&nbsp;*pretends*&nbsp;one thing and
+
+&nbsp;*intends*&nbsp;another thing; as Jehu pretended the zeal of God's
+
+glory, but his aim was at his master's kingdom; and his zeal to God's
+
+service was but to bring him to the sceptre of the kingdom. So
+
+Demetrius professed great love unto Diana, but his drift was to
+
+maintain the honour of his profession; and so we have too many that
+
+make great show of holiness, and yet their hearts aim at other ends;
+
+but they may be sure, though they can deceive the world and destroy
+
+themselves, yet not God, who knoweth the secrets of all hearts.
+
+&nbsp;*Gr. Williams,*&nbsp;1636.
+
+&nbsp;*Verse*&nbsp;2.&nbsp;*"They speak vanity."*&nbsp;—
+
+## Faithless is earth, and faithless are the skies!
+
+Justice is fled, and truth is now no more!
+
+&nbsp;*Virgil's Æneid,*&nbsp;IV. 373.
+
+&nbsp;*Verse*&nbsp;2.&nbsp;*"With a double heart."*&nbsp;Man is nothing but
+
+insincerity, falsehood, and hypocrisy, both in regard to himself and
+
+in regard to others. He does not wish that he should be told the
+
+truth, he shuns saying it to others; and all these moods, so
+
+inconsistent with justice and reason, have their roots in his heart.
+
+&nbsp;*Blaise Pascal.*&nbsp;
+
+&nbsp;*Verse*&nbsp;2.&nbsp;*"With flattering lips and with a double heart do*&nbsp;
+
+they speak."There is no such stuff to make a cloak of as
+
+religion; nothing so fashionable, nothing so profitable: it is a
+
+livery wherein a wise man may serve two masters, God and the world,
+
+and make a gainful service by either. I serve both, and in both
+
+myself, by prevaricating with both. Before man none serves his God
+
+with more devotion; for which, among the best of men, I work my own
+
+ends, and serve myself. In private, I serve the world; not with so
+
+strict devotion, but with more delight; where fulfilling of her
+
+servants' lusts, I work my end and serve myself. The house of prayer
+
+who more frequents than I? In all Christian duties who more forward
+
+than I? I fast with those who fast, that I may eat with those that
+
+eat. I mourn with those that mourn. No hand more open to the cause
+
+than mine, and in their families none prays longer and with louder
+
+zeal. Thus when the opinion of a holy life hath cried the goodness of
+
+my conscience up, my trade can lack no custom, my wares can want no
+
+price, my words can need no credit, my actions can lack no praise. If
+
+I am covetous, it is interpreted providence; if miserable, it is
+
+counted temperance; if melancholy, it is construed godly sorrow; if
+
+merry, it is voted spiritual joy; if I be rich, it is thought the
+
+blessing of a godly life; if poor, supposed the fruit of conscionable
+
+dealing; if I be well spoken of, it is the merit of holy
+
+conversation; if ill, it is the malice of malignants. Thus I sail
+
+with every wind, and have my end in all conditions. This cloak in
+
+summer keeps me cool, in winter warm, and hides the nasty bag of all
+
+my secret lusts. Under this cloak I walk in public fairly with
+
+applause, and in private sin securely without offence, and officiate
+
+wisely without discovery. I compass sea and land to make a proselyte;
+
+and no sooner made, but he makes me. At a fast I cry Geneva, and at a
+
+feast I cry Rome. If I be poor, I counterfeit abundance to save my
+
+credit; if rich, I dissemble poverty to save charges. I most frequent
+
+schismatical lectures, which I find most profitable; from thence
+
+learning to divulge and maintain new doctrines; they maintain me in
+
+suppers thrice a week. I use the help of a lie sometimes, as a new
+
+stratagem to uphold the gospel; and I colour oppression with God's
+
+judgments executed upon the wicked. Charity I hold an extraordinary
+
+duty, therefore not ordinarily to be performed. What I openly reprove
+
+abroad, for my own profit, that I secretly act at home, for my own
+
+pleasure. But stay, I see a handwriting in my heart which damps my
+
+soul. It is charactered in these sad words, "Woe be to you,
+
+hypocrites." Matthew 23:13.&nbsp;*Francis Quarle's "Hypocrite's*&nbsp;
+
+Soliloquy."
+
+&nbsp;*Verse*&nbsp;2.&nbsp;*"With flattering lips,"*&nbsp;etc. The world indeed
+
+says that society could not exist if there were perfect truthfulness
+
+and candour between man and man; and that the world's propriety would
+
+be as much disturbed if every man said what he pleased, as it was in
+
+those days of Israelitish history, when every man did that which was
+
+right in his own eyes. The world is assuredly the best judge of its
+
+own condition and mode of government, and therefore I will not say
+
+what a libel does such a remark contain, but oh, what a picture does
+
+it present of the social edifice, that its walls can be cemented and
+
+kept together only by flattery and falsehood!&nbsp;*Barton*&nbsp;
+
+Bouchier.
+
+&nbsp;*Verse*&nbsp;2.&nbsp;*"Flattering lips."*&nbsp;The philosopher Bion being
+
+asked what animal he though the most hurtful, replied, "That of wild
+
+creatures a tyrant, and of tame ones a flatterer." The flatterer is
+
+the most dangerous enemy we can have. Raleigh, himself a courtier,
+
+and therefore initiated into the whole art of flattery, who
+
+discovered in his own career and fate its dangerous and deceptive
+
+power, its deep artifice and deeper falsehood, says, "A flatterer is
+
+said to be a beast that biteth smiling. But it is hard to know them
+
+from friends—they are so obsequious and full of protestations: for
+
+as a wolf resembles a dog, so doth a flatterer a friend."&nbsp;*The Book*&nbsp;
+
+of Symbols,1844.
+
+&nbsp;*Verse*&nbsp;2.&nbsp;*"They speak with a double heart."*&nbsp;The original
+
+is, "A heart and a heart:" one for the church, another for the
+
+change; one for Sundays, another for working-days; one for the king,
+
+another for the pope. A man without a heart is a wonder, but a man
+
+with two hearts is a monster. It is said of Judas, "There were many
+
+hearts in one man;" and we read of the saints, "There was one heart
+
+in many men." Acts 4:32.&nbsp;*Dabo illis cor unum;*&nbsp;a special
+
+blessing.&nbsp;*Thomas Adams.*&nbsp;
+
+&nbsp;*Verse*&nbsp;2. When men cease to be faithful to their God, he who
+
+expects to find them so to each other, will be much disappointed. The
+
+primitive sincerity will accompany the primitive piety in her flight
+
+from the earth; and then interest will succeed conscience in the
+
+regulation of human conduct, till one man cannot trust another
+
+farther than he holds him by that tie. Hence, by the way, it is, that
+
+though many are infidels themselves, yet few choose to have their
+
+families and dependents such; as judging, and rightly judging, that
+
+true Christians are the only persons to be depended on for the exact
+
+discharge of social duties.&nbsp;*George Horne.*&nbsp;
+
+&nbsp;*Verse*&nbsp;3.&nbsp;*"The Lord shall cut off all flattering lips,"*&nbsp;
+
+etc. They who take pleasure in deceiving others, will at the last
+
+find themselves most of all deceived, when the Sun of truth, by the
+
+brightness of his rising, shall at once detect and consume hypocrisy.
+
+&nbsp;*George Horne.*&nbsp;
+
+&nbsp;*Verse*&nbsp;3.&nbsp;*"Cut off lips and tongues."*&nbsp;May there not be
+
+here an allusion to those terrible but suggestive punishments which
+
+Oriental monarchs were wont to execute on criminals? Lips were cut
+
+off and tongues torn out when offenders were convicted of lying or
+
+treason. So terrible and infinitely more so are the punishments of
+
+sin.&nbsp;*C. H. S.*&nbsp;
+
+&nbsp;*Verses*&nbsp;3, 4. It need not now seem strange to tell you that the
+
+Lord is the owner of our bodies, that he has so much propriety
+
+therein that they are more his than ours. The apostle tells us as
+
+much. 1 Corinthians 6:20. "Glorify God in your bodies which are his."
+
+Our bodies, and every member thereof, are his; for if the whole be
+
+so, no part is exempted. And therefore they speak proud things, and
+
+presumptuously usurped the propriety of God, who said,&nbsp;*"Our lips*&nbsp;
+
+are our own;"as though their lips had not been his who is Lord
+
+and Owner of all, but they had been lords thereof, and might have
+
+used them as they list. This provoked God to show what right he had
+
+to dispose of such lips and tongues, by&nbsp;*cutting them off*&nbsp;.
+
+&nbsp;*David Clarkson.*&nbsp;
+
+&nbsp;*Verse*&nbsp;4.&nbsp;*"Who have said, With our tongues will we prevail;*&nbsp;
+
+who is Lord over us?"So it was: twelve poor and unlearned men on
+
+the one side, all the eloquence of Greece and Rome arrayed on the
+
+other. From the time of Tertullus to that of Julian the apostate,
+
+every species of oratory, learning, wit, was lavished against the
+
+church of God; and the result, like the well-known story of that
+
+dispute between the Christian peasant and the heathen philosopher,
+
+when the latter, having challenged the assembled fathers of a synod
+
+to silence him, was put to shame by the simple faith of the former
+
+"In the name of our Lord Jesus Christ, I command thee to be dumb."
+
+&nbsp;*"Who is lord over us?"*&nbsp;"Who is the Lord, that I should obey
+
+his voice to let Israel go?" Exodus 5:2. "What is the Almighty, that
+
+we should serve him?" Job 21:15. "Who is that God that shall deliver
+
+you?" Daniel 3:15.&nbsp;*Michael Ayguan, in J. M. Neale's*&nbsp;
+
+Commentary.
+
+&nbsp;*Verse*&nbsp;4.&nbsp;*"Our lips are our own."*&nbsp;If we have to do with
+
+God, we must quit claim to ourselves and look on God as our owner;
+
+but this is fixed in the hearts of men, We will be our own; we will
+
+not consent to the claim which God makes to us:&nbsp;*"Our lips are our*&nbsp;
+
+own."Wicked men might as well say the same thing of their whole
+
+selves; our bodies, strength, time, parts, etc., are our own, and who
+
+is Lord over us?&nbsp;*John Howe.*&nbsp;
+
+&nbsp;*Verse*&nbsp;4. From the faults of the wicked we must learn three
+
+contrary lessons; to wit: 1. That nothing which we have is our own.
+
+But, 2. Whatsoever is given to us of God is for service to be done to
+
+him. 3. That whatsoever we do or say, we have a Lord over us to whom
+
+we must be answerable when he calleth us to account.&nbsp;*David*&nbsp;
+
+Dickson.
+
+&nbsp;*Verse*&nbsp;5.&nbsp;*"For the oppression of the poor,"*&nbsp;etc. When
+
+oppressors and persecutors do snuff and puff at the people of God,
+
+when they defy them, and scorn them, and think that they can with a
+
+blast of their breath blow them away, then God will arise to
+
+judgment, as the Chaldee has it; at that very nick of time when all
+
+seems to be lost, and when the poor, oppressed, and afflicted people
+
+of God can do nothing but sigh and weep, and weep and sigh, then the
+
+Lord will arise and ease them of their oppressions, and make their
+
+day of extremity a glorious opportunity to work for his own glory,
+
+and his people's good. Matthew 22:6, 7. "And the remnant took his
+
+servants, and entreated them spitefully, and slew them. But when the
+
+king heard thereof, he was wroth: and he sent forth his armies and
+
+destroyed those murderers, and burned up their city."&nbsp;*Thomas*&nbsp;
+
+Brooks.
+
+&nbsp;*Verse*&nbsp;5. Fear ye, whosoever ye be, that do wrong the poor; you
+
+have power and wealth, and the favour of the judges, but they have
+
+the strongest weapons of all, sighings and groanings, which fetch
+
+help from heaven for them. These weapons dig down houses, throw up
+
+foundations, overthrow whole nations.&nbsp;*Chrysostom.*&nbsp;
+
+&nbsp;*Verse*&nbsp;5.&nbsp;*"For the sighings of the needy, now will I arise,*&nbsp;
+
+saith the Lord."God is pleased to take notice of&nbsp;*every*&nbsp;
+
+grace, even the least and lowest, and every gracious inclination
+
+in any of his servants.&nbsp;*To fear his name*&nbsp;is no great matter,
+
+yet these have a promise.&nbsp;*To think on his name*&nbsp;less, yet set
+
+down in a "book of remembrance." God sets down how many good
+
+&nbsp;*thoughts*&nbsp;a poor soul hath had. As evil thoughts in wicked men
+
+are taken notice of—they are the first fruits of the evil heart
+
+(Matthew 15:19)—so good thoughts are they which lie uppermost, and
+
+best discover a good heart.&nbsp;*A desire*&nbsp;is a small matter,
+
+especially of the poor man, yet God regards the desire of the poor,
+
+and calls a good desire the greatest kindness; "The desire of a man
+
+is his kindness." A&nbsp;*tear*&nbsp;makes no great noise, yet hath a
+
+voice, "God hath heard the voice of my weeping." It is no pleasant
+
+water, yet God bottles it up.&nbsp;*A groan*&nbsp;is a poor thing, yet is
+
+the best part of a prayer sometimes (Romans 8:26);&nbsp;*a sigh*&nbsp;is
+
+less, yet&nbsp;*God is awakened and raised up by it.*&nbsp;Psalm 12:5.
+
+&nbsp;*A look*&nbsp;is less than all these, yet this is regarded (Jonah
+
+2:4);&nbsp;*breathing*&nbsp;is less, yet (Lamentations 3:56), the church
+
+could speak of no more;&nbsp;*panting*&nbsp;is less than breathing, when
+
+one is spent for lack of breath, yet this is all the godly can
+
+sometimes boast of. Psalm 42:1. The description of a godly man is
+
+ofttimes made from his least&nbsp;*quod sic.*&nbsp;Blessed are the
+
+&nbsp;*poor,*&nbsp;the&nbsp;*meek,*&nbsp;they that&nbsp;*mourn,*&nbsp;and they who
+
+&nbsp;*hunger*&nbsp;and&nbsp;*thirst.*&nbsp;Never did Hannah pray better than
+
+when she could get out never a word, but cried, "Hard, hard heart."
+
+Nor did the publican, than when he smote his breast and cried, "Lord,
+
+be merciful to me a sinner." Nor Mary Magdalene, than when she came
+
+behind Christ, sat down, wept, but kept silence. How sweet is music
+
+upon the&nbsp;*waters!*&nbsp;How fruitful are the lowest valleys! Mourning
+
+hearts are most musical, lowest most fruitful. The good shepherd ever
+
+takes most care of his weak lambs and feeble sheep. The father makes
+
+most of the least, and the mother looks most after the sick child.
+
+How comfortable is that of our Saviour, "It is not the will of your
+
+Father which is in heaven that one of these little ones should
+
+perish!" And that heaven is not to be entered but by such as are like
+
+the little child.&nbsp;*John Sheffield,*&nbsp;1654.
+
+&nbsp;*Verse*&nbsp;5.&nbsp;*"The oppression of the poor."*&nbsp;Insolent and
+
+cruel oppressing of the poor is a sin that brings desolating and
+
+destroying judgments upon a people. God sent ten wasting judgments
+
+one after another upon Pharaoh, his people, and land, to revenge the
+
+cruel oppression of his poor people. "Rob not the poor, because he is
+
+poor: neither oppress the afflicted in the gate: for the Lord will
+
+plead their cause." Proverbs 22:22, 23. To rob and oppress the rich
+
+is a great sin; but to rob and oppress the poor is a greater; but to
+
+rob and oppress the poor because he is poor, and wants money to buy
+
+justice, is the top of all inhumanity and impiety. To oppress anyone
+
+is sin; but to oppress the oppressed is the height of sin. Poverty,
+
+and want, and misery, should be motives to pity; but oppressors make
+
+them the whetstone of their cruelty and severity, and therefore the
+
+Lord will plead the cause of his poor oppressed people against their
+
+oppressors without fee or fear; yea, he will plead their cause with
+
+pestilence, blood, and fire. Gog was a great oppressor of the poor
+
+(Ezekiel 38:8-14), and God pleads against him with pestilence, blood,
+
+and fire (verse 22); "and I will plead against him, with pestilence
+
+and with blood; and I will rain upon him, and upon his bands, and
+
+upon the many people that are with him, an overflowing rain, and
+
+great hailstones, fire, and brimstone.&nbsp;*Thomas Brooks.*&nbsp;
+
+&nbsp;*Verse*&nbsp;6.&nbsp;*"The words of the Lord are pure words,"*&nbsp;etc.
+
+How beautifully is this verse introduced, by way of contrast to what
+
+was said before concerning! Do sinners talk of vanity? let saints
+
+then speak of Jesus and his gospel. Do they talk impure words? then
+
+let the faithful use the pure words of God, which like silver, the
+
+more used, the more melted in the fire, the more precious will they
+
+be. It is true, indeed, despisers will esteem both God and his word
+
+as trifling; but oh, what an unknown treasure doth the word, the
+
+promises, the covenant relation of the divine things of Jesus
+
+contain! They are more to be desired than gold, yea, than pure gold;
+
+sweeter also than honey and the honeycomb.&nbsp;*Robert Hawker.*&nbsp;
+
+&nbsp;*Verse*&nbsp;6.&nbsp;*"The words of the Lord are pure words,"*&nbsp;etc.
+
+They that purify silver to the purpose, use to put it in the fire
+
+again and again, that it may be thoroughly tried. So is the truth of
+
+God; there is scarce any truth but hath been tried over and over
+
+again, and still if any dross happens to mingle with it, then God
+
+calls it in question again. If in former times there have been
+
+Scriptures alleged that have not been pertinent to prove it, that
+
+truth shall into the fire again, that what is dross may be burnt up;
+
+the Holy Ghost is so curious, so delicate, so exact, he cannot bear
+
+that falsehood should be mingled with the truths of the gospel. This
+
+is the reason, therefore, why that God doth still, age after age,
+
+call former things in question, because that there is still some
+
+dross one way or other mingled with them; either in the stating the
+
+opinions themselves, or else in the Scriptures that are brought and
+
+alleged for them, that have passed for current, for he will never
+
+leave till he have purified them. The doctrine of God's free grace
+
+hath been tried over and over, and over again. Pelagius begins, and
+
+he mingles his dross with it: he saith, grace is nothing but nature
+
+in man. Well, his doctrine was purified, and a great deal of dross
+
+purged out. Then come the semi-Pelagians, and they part stakes; they
+
+say, nature can do nothing without grace, but they make nature to
+
+concur with grace, and to have an influence as well as grace; and the
+
+dross of that was burnt up. The Papists, they take up the same
+
+quarrel, but will neither be Pelagians nor semi-Pelagians, yet still
+
+mingle dross. The Arminians, they come, and they refine popery in
+
+that point anew; still they mingle dross. God will have this truth
+
+tried seven times in the fire, til he hath brought it forth as pure
+
+as pure may be. And I say it is because that truth is thus precious.
+
+&nbsp;*Thomas Goodwin.*&nbsp;
+
+&nbsp;*Verse*&nbsp;6. The Scripture is the sun; the church is the clock.
+
+The sun we know to be sure, and regularly constant in his motions;
+
+the clock, as it may fall out, may go too fast or too slow. As then,
+
+we should condemn him of folly that should profess to trust the clock
+
+rather than the sun, so we cannot but justly tax the credulity of
+
+those who would rather trust to the church than to the Scripture.
+
+&nbsp;*Bishop Hall.*&nbsp;
+
+&nbsp;*Verse*&nbsp;6.&nbsp;*"The words of the Lord are pure words."*&nbsp;Men
+
+may inspect detached portions of the Book, and please themselves with
+
+some things, which at first view, have the semblance of conniving at
+
+what is wrong. But let them read it, let them read the whole of it;
+
+let them carry along in their minds the character of the persons to
+
+which the different portions of it were addressed; the age of the
+
+world, and the circumstances under which the different parts of it
+
+were written, and the particular objects which even those portions of
+
+it have in view, which to an infidel mind appear the most
+
+exceptionable; and they may be rationally convinced that, instead of
+
+originating in the bosom of an impostor, it owes its origin to men
+
+who wrote "as they were moved by the Holy Ghost." Let them scrutinise
+
+it with as much severity as they please; only let their scrutiny be
+
+well informed, wisely directed, and with a fair and ingenuous mind,
+
+and we have no fears for the issue. There are portions of it on which
+
+ignorance and folly have put constructions that are forced and
+
+unnatural, and which impure minds have viewed in shadows reflected
+
+from their own impurity. Montesquieu said of Voltaire,&nbsp;*Lorsque*&nbsp;
+
+Voltaire lit un livre, il le fait, puis il ècrit contre ce qu'il a
+
+fait:"When Voltaire reads a book, he makes it what he pleases,
+
+and then writes against what he has made." It is no difficult matter
+
+to besmear and blot its pages and then impute the foul stains that
+
+men of corrupt minds have cast upon it, to its stainless Author. But
+
+if we honestly look at it as it is, we shall find that like its
+
+Author, it is without blemish and without spot.&nbsp;*Gardiner Spring,*&nbsp;
+
+D.D.
+
+&nbsp;*Verse*&nbsp;6.&nbsp;*"The words of the Lord are pure words: as silver*&nbsp;
+
+tried in a furnace of earth, purified seven times."The
+
+expression may import two things: first, the infallible certainty of
+
+the word; and, secondly, the exact purity. First, the infallible
+
+certainty of the word, as gold endureth in the fire when the dross is
+
+consumed. Vain conceits comfort us not in a time of trouble: but the
+
+word of God, the more it is tried, the more you will find the
+
+excellency of it—the promise is tried, as well as we are tried, in
+
+deep afflictions; but when it is so, it will be found to be most
+
+pure. "The word of the Lord is tried; he is a buckler to all those
+
+who trust in him" (Proverbs 30:5); as pure gold suffers no loss by
+
+the fire, so the promises suffer no loss when they are tried, but
+
+stand to us in our greatest troubles. Secondly, it notes the exact
+
+perfection of the word: there is no dross in silver and gold that
+
+hath been often refined; so there is no defect in the word of God.
+
+&nbsp;*Thomas Manton.*&nbsp;
+
+&nbsp;*Verse*&nbsp;6. Fry thus translates this verse:—
+
+## The words of Jehovah are pure words—
+
+Silver refined in the crucible—
+
+Gold, seven times washed from the earth.
+
+(Heb.) though sometimes applied to express the purity of silver, is
+
+more strictly an epithet of gold, from the peculiar method made use
+
+of in separating it from the soil by repeated washings and
+
+decantations.&nbsp;*John Fry, in loc.*&nbsp;
+
+&nbsp;*Verse*&nbsp;6.&nbsp;*"Seven times."*&nbsp;I cannot but admit that there
+
+may be a mystic meaning in the expression "seven times," in allusion
+
+to the seven periods of the church, or to that perfection, implied in
+
+the figure seven, to which it is to be brought at the revelation of
+
+Jesus Christ. This will be more readily allowed by those who admit of
+
+the prophetic interpretation of the seven epistles of the Book of
+
+Revelation.&nbsp;*W. Wilson, D. D., in loc.*&nbsp;
+
+&nbsp;*Verse*&nbsp;8.&nbsp;*"When the vilest men are exalted:"*&nbsp;Hebrew,
+
+&nbsp;*vilities,*&nbsp;outidanoi the abstract for the concrete,
+
+&nbsp;*quisquiliae*&nbsp;, outidanoi. Oft, empty vessels swim aloft, rotten
+
+posts are gilt with adulterate gold, the worst weeds spring up
+
+bravest. Chaff will get to the top of the fan, when good corn, as it
+
+lieth at the bottom of the heap, so it falls low at the feet of the
+
+fanner. The reason why wicked men&nbsp;*"walk"*&nbsp;on every side, are so
+
+brisk, so busy (and who but they?) is given to be this, because
+
+losels and rioters were exalted. See Proverbs 28:12, 18 and 29:2. As
+
+rheums and catarrhs fall from the head to the lungs, and cause a
+
+consumption of the whole body, so it is in the body politic. As a
+
+fish putrefies first in the head and then in all the parts, so here.
+
+Some render the text thus,&nbsp;*"When they*&nbsp;(that is, the wicked)
+
+&nbsp;*are exalted,"*&nbsp;it is a&nbsp;*"shame*&nbsp;for the sons of men," that
+
+other men who better deserve preferment, are not only slighted, but
+
+vilely handled by such worthless ambitionists, who yet the higher
+
+they climb, as apes, the more they discover their deformities."
+
+&nbsp;*John Trapp.*&nbsp;
+
+&nbsp;*Verse*&nbsp;8. Good thus translates this verse:—
+
+## Should the wicked advance on every side;
+
+Should the dregs of the earth be uppermost?
+
+The original is given literally. (Heb.) means "foeces, foeculences,
+
+dregs. (Heb.) is here an adverb, and imports&nbsp;*uppermost*&nbsp;, rather
+
+than&nbsp;*exalted*&nbsp;.&nbsp;*J. Mason Good, in loc.*&nbsp;
+
+## HINTS TO THE VILLAGE PREACHER
+
+&nbsp;*Verse*&nbsp;1.&nbsp;*"Help, Lord."*&nbsp;
+
+I. The Prayer itself, short, suggestive,
+
+seasonable, rightly directed, vehement.
+
+II. Occasions for its use.
+
+III. Modes of its answer.
+
+IV. Reasons for expecting gracious
+
+reply.
+
+&nbsp;*Verse*&nbsp;1.&nbsp;*First two clauses*&nbsp;. Text for funeral of an
+
+eminent believer.
+
+&nbsp;*Verse*&nbsp;1.&nbsp;*Whole verse*&nbsp;.
+
+I.&nbsp;*The fact bewailed*&nbsp;—describe
+
+godly and faithful, and show how they fail.
+
+II.&nbsp;*The feeling excited.*&nbsp;Mourning
+
+the loss, fears for church, personal need of such companions, appeal
+
+to God.
+
+III.&nbsp;*The forebodings aroused.*&nbsp;
+
+Failure of the cause, judgments impending, etc.
+
+IV.&nbsp;*The faith remaining:*&nbsp;"Help,
+
+Lord."
+
+&nbsp;*Verse*&nbsp;1. Intimate connection between yielding honour to God
+
+and honesty to man, since they decline together.
+
+&nbsp;*Verse*&nbsp;2. (&nbsp;*first clause*&nbsp;). A discourse upon the
+
+prevalence and perniciousness of vain talk.
+
+&nbsp;*Verse*&nbsp;2.&nbsp;*The whole verse*&nbsp;. Connection between flattery
+
+and treachery.
+
+&nbsp;*Verse*&nbsp;2.&nbsp;*"A double heart."*&nbsp;Right and wrong kinds of
+
+hearts, and the disease of duplicity.
+
+&nbsp;*Verse*&nbsp;3. God's hatred of those twin sins of the lips—Flattery
+
+and Pride (which is self flattery). Why he hates them. How he shows
+
+his hatred. In whom he hates them most. How to be cleansed from
+
+them.
+
+&nbsp;*Verses*&nbsp;3, 4.
+
+I.&nbsp;*The revolt of the tongue*&nbsp;. Its
+
+claim of power, self-possession, and liberty. Contrast this and the
+
+believer's confession, "we are not our own."
+
+II.&nbsp;*The method of its rebellion*&nbsp;—
+
+"flattery, and speaking proud things."
+
+III.&nbsp;*The end of its treason*&nbsp;—"cut
+
+off."
+
+&nbsp;*Verse*&nbsp;5. The Lord aroused—How! Why! What to do! When!
+
+&nbsp;*Verse*&nbsp;5.&nbsp;*Last clause*&nbsp;. Peculiar danger of believers from
+
+those who despise them and their special safety. Good practical
+
+topic.
+
+&nbsp;*Verse*&nbsp;6. The purity, trial, and permanency of the words of the
+
+Lord.
+
+Seven crucibles in which believers try the word. A little thought
+
+will suggest these.
+
+&nbsp;*Verse*&nbsp;7. Preservation from one's generation in this life and
+
+for ever. A very suggestive theme.
+
+&nbsp;*Verse*&nbsp;8.&nbsp;*Sin in high places specially infectious.*&nbsp;Call
+
+to the rich and prominent to remember their responsibility.
+
+Thankfulness for honourable rulers. Discrimination to be used in
+
+choice of our representatives, or civic magistrates.
+
+## WORK UPON THE TWELFTH PSALM
+
+In&nbsp;*"A Godly Meditation upon XX select Psalms*&nbsp;. . . . . . . .
+
+By Sir ANTHONY COPE, Knight, 1547," a thin black letter 4to., is an
+
+Exposition, or rather Meditation, on this Psalm. Reprinted 1848.
+

@@ -1,0 +1,1730 @@
+# Psalm 11
+
+SUBJECT.&nbsp;*Charles Simeon gives an excellent summary of this Psalm*&nbsp;
+
+in the following sentences:—"The Psalms are a rich repository of
+
+experimental knowledge. David, at the different periods of his life,
+
+was placed in almost every situation in which a believer, whether
+
+rich or poor, can be placed; in these heavenly compositions he
+
+delineates all the workings of the heart. He introduces, too, the
+
+sentiments and conduct of the various persons who were accessory
+
+either to his troubles or his joys; and thus sets before us a
+
+compendium of all that is passing in the hearts of men throughout the
+
+world. When he penned this Psalm he was under persecution from Saul,
+
+who sought his life, and hunted him 'as a partridge upon the
+
+mountains.' His timid friends were alarmed for his safety, and
+
+recommended him to flee to some mountain where he had a hiding-place,
+
+and thus to conceal himself from the rage of Saul. But David, being
+
+strong in faith, spurned the idea of resorting to any such
+
+pusillanimous expedients, and determined confidently to repose his
+
+trust in God."
+
+&nbsp;*To assist us to remember this short,*&nbsp;
+
+but sweet Psalm, we will give it the name of"THE SONG OF THE
+
+STEADFAST."
+
+DIVISION.&nbsp;*From 1 to 3, David describes the temptation with which*&nbsp;
+
+he was assailed, and from 4 to 7, the arguments by which his courage
+
+was sustained.
+
+## EXPOSITION
+
+Verse 1. These verses contain an account of a temptation to distrust
+
+God, with which David was, upon some unmentioned occasion, greatly
+
+exercised. It may be, that in the days when he was in Saul's court,
+
+he was advised to flee at a time when this flight would have been
+
+charged against him as a breach of duty to the king, or a proof of
+
+personal cowardice. His case was like that of Nehemiah, when his
+
+enemies, under the garb of friendship, hoped to entrap him by
+
+advising him to escape for his life. Had he done so, they could then
+
+have found a ground of accusation. Nehemiah bravely replied, "Shall
+
+such a man as I flee?" and David, in a like spirit, refuses to
+
+retreat, exclaiming,&nbsp;*"In the Lord put I my trust: how say ye to my*&nbsp;
+
+soul, Flee as a bird to your mountain?"When Satan cannot
+
+overthrow us by presumption, how craftily will he seek to ruin us by
+
+distrust! He will employ our dearest friends to argue us out of our
+
+confidence, and he will use such plausible logic, that unless we once
+
+for all assert our immovable trust in Jehovah, he will make us like
+
+the timid bird which flies to the mountain whenever danger presents
+
+itself.
+
+Verse 2. How forcibly the case is put! The bow is bent, the arrow is
+
+fitted to the string: "Flee, flee, thou defenceless bird, thy safety
+
+lies in flight; begone, for thine enemies will send their shafts into
+
+thy heart; haste, haste, for soon wilt thou be destroyed!" David
+
+seems to have felt the force of the advice, for it came home&nbsp;*to*&nbsp;
+
+his soul;but yet he would not yield, but would rather dare the
+
+danger than exhibit a distrust in the Lord his God. Doubtless the
+
+perils which encompassed David were great and imminent; it was quite
+
+true that his enemies were&nbsp;*ready*&nbsp;to&nbsp;*shoot privily*&nbsp;at
+
+him.
+
+Verse 3. It was equally correct that the very&nbsp;*foundations*&nbsp;of
+
+law and justice were&nbsp;*destroyed*&nbsp;under Saul's unrighteous
+
+government: but what were all these things to the man whose trust was
+
+in God alone? He could brave the dangers, could escape the enemies,
+
+and defy the injustice which surrounded him. His answer to the
+
+question, "What can the righteous do?" would be the counter-question,
+
+"What cannot they do?" When prayer engages God on our side, and when
+
+faith secures the fulfillment of the promise, what cause can there be
+
+for flight, however cruel and mighty our enemies? With a sling and a
+
+stone, David had smitten a giant before whom the whole hosts of
+
+Israel were trembling, and the Lord, who delivered him from the
+
+uncircumcised Philistine, could surely deliver him from King Saul and
+
+his myrmidons. There is no such word as "impossibility" in the
+
+language of faith; that martial grace knows how to fight and conquer,
+
+but she knows not how to flee.
+
+Verse 4. David here declares the great source of his unflinching
+
+courage. He borrows his light from heaven—from the great central orb
+
+of deity. The God of the believer is never far from him; he is not
+
+merely the God of the mountain fastnesses, but of the dangerous
+
+valleys and battle plains.
+
+&nbsp;*"Jehovah is in his holy temple."*&nbsp;
+
+The heavens are above our heads in all regions of the earth, and so
+
+is the Lord ever near to us in every state and condition. This is a
+
+very strong reason why we should not adopt the vile suggestions of
+
+distrust. There is one who pleads his precious blood in our behalf in
+
+the temple above, and there is one upon the throne who is never deaf
+
+to the intercession of his Son. Why, then, should we fear? What plots
+
+can men devise which Jesus will not discover? Satan has doubtless
+
+desired to have us, that he may sift us as wheat, but Jesus is in the
+
+temple praying for us, and how can our faith fail? What attempts can
+
+the wicked make which Jehovah shall not behold? And since he is in
+
+his holy temple, delighting in the sacrifice of his Son, will he not
+
+defeat every device, and send us a sure deliverance?
+
+&nbsp;*"Jehovah's throne is in the*&nbsp;
+
+heavens;"he reigns supreme. Nothing can be done in heaven, or
+
+earth, or hell, which he doth not ordain and over-rule. He is the
+
+world's great Emperor. Wherefore, then, should we flee? If we trust
+
+this King of kings, is not this enough? Cannot he deliver us without
+
+our cowardly retreat? Yes, blessed be the Lord our God, we can salute
+
+him as Jehovah-nissi; in his name we set up our banners, and instead
+
+of flight, we once more raise the shout of war.
+
+&nbsp;*"His eyes behold."*&nbsp;The eternal
+
+Watcher never slumbers; his eyes never know a sleep.&nbsp;*"His eyelids*&nbsp;
+
+try the children of men:"he narrowly inspects their actions,
+
+words, and thoughts. As men, when intently and narrowly inspecting
+
+some very minute object, almost close their eyelids to exclude every
+
+other object, so will the Lord look all men through and through. God
+
+sees each man as much and as perfectly as if there were no other
+
+creature in the universe. He sees us always; he never removes his eye
+
+from us; he sees us entirely, reading the recesses of the soul as
+
+readily as the glancings of the eye. Is not this a sufficient ground
+
+of confidence, and an abundant answer to the solicitations of
+
+despondency? My danger is not hid from him; he knows my extremity,
+
+and I may rest assured that he will not suffer me to perish while I
+
+rely alone on him. Wherefore, then, should I take wings of a timid
+
+bird, and flee from the dangers which beset me?
+
+Verse 5.&nbsp;*"The Lord trieth the righteous:"*&nbsp;he doth not hate
+
+them, but only tries them. They are precious to him, and therefore he
+
+refines them with afflictions. None of the Lord's children may hope
+
+to escape from trial, nor, indeed, in our right minds, would any of
+
+us desire to do so, for trial is the channel of many blessings.
+
+## "Tis my happiness below
+
+Not to live without the cross;
+
+But the Saviour's power to know,
+
+Sanctifying every loss.
+
+* * * * * * * *
+
+Trials make the promise sweet;
+
+Trials give new life to prayer;
+
+Trials bring me to his feet—
+
+Lay me low, and keep me there.
+
+Did I meet no trials here—
+
+No chastisement by the way—
+
+Might I not, with reason, fear
+
+I should prove a cast-away?
+
+Bastards may escape the rod,
+
+Sunk in earthly vain delight;
+
+But the true-born child of God
+
+Must not—would not, if he might."
+
+&nbsp;*William Cowper.*&nbsp;
+
+Is not this a very cogent reason why we should not distrustfully
+
+endeavour to shun a trial?—for in so doing we are seeking to avoid a
+
+blessing.
+
+Verse 6.&nbsp;*"But the wicked and him that loveth violence his soul*&nbsp;
+
+hateth:"why, then, shall I flee from these wicked men? If God
+
+hateth them, I will not fear them. Haman was very great in the palace
+
+until he lost favour, but when the king abhorred him, how bold were
+
+the meanest attendants to suggest the gallows for the man at whom
+
+they had often trembled! Look at the black mark upon the faces of our
+
+persecutors, and we shall not run away from them. If God is in the
+
+quarrel as well as ourselves, it would be foolish to question the
+
+result, or avoid the conflict. Sodom and Gomorrah perished by a fiery
+
+hail, and by a brimstone shower from heaven; so shall all the
+
+ungodly. They may gather together like Gog and Magog to battle, but
+
+the Lord will rain upon them "an overflowing rain, and great
+
+hailstones, fire, and brimstone:" Ezekiel 38:22. Some expositors
+
+think that in the term "horrible tempest," there is in the Hebrew an
+
+allusion to that burning, suffocating wind, which blows across the
+
+Arabian deserts, and is known by the name of Simoom. "A burning
+
+storm," Lowth calls it, while another great commentator reads it
+
+"wrathwind;" in either version the language is full of terrors. What
+
+a tempest will that be which shall overwhelm the despisers of God!
+
+Oh! what a shower will that be which shall pour out itself for ever
+
+upon the defenceless heads of impenitent sinners in hell! Repent, ye
+
+rebels, or this fiery deluge shall soon surround you. Hell's horrors
+
+shall be your inheritance, your entailed estate, "the portion of your
+
+cup." The dregs of that cup you shall wring out, and drink for ever.
+
+A drop of hell is terrible, but what must a full cup of torment be?
+
+Think of it—a cup of misery, but not a drop of mercy. O people of
+
+God, how foolish is it to fear the faces of men who shall soon be
+
+faggots in the fire of hell! Think of their end, their fearful end,
+
+and all fear of them must be changed into contempt of their
+
+threatenings, and pity for their miserable estate.
+
+Verse 7. The delightful contrast of the last verse is well worthy of
+
+our observation, and it affords another overwhelming reason why we
+
+should be stedfast, unmoveable, not carried away with fear, or led to
+
+adopt carnal expedients in order to avoid trial.&nbsp;*"For the*&nbsp;
+
+righteous Lord loveth righteousness."It is not only his office
+
+to defend it, but his nature to love it. He would deny himself if he
+
+did not defend the just. It is essential to the very being of God
+
+that he should be just; fear not, then, the end of all your trials,
+
+but "be just, and fear not." God approves, and, if men oppose, what
+
+matters it?&nbsp;*"His countenance doth behold the upright."*&nbsp;We need
+
+never be out of countenance, for God countenances us. He observes, he
+
+approves, he delights in the upright. He sees his own image in them,
+
+an image of his own fashioning, and therefore with complacency he
+
+regards them. Shall we dare to put forth our hand unto iniquity in
+
+order to escape affliction? Let us have done with by-ways and short
+
+turnings, and let us keep to that fair path of right along which
+
+Jehovah's smile shall light us. Are we tempted to put our light under
+
+a bushel, to conceal our religion from our neighbours? Is it
+
+suggested to us that there are ways of avoiding the cross, and
+
+shunning the reproach of Christ? Let us not hearken to the voice of
+
+the charmer, but seek an increase of faith, that we may wrestle with
+
+principalities and powers, and follow the Lord, fully going without
+
+the camp, bearing his reproach. Mammon, the flesh, the devil, will
+
+all whisper in our ear, "Flee as a bird to your mountain;" but let us
+
+come forth and defy them all. "Resist the devil, and he will flee
+
+from you." There is no room or reason for retreat. Advance! Let the
+
+vanguard push on! To the front! all ye powers and passions of our
+
+soul. On! on! in God's name, on! for "the Lord of hosts is with us;
+
+the God of Jacob is our refuge."
+
+## EXPLANATORY NOTES AND QUAINT SAYINGS
+
+&nbsp;*Whole Psalm.*&nbsp;The most probable account of the occasion of this
+
+Psalm is that given by Amyraldus. He thinks it was composed by David
+
+while he was in the court of Saul, at a time when the hostility of
+
+the king was beginning to show itself, and before it had broken out
+
+into open persecution. David's friends, or those professing to be so,
+
+advised him to flee to his native mountains for a time, and remain in
+
+retirement, till the king should show himself more favourable. David
+
+does not at that time accept the counsel, though afterwards he seems
+
+to have followed it. This Psalm applies itself to the establishment
+
+of the church against the calumnies of the world and the compromising
+
+counsel of man, in that confidence which is to be placed in God the
+
+Judge of all.&nbsp;*W. Wilson, D.D., in loc.,*&nbsp;1860.
+
+&nbsp;*Whole Psalm.*&nbsp;If one may offer to make a modest conjecture, it
+
+is not improbable this Psalm might be composed on the sad murder of
+
+the priests by Saul (1 Samuel 22:19), when after the slaughter of
+
+Abimelech, the high priest, Doeg, the Edomite, by command from Saul,
+
+"slew in one day fourscore and five persons which wore a linen
+
+ephod." I am not so carnal as to build the spiritual church of the
+
+Jews on the material walls of the priests' city at Nob (which then by
+
+Doeg was smitten with the edge of the sword), but this is most true,
+
+that "knowledge must preserve the people;" and (Malachi 2:7), "The
+
+priests' lips shall preserve knowledge;" and then it is easy to
+
+conclude, what an earthquake this massacre might make in the
+
+&nbsp;*foundations of religion. Thomas Fuller.*&nbsp;
+
+&nbsp;*Whole Psalm.*&nbsp;Notice how remarkably the whole Psalm corresponds
+
+with the deliverance of Lot from Sodom. This verse, with the angel's
+
+exhortation, "Escape to the mountains, lest thou be consumed," and
+
+Lot's reply, "I cannot escape to the mountains, lest some evil take
+
+me and I die." Genesis 19:17-19. And again,&nbsp;*"The Lord's seat is*&nbsp;
+
+in heaven, and upon the ungodly he shall rain snares, fire,
+
+brimstone, storm and tempest,"with "Then the Lord rained upon
+
+Sodom and Gomorrah brimstone and fire out of heaven:" and again
+
+&nbsp;*"His countenance will behold the thing that is just,"*&nbsp;with
+
+"Delivered just Lot . . . for that righteous man vexed his righteous
+
+soul with their ungodly deeds." 2 Peter 2: 7, 8.&nbsp;*Cassidorus*&nbsp;
+
+(A.D., 560)&nbsp;*in John Mason Neal's "Commentary on the Psalms, from*&nbsp;
+
+Primitive and Mediaeval Writers," 1860.
+
+&nbsp;*Whole Psalm.*&nbsp;The combatants at the Lake Thrasymene are said to
+
+have been so engrossed with the conflict that neither party perceived
+
+the convulsions of nature that shook the ground—
+
+## "An earthquake reeled unheedingly away,
+
+None felt stern nature rocking at his feet."
+
+From a nobler cause, it is thus with the soldiers of the Lamb. They
+
+believe, and, therefore, make no haste; nay, they can scarcely be
+
+said to feel earth's convulsions as other men, because their eager
+
+hope presses forward to the issue at the advent of the Lord.
+
+&nbsp;*Andrew A. Bonar.*&nbsp;
+
+&nbsp;*Verse*&nbsp;1.&nbsp;*"I trust in the Lord: how do ye say to my soul,*&nbsp;
+
+Swerve on to your mountain like a bird?"(others,&nbsp;*"O thou*&nbsp;
+
+bird.") Saul and his adherents mocked and jeered David with such
+
+taunting speeches, as conceiving that he knew no other shift or
+
+refuge, but so betaking himself unto wandering and lurking on the
+
+mountains; hopping, as it were, from one place to another like a
+
+silly bird; but they thought to ensnare and take him well enough for
+
+all that, not considering God who was David's comfort, rest and
+
+refuge.&nbsp;*Theodore Haak's "Translation of the Dutch Annotations, as*&nbsp;
+
+ordered by the Synod of Dort, in1618." London, 1657.
+
+&nbsp;*Verse*&nbsp;1.&nbsp;*"With Jehovah I have taken shelter; how say ye to*&nbsp;
+
+my soul, Flee, sparrows, to your hill?" "Your hill,"that
+
+hill from which you say your help cometh: a sneer. Repair to that
+
+boasted hill, which may indeed give you the help which it gives the
+
+sparrow: a shelter against the inclemencies of a stormy sky, no
+
+defence against our power.&nbsp;*Samuel Horsley, in loc.*&nbsp;
+
+&nbsp;*Verse*&nbsp;1.&nbsp;*"In the Lord put I my trust: how say ye to my*&nbsp;
+
+soul, Flee as a bird to your mountain?"The holy confidence of
+
+the saints in the hour of great trial is beautifully illustrated by
+
+the following ballad which Anne Askew, who was burned at Smithfield
+
+in 1546, made and sang when she was in Newgate:—
+
+## Like as the armed knight,
+
+Appointed to the field,
+
+With this world will I fight,
+
+And Christ shall be my shield.
+
+Faith is that weapon strong,
+
+Which will not fail at need:
+
+My foes, therefore, among,
+
+Therewith will I proceed.
+
+As it is had in strength
+
+And force of Christe's way,
+
+It will prevail at length,
+
+Though all the devils say nay.
+
+Faith in the fathers old
+
+Obtained righteousness;
+
+Which makes me very bold
+
+To fear no world's distress.
+
+I now rejoice in heart,
+
+And hope bids me do so;
+
+For Christ will take my part,
+
+And ease me of my woe.
+
+Thou say'st Lord, whoso knock,
+
+To them wilt thou attend:
+
+Undo therefore the lock,
+
+And thy strong power send.
+
+More enemies now I have
+
+Than hairs upon my head:
+
+Let them not me deprave,
+
+But fight thou in my stead.
+
+On thee my care I cast,
+
+For all their cruel spite:
+
+I set not by their haste;
+
+For thou art my delight.
+
+I am not she that list
+
+My anchor to let fall
+
+For every drizzling mist,
+
+My ship substantial.
+
+Not oft use I to write,
+
+In prose, nor yet in rhyme;
+
+Yet will I shew one sight
+
+That I saw in my time.
+
+I saw a royal throne,
+
+Where justice should have sit,
+
+But in her stead was one
+
+Of moody, cruel wit.
+
+Absorbed was righteousness,
+
+As of the raging flood:
+
+Satan, in his excess,
+
+Sucked up the guiltless blood.
+
+Then thought I, Jesus Lord,
+
+When thou shall judge us all,
+
+Hard it is to record
+
+On these men what will fall.
+
+Yet, Lord, I thee desire,
+
+For that they do to me,
+
+Let them not taste the hire
+
+Of their iniquity.
+
+&nbsp;*Verse*&nbsp;1.&nbsp;*"How say ye to my soul, Flee as a bird to your*&nbsp;
+
+mountain?"We may observe, that David is much pleased with the
+
+metaphor in frequently comparing himself to a bird, and that of
+
+several sorts: first, to an eagle (Psalm 103:5), "My youth is renewed
+
+like the eagle's;" sometimes to an owl (Psalm 102:6), "I am like an
+
+owl in the desert;" sometimes to a pelican, in the same verse, "Like
+
+a pelican in the wilderness;" sometimes to a sparrow (Psalm 102:7),
+
+"I watch, and am as a sparrow;" sometimes to a partridge, "As when
+
+one doth hunt a partridge." I cannot say that he doth compare himself
+
+to a dove, but he would compare himself (Psalm 55:6), "O that I had
+
+the wings of a dove, for then I would flee away and be at rest." Some
+
+will say, How is it possible that birds of so different a feather
+
+should all so fly together as to meet in the character of David? To
+
+whom we answer, That no two men can more differ one from another,
+
+that the same servant of God at several times differeth from himself.
+
+David in prosperity, when commanding, was like an&nbsp;*eagle;*&nbsp;in
+
+adversity, when contemned, like an&nbsp;*owl;*&nbsp;in devotion, when
+
+retired, like a&nbsp;*pelican;*&nbsp;in solitariness, when having no
+
+company, (of&nbsp;*Saul*&nbsp;), like a&nbsp;*partridge.*&nbsp;This general
+
+metaphor of a&nbsp;*bird*&nbsp;, which David so often used on himself, his
+
+enemies in the first verse of this Psalm used on him, though not
+
+particularising the kind thereof:&nbsp;*"Flee as a bird to your*&nbsp;
+
+mountain;"that is, speedily betake thyself to thy God, in whom
+
+thou hopest for succour and security.
+
+Seeing this counsel was both good in
+
+itself, and good at this time, why doth David seem so angry and
+
+displeased thereat? Those his words,&nbsp;*"Why say you to my soul, Flee*&nbsp;
+
+as a bird to your mountain?"import some passion, at leastwise, a
+
+disgust of the advice. It is answered, David was not offended with
+
+the counsel, but with the manner of the propounding thereof. His
+
+enemies did it ironically in a gibing, jeering way, as if his flying
+
+thither were to no purpose, and he unlikely to find there the safety
+
+he sought for. However, David was not hereby put out of conceit with
+
+the counsel, beginning this Psalm with this his firm resolution,
+
+&nbsp;*"In the Lord put I my trust: how say ye then to my soul,"*&nbsp;etc.
+
+Learn we from hence, when men give us good counsel in a jeering way,
+
+let us take the counsel, and practice it; and leave them the jeer to
+
+be punished for it. Indeed, corporal cordials may be envenomed by
+
+being wrapped up in poisoned papers; not so good spiritual advice
+
+where the good matter receives no infection from the ill manner of
+
+the delivery thereof. Thus, when the chief priests mocked our Saviour
+
+(Matthew 27:43), "He trusted in God, let him deliver him now if he
+
+will have him." Christ trusted in God never a whit the less for the
+
+fleere and flout which their profaneness was pleased to bestow upon
+
+him. Otherwise, if men's mocks should make us to undervalue good
+
+counsel, we might in this age be mocked out of our God, and Christ,
+
+and Scripture, and heaven; the apostle Jude, verse 18, having
+
+foretold that in the last times there should be mockers, walking
+
+after their own lusts.&nbsp;*Thomas Fuller.*&nbsp;
+
+&nbsp;*Verse*&nbsp;1. It is as great an offence to make a new, as to deny
+
+the true God.&nbsp;*"In the Lord put I my trust;"*&nbsp;how then&nbsp;*"say*&nbsp;
+
+ye unto my soul"(ye seducers of souls),&nbsp;*"that she should fly*&nbsp;
+
+unto the mountains as a bird;"to seek unnecessary and foreign
+
+helps, as if the Lord alone were not sufficient? "The Lord is my
+
+rock, and my fortress, and he that delivereth me, my God, and my
+
+strength; in him will I trust: my shield, the horn of my salvation,
+
+and my refuge. I will call upon the Lord, who is worthy to be
+
+praised, so shall I be safe from mine enemies." "Whom have I in
+
+heaven but thee," amongst those thousands of angels and saints, what
+
+Michael or Gabriel, what Moses or Samuel, what Peter, what Paul? "and
+
+there is none in earth that I desire in comparison of thee."&nbsp;*John*&nbsp;
+
+King,1608.
+
+&nbsp;*Verse*&nbsp;1. In temptations of inward trouble and terror, it is
+
+not convenient to dispute the matter with Satan. David in Psalm
+
+42:11, seems to correct himself for his mistake; his soul was cast
+
+down within him, and for the cure of that temptation, he had prepared
+
+himself by arguments for a dispute; but perceiving himself in a wrong
+
+course, he calls off his soul from disquiet to an immediate
+
+application to God and the promises, "Trust still in God, for I shall
+
+yet praise him;" but here he is more aforehand with his work; for
+
+while his enemies were acted by Satan to discourage him, he rejects
+
+the temptation at first, before it settled upon his thoughts, and
+
+chaseth it away as a thing that he would not give ear to.&nbsp;*"In the*&nbsp;
+
+Lord put I my trust: how say ye to my soul, Flee as a bird to your
+
+mountain?"And there are weighty reasons that should dissuade us
+
+from entering the lists with Satan in temptation of inward trouble.
+
+&nbsp;*Richard Gilpin.*&nbsp;
+
+&nbsp;*Verse*&nbsp;1. The shadow will not cool except in it. What good to
+
+have the shadow though of a mighty rock, when we sit in the open sun?
+
+To have almighty power engaged for us, and we to throw ourselves out
+
+of it, by bold sallies in the mouth of temptation! The saints' falls
+
+have been when they have run out of their trench and stronghold; for,
+
+like the conies, they are a weak people in themselves, and their
+
+strength lies in the rock of God's almightiness, which is their
+
+habitation.&nbsp;*William Gurnall.*&nbsp;
+
+&nbsp;*Verse*&nbsp;1. The saints of old would not accept deliverances on
+
+base terms. They scorned to fly away for the enjoyment of rest except
+
+it were with the wings of a dove, covered with silver innocence. As
+
+willing were many of the martyrs to die as to dine. The tormentors
+
+were tired in torturing Blandina. "We are ashamed, O Emperor! The
+
+Christians laugh at your cruelty, and grow the more resolute," said
+
+one of Julian's nobles. This the heathen counted obstinacy; but they
+
+knew not the power of the Spirit, nor the secret armour of proof,
+
+which saints wear about their hearts.&nbsp;*John Trapp.*&nbsp;
+
+&nbsp;*Verse*&nbsp;2.&nbsp;*"For, lo, the wicked bend their bow,"*&nbsp;etc.
+
+This verse presents an unequal combat betwixt&nbsp;*armed power,*&nbsp;
+
+advantaged with policy,on the one side; and&nbsp;*naked*&nbsp;
+
+innocenceon the other. First,&nbsp;*armed power: "They bend their*&nbsp;
+
+bows, and make ready their arrows,"being all the artillery of
+
+that age; secondly,&nbsp;*advantaged with policy: "that they may privily*&nbsp;
+
+shoot,"to surprise them with an ambush unawares, probably
+
+pretending amity and friendship unto them; thirdly,&nbsp;*naked*&nbsp;
+
+innocence:if innocence may be termed naked, which is its own
+
+armour;&nbsp;*"at the upright in heart." Thomas Fuller.*&nbsp;
+
+&nbsp;*Verse*&nbsp;2.&nbsp;*"For, lo, the ungodly bend their bow, and make*&nbsp;
+
+ready their arrows within the quiver: that they may privily shoot at
+
+them which are true of heart."The plottings of the chief priests
+
+and Pharisees that they might take Jesus by subtlety and kill him.
+
+They bent their bow, when they hired Judas Iscariot for the betrayal
+
+of his Master; they made ready their arrows within the quiver when
+
+they sought "false witnesses against Jesus to put him to death."
+
+Matthew 26:59.&nbsp;*"Them which are true of heart."*&nbsp;Not alone the
+
+Lord himself, the only true and righteous, but his apostles, and the
+
+long line of those who should faithfully cleave to him from that time
+
+to this. And as with the Master, so with the servants: witness the
+
+calumnies and the revilings that from the time of Joseph's accusation
+
+by his mistress till the present day, have been the lot of God's
+
+people.&nbsp;*Michael Ayguan,*&nbsp;1416,&nbsp;*in J. M. Neale's*&nbsp;
+
+Commentary.
+
+&nbsp;*Verse*&nbsp;2.&nbsp;*"That they may secretly shoot at them which are*&nbsp;
+
+upright in heart."They bear not their bows and arrows as
+
+scarecrows in a garden of cucumbers, to fray, but&nbsp;*to shoot,*&nbsp;
+
+not at stakes, but men; their arrows are&nbsp;*jacula mortifera*&nbsp;
+
+(Psalm 7), deadly arrows, and lest they should fail to hit, they take
+
+advantage of the dark, of privacy and secrecy; they shoot
+
+&nbsp;*privily.*&nbsp;Now this is the covenant of hell itself. For what
+
+created power in the earth is able to dissolve that work which
+
+&nbsp;*cruelty*&nbsp;and&nbsp;*subtlety,*&nbsp;like Simeon and Levi, brothers in
+
+evil, are combined and confederate to bring to pass? Where subtlety
+
+is ingenious, insidious to invent, cruelty barbarous to execute,
+
+subtlety giveth counsel, cruelty giveth the stroke. Subtlety ordereth
+
+the time, the place, the means, accomodateth, concinnateth
+
+circumstances; cruelty undertaketh the act: subtlety hideth the
+
+knife, cruelty cutteth the throat: subtlety with a cunning head
+
+layeth the ambush, plotteth the train, the stratagem; and cruelty
+
+with as savage a heart, sticketh not at the dreadfullest, direfullest
+
+objects, ready to wade up to the ankles, the neck, in a whole red sea
+
+of human, yea, country blood: how fearful is their plight that are
+
+thus assaulted!&nbsp;*John King.*&nbsp;
+
+&nbsp;*Verse*&nbsp;3.&nbsp;*"If the foundations be destroyed, what can the*&nbsp;
+
+righteous do?"But now we are met with a giant objection, which
+
+with Goliath must be removed, or else it will obstruct our present
+
+proceedings. Is it possible that the&nbsp;*foundations of religion*&nbsp;
+
+should be destroyed? Can God be in so long a sleep, yea, so long a
+
+lethargy, as patiently to permit the ruins thereof? If he looks on,
+
+and yet doth not see these&nbsp;*foundations*&nbsp;when destroyed, where
+
+then is his&nbsp;*omnisciency?*&nbsp;If he seeth it, and cannot help it,
+
+where then is his&nbsp;*omnipotency?*&nbsp;If he seeth it, can help it,
+
+and will not, where then is his&nbsp;*goodness*&nbsp;and&nbsp;*mercy?*&nbsp;
+
+Martha said to Jesus (John 11:21), "Lord, if thou hadst been here, my
+
+brother had not died." But many will say, Were God effectually
+
+present in the world with his aforesaid attributes, surely the
+
+&nbsp;*foundations*&nbsp;had not&nbsp;*died,*&nbsp;had not been
+
+&nbsp;*destroyed*&nbsp;. We answer negatively, that it is impossible that
+
+the&nbsp;*foundations*&nbsp;of religion should ever be&nbsp;*totally*&nbsp;and
+
+&nbsp;*finally destroyed,*&nbsp;either in relation to the church in
+
+general, or in reference to every true and lively member thereof. For
+
+the first, we have an express promise of Christ. Matthew 16:18. "The
+
+gates of hell shall not prevail against it."&nbsp;*Fundamenta tamen*&nbsp;
+
+stant inconcussa Sionis. And as for every particular Christian (2
+
+Timothy 2:19), "Nevertheless, the foundation of God standeth sure,
+
+having this seal, the Lord knoweth them that are his." However,
+
+though for the reasons aforementioned in the objections (the
+
+inconsistency thereof with the attributes of God's omnipotency,
+
+omnisciency, and goodness), the&nbsp;*foundations*&nbsp;can never totally
+
+and finally, yet may they partially be destroyed,&nbsp;*quoad*&nbsp;
+
+gradum,in a fourfold degree, as followeth. First,&nbsp;*in the*&nbsp;
+
+desires and utmost endeavours of wicked men,
+
+They bring their—
+
+1\.&nbsp;*Hoc velle,*&nbsp;
+
+2\.&nbsp;*Hoc agere,*&nbsp;
+
+3\.&nbsp;*Totum posse.*&nbsp;
+
+If they&nbsp;*destroy*&nbsp;not the foundations, it is no thanks to them,
+
+seeing all the world will bear them witness they have done&nbsp;*their*&nbsp;
+
+best(that is,&nbsp;*their worst*&nbsp;), what their might and malice
+
+could perform. Secondly,&nbsp;*in their own vainglorious*&nbsp;
+
+imaginations:they may not only vainly boast, but also verily
+
+believe that they have&nbsp;*destroyed the foundations.*&nbsp;Applicable
+
+to this purpose, is that high rant of the Roman emperor (Luke 2:1):
+
+"And it came to pass in those days, that there went out a decree from
+
+Caesar Augustus, that all the world should be taxed." All the world!
+
+whereas he had, though much, not all in Europe, little in Asia, less
+
+in Africa, none in America, which was so far from being conquered, it
+
+was not so much as known to the Romans. But&nbsp;*hyperbole*&nbsp;is not a
+
+figure, but the ordinary language of pride; because indeed Augustus
+
+had very much he proclaimeth himself to have all the world. . . .
+
+Thirdly,&nbsp;*the foundations may be destroyed*&nbsp;as to all outward
+
+visible illustrious apparition. The church in persecution is like
+
+unto a ship in a tempest; down go all their masts, yea, sometimes for
+
+the more speed they are forced to cut them down: not a piece of
+
+canvas to play with the winds, no sails to be seen; they lie close
+
+knotted to the very keel, that the tempest may have the less power
+
+upon them, though when the storm is over, they can hoist up their
+
+sails as high, and spread their canvas as broad as ever before. So
+
+the church in the time of persecution&nbsp;*feared*&nbsp;, but especially
+
+&nbsp;*felt,*&nbsp;loseth all gayness and gallantry which may attract and
+
+allure the eyes of beholders, and contenteth itself with its own
+
+secrecy. In a word, on the work-days of affliction she weareth her
+
+worst clothes, whilst her best are laid up in her wardrobe, in sure
+
+and certain hope that God will give her a&nbsp;*holy*&nbsp;and&nbsp;*happy*&nbsp;
+
+day,when with joy she shall wear her best garments. Lastly, they
+
+may be&nbsp;*destroyed*&nbsp;in the&nbsp;*jealous apprehensions*&nbsp;of the
+
+best saints and servants of God, especially in their melancholy fits.
+
+I will instance in no puny, but in a star of the first magnitude and
+
+greatest eminency, even Elijah himself complaining (1 Kings 19:10):
+
+"And I, even I only, am left; and they seek my life, to take it
+
+away."&nbsp;*Thomas Fuller.*&nbsp;
+
+&nbsp;*Verse*&nbsp;3.&nbsp;*"If."*&nbsp;It is the only word of comfort in the
+
+text, that what is said is not&nbsp;*positive, but suppositive;*&nbsp;not
+
+thetical, but hypothetical. And yet this comfort which is but a spark
+
+(at which we would willingly kindle our hopes), is quickly sadded
+
+with a double consideration. First, impossible suppositions produce
+
+impossible consequences, "As is the mother, so is the daughter."
+
+Therefore, surely God's Holy Spirit would not suppose such a thing
+
+but what was feasible and possible, but what either had, did, or
+
+might come to pass. Secondly, the Hebrew word is not the conditional
+
+&nbsp;*im, si, si forte*&nbsp;, but&nbsp;*chi, quia, quoniam,*&nbsp;because, and
+
+(although here it be favourably rendered&nbsp;*if*&nbsp;), seemeth to
+
+import, more therein, that the sad case had already happened in
+
+David's days. I see, therefore, that this&nbsp;*if,*&nbsp;our only hope in
+
+the text, is likely to prove with Job's friends, but a miserable
+
+comforter. Well, it is good to know the worst of things, that we may
+
+provide ourselves accordingly; and therefore let us behold this
+
+doleful case, not as doubtful, but as done; not as feared, but felt;
+
+not as suspected, but at this time really come to pass.&nbsp;*Thomas*&nbsp;
+
+Fuller.
+
+&nbsp;*Verse*&nbsp;3.&nbsp;*"If the foundations,"*&nbsp;etc. My text is an
+
+answer to a tacit objection which some may raise; namely, that the
+
+righteous are wanting to themselves, and by their own easiness and
+
+inactivity (not daring and doing so much as they might and ought),
+
+betray themselves to that bad condition. In whose defence David
+
+shows, that if God in his wise will and pleasure seeth it fitting,
+
+for reasons best known to himself, to suffer religion to be reduced
+
+to terms of extremity, it is not placed in the power of the best man
+
+alive to remedy and redress the same.&nbsp;*"If the foundations be*&nbsp;
+
+destroyed, what can the righteous do?"My text is hung about with
+
+&nbsp;*mourning,*&nbsp;as for a funeral sermon, and contains: First, a sad
+
+case supposed,&nbsp;*"If the foundations be destroyed."*&nbsp;Secondly, a
+
+sad question propounded,&nbsp;*"What can the righteous do?"*&nbsp;Thirdly,
+
+a sad answer implied, namely, that they can do just nothing, as to
+
+that point of re-establishing the destroyed foundation.&nbsp;*Thomas*&nbsp;
+
+Fuller.
+
+&nbsp;*Verse*&nbsp;3.&nbsp;*"If the foundations be destroyed,"*&nbsp;etc. The
+
+civil foundation of a nation or people, is their laws and
+
+constitutions. The order and power that's among them, that's the
+
+foundation of a people; and when once this foundation is destroyed,
+
+&nbsp;*"What can the righteous do?"*&nbsp;What can the best, the wisest in
+
+the world, do in such a case? What can any man do, if there be not a
+
+foundation of government left among men? There is no help nor answer
+
+in such a case but that which follows in the fourth verse of the
+
+Psalm,&nbsp;*"The Lord is in his holy temple, the Lord's throne is in*&nbsp;
+
+heaven: his eyes behold, his eyelids try, the children of men;"
+
+as if he had said, in the midst of these confusions, when as it is
+
+said (Psalm 82:5), "All the foundations of the earth are out of
+
+course;" yet God keeps his course still, he is where he was and as he
+
+was, without variableness or shadow of turning.&nbsp;*Joseph*&nbsp;
+
+Caryl.
+
+&nbsp;*Verse*&nbsp;3.&nbsp;*"The righteous."*&nbsp;The righteous indefinitely,
+
+equivalent to the righteous universally; not only the righteous as a
+
+single arrow, but in the whole sheaf; not only the righteous in their
+
+personal, but in their diffusive capacity. Were they all collected
+
+into one body, were all the righteous living in the same age wherein
+
+the&nbsp;*foundations are destroyed,*&nbsp;summoned up and modelled into
+
+one corporation, all their joint endeavours would prove ineffectual
+
+to the re-establishing of the fallen&nbsp;*foundations,*&nbsp;as not being
+
+man's work, but only God's work to perform.&nbsp;*Thomas Fuller.*&nbsp;
+
+&nbsp;*Verse*&nbsp;3.&nbsp;*"The foundations." Positions,*&nbsp;the
+
+things formerly fixed, placed, and settled. It is not said, if the
+
+roof be ruinous, or if the side walls be shattered, but if the
+
+&nbsp;*foundations.*&nbsp;
+
+&nbsp;*Verse*&nbsp;3.&nbsp;*"Foundations be destroyed."*&nbsp;In the plural.
+
+Here I will not warrant my skill in architecture, but conceive this
+
+may pass for an undoubted truth: it is possible that a building
+
+settled on several entire&nbsp;*foundations*&nbsp;(suppose them
+
+&nbsp;*pillars*&nbsp;) close one to another, if one of them fall, yet the
+
+structure may still stand, or rather hang (at the least for a short
+
+time) by virtue of the&nbsp;*complicative*&nbsp;, which it receiveth from
+
+such foundations which still stand secure. But in case there be a
+
+total rout, and an utter ruin of all the&nbsp;*foundations,,*&nbsp;none
+
+can fancy to themselves a possibility of that building's subsistence.
+
+&nbsp;*Thomas Fuller.*&nbsp;
+
+&nbsp;*Verse*&nbsp;3.&nbsp;*"What*&nbsp;CAN&nbsp;*the righteous?"*&nbsp;The
+
+&nbsp;*can*&nbsp;of the righteous is a limited&nbsp;*can,*&nbsp;confined to the
+
+rule of God's word; they&nbsp;*can*&nbsp;do nothing but what they
+
+&nbsp;*can*&nbsp;lawfully do. 2 Corinthians 13:8. "For we&nbsp;*can*&nbsp;do
+
+nothing against the truth, but for the truth:"&nbsp;*Illud possumus,*&nbsp;
+
+quod jure possumus.Wicked men can do anything; their conscience,
+
+which is so wide that it is none at all, will bear them out to act
+
+anything how unlawful soever, to stab, poison, massacre, by any
+
+means, at any time, in any place, whosoever standeth betwixt them and
+
+the effecting of their desires. Not so the righteous; they have a
+
+rule whereby to walk, which they will not, they must not, they dare
+
+not, cross. If therefore a righteous man were assured, that by the
+
+breach of one of God's commandments he might restore decayed
+
+religion, and re-settle it&nbsp;*statu quo prius,*&nbsp;his hands, head,
+
+and heart are tied up, he&nbsp;*can*&nbsp;do nothing, because&nbsp;*their*&nbsp;
+
+damnation is just who say(Romans 3:8),&nbsp;*"Let us do evil that*&nbsp;
+
+good may come thereof."
+
+&nbsp;*Verse*&nbsp;3.&nbsp;*"Do."*&nbsp;It is not said,&nbsp;*What can they*&nbsp;
+
+think?It is a great blessing which God hath allowed injured
+
+people, that though otherwise oppressed and straitened, they may
+
+freely enlarge themselves in their thoughts.&nbsp;*Thomas Fuller.*&nbsp;
+
+&nbsp;*Verse*&nbsp;3. Sinning times have ever been the saints' praying
+
+times: this sent Ezra with a heavy heart to confess the sin of his
+
+people, and to bewail their abominations before the Lord. Ezra 9. And
+
+Jeremiah tells the wicked of his degenerate age, that "his soul
+
+should weep in secret places for their pride." Jeremiah 13:17.
+
+Indeed, sometimes sin comes to such a height, that this is almost all
+
+the godly can do, to get into a corner, and bewail the general
+
+pollutions of the age.&nbsp;*"If the foundations be destroyed, what can*&nbsp;
+
+the righteous do?"Such dismal days of national confusion our
+
+eyes have seen, when foundations of government were destroyed, and
+
+all hurled into military confusion. When it is thus with a people,
+
+&nbsp;*"What can the righteous do?"*&nbsp;Yes, this they may, and should
+
+do, "fast and pray." There is yet a God in heaven to be sought to,
+
+when a people's deliverance is thrown beyond the help of human policy
+
+or power. Now is the fit time to make their appeal to God, as the
+
+words following hint:&nbsp;*"The Lord is in his holy temple, the Lord's*&nbsp;
+
+throne is in heaven;"in which words God is presented sitting in
+
+heaven as a temple, for their encouragement, I conceive, in such a
+
+desperate state of affairs, to direct their prayers thither for
+
+deliverance. And certainly this hath been the engine that hath been
+
+instrumental, above any, to restore this poor nation again, and set
+
+it upon the foundation of that lawful government from which it had so
+
+dangerously departed.&nbsp;*William Gurnall.*&nbsp;
+
+&nbsp;*Verse*&nbsp;4. The infinite understanding of God doth exactly know
+
+the sins of men; he knows so as to consider. He doth not only know
+
+them, but intently behold them:&nbsp;*"His eyelids try the children of*&nbsp;
+
+men,"a metaphor taken from men, that contract the eyelids when
+
+they would wistly and accurately behold a thing: it is not a
+
+transient and careless look.&nbsp;*Stephen Charnock.*&nbsp;
+
+&nbsp;*Verse*&nbsp;4.&nbsp;*"His eyes behold,"*&nbsp;etc. God searcheth not as
+
+man searcheth, by enquiring into that which before was hid from him;
+
+his searching is no more but his beholding; he seeth the heart, he
+
+beholdeth the reins; God's very sight is searching. Hebrews 4:13.
+
+"All things are naked, and opened unto his eyes," tetrachlidmena,
+
+&nbsp;*dissected or anatomised*&nbsp;. He hath at once as exact a view of
+
+the most hidden things, the very entrails of the soul, as if they had
+
+been with never so great curiosity anatomised before him.&nbsp;*Richard*&nbsp;
+
+Alleine,1611-1681.
+
+&nbsp;*Verse*&nbsp;4.&nbsp;*"His eyes behold,"*&nbsp;etc. Consider that God not
+
+only sees into all you do, but he sees it to that very end that he
+
+may examine and search into it. He doth not only behold you with a
+
+common and indifferent look, but with a searching, watchful, and
+
+inquisitive eye: he pries into the reasons, the motives, the ends of
+
+all your actions.&nbsp;*"The Lord's throne is in heaven: his eyes*&nbsp;
+
+behold, his eyelids try, the children of men."Revelation 1:14,
+
+where Christ is described, it is said,&nbsp;*his eyes are as a flame of*&nbsp;
+
+fire:you know the property of fire is to search and make trial
+
+of those things which are exposed unto it, and to separate the dross
+
+from the pure metal: so, God's eye is like fire, to try and examine
+
+the actions of men: he knows and discerns how much your very purest
+
+duties have in them of mixture, and base ends of formality,
+
+hypocrisy, distractedness, and deadness: he sees through all your
+
+specious pretenses, that which you cast as a mist before the eyes of
+
+men when yet thou art but a juggler in religion: all your tricks and
+
+sleights of outward profession, all those things that you use to
+
+cozen and delude men withal, cannot possibly impose upon him: he is a
+
+God that can look through all those fig-leaves of outward profession,
+
+and discern the nakedness of your duties through them.&nbsp;*Ezekiel*&nbsp;
+
+Hopkins, D.D.
+
+&nbsp;*Verse*&nbsp;4.&nbsp;*"His eyes behold,"*&nbsp;etc. Take God into thy
+
+counsel. Heaven overlooks hell. God at any time can tell thee what
+
+plots are hatching there against thee.&nbsp;*William Gurnall.*&nbsp;
+
+&nbsp;*Verse*&nbsp;4.&nbsp;*"His eyes behold, his eyelids try, the children of*&nbsp;
+
+men."When an offender, or one accused for any offence, is
+
+brought before a judge, and stands at the bar to be arraigned, the
+
+judge looks upon him, eyes him, sets his eye upon him, and he bids
+
+the offender look up in his face: "Look upon me," saith the judge,
+
+"and speak up:" guiltiness usually clouds the forehead and clothes
+
+the brow; the weight of guilt holds down the head!&nbsp;*the evil doer*&nbsp;
+
+hath an ill look,or dares not look up; how glad is he if the
+
+judge looks off him. We have such an expression here, speaking of the
+
+Lord, the great Judge of heaven and earth:&nbsp;*"His eyelids try the*&nbsp;
+
+children of men,"as a judge tries a guilty person with his eye,
+
+and reads the characters of his wickedness printed in his face. Hence
+
+we have a common speech in our language, such a one&nbsp;*looks*&nbsp;
+
+suspiciously,or,&nbsp;*he hath a guilty look.*&nbsp;At that great
+
+gaol-delivery described in Revelation 6:16, All the prisoners cry out
+
+&nbsp;*to be hid from the face of him that sat upon the throne.*&nbsp;They
+
+could not look upon Christ, and they could not endure Christ should
+
+look upon them; the eyelids of Christ try the children of men. . . .
+
+Wickedness cannot endure to be under the observation of any eye much
+
+less of the eye of justice. Hence the actors of it say, "&nbsp;*Who seeth*&nbsp;
+
+us?"It is very hard not to show the guilt of the heart in the
+
+face, and it is as hard to have it seen there.&nbsp;*Joseph*&nbsp;
+
+Caryl.
+
+&nbsp;*Verse*&nbsp;5.&nbsp;*"The Lord trieth the righteous."*&nbsp;Except our
+
+sins, there is not such plenty of anything in all the world as there
+
+is of troubles which come from sin, as one heavy messenger came to
+
+Job after another. Since we are not in paradise, but in the
+
+wilderness, we must look for one trouble after another. As a bear
+
+came to David after a lion, and a giant after a bear, and a king
+
+after a giant, and Philistines after a king, so, when believers have
+
+fought with poverty. they shall fight with envy; when they have
+
+fought with envy, they shall fight with infamy; when the have fought
+
+with infamy, they shall fight with sickness; they shall be like a
+
+labourer who is never out of work.&nbsp;*Henry Smith.*&nbsp;
+
+&nbsp;*Verse*&nbsp;5.&nbsp;*"The Lord trieth the righteous."*&nbsp;Times of
+
+affliction and persecution will distinguish the precious from the
+
+vile, it will difference the counterfeit professor from the true.
+
+Persecution is a Christian's touchstone, it is a&nbsp;*lapis lydius*&nbsp;
+
+that will try what metal men are made of, whether they be silver or
+
+tin, gold or dross, wheat or chaff, shadow or substance, carnal or
+
+spiritual, sincere or hypocritical. Nothing speaks out more soundness
+
+and uprightness than a pursuing after holiness, even then when
+
+holiness is most afflicted, pursued, and persecuted in the world: to
+
+stand fast in fiery trials argues much integrity within.&nbsp;*Thomas*&nbsp;
+
+Brooks.
+
+&nbsp;*Verse*&nbsp;5. Note the singular opposition of the two sentences.
+
+God hates the wicked, and therefore in contrast he loves the
+
+righteous; but it is here said that he tries them: therefore it
+
+follows that to try and to love are with God the same thing.&nbsp;*C. H.*&nbsp;
+
+S.
+
+&nbsp;*Verse*&nbsp;6.&nbsp;*"Upon the wicked he shall rain snares."*&nbsp;Snares
+
+to hold them; then if they be not delivered, follow fire and
+
+brimstone, and they cannot escape. This is the case of a sinner if he
+
+repent not; if God pardon not, he is in the snare of Satan's
+
+temptation, he is in the snare of divine vengeance; let him therefore
+
+cry aloud for his deliverance, that he may have his feet in a large
+
+room. The wicked lay snares for the righteous, but God either
+
+preventeth them that their souls ever escape them, or else he
+
+subverteth them: "The snares are broken and we are delivered." No
+
+snares hold us so fast as those of our own sins; they keep down our
+
+heads, and stoop us that we cannot look up: a very little ease they
+
+are to him that hath not a seared conscience.&nbsp;*Samuel Page,*&nbsp;
+
+1646\.
+
+&nbsp;*Verse*&nbsp;6.&nbsp;*"He shall rain snares."*&nbsp;As in hunting with the
+
+lasso, the huntsman casts a snare from above upon his prey to
+
+entangle its head or feet, so shall the Lord from above with many
+
+twistings of the line of terror, surround, bind, and take captive the
+
+haters of his law.&nbsp;*C. H. S.*&nbsp;
+
+&nbsp;*Verse*&nbsp;6.&nbsp;*"He shall rain snares,"*&nbsp;etc. He shall rain
+
+upon them when they least think of it, even in the midst of their
+
+jollity, as rain falls on a fair day. Or, he shall rain down the
+
+vengeance when he sees good, for it rains not always. Though he
+
+defers it, yet it will rain.&nbsp;*William Nicholson, Bishop of*&nbsp;
+
+Gloucester, in "David's Harp Strung and Tuned,"1662.
+
+&nbsp;*Verse*&nbsp;6.&nbsp;*"Upon the wicked he shall rain snares, fire and*&nbsp;
+
+brimstone, and an horrible tempest."The strange dispensation of
+
+affairs in this world is an argument which doth convincingly prove
+
+that there shall be such a day wherein all the&nbsp;*involucra*&nbsp;and
+
+entanglements of providence shall be clearly unfolded. Then shall the
+
+riddle be dissolved, why God hath given this and that profane wretch
+
+so much wealth, and so much power to do mischief: is it not&nbsp;*that*&nbsp;
+
+they might be destroyed for ever?Then shall they be called to a
+
+strict account for all that plenty and prosperity for which they are
+
+now envied; and the more they have abused, the more dreadful will
+
+their condemnation be. Then it will be seen that God gave them not as
+
+mercies, but as&nbsp;*"snares."*&nbsp;It is said that God&nbsp;*"will rain on*&nbsp;
+
+the wicked snares, fire and brimstone, and an horrible tempest:"
+
+when he scatters abroad the desirable things of this world, riches,
+
+honours, pleasures, etc., then he rains&nbsp;*"snares"*&nbsp;upon them;
+
+and when he shall call them to an account for these things, then he
+
+will rain upon them&nbsp;*"fire and brimstone, and an horrible*&nbsp;
+
+tempest"of his wrath and fury. Dives, who caroused on earth,
+
+yet, in hell could not obtain so much as one poor drop of water to
+
+cool his scorched and flaming tongue: had not his excess and
+
+intemperance been so great in his life, his fiery thirst had not been
+
+so tormenting after death; and therefore, in that sad item that
+
+Abraham gives him (Luke 16:25), he bids him&nbsp;*"remember that thou,*&nbsp;
+
+in thy lifetime, receivedst thy good things, and likewise Lazarus
+
+evil things; but now he is comforted, and thou art tormented."I
+
+look upon this as a most bitter and a most deserved sarcasm;
+
+upbraiding him for his gross folly, in making the trifles of this
+
+life his good things. Thou hast received thy good things, but now
+
+thou art tormented. Oh, never call Dive's purple and delicious fare
+
+&nbsp;*good things*&nbsp;, if they thus end in torments! Was it good for him
+
+to be wrapped in purple who is now wrapped in flames? Was it good for
+
+him to fare deliciously who was only thereby fatted up against the
+
+day of slaughter?&nbsp;*Ezekiel Hopkins.*&nbsp;
+
+&nbsp;*Verse*&nbsp;6.&nbsp;*"Snares, fire and brimstone, storm and tempest:*&nbsp;
+
+this shall be the portion of their cup."After the judgment
+
+follows the condemnation: pre-figured as we have seen, by the
+
+overthrow of Sodom and Gomorrah.&nbsp;*"Snares:"*&nbsp;because the
+
+allurements of Satan in this life will be their worst punishments in
+
+the next; the fire of anger, the brimstone of impurity, the tempest
+
+of pride, the lust of the flesh, the lust of the eyes, and the pride
+
+of life.&nbsp;*"This shall be their portion;"*&nbsp;compare it with the
+
+psalmist's own saying, "The Lord himself is the portion of my
+
+inheritance and my cup." Psalm 16:5.&nbsp;*Cassidorus, in J. M. Neale's*&nbsp;
+
+Commentary.
+
+&nbsp;*Verse*&nbsp;6.&nbsp;*"The portion of their cup."*&nbsp;Hebrew, the
+
+allotment of their cup. The expression has reference to the custom of
+
+distributing to each guest his mess of meat.&nbsp;*William French and*&nbsp;
+
+George Skinner,1842.
+
+&nbsp;*Verse*&nbsp;7. That God may give grace without glory is
+
+intelligible; but to admit a man to communion with him in glory
+
+without grace, is not intelligible. It is not agreeable to God's
+
+holiness to make any inhabitant of heaven, and converse freely with
+
+him in a way of intimate love, without such a qualification of grace:
+
+&nbsp;*"The righteous Lord loveth righteousness;" his countenance doth*&nbsp;
+
+behold the upright;"he looks upon him with a smiling eye, and
+
+therefore he cannot favourably look upon an unrighteous person; so
+
+that this necessity is not founded only in the command of God that we
+
+should be renewed, but in the very nature of the thing, because God,
+
+in regard to his holiness, cannot converse with an impure creature.
+
+God must change his nature, or the sinner's nature must be changed.
+
+There can be no friendly communion between two of different natures
+
+without the change of one of them into the likeness of the other.
+
+Wolves and sheep, darkness and light, can never agree. God cannot
+
+love a sinner as a sinner, because he hates impurity by a necessity
+
+of nature as well as a choice of will. It is as impossible for him to
+
+love it as to cease to be holy.&nbsp;*Stephen Charnock.*&nbsp;
+
+## HINTS TO THE VILLAGE PREACHER
+
+&nbsp;*Verse*&nbsp;1. Faith's bold avowal, and brave refusal.
+
+&nbsp;*Verse*&nbsp;1. Teacheth us to trust in God, how great soever our
+
+dangers be; also that we shall be many times assaulted to make us put
+
+far from us this trust, but yet that we must cleave unto it, as the
+
+anchor of our souls, sure and steadfast.&nbsp;*Thomas Wilcocks.*&nbsp;
+
+&nbsp;*Verse*&nbsp;1. The advice of cowardice, and the jeer of insolence,
+
+both answered by faith. Lesson—Attempt no other answer.
+
+&nbsp;*Verse*&nbsp;2. The craftiness of our spiritual enemies.
+
+&nbsp;*Verse*&nbsp;3. This may furnish a double discourse.
+
+I.&nbsp;*If God's oath and promise could*&nbsp;
+
+remove, what could we do? Here the answer is easy.
+
+II.&nbsp;*If all earthly things fail*&nbsp;,
+
+and the very State fall to pieces, what can we do? We can suffer
+
+joyfully, hope cheerfully, wait patiently, pray earnestly, believe
+
+confidently, and triumph finally.
+
+&nbsp;*Verse*&nbsp;3. Necessity of holding and preaching foundation
+
+truths.
+
+&nbsp;*Verse*&nbsp;4. The elevation, mystery, supremacy, purity,
+
+everlastingness, invisibility, etc., of the throne of God.
+
+&nbsp;*Verses*&nbsp;4, 5. In these verses mark the fact that the children
+
+of men, as well as the righteous, are tried; work out the contrast
+
+between the two trials in their designs and results, etc.
+
+&nbsp;*Verse*&nbsp;5.&nbsp;*"The Lord trieth the righteous."*&nbsp;
+
+I. Who are tried?
+
+II. What in them is tried?—Faith, love,
+
+etc.
+
+III. In what manner?—Trials of every
+
+sort.
+
+IV. How long?
+
+V. For what purpose?
+
+&nbsp;*Verse*&nbsp;5.&nbsp;*"His soul hateth."*&nbsp;The thoroughness of God's
+
+hatred of sin. Illustrate by providential judgments, threatenings,
+
+sufferings of the Surety, and the terrors of hell.
+
+&nbsp;*Verse*&nbsp;5. The trying of the gold, and the sweeping out of the
+
+refuse.
+
+&nbsp;*Verse*&nbsp;6.&nbsp;*"He shall rain."*&nbsp;Gracious rain and destroying
+
+rain.
+
+&nbsp;*Verse*&nbsp;6. The portion of the impenitent.
+
+&nbsp;*Verse*&nbsp;7. The Lord possesses righteousness as a personal
+
+attribute, loves it in the abstract, and blesses those who practise
+
+it.
+
