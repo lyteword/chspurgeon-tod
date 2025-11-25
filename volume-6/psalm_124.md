@@ -1,0 +1,300 @@
+# Psalm 124
+
+**TITLE.**&nbsp;A Song of degrees of David. Of course the superfine critics have pounced upon this title as inaccurate, but we are at liberty to believe as much or as little of their assertions as we may please. They declare that there are certain ornaments of language in this little ode which were unknown in the Davidic period. It may be so; but in their superlative wisdom they have ventured upon so many other questionable statements that we are not bound to receive this dictum. Assuredly the manner of the song is very like to David's, and we are unable to see why he should be excluded from the authorship. Whether it be his composition or no, it breathes the same spirit as that which animates the unchallenged songs of the royal composer.
+
+**DIVISION.**&nbsp;This short Psalm contains an acknowledgement of favour received by way of special deliverance (1-5), then a grateful act of worship in blessing Jehovah (6, 7), and, lastly, a declaration of confidence in the Lord for all future time of trial. May our experience lead us to the same conclusion as the saints of David's time. From all confidence in man may we be rescued by a holy reliance upon our God.
+
+## EXPOSITION
+
+**Verse 1.**&nbsp;&nbsp;*If it had not been the Lord who was on our side, now may Israel say.*&nbsp;The opening sentence is abrupt, and remains a fragment. By such a commencement attention was aroused as well as feeling expressed: and this is ever the way of poetic fire—to break forth in uncontrollable flame. The many words in italics in our authorized version will show the reader that the translators did their best to patch up the passage, which, perhaps, had better have been left in its broken grandeur, and it would then have run thus:—"Had it not been Jehovah! He was for us, oh let Israel say! Had it not been Jehovah! He who was for us when men rose against us." The glorious Lord became our ally; he took our part, and entered into treaty with us. If Jehovah were not our protector where should we be Nothing but his power and wisdom could have guarded us from the cunning and malice of our adversaries; therefore, let all his people say so, and openly give him the honour of his preserving goodness. Here are two "ifs, "and yet there is no "if" in the matter. The Lord was on our side, and is still our defender, and will be so from henceforth, even for ever. Let us with holy confidence exult in this joyful fact: We are far too slow in declaring our gratitude, hence the exclamation which should be rendered, "O let Israel say." We murmur without being stirred up to it, but our thanksgiving needs a spur, and it is well when some warm hearted friend bids us say what we feel. Imagine what would have happened if the Lord had left us, and then see what has happened because he has been faithful to us. Are not all the materials of a song spread before us? Let us sing unto the Lord.
+
+**Verse 2.**&nbsp;&nbsp;*If it had not been the Lord who was on our side, when men rose up against us.*&nbsp;When all men combined, and the whole race of men seemed set upon stamping out the house of Israel, what must have happened if the covenant Lord had not interposed? When they stirred themselves, and combined to make an assault upon our quietude and safety, what should we have done in their rising if the Lord had not also risen? No one who could or would help was near, but the bare arm of the Lord sufficed to preserve his own against all the leagued hosts of adversaries. There is no doubt as to our deliverer, we cannot ascribe our salvation to any second cause, for it would not have been equal to the emergency; nothing less than omnipotence and omniscience could have wrought our rescue. We set every other claimant on one side, and rejoice because the Lord was on our side.
+
+**Verse 3.**&nbsp;&nbsp;*Then they had swallowed us up quick, when their wrath was kindled against us.*&nbsp;They were so eager for our destruction that they would have made only one morsel of us, and have swallowed us up alive and whole in a single instant. The fury of the enemies of the church is raised to the highest pitch, nothing will content them but the total annihilation of God's chosen. Their wrath is like a fire which is kindled, and has taken such firm hold upon the fuel that there is no quenching it. Anger is never more fiery than when the people of God are its objects. Sparks become flames, and the furnace is heated seven times hotter when God's elect are to be thrust into the blaze. The cruel world would make a full end of the godly seed were it not that Jehovah bars the way. When the Lord appears, the cruel throats cannot swallow, and the consuming fires cannot destroy. Ah, if it were not Jehovah, if our help came from all the creatures united, there would be no way of escape for us: it is only because the Lord liveth that his people are alive.
+
+**Verse 4.**&nbsp;&nbsp;*Then the waters had overwhelmed us.*&nbsp;Rising irresistibly, like the Nile, the flood of opposition would soon have rolled over our heads. Across the mighty waste of waters we should have cast an anxious eye, but looked in vain for escape. The motto of a royal house is, "Tossed about but not submerged": we should have needed an epitaph rather than an epigram, for we should have been driven by the torrent and sunken, never to rise again. The stream had gone over our soul. The rushing torrent would have drowned our soul, our hope, our life. The figures seem to be the steadily rising flood, and the hurriedly rushing stream. Who can stand against two such mighty powers? Everything is destroyed by these unconquerable forces, either by being submerged or swept away. When the world's enmity obtains a vent it both rises and rushes, it rages and rolls along, and spares nothing. In the great water floods of persecution and affliction who can help but Jehovah? But for him where would we be at this very hour? We have experienced seasons in which the combined forces of earth and hell must have made an end of us had not omnipotent grace interfered for our rescue.
+
+**Verse 5.**&nbsp;&nbsp;*Then the proud waters had gone over our soul.*&nbsp;The figure represents the waves as proud, and so they seem to be when they overleap the bulwarks of a frail bark, and threaten every moment to sink her. The opposition of men is usually embittered by a haughty scorn which derides all our godly efforts as mere fanaticism or obstinate ignorance. In all the persecutions of the church a cruel contempt has largely mingled with the oppression, and this is overpowering to the soul. Had not God been with us our disdainful enemies would have made nothing of us, and dashed over us as a mountain torrent sweeps down the side of a hill, driving everything before it. Not only would our goods and possessions have been carried off, but our soul, our courage, our hope would have been borne away by the impetuous assault, and buried beneath the insults of our antagonists. Let us pause here, and as we see what might have been, let us adore the guardian power which has kept us in the flood, and yet above the flood. In our hours of dire peril we must have perished had not our Preserver prevailed for our safe keeping.
+
+**Verse 6.**&nbsp;Blessed be the Lord, who hath not given us as a prey to&nbsp;*their teeth.*&nbsp;Leaving the metaphor of a boiling flood, he compares the adversaries of Israel to wild beasts who desired to make the godly their prey. Their teeth are prepared to tear, and they regard the godly as their victims. The Lord is heartily praised for not permitting his servants to be devoured when they were between the jaws of the raging ones. It implies that none can harm us till the Lord permits: we cannot be their prey unless the Lord gives us up to them, and that our loving Lord will never do. Hitherto he has refused permission to any foe to destroy us, blessed be his name. The more imminent the danger the more eminent the mercy which would not permit the soul to perish in it. God be blessed for ever for keeping us from the curse. Jehovah be praised for checking the fury of the foe, and saving his own. The verse reads like a merely negative blessing, but no boon can be more positively precious. He has given us to his Son Jesus, and he will never give us to our enemies.
+
+**Verse 7.**&nbsp;&nbsp;*Our soul is escaped as a bird out of the snare of the fowlers.*&nbsp;Our soul is like a bird for many reasons; but in this case the point of likeness is weakness, folly, and the ease with which it is enticed into the snare. Fowlers have many methods of taking small birds, and Satan has many methods of entrapping souls. Some are decoyed by evil companions, others are enticed by the love of dainties; hunger drives many into the trap, and fright impels numbers to fly into the net. Fowlers know their birds, and how to take them; but the birds see not the snare so as to avoid it, and they cannot break it so as to escape from it. Happy is the bird that hath a deliverer strong, and mighty, and ready in the moment of peril: happier still is the soul over which tim Lord watches day and night to pluck its feet out of the net. What joy there is in this song, "our soul is escaped." How the emancipated one sings and soars, and soars and sings again. Blessed be God, many of us can make joyous music with these notes, "our soul is escaped." Escaped from our natural slavery; escaped from the guilt, the degradation, the habit, the dominion of sin; escaped from the vain deceits and fascinations of Satan; escaped from all that can destroy; we do indeed experience delight. What a wonder of grace it is! What a miraculous escape that we who are so easily misled should not have been permitted to die by the dread fowler's hand. The Lord has heard the prayer which he taught us to pray, and he hath delivered us from evil.
+
+The snare is broken, and we are escaped. The song is worth repeating; it is well to dwell upon so great a mercy. The snare may be false doctrine, pride, lust, or a temptation to indulge in policy, or to despair, or to presume; what a high favour it is to have it broken before our eyes, so that it has no more power over us. We see not the mercy while we are in the snare; perhaps we are so foolish as to deplore the breaking of the Satanic charm; the gratitude comes when the escape is seen, and when we perceive what we have escaped from, and by what hand we have been set free. Then our Lord has a song from our mouths and hearts as we make heaven and earth ring with the notes, "the snare is broken, and we are escaped." We have been tempted, but not taken; cast down, but not destroyed; perplexed, but not in despair; in deaths oft, but still alive: blessed be Jehovah! This song might well have suited our whole nation at the time of the Spanish Armada, the church in the days of the Jesuits, and each believer among us in seasons of strong personal temptation.
+
+**Verse 8.**&nbsp;&nbsp;*Our help,*&nbsp;our hope for the future, our ground of confidence in all trials present and to come. Is in the name of the Lord. Jehovah's revealed character is our foundation of confidence, his person is our sure fountain of strength. Who made heaven and earth. Our Creator is our preserver. He is immensely great in his creating work; he has not fashioned a few little things alone, but all heaven and the whole round earth are the works of his hands. When we worship the Creator let us increase our trust in our Comforter. Did he create all that we see, and can he not preserve us from evils which we cannot see Blessed be his name, he that has fashioned us will watch over us; yea, he has done so, and rendered us help in the moment of jeopardy. He is our help and our shield, even he alone. He will to the end break every snare. He made heaven for us, and he will keep us for heaven; he made the earth, and he will succour us ripen it until the hour cometh for our departure. Every work of his hand preaches to us the duty and the delight of reposing upon him only. All nature cries, "Trust ye in the Lord for ever, for in the Lord Jehovah there is everlasting strength." "Wherefore comfort one another with these words." The following versification of the sense rather than the words of this psalm is presented to the reader with much diffidence:
+
+Had not the Lord, my soul may cry,
+
+Had not the Lord been on my bide;
+
+Had he not brought deliverance nigh,
+
+Then must my helpless soul have died.
+
+Had not the Lord been on my side,
+
+My soul had been by Satan slain;
+
+And Tophet, opening large and wide,
+
+Would not have gaped for me in vain.
+
+Lo, floods of wrath, and floods of hell,
+
+In fierce impetuous torrents roll;
+
+Had not the Lord defended well,
+
+The waters had o'erwhelm'd my soul.
+
+As when the fowler's snare is broke,
+
+The bird escapes on cheerful wings;
+
+My soul, set free from Satan's yoke,
+
+With joy bursts forth, and mounts, and sings.
+
+She sings the Lord her Saviour's praise;
+
+Sings forth his praise with joy and mirth;
+
+To him her song in heaven she'll raise,
+
+To him that made both heaven and earth.
+
+## EXPLANATORY NOTES AND QUAINT SAYINGS
+
+**TITLE.**&nbsp;The title informs us that this sacred march was composed by king David; and we learn very clearly from the subject, that the progression referred to was the triumphant return of the king and his loyal army to Jerusalem, upon the overthrow of the dangerous rebellion to which the great mass of the people had been excited by Absalom and his powerful band of confederates.—&nbsp;*John Mason Good.*&nbsp;
+
+**Whole Psalm.**&nbsp;This psalm is ascribed to David. No reference is made to any specific danger and deliverance. There is a delightful universality in the language, which suits it admirably for an anthem of the redeemed, in every age and in every clime. The people of God still live in a hostile territory. Traitors are in the camp, and there are numerous foes without. And the church would soon be exterminated, if the malice and might of her adversaries were not restrained and defeated by a higher power. Hence this ode of praise has never become obsolete. How frequently have its strains of adoring gratitude floated on the breeze! What land is there, in which its outbursting gladness has not been heard! It has been sung upon the banks of the Jordan and the Nile, the Euphrates and the Tigris. It has been sung upon the banks of the Tiber and the Rhine, the Thames and the Forth. It has been sung upon the banks of the Ganges and the Indus, the Mississippi and the Irrawady. And we anticipate a period when the church, surmounting all her difficulties, and victory waving over her banners, shall sing this psalm of praise in every island and continent of our globe. The year of God's redeemed must come. The salvation of Christ shall extend to the utmost extremities of earth. And when this final emancipation takes place, the nations will shout for joy, and praise their Deliverer in psalms, and hymns, and spiritual songs.—&nbsp;*N. McMichael.*&nbsp;
+
+**Whole Psalm.**&nbsp;In the year 1582, this psalm was sung on a remarkable occasion in Edinburgh. An imprisoned minister, John Durie, had been set free, and was met and welcomed on entering the town by two hundred of his friends. The number increased till he found himself in the midst of a company of two thousand, who began to sing as they moved up the long High Street, "Now Israel may say, "etc. They sang in four parts with deep solemnity, all joining in the well known tune and psalm. They were much moved themselves, and so were all who heard; and one of the chief persecutors is said to have been more alarmed at this sight and song than at anything he had seen in Scotland.—&nbsp;*Andrew A. Bonar*&nbsp;, in&nbsp;*"Christ and His Church in the Book of Psalms,"*&nbsp;1859.
+
+**Verse 1.**&nbsp;&nbsp;*The Lord...on our side.*&nbsp;Jehovah is on the side of his people in a spiritual sense, or otherwise it would be bad for them. God the Father is on their side; his love and relation to them engage him to be so; hence all those good things that are provided for them and bestowed on them; nor will he suffer any to do them hurt, they being as dear to him as the apple of his eye; hence he grants them his gracious presence, supports them under all their trials and exercises, supplies all their wants, and keeps them by his power, and preserves them from all their enemies; so that they have nothing to fear from any quarter. Christ is on their side; he is the Surety for them, the Saviour of them; has taken their part against all their spiritual enemies, sin, Satan, the world, and death; has engaged with them and conquered them: he is the Captain of their salvation, their King at the head of them, that protects and defends them here, and is their friend in the court of heaven; their Advocate and interceding High priest there, who pleads their cause against Satan, and obtains every blessing for them. The Spirit of Jehovah is on their side, to carry on his work in them; to assist them in their prayers and supplications; to secure them from Satan's temptations; to set up a standard for them when the enemy comes in like a flood upon them; and to comfort them in all their castings down; and to work them up for, and bring them safe to heaven: but were this not the case, what would become of them!—&nbsp;*John Gill.*&nbsp;
+
+**Verse 1.**&nbsp;&nbsp;*Israel.*&nbsp;The "Israel" spoken of in this psalm may be Israel in the house of Laban, in whose person the Midrash Tehillim imagines the Psalm to be said. There are certainly some of its phrases which acquire an appropriate meaning from being interpreted in this connection.—&nbsp;*H.T. Armfield.*&nbsp;
+
+**Verses 1-4.**&nbsp;Such abrupt and unfinished expressions in the beginning of the psalm indicate the great joy and exultation that will not suffer the speaker to finish his sentences.—&nbsp;*Robert Bellarmine.*&nbsp;
+
+**Verses 1-2.**&nbsp;The somewhat paraphrastic rendering of these verses (with the unnecessary interpolation of the words in italics in the Authorised Version) greatly weaken their force and obscure their meaning. There is far more meant and expressed than simply that God gave the Israelites the victory over their enemies. The psalm is typico prophetic. It sets forth the condition of the church in this world, surrounded by enemies, implacable in their hatred, maddened by rage, and bent on her destruction. It gives assurance of her preservation, and continuous triumph, because Jehovah is her God. It foretells the future, full, and final destruction of all her enemies. It reechoes the song sung on the shores of the Red Sea. In it are heard the notes of the New Song before the great white throne. The praise and thanksgiving are to hwhy, the revealed oyhla, whose "eternal power and Godhead are understood by the things that are made:"—to, hwhy, the revealed ydvla, whom the fathers knew as the Almighty, from the great things which he did for them:—to hwhy, the God who has made a covenant with his people, the Redeemer. It is ladvy, the chosen people of God, the holy nation, the peculiar treasure to him above all peoples, and thus become, as the Rabbins say, "Odium generis gumant, "against whom oda (not men, but man collectively) rose up and sought to destroy. It is ladvy, God's chosen, the people of the covenant, that with the full delight of a personal "my, "joy in God and sings, "But that Jehovah, was zgl, ours!" Tame and frigid is the rendering—"was on our side." Jehovah was theirs; that, their safety: that, their blessedness: that, their joy.—&nbsp;*Edward Thomas Gibson*&nbsp;, 1818-1880.
+
+**Verses 1,2. **&nbsp;
+
+1\.God was on our side; he took our part, espoused our cause, and appeared for us. He was our helper, and a very present help, a help on our side, nigh at hand. He was with us; not only for us, but among us, and commander-in-chief of our forces.
+
+2\.That God was Jehovah; there the emphasis lies. If it had not been Jehovah himself, a God of infinite power and perfection, that had undertaken our deliverance, our enemies would have overpowered us. Happy the people therefore whose God is Jehovah, a God all sufficient. Let Israel say this to his honour, and resolve never to forsake him.—&nbsp;*Matthew Henry.*&nbsp;
+
+**Verses 1, 2, 8.**&nbsp;These three things will I bear on my heart, O Lord: "The Lord was on our side, "this for the past: "The snare is broken, " for the present; "Our help is in the name of the Lord, "this for the future. I will not and I cannot be fainthearted, whether in my contest with Satan, in my intercourse with the world, or in the upheavings of my wicked heart, so long as I hold this "threefold cord" in my hand, or rather, am held by it.—&nbsp;*Alfred Edersheim.*&nbsp;
+
+**Verse 2.**&nbsp;&nbsp;*If it had not been the LORD*&nbsp;, etc. This repetition is not in vain. For whilst we are in danger, our fear is without measure; but when it is once past, we imagine it to have been less than it was indeed. And this is the delusion of Satan to diminish and obscure the grace of God. David therefore with this repetition stirreth up the people to more thankfulness unto God for his gracious deliverance, and amplifies the dangers which they had passed. Whereby we are taught how to think of our troubles and afflictions past, lest the sense and feeling of God's grace vanish out of our minds.—&nbsp;*Martin Luther.*&nbsp;
+
+**Verse 2.**&nbsp;&nbsp;*Men rose up against us.*&nbsp;It may seem strange that these wicked and wretched enemies, monsters rather than men, should be thus moderately spoken of, and have no other name than this of men given them, which of all others they least deserved, as having in them nothing of man but outward show and shape, being rather beasts, yea, devils in the form and fashion of men, than right men. But hereby the church would show that she did leave the further censuring of them unto God their righteous Judge; and would also further amplify their wickedness, who being men, did yet in their desires and dispositions bewray a more than beastly immanity and inhumanity.—&nbsp;*Daniel Dyke*&nbsp;(—1614?) in&nbsp;*"Comfortable Sermons upon the 124th Psalme,"*&nbsp;1617.
+
+**Verse 3.**&nbsp;&nbsp;*Then they had swallowed us up quick.*&nbsp;The metaphor may be taken from famished wild beasts attacking and devouring men (comp. v. 5); or the reference may be to the case of a man shut up alive in a sepulchre (Pr 1:12) and left there to perish, or (Nu 16:80) swallowed up by an earthquake.—&nbsp;*Daniel Cresswell.*&nbsp;
+
+**Verse 3.**&nbsp;Then they had swallowed us up. The word implies eating with insatiable appetite; every man that eateth must also swallow; but a glutton is rather a swallower than an eater. He throws his meat whole down his throat, and eats (as we may say) without chewing. The rod of Moses, turned into a serpent, "swallowed up" the rods of the Egyptian sorcerers. The word is often applied to express oppression (Ps 35:25): "Let them not say in their hearts, Ah, so would we have it: let them not say, We have swallowed him up": that is, we have made clear riddance of him; he is now a gone man for ever. The ravenous rage of the adversary is described in this language.—&nbsp;*Joseph Caryl.*&nbsp;
+
+**Verse 3.**&nbsp;&nbsp;*Quick.*&nbsp;Not an adverb, "quickly, "but an adjective, alive. As greedy monsters, both of the land and of the deep, sometimes swallow their food before the life is out of it, so would the enemies of the Church have destroyed her as in a moment, but for divine interposition.—&nbsp;*William S. Plumer.*&nbsp;
+
+**Verse 3.**&nbsp;Objection. But what may the reason thereof be? May a man say, that thus the godly shall always prevail and be never overthrown by their enemies, but overcome them rather? Experience doth teach us that they are fewer in number than the wicked are, that they are weaker for power and strength, that they are more simple for wit and policy, and that they are more careless for, diligence and watchfulness than their adversaries be: how, then, comes it to pass that they have the upper hand? Answer. The Prophet Ezra doth declare it unto us in the 8th chapter of his prophecy, and the 10th verse thereof, it is in few words "because the Lord is with them and for them."
+
+For, first, he is stronger than all, being able to resist all power that is devised against him and his, and to do whatsoever he will both in heaven and earth.
+
+2\.He is wiser than all, knowing how to prevent them in all their ways, and also how to bring matters to pass for the good of his people.
+
+3\.He is more diligent than all, to stand, as it were, upon the watch, and to take his advantage when it is offered him, for "He that keepeth Israel doth neither slumber nor sleep."
+
+4\.Lastly, he is happier then all to have good success in all his enterprises, for he doth prosper still in all things which he doth take in hand and none can resist a thought of his; yea, the very "word which goeth out of his mouth doth accomplish that which he wills, and prosper in the thing where unto he doth send it." In war, all these four things are respected in a captain that will still overcome: first, that he be strong; secondly, that he be wise; thirdly, that he be diligent; and, lastly, that he be fortunate; for the victory goeth not always with the strong, nor always with the wise, nor always with the diligent, nor always with the fortunate; but sometimes with the one of them, and sometimes with the other: Out look, where all four do concur together there is always the victory, and therefore seeing all of them are in God, it is no marvel though those whose battles he doth fight, do always overcome and get the victory.—&nbsp;*Thomas Stint*&nbsp;, 1621.
+
+**Verses 4, 5.**&nbsp;A familiar, but exceedingly apt and most significant figure. Horrible is the sight of a raging conflagration; but far more destructive is a river overflowing its banks and rushing violently on: for it is not possible to restrain it by any strength or power. As, then, he says, a river is carried along with great impetuosity, and carries away and destroys whatever it meets with in its course; thus also is the rage of the enemies of the church, not to be withstood by human strength. Hence, we should learn to avail ourselves of the protection and help of God. For what else is the church but a little boat fastened to the bank, which is carried away by the force of the waters? or a shrub growing on the bank, which without effort the flood roots up? Such was the people of Israel in the days of David compared with the surrounding nations. Such in the present day is the church compared with her enemies. Such is each one of us compared with the power of the malignant spirit. We are as a little shrub, of recent growth and having no firm hold: but he is like the Elbe, overflowing, and with great force overthrowing all things far and wide. We are like a withered leaf, lightly holding to the tree; he is like the north wind, with great force rooting up and throwing down the trees. How, then, can we withstand or defend ourselves by out' own power?—&nbsp;*Martin Luther.*&nbsp;
+
+**Verses 4, 5.**&nbsp;First the "waters"; then "the stream" or torrent; then "the proud waters, "lifting up their heads on high. First the waters overwhelm us; then the torrent goes over our soul; and then the proud waters go over our soul. What power can resist the rapid floods of waters, when they overspread their boundaries, and rush over a country? Onward they sweep with resistless force, and men and cattle, and crops and houses, are destroyed. Let the impetuous waters break loose, and, in a few minutes, the scene of life, and industry, and happiness, is made a scene of desolation and woe. Perhaps there is an allusion here to the destruction of the Egyptians in the Red Sea. The floods fell upon them, the depths covered them: they sank into the bottom as a stone. Had God not stretched forth his hand to rescue the Israelites, their enemies would have overwhelmed them. Happy they who, in seasons of danger, have Jehovah for a hiding place.—&nbsp;*N. McMichael.*&nbsp;
+
+**Verse 5.**&nbsp;&nbsp;*Then the proud waters had gone over our soul.*&nbsp;The same again, to note the greatness both of the danger and of the deliverance. And it may teach us not lightly to pass over God's great blessings, but to make the most of them.—&nbsp;*John Trapp.*&nbsp;
+
+**Verse 5. **&nbsp;
+
+"When winds and seas do rage,
+
+And threaten to undo? me,
+
+Thou dost their wrath assuage,
+
+If I but call unto thee.
+
+A mighty storm last night
+
+Did seek my soul to swallow;
+
+But by the peep of light
+
+A gentle calm did follow.
+
+What need I then despair
+
+Though ills stand round about me;
+
+Since mischiefs neither dare
+
+To bark or bite without thee?"
+
+—&nbsp;*Robert Herrick*&nbsp;, 1591-1674.
+
+**Verses 6, 7.**&nbsp;Two figures are again employed, in order to show how imminent was the destruction, had there been no divine interposition. The first is that of a savage beast which was formerly used. But an addition is made, to describe the urgency of the danger. The wild beast was not only lying in wait for them; he was not merely ready to spring upon his prey; he had already leaped upon it: he had actually seized it: it was even now between his teeth. What a graphic description! A moment's delay, and all help would have been in vain. But Jehovah appears on the ground. He goes up to the ferocious beast, and takes out the trembling prey from between his bloody jaws. The danger is imminent; but nothing is too hard for the Lord. "My soul is among lions." "What time I am afraid I will trust in thee." "He shall send from heaven, and save me from the reproach of him that would swallow me up." The second figure is that of a fowler. The fowler has prepared his snare in a skilful manner. The bird enters it, unconscious of danger: the net is thrown over it; and in an instant its liberty is lost. There it lies, the poor bird, its little heart throbbing wildly, and its little wings beating vainly against the net. It is completely at the mercy of the fowler, and escape is impossible. But again the Lord appears, and his presence is safety He goes up to the net, lifts it from the ground; the bird flies out, lights on a neighbouring tree, and sings among the branches. "Surely he shall deliver thee from the snare of the fowler." God rescues his people from the craft and subtlety of their enemies, as he does from their open violence.—N. McMichael.
+
+**Verses 6, 7.**&nbsp;We were delivered,
+
+1\.Like a lamb out of the very jaws of a beast of prey: God "hath not given us as a prey to their teeth"; intimating that they had no power against God's people, but what was given them from above. They could not be a prey to their teeth unless God gave them up, and therefore they were rescued, because God would not suffer them to be ruined.
+
+2\.Like "a bird, "a little bird, the word signifies a sparrow, "out of the snare of the fowler." The enemies are very subtle and spiteful, they lay snares for God's people, to bring them into sin and trouble, and to hold them there. Sometimes they seem to have prevailed so far as to gain their point, the children of God are taken in the snare, and are as unable to help themselves out as any weak and silly bird is; and then is God's time to appear for their relief; when all other friends fail, then God breaks the snare, and turns the counsel of the enemies into foolishness: "The snare is broken, and so we are delivered."—&nbsp;*Matthew Henry.*&nbsp;
+
+**Verse 7.**&nbsp;&nbsp;*Our soul is escaped as a bird out of the snare of the fowlers,*&nbsp;etc. Various snares are placed for birds, by traps, birdlime, guns, etc.: who can enumerate all the dangers of the godly, threatening them from Satan, and from the world? Ps 91:3: Ho 5:1.—"We are delivered, "not by our own skill or cunning, but by the grace and power of God only: so that every device is made vain, and freedom is preserved.—&nbsp;*Martin Geier.*&nbsp;
+
+**Verse 7.**&nbsp;&nbsp;*Our soul is escaped as a bird out of the snare of the fowlers,*&nbsp;etc. I am quite sure that there is not a day of our lives in which Satan does not lay some snare for our souls, the more perilous because unseen; and if seen, because perhaps unheeded and despised. And of this, too, I am equally sure, that if any one brings home with him at night a conscience void of offence towards God and man, it is in no might nor strength of his own, and that if the Lord had not been his guide and preserver he would have been given over, nay, he would have given himself over, as a prey to the devourer's teeth. I believe there are few even of God's saints who have not had occasion, in some season of sore temptation, when Satan has let loose all his malice and might, and poured in suggestion upon suggestion and trial upon trial, as he did on Job, and they have been ready to faint, if not to fall by the ways then, perhaps, in a moment when they looked not for it, Satan has departed, foiled and discomfited, and with his prey snatched out of his hands, and they, too, have had gratefully to own, "Our soul is escaped as a bird out of the snare of the fowlers; tie snare is broken, and we are escaped." Yes! depend upon it, our best and only hope, "is in the name of the Lord, who made heaven and earth."—&nbsp;*Barton Bouchier.*&nbsp;
+
+**Verse 7.**&nbsp;&nbsp;*Our soul is escaped as a bird.*&nbsp;The snare of the fowler was the lime-twigs of this world; our soul was caught in them by the feathers, our affections: now, indeed, we are escaped; but the Lord delivered us.—&nbsp;*Thomas Adams.*&nbsp;
+
+**Verse 7.**&nbsp;&nbsp;*As a bird out of the snare of the fowlers.*&nbsp;The soul is surrounded by many dangers.
+
+1\.It is ensnared by worldliness. One of the most gigantic dangers against which God's people have specially to guard—an enemy to all spirituality of thought and feeling.
+
+2\.It is ensnared by selfishness—a foe to all simple-hearted charity, to all expansive generosity and Christian philanthropy.
+
+3\.It is ensnared by unbelief—the enemy of prayer, of ingenuous confidence, of all personal Christian effort. These are not imaginary dangers. We meet them in everyday life. They threaten us at every point, and often have we to lament over the havoc they make in our hearts.—&nbsp;*George Barlow*&nbsp;, in a&nbsp;*"Homiletic Commentary on the Book of Psalms,"*&nbsp;1879.
+
+**Verse 7.**&nbsp;&nbsp;*The snare is broken.*&nbsp;It is as easy for God to deliver his people out of their enemies' hands, even when they have the godly in their power, as to break a net made of thread or yarn, wherewith birds are taken.—&nbsp;*David Dickson.*&nbsp;
+
+**Verse 7.**&nbsp;&nbsp;*The snare is broken, and we are escaped.*&nbsp;Our life lieth open always to the snares of Satan, and we as silly birds are like at every moment to be carried away, notwithstanding the Lord maketh a way for us to escape; yea, when Satan seemeth to be most sure of us, by the mighty power of God the snares are broken and we are delivered. Experience we have hereof in those who are inwardly afflicted and with heaviness of spirit grievously oppressed, that when they seem to be in utter despair, and ready now, as you would say, to perish, yet even at the last pinch, and in the uttermost extremity cometh the sweet comfort of God's Holy Spirit and raiseth them up again. When we are most ready to perish, then is God most ready to help. "Except the Lord had holpen me, "saith David, "my soul had almost dwelt in silence." And this again do we mark for the comfort of the weak conscience. It is Satan's subtlety whereby commonly he disquiets many, that because carnal corruption is in them he would therefore bear them in hand that they are none of Christ's. In this he plays the deceiver; he tries us by the wrong rule of perfect sanctification; this is the square that ought to be laid to Christ's members triumphant in heaven, and not to those who are militant on earth. Sin remaining in me will not prove that therefore I am not in Christ, otherwise Christ should have no members upon earth; but grace working that new disposition which nature could never effect proves undoubtedly that we are in Christ Jesus.—&nbsp;*Thomas Stint.*&nbsp;
+
+**Verse 8.**&nbsp;&nbsp;*Our help is in the name of the LORD, who made heaven and earth.*&nbsp;He hath made the earth where the snare lies, so that he can rightfully destroy the snare as laid unlawfully in his domain; he hath made the heaven, the true sphere of the soaring wings of those souls which he has delivered, so that they may fly upwards from their late prison, rejoicing. He came down to earth himself, the Lord Jesus in whose name is our help, that lie might break the snare; be returned to heaven, that we might fly "as the doves to their windows" (Isa 60:8), following where lie showed the way.—&nbsp;*Richard Rolle*&nbsp;, of Hampole (1340), in&nbsp;*"Neale and Littledale."*&nbsp;
+
+**Verse 8.**&nbsp;&nbsp;*Our help is in the name of the Lord.*&nbsp;The fairest fruits of our by past experience is to glorify God by confidence in him for time to come, as here.—&nbsp;*David Dickson.*&nbsp;
+
+**Verse 8.**&nbsp;&nbsp;*The Lord who made heaven and earth.*&nbsp;As if the Psalmist had said, As long as I see heaven and earth I will never distrust. I hope in that God which made all these things out of nothing; and therefore as long as I see those two great standing monuments of his power before me, heaven and earth, I will never be discouraged. So the apostle: 1Pe 4:19, "Commit the keeping of your souls to him in well doing, as unto a faithful Creator." O Christian! remember when you trust God you trust an almighty Creator, who is able to help, let your case be never so desperate. God could create when he had nothing to work upon, which made one wonder; aud he could create when he had nothing to work with, which is another wonder. What is become of the tools wherewith he made the world? Where is the trowel wherewith he arched the heaven? and the spade wherewith he digged the sea? What had God to work upon, or work withal when he made the world? He made it out of nothing. Now you commit your souls to the same faithful Creator.—&nbsp;*Thomas Manton.*&nbsp;
+
+**Verse 8.**&nbsp;The Romans in a great distress were put so hard to it, that they were fain to take the weapons out of the temples of their gods to fight with them; and so they overcame. And this ought to be the course of every good Christian, in times of public distress, to fly to the weapons of the church, prayers and tears. The Spartans' walls were their spears, the Christian's walls are his prayers. His help standeth in the name of the Lord who hath made both heaven and earth.—&nbsp;*Edmund Calamy.*&nbsp;
+
+**Verse 8.**&nbsp;The French Protestants always begin their public worship with the last verse of this Psalm, and there is no thought more encouraging and comfortable.—&nbsp;*Job Orton*&nbsp;, 1717-1783.
+
+**Verse 8.**&nbsp;&nbsp;*Our help is in the name of the Lord,*&nbsp;etc. These are the words of a triumphing and victorious faith, "Our help standeth in the name of the Lord, which made heaven and earth": as if he said, the Maker of heaven and earth is my God, and my helper. We see whither he flieth in his great distress. He despairs not, but cries unto the Lord, as one yet hoping assuredly to find relief and comfort. Rest thou also in this hope, and do as he did. David was not tempted to the end he Should despair; think not thou, therefore, that thy temptations are sent unto thee that thou shouldest be swallowed up with sorrow and desperation: if thou be brought down to the very gates of hell, believe that the Lord will surely raise thee up again. If so thou be bruised and broken, know it is the Lord that will help thee again. If thy heart be full of sorrow and heaviness, look for comfort from him, who said, that a troubled spirit is a sacrifice unto him: (Ps 51:17) Thus he setteth the eternal God, the Maker of heaven and earth, against all troubles and dangers, against the floods and overflowings of all temptations, and swalloweth up, as it were with one breath all the raging furies of the whole world, and of hell itself, even as a little drop of water is swallowed up by a mighty flaming fire: and what is the world with all its force and power, in respect of him that made heaven and earth!—&nbsp;*Thomas Stint.*&nbsp;
+
+## HINTS TO THE VILLAGE PREACHER
+
+**Verse 1.**&nbsp;&nbsp;*The LORD who was on our side.*&nbsp;Who is he? Why on our side? How does he prove it? What are we bound to do?
+
+**Verses 1-3**&nbsp;. Regard the text,
+
+1\.From the life of Jacob or Israel.
+
+2\.From the history of the nation.
+
+3\.From the annals of the church.
+
+4\.From our personal biography.
+
+**Verses 1-5.**&nbsp;
+
+1\.What might have been.
+
+2\.Why it has not been.
+
+**Verses 1-5.**&nbsp;
+
+1\.What the people of God would have been if the Lord had not been on their side.
+
+(a) What if left to their enemies? Ps 124:2,3. Israel left to Pharaoh and his host in the time of Moses: left to the Caananites in the time of Joshua: to the Midianites in the time of Gideon: Judah to the Assyrians in the time of Hezekiah: "Then they had swallowed us up," etc.
+
+(b) What if left to themselves? "The stream had gone over our soul": Ps 124:4, 5.
+
+2\.What the people of God are with the Lord on their side.
+
+(a) All the designs of their enemies against them are frustrated.
+
+(b) Their inward sorrow is turned into joy.
+
+(c) Both their inward and then outward troubles work together for their good.—&nbsp;*G. R.*&nbsp;
+
+**Verse 2, 3.**&nbsp;
+
+1\.To swallow us alive—the desire of our wrathful enemies.
+
+2\.To save us alive—the work of our faithful God.
+
+**Verse 6.**&nbsp;
+
+1\.The Lamb.
+
+2\.The Lion.
+
+3\.The Lord.
+
+**Verse 6.**&nbsp;
+
+1\.They would gladly devour us.
+
+2\.They cannot devour unless the Lord will.
+
+3\.God is to be praised since he does not permit them to injure us.
+
+**Verse 6.**&nbsp;
+
+1\.The ill will of men against the righteous.
+
+(a) For their spoliation.
+
+(b) For their destruction: "As a prey to their teeth."
+
+2\.The goodwill of God. "Blessed be the Lord, "etc.
+
+(a) What it supposes—that good men, in a measure and for a time, may be given into the hands of the wicked.
+
+(b) What it affirms—that they are not given entirely into their hands:—&nbsp;*G.R.*&nbsp;
+
+**Verse 7.**&nbsp;
+
+1\.The soul ensnared.
+
+(a) By whom? Wicked men are fowlers. By Satan. "Satan, the fowler, who betrays Unguarded souls a thousand ways."
+
+(b) How? By temptations—to pride, worldliness, drunkenness, error, or lust, according to the tastes and habits of the individual.
+
+2\.The soul escaped: "Our soul is escaped, "etc. "The snare is broken, "not by ourselves, but by the hand of God.—&nbsp;*G.R.*&nbsp;
+
+**Verse 7.**&nbsp;
+
+1\.A bird.
+
+2\.A snare.
+
+3\.A capture.
+
+4\.An escape.
+
+**Verse 8.**&nbsp;Our Creator, our Helper. Special comfort to be drawn from creation in this matter.
+
+**Verse 8.**&nbsp;
+
+1\.The Helper: "The Lord, who made heaven and earth, "who in his works has given ample proofs of what he can do.
+
+2\.The helped. "Our help" is,
+
+(a) Promise in his name.
+
+(b) Sought in his name: these make it ours.—&nbsp;*G.R.*&nbsp;
+
+**Verse 8.**&nbsp;
+
+1\.We have help. As troubled sinners, as dull scholars, as trembling professors, as inexperienced travellers, as feeble workers.
+
+2\.We have help in God's name. In his perfections—"They shall put my name upon the children of Israel." In his Gospel—"A chosen vessel to bear my name." In his authority—"In the name of Jesus Christ rise up, "etc.
+
+3\.Therefore we exert ourselves.—&nbsp;*W.J.*&nbsp;
+
+## WORKS UPON THE HUNDRED TWENTY FOURTH PSALM
+
+&nbsp;*Comfortable sermons upon the 124 psalme*&nbsp;. Being thankfull Remembrances for God's wonderfull deliverance of us from the late gunpowder treason. Preached before the Lady Elizabeth Her Grace, at Combe. By Daniel, Dike, Bachelor in Divinity... London; ...1635&nbsp;*also 1617. Quarto.*&nbsp;Of no value whatever.
+
+&nbsp;*An Exposition on the 124, 125, 126. Psalmes*&nbsp;called the Psalmes of Degrees, or The Churches Deliverance. Plainly set forth for the benefit of God's Church. By T&nbsp;*homas*&nbsp;S&nbsp;*tint.*&nbsp;... London: 1621.&nbsp;*8vo.*&nbsp;Excessively rare.
+
