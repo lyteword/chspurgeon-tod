@@ -78,7 +78,7 @@ the seventh, this ninth Psalm opens with an apparent reference to the
 
 eighth:
 
-## "I will praise thee, O Lord, with my whole heart;
+I will praise thee, O Lord, with my whole heart;
 
 I will shew forth all thy marvellous works.
 
@@ -390,7 +390,7 @@ faithfulness to those who find if he is so gracious to those who
 
 seek.
 
-## "O hope of every contrite heart,
+O hope of every contrite heart,
 
 O joy of all the meek,
 
@@ -532,7 +532,7 @@ God's praise, he means that, in his deliverance grace in all its
 
 heights and depths would be magnified. Just as our hymn puts it:—
 
-## "O the length and breadth of love!
+O the length and breadth of love!
 
 Jesus, Saviour, can it be?
 

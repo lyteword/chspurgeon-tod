@@ -446,7 +446,7 @@ The ancient gates of the eternal temple are personified and addressed
 
 in song by the attending cohorts of rejoicing spirits.
 
-## "Lo his triumphal chariot waits,
+Lo his triumphal chariot waits,
 
 And angels chant the solemn lay.
 
@@ -576,7 +576,7 @@ probably in this case the king himself, appears to have begun the sacred lay
 
 with a solemn and sonorous recital of these sentences:—
 
-## "The earth is the Lord's, and the fulness thereof;
+The earth is the Lord's, and the fulness thereof;
 
 The world, and they that dwell therein.
 
@@ -602,7 +602,7 @@ instruments," etc. We may presume that the chorus then divided, each
 
 singing in their turns, and both joining at the close—
 
-## "For he hath founded it upon the seas,
+For he hath founded it upon the seas,
 
 And established it upon the floods."
 
@@ -616,25 +616,25 @@ must be supposed to have stepped forth, and begun again, in a solemn and
 
 earnest tone—
 
-## "Who shall ascend into the holy hill of the Lord?
+Who shall ascend into the holy hill of the Lord?
 
 Or who shall stand in his holy place?"
 
 To which the first chorus responds—
 
-## "He that hath clean hands, and a pure heart;
+He that hath clean hands, and a pure heart;
 
 Who hath not lifted up his soul unto vanity, nor sworn deceitfully."
 
 And then the second chorus—
 
-## "He shall receive the blessing from the Lord,
+He shall receive the blessing from the Lord,
 
 And righteousness from the God of his salvation."
 
 This part of the sacred song may, in like manner, be supposed to have lasted till they reached the gate of the city, when the king began again in this grand and exalted strain:—
 
-## "Lift up your heads, O ye gates;
+Lift up your heads, O ye gates;
 
 And be ye lift up, ye everlasting doors,
 
@@ -644,11 +644,11 @@ repeated then, in the same way as before, by the general chorus.
 
 The persons having charge of the gates on this high occasion ask—
 
-## "Who is the King of glory?"
+Who is the King of glory?"
 
 To which the first chorus answers—
 
-## "It is Jehovah, strong and mighty—
+It is Jehovah, strong and mighty—
 
 Jehovah mighty in battle."
 
@@ -656,13 +656,13 @@ which the second chorus then repeats in like manner as before, closing it
 
 with the grand universal chorus,
 
-## "He is the King of glory! He is the King of glory!"
+He is the King of glory! He is the King of glory!"
 
 We must now suppose the instruments to take up the same notes, and continue them to the entrance to the court of the tabernacle. There the
 
 king again begins—
 
-## "Lift up your heads, O ye gates;
+Lift up your heads, O ye gates;
 
 And be ye lift up, ye everlasting doors;
 
@@ -672,7 +672,7 @@ This is followed and answered as before—all closing, the instruments
 
 sounding, the chorus singing, the people shouting—
 
-## "He is the King of glory."
+He is the King of glory."
 
 &nbsp;*John Kitto's "Daily Bible Illustrations."*&nbsp;
 
@@ -1988,7 +1988,7 @@ with the Lord."
 
 &nbsp;*Verses*&nbsp;7-10.—
 
-## In this blessed life
+In this blessed life
 
 I see the path, and in his death the price,
 
@@ -2028,7 +2028,7 @@ Powers most illumined 'wildered in the theme.
 
 &nbsp;*Verses*&nbsp;7-10.—
 
-## Lift up your heads, ye gates, and, O prepare,
+Lift up your heads, ye gates, and, O prepare,
 
 Ye living orbs, your everlasting doors,
 

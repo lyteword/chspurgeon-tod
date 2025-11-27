@@ -1210,7 +1210,7 @@ is a God, is more vile than a devil. To deny there is a God, is a
 
 sort of atheism that is not to be found in hell.
 
-## "On earth are atheists many,
+On earth are atheists many,
 
 In hell there is not any."
 
@@ -1430,7 +1430,7 @@ concerning the existence of fairies.&nbsp;*Joseph Addison*&nbsp;(1671 -
 
 &nbsp;*Verse*&nbsp;1:—
 
-## "'There is no God,' the fool in secret said:
+'There is no God,' the fool in secret said:
 
 There is no God that rules or earth or sky.'
 
@@ -1462,7 +1462,7 @@ Blind to thyself, ah, see him, fool, in these!"
 
 &nbsp;*Verse*&nbsp;1:—
 
-## "The owlet,Atheism,
+The owlet,Atheism,
 
 Sailing on obscene wings across the noon,
 
@@ -1778,7 +1778,7 @@ Watson.
 
 satirist describes his own age:
 
-## "Nothing is left, nothing, for future times
+Nothing is left, nothing, for future times
 
 To add to the full catalogue of crimes;
 
@@ -2272,7 +2272,7 @@ of our greatest poets: namely,&nbsp;*Giles Fletcher (1588-1623), in*&nbsp;
 
 his "Christ's Triumph over Death."
 
-## "No sorrow now hangs clouding on their brow;
+No sorrow now hangs clouding on their brow;
 
 No bloodless malady impales their face;
 

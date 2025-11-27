@@ -224,7 +224,7 @@ Spirit may be pouring his floods into one heart, yet he that sitteth next to
 
 the favoured one may know nothing of it.
 
-## "In sacred silence of the mind
+In sacred silence of the mind
 
 My heaven, and there my God I find."
 
@@ -446,7 +446,7 @@ Jehovah gives to his people, even in the midst of the most trying
 
 circumstances!
 
-## "Let earth be all in arms abroad,
+Let earth be all in arms abroad,
 
 They dwell in perfect peace."
 

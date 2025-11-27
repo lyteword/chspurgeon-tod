@@ -994,7 +994,7 @@ thoughts or desires of the soul.&nbsp;*John Parkhurst,*&nbsp;1762.
 
 hearts and reins."
 
-## "I that alone am infinite, can try
+I that alone am infinite, can try
 
 How deep within itself thine heart doth lie.
 
@@ -1356,7 +1356,7 @@ is a lie.&nbsp;*Augustine.*&nbsp;
 
 &nbsp;*Verse*&nbsp;14.
 
-## "Earth's entertainments are like those of Jael.
+Earth's entertainments are like those of Jael.
 
 Her left hand brings me milk, her right, a nail."
 
@@ -1366,7 +1366,7 @@ Her left hand brings me milk, her right, a nail."
 
 that low, unto hell—&nbsp;*"and are fallen into it themselves."*&nbsp;
 
-## "No juster law can be devised or made,
+No juster law can be devised or made,
 
 Than that sin's agents fall by their own trade."
 

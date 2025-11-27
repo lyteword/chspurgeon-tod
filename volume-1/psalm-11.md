@@ -230,7 +230,7 @@ to escape from trial, nor, indeed, in our right minds, would any of
 
 us desire to do so, for trial is the channel of many blessings.
 
-## "Tis my happiness below
+Tis my happiness below
 
 Not to live without the cross;
 
@@ -472,7 +472,7 @@ have been so engrossed with the conflict that neither party perceived
 
 the convulsions of nature that shook the ground—
 
-## "An earthquake reeled unheedingly away,
+An earthquake reeled unheedingly away,
 
 None felt stern nature rocking at his feet."
 
@@ -528,7 +528,7 @@ the following ballad which Anne Askew, who was burned at Smithfield
 
 in 1546, made and sang when she was in Newgate:—
 
-## Like as the armed knight,
+Like as the armed knight,
 
 Appointed to the field,
 

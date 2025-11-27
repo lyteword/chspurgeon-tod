@@ -490,7 +490,7 @@ at the Funeral of Sir Sim. Harcourt,1642.
 
 etc.:—
 
-## Back, then, complainer, loathe thy life no more,
+Back, then, complainer, loathe thy life no more,
 
 Nor deem thyself upon a desert shore,
 
@@ -564,7 +564,7 @@ themselves, yet not God, who knoweth the secrets of all hearts.
 
 &nbsp;*Verse*&nbsp;2.&nbsp;*"They speak vanity."*&nbsp;—
 
-## Faithless is earth, and faithless are the skies!
+Faithless is earth, and faithless are the skies!
 
 Justice is fled, and truth is now no more!
 
@@ -1182,7 +1182,7 @@ hath been often refined; so there is no defect in the word of God.
 
 &nbsp;*Verse*&nbsp;6. Fry thus translates this verse:—
 
-## The words of Jehovah are pure words—
+The words of Jehovah are pure words—
 
 Silver refined in the crucible—
 
@@ -1248,7 +1248,7 @@ they climb, as apes, the more they discover their deformities."
 
 &nbsp;*Verse*&nbsp;8. Good thus translates this verse:—
 
-## Should the wicked advance on every side;
+Should the wicked advance on every side;
 
 Should the dregs of the earth be uppermost?
 

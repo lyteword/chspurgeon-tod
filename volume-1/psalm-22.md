@@ -384,7 +384,7 @@ sufferings, and set him utterly at nought. Herbert sings of our Lord as
 
 saying,—
 
-## "Shame tears my soul, my body many a wound;
+Shame tears my soul, my body many a wound;
 
 Sharp nails pierce this, but sharper that confound;
 
@@ -674,7 +674,7 @@ Bishop Mant's version of the two preceding verses is forcible and
 
 accurate:—
 
-## "Pour'd forth like water is my frame;
+Pour'd forth like water is my frame;
 
 My bones asunder start;
 
@@ -1034,7 +1034,7 @@ affliction or poverty prevented his being an accepted suppliant at Jehovah's
 
 throne of grace. The meanest applicant is welcome at mercy's door:—
 
-## "None that approach his throne shall find
+None that approach his throne shall find
 
 A God unfaithful or unkind."
 

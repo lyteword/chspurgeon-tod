@@ -358,7 +358,7 @@ is but the glory of God; even the sun shines in light borrowed from the
 
 Great Father of Lights.
 
-## "Thou sun, of this great world both eye and soul,
+Thou sun, of this great world both eye and soul,
 
 Acknowledge Him thy greater; sound his praise
 
@@ -528,7 +528,7 @@ nature, and fill the mental faculties to the brim.  There is no cordial of
 
 comfort like that which is poured from the bottle of Scripture.
 
-## "Retire and read thy Bible to be gay."
+Retire and read thy Bible to be gay."
 
 &nbsp;*"The commandment of the Lord is pure."*&nbsp;No mixture of error defiles
 
@@ -946,7 +946,7 @@ miles.  It is true that God is incapable to sense, yet he makes himself, as
 
 it were, visible in his works; as the divine poet (Du Bartas) sweetly:—
 
-## "Therein our fingers feel, our nostrils smell,
+Therein our fingers feel, our nostrils smell,
 
 Our palates taste his virtues that excel,
 
@@ -1346,7 +1346,7 @@ For thine own glory, in the wilderness!
 
 &nbsp;*Verse*&nbsp;1.&nbsp;*"The firmament sheweth his handiwork"*&nbsp;—
 
-## The glitt'ring stars
+The glitt'ring stars
 
 By the deep ear of meditation heard,
 
@@ -1366,7 +1366,7 @@ In ev'ry common instance God is seen.
 
 &nbsp;*James Thompson.*&nbsp;
 
-## These are thy glorious works, Parent of good,
+These are thy glorious works, Parent of good,
 
 Almighty!  Thine this universe frame,
 
@@ -1390,7 +1390,7 @@ phraseology of the XIX. Psalm.  The literal reading of the first and second
 
 verses may be thus given:—
 
-## "The heavens aretellingthe glory of God,
+The heavens aretellingthe glory of God,
 
 The firmament&nbsp;*displaying*&nbsp;the work of his hands;
 
@@ -2894,7 +2894,7 @@ body into the river—"a sluggish water, black as ink, the depth was so
 
 extreme."  The next morning he visited the scene of his guilt—
 
-## "And sought the black accursed pool,
+And sought the black accursed pool,
 
 With a wild misgiving eye;
 
@@ -2906,7 +2906,7 @@ Next he covered the corpse with heaps of leaves, but a mighty wind swept
 
 through the wood and left the secret bare before the sun—
 
-## "Then down I cast me on my face,
+Then down I cast me on my face,
 
 And first began to weep,
 

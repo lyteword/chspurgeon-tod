@@ -184,7 +184,7 @@ tightness, and certainly our heart-strings are evermore getting out
 
 of tune, Let "Selah" teach us to pray
 
-## "O may my heart in tune be found
+O may my heart in tune be found
 
 Like David's harp of solemn sound."
 
@@ -416,7 +416,7 @@ Jesus as thine by his own free gift of himself to thee, if this
 
 greatest of all blessings be upon thee, rise up and sing—
 
-## "Rise, my soul! adore and wonder!
+Rise, my soul! adore and wonder!
 
 Ask, 'O why such love to me?'
 

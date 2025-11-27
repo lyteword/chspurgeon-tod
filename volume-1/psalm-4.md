@@ -14,7 +14,7 @@ ofTHE EVENING HYMN.&nbsp;*May the choice words of the 8th verse be*&nbsp;
 
 our sweet song of rest as we retire to our repose!
 
-## "Thus with my thoughts composed to peace,
+Thus with my thoughts composed to peace,
 
 I'll give mine eyes to sleep;
 
@@ -284,7 +284,7 @@ for ever!&nbsp;*Selah.*&nbsp;O sinner! pause while I question thee awhile
 
 in the words of a sacred poet,—
 
-## "Sinner, is thy heart at rest?
+Sinner, is thy heart at rest?
 
 Is thy bosom void of fear?
 
@@ -650,7 +650,7 @@ certainty of what shall greet their eyes on the resurrection
 
 morning—
 
-## "Sleeping embosomed in his grace,
+Sleeping embosomed in his grace,
 
 Till morning-shadows flee.
 
@@ -1342,7 +1342,7 @@ the children of the resurrection.&nbsp;*George Horne, D.D.,*&nbsp;1776.
 
 &nbsp;*Verse*&nbsp;8.&nbsp;*"Sleep,"*&nbsp;
 
-## "How blessed was thatsleep
+How blessed was thatsleep
 
 The sinless Saviour knew!
 

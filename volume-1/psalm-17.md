@@ -166,7 +166,7 @@ should commence at once, and hell open her mouth at our feet, but might
 
 joyfully prove the truth of our hymn writer's holy boast—
 
-## "Bold shall I stand in that great day;
+Bold shall I stand in that great day;
 
 For who aught to my charge shall lay?
 
@@ -1372,7 +1372,7 @@ poetical conception of the arch enemy prowling around our first parents when
 
 he first beheld their happiness, and resolved to ruin them.
 
-## —About them round
+—About them round
 
 A lion now, he stalks with fiery glare;
 
@@ -1972,7 +1972,7 @@ them at his own pleasure.—&nbsp;*John Howe.*&nbsp;
 
 &nbsp;*Verse*&nbsp;14.&nbsp;*"Whose belly thou fillest,"*&nbsp;etc.:—
 
-## Thou from thy hidden store,
+Thou from thy hidden store,
 
 Their bellies, Lord, hast fill'd;
 

@@ -192,7 +192,7 @@ greater than all his grandest works, and under that feeling we
 
 roughly wrote these few lines:—
 
-## Yet in all these how great soe'er they be,
+Yet in all these how great soe'er they be,
 
 We see not Him. The glass is all too dense
 
@@ -1256,7 +1256,7 @@ D.D.,1817.
 
 &nbsp;*Verse*&nbsp;3.&nbsp;*"Thy heavens:"*&nbsp;
 
-## This prospect vast, what is it?—weigh'd aright,
+This prospect vast, what is it?—weigh'd aright,
 
 'Tis natures system of divinity,
 
@@ -1658,7 +1658,7 @@ shouldst visit him?" Joseph Caryl.
 
 son of man, that thou visiteth him?"
 
-## Lord, what is man that thou
+Lord, what is man that thou
 
 So mindful art of him? Or what's the son
 
@@ -1764,7 +1764,7 @@ And in myself am lost.
 
 (&nbsp;*Verses*&nbsp;4-8)—&nbsp;*"What is man,"*&nbsp;etc.:
 
-## —Man is ev'ry thing,
+—Man is ev'ry thing,
 
 And more: he is a tree, yet bears no fruit;
 

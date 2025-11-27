@@ -244,7 +244,7 @@ midst of his church.  In him is Zion's best safeguard; let her citizens be
 
 glad in him.
 
-## "Thy walls are strength, and at thy gates
+"Thy walls are strength, and at thy gates
 
 A guard of heavenly warriors waits;
 
@@ -340,7 +340,7 @@ in pieces, and the ruin of sinners will be hopeless if Jesus shall smite
 
 them.
 
-## "Ye sinners seek his grace,
+Ye sinners seek his grace,
 
 Whose wrath ye cannot bear;
 

@@ -308,7 +308,7 @@ what our God delights to do, we may certainly do to our utmost. Oh for new
 
 crowns for the lofty brow which once was marred with thorns!
 
-## "Let him be crowned with majesty
+Let him be crowned with majesty
 
 Who bowed his head to death,
 
@@ -1314,7 +1314,7 @@ and, lo, the smoke of the country went up as the smoke of a furnace."
 
 Milton puts it—
 
-## "Overhead the dismal hiss
+Overhead the dismal hiss
 
 Of fiery darts in flaming volleys flew,
 

@@ -198,7 +198,7 @@ with a heart already sensible of mercy enjoyed, and to anticipate new trials
 
 with a confidence based upon past experiences of divine love!
 
-## "No fearing or doubting with Christ on our side,
+No fearing or doubting with Christ on our side,
 
 We hope to die shouting, 'The Lord will provide.'"
 
@@ -290,7 +290,7 @@ craft.  The nets were drawn closer and closer until the contracted circle
 
 completely prevented the escape of the captive:
 
-## "About me the cords of hell were wound,
+About me the cords of hell were wound,
 
 And snares of death my footsteps bound."
 
@@ -424,7 +424,7 @@ as flaming fire devours, setting the world on a blaze.  What grandeur of
 
 description is here!  Bishop Mant very admirably rhymes the verse thus:—
 
-## "Smoke from his heated nostrils came,
+Smoke from his heated nostrils came,
 
 And from his mouth devouring flame;
 
@@ -466,7 +466,7 @@ system the cherubim are frequently represented as the chariot of God; hence
 
 Milton, in "Paradise Lost," writes of the Great Father,—
 
-## "He on the wings of cherubim
+He on the wings of cherubim
 
 Uplifted, in paternal glory rode
 
@@ -1326,7 +1326,7 @@ cross.  Arise, O my soul, and meet thine enemies, for they have sustained a
 
 deadly blow, and will fall before thy bold advance.
 
-## "Hell and my sins resist my course,
+Hell and my sins resist my course,
 
 But hell and sin are vanquish'd foes
 
@@ -1430,7 +1430,7 @@ be the subject of our praise.  Our hearts bless the Lord, with holy love
 
 extolling him.
 
-## Jehovah lives, my rock be blessed!
+Jehovah lives, my rock be blessed!
 
 Praised be the God who gives me rest!
 
@@ -2438,7 +2438,7 @@ anguish to the objects of his wrath.  Luke 21:25, 26.—&nbsp;*W. Wilson, in loc
 
 &nbsp;*Verses*&nbsp;9-11:—
 
-## "He also bowed the heavens,
+He also bowed the heavens,
 
 And thence he did descend;
 
@@ -2466,7 +2466,7 @@ Of the airy firmament."
 
 &nbsp;*Verses*&nbsp;9-12:—
 
-## "In his descent, bow'd heaven with earth did meet,
+In his descent, bow'd heaven with earth did meet,
 
 And gloomy darkness roll'd beneath his feet;
 
@@ -2514,7 +2514,7 @@ he is said to&nbsp;*"ride on a cherub."*&nbsp;—&nbsp;*Augustus F. Tholuck.*&nb
 
 &nbsp;*Verse*&nbsp;10.&nbsp;*"Cherub.*&nbsp;"—
 
-## "He on the wings ofcherubrode sublime
+He on the wings ofcherubrode sublime
 
 On the crystalline sky."
 
@@ -3680,7 +3680,7 @@ this is by no means certain; it may have only been a superior sort of iron.—&n
 
 skill.
 
-## "So the great master drew the mighty bow,
+So the great master drew the mighty bow,
 
 And drew with ease.  One hand aloft display'd
 
@@ -3690,7 +3690,7 @@ The bending horns, and one the string essay'd."
 
 &nbsp;*Verses*&nbsp;37, 38:—
 
-## Oh, I have seen the day,
+Oh, I have seen the day,
 
 When with a single word,
 

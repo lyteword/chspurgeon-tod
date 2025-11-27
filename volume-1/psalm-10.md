@@ -202,7 +202,7 @@ those that worked wickedness (Malachi 3:15). These base
 
 pretenders would dispute with their Maker; they would—
 
-## "Snatch from his hand the balance and the rod,
+Snatch from his hand the balance and the rod,
 
 Rejudge his justice, be the god of God."
 
@@ -212,7 +212,7 @@ honour of the covetous, the grinder of the poor, and the sharp
 
 dealer! Our old proverb hath it,—
 
-## "I wot well how the world wags;
+I wot well how the world wags;
 
 He is most loved that hath most bags."
 
@@ -464,7 +464,7 @@ Quarles well pictures our danger in
 
 those memorable lines,—
 
-## "The close pursuers' busy hands do plant
+The close pursuers' busy hands do plant
 
 Snares in thy substance; snares attend thy wants;
 
@@ -2780,7 +2780,7 @@ For as corruption is the father of all flesh, so are the worms
 
 his brethren and sisters according to the old verse—
 
-## "First man, next worms, then stench and
+First man, next worms, then stench and
 
 loathsomeness,
 

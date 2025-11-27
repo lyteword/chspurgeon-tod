@@ -62,7 +62,7 @@ our
 
 days appear when our soul is cast down within us!
 
-## "How wearily the moments seem to glide
+How wearily the moments seem to glide
 
 O'er sadness! How the time
 
@@ -288,7 +288,7 @@ because of the previous sorrow, as calm is all the more delightful in
 
 recollection of the preceding tempest.
 
-## "Sorrows remembered sweeten present
+Sorrows remembered sweeten present
 
 joy."
 
@@ -338,7 +338,7 @@ blessed work, and the tongue keeps tune with the soul, while the
 
 writer declares,&nbsp;*"I will sing unto the Lord."*&nbsp;
 
-## "I will praise thee every day,
+I will praise thee every day,
 
 Now thine anger's past away;
 
@@ -904,7 +904,7 @@ Anselm,1034-1109.
 
 &nbsp;*Verse*&nbsp;4.
 
-## Ah! can you bear contempt; the venom'd tongue
+Ah! can you bear contempt; the venom'd tongue
 
 Of those whom ruin pleases, the keen sneer,
 

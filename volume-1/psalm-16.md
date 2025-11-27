@@ -264,7 +264,7 @@ haply some poor child of God may be served by us, for the Great Father can
 
 never need our aid.  Well may we sing the verses of Dr. Watts:
 
-## "Oft have my heart and tongue confess'd
+Oft have my heart and tongue confess'd
 
 How empty and how poor I am;
 
@@ -666,7 +666,7 @@ all his people.  Let them, therefore, go to their graves as to their beds,
 
 resting their flesh among the clods as they now do upon their couches.
 
-## "Since Jesus is mine, I'll not fear undressing,
+Since Jesus is mine, I'll not fear undressing,
 
 But gladly put off these garments of clay;
 
@@ -1882,7 +1882,7 @@ repudiated by the Puritans.  To prove this fact, it may be well to quote
 
 from Corbet's witty itinerary of,
 
-## "Foure clerkes of Oxford, doctors two, and two
+Foure clerkes of Oxford, doctors two, and two
 
 That would be doctors."
 
@@ -1890,7 +1890,7 @@ He laments the secularisation of church appurtenances at Banbury, by the
 
 Puritans, whom he described as,
 
-## ———————"They which tell
+———————"They which tell
 
 That Christ hath nere descended into Hell,
 

@@ -538,7 +538,7 @@ they recover it again.&nbsp;*Thomas Boston.*&nbsp;
 
 &nbsp;*Verse*&nbsp;1.&nbsp;*"Who shall dwell,"*&nbsp;etc.
 
-## "Now who is he? Say, if ye can,
+Now who is he? Say, if ye can,
 
 Who so shall gain the firm abode?
 
@@ -1522,7 +1522,7 @@ tale-bearers and false reporters of others, had two verses written
 
 over his table; by translation these:
 
-## "He that doth love with bitter speech the absent to
+He that doth love with bitter speech the absent to
 
 defame,
 
@@ -1602,7 +1602,7 @@ together, he would first salute the preacher and then the angel.
 
 not."
 
-## "His words are bonds, his oaths are oracles;
+His words are bonds, his oaths are oracles;
 
 His love sincere, his thoughts immaculate;
 

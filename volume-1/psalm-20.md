@@ -280,7 +280,7 @@ his church we need not furl our banners in fear, but advance them with
 
 sacred courage.
 
-## "Jesu's tremendous name
+Jesu's tremendous name
 
 Puts all our foes to flight;
 
@@ -1342,7 +1342,7 @@ cities.—&nbsp;*Charles Bradbury.*&nbsp;
 
 &nbsp;*Verse*&nbsp;7.
 
-## "Some their warrior horses boast,
+Some their warrior horses boast,
 
 Some their chariots' marshall'd host;
 

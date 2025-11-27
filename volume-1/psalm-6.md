@@ -346,7 +346,7 @@ plight.
 
 Verse 8. Hitherto, all has been mournful and disconsolate, but now—
 
-## "Your harps, ye trembling saints,
+Your harps, ye trembling saints,
 
 Down from the willows take."
 
@@ -536,7 +536,7 @@ and this last he was willing to bear.&nbsp;*John Calvin,*&nbsp;1509 -
 
 &nbsp;*Verse*&nbsp;1.&nbsp;*"O Lord, rebuke me not in thine anger."*&nbsp;
 
-## The anger of the Lord? Oh, dreadful thought!
+The anger of the Lord? Oh, dreadful thought!
 
 How can a creature frail as man endure
 
@@ -578,7 +578,7 @@ put for the execution of anger.&nbsp;*Richard Stock,*&nbsp;1641.
 
 displeasure."
 
-## O keep up life and peace within,
+O keep up life and peace within,
 
 If I must feel thy chastening rod!
 
