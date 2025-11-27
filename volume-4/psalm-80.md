@@ -1,3 +1,7 @@
+---
+weight: 80
+---
+
 # Psalm 80
 
 **TITLE.**&nbsp;&nbsp;*To the Chief Musician upon Shoshannim Eduth.*&nbsp;For the fourth time we have a song upon Shoshannim, or the lilies; the former ones being Psalms 45, 60, and 69. Why this title is given it would be difficult to say in every case, but the delightfully poetical form of the present Psalm may well justify the charming title.&nbsp;*Eduth*&nbsp;signifies testimony. The Psalm is a testimony of the church as a "lily among thorns." Some interpreters understand the present title to refer to an instrument of six strings, and Schleusner translates the two words, "the hexachord of testimony." It may be that further research will open up to us these "dark sayings upon a harp." We shall be content to accept them as evidence that sacred song was not lightly esteemed in the days of old.&nbsp;*A Psalm of Asaph.*&nbsp;A latter Asaph we should suppose, who had the unhappiness to live, like the "last minstrel, "in evil times. If by the Asaph of David's day, this Psalm was written in the spirit of prophecy, for it sings of times unknown to David.

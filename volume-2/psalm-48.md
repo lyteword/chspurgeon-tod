@@ -1,3 +1,7 @@
+---
+weight: 48
+---
+
 # Psalm 48
 
 **TITLE.**&nbsp;A Song and Psalm for the Sons of Korah. A song for joyfulness and a Psalm for reverence. Alas! every song is not a Psalm, for poets are not all heaven born, and every Psalm is not a song, for in coming before God we have to utter mournful confessions as well as exulting praises. The Sons of Korah were happy in having so large a selection of song; the worship where such a variety of music was used could not become monotonous, but must have given widest scope for all the sacred passions of gracious souls.

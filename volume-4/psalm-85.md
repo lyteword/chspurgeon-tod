@@ -1,3 +1,7 @@
+---
+weight: 85
+---
+
 # Psalm 85
 
 **TITLE.**&nbsp;To the Chief Musician, A Psalm for the sons of Korah. There is no need to repeat our observations upon a title which is of so frequent occurrence; the reader is referred to notes placed in the headings of preceding psalms. Yet it may not be out of place to quote Ne 12:46.&nbsp;*In the days of David and Asaph of old there were chief of the singers, and songs of praise and thanksgiving unto God.*&nbsp;

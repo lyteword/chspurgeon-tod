@@ -1,3 +1,7 @@
+---
+weight: 3
+---
+
 # Psalm 3
 
 TITLE. "A Psalm of David, when he fled from Absalom his Son."&nbsp;*You will remember the sad story of David's flight from his own palace,*&nbsp;

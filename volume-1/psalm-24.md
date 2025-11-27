@@ -1,3 +1,7 @@
+---
+weight: 24
+---
+
 # Psalm 24
 
 Title. A Psalm of David.&nbsp;*From the title we learn nothing but the*&nbsp;

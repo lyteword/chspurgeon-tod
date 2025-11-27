@@ -1,3 +1,7 @@
+---
+weight: 127
+---
+
 # Psalm 127
 
 **TITLE.**&nbsp;A Song of Degrees for Solomon. It was meet that the builder of the holy house should be remembered by the pilgrims to its sacred shrine. The title probably indicates that David wrote it for his wise son, in whom he so greatly rejoiced, and whose name Jedidiah, or "beloved of the Lord", is introduced into the second verse. The spirit of his name, "Solomon, or peaceable", breathes through the whole of this most charming song. If Solomon himself was the author, it comes fitly from him who reared the house of the Lord. Observe how in each of these songs the heart is fixed upon Jehovah only. Read the first verses of these Psalms, from Psalm 120 to the present song, and they run thus: "I cried unto the Lord", "I will lift up mine eyes to the hills", "Let us go unto the house of the Lord." "Unto thee will I lift up mine eyes", "If it had not been the Lord", "They that trust in the Lord." "When the Lord turned again the captivity." The Lord and the Lord alone is thus lauded at each step of these songs of the ascents. O for a life whose every halting place shall suggest a new song unto the Lord!

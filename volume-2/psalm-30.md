@@ -1,3 +1,7 @@
+---
+weight: 30
+---
+
 # Psalm 30
 
 **TITLE.**&nbsp;A Psalm and Song at the Dedication of the House of David; or rather, A Psalm; a Song of Dedication for the House. By David. A song of faith since the house of Jehovah, here intended, David never lived to see. A Psalm of praise, since a sore judgment had been stayed, and a great sin forgiven. From our English version it would appear that this Psalm was intended to be sung at the building of that house of cedar which David erected for himself, when he no longer had to hide himself in the Cave of Adullam, but had become a great king. If this had been the meaning, it would have been well to observe that it is right for the believer when removing, to dedicate his new abode to God. We should call together our Christian friends, and show that where we dwell, God Dwells, and where we have a tent, God has an altar. But as the song refers to the temple, for which it was David's joy to lay by in store, and for the site of which he purchased in his later days the floor of Ornan, we must content ourselves with remarking the holy faith which foresaw the fulfilment of the promise made to him concerning Solomon. Faith can sing—

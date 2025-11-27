@@ -1,3 +1,7 @@
+---
+weight: 12
+---
+
 # Psalm 12
 
 TITLE.&nbsp;*This Psalm is headed*&nbsp;"To the Chief Musician upon

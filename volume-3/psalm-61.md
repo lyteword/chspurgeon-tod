@@ -1,3 +1,7 @@
+---
+weight: 61
+---
+
 # Psalm 61
 
 **TITLE.**&nbsp;&nbsp;*To the Chief Musician upon Neginah, a Psalm of David.*&nbsp;The original indicates that both the hymn and the musical instrument were David's. He wrote the verses and himself sang them to the stringed instrument whose sound he loved so well. We have left the Psalms entitled&nbsp;*Michtam,*&nbsp;but we shall still find much precious meaning though the golden name be wanting. We have met with the title of this Psalm before, in Psalms 4, 6, 54, and 55, but with this difference, that in the present case the word is in the singular number: the Psalm itself is very personal, and well adapted for the private devotion of a single individual.

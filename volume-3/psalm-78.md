@@ -1,3 +1,7 @@
+---
+weight: 78
+---
+
 # Psalm 78
 
 **TITLE.**&nbsp;&nbsp;*Maschil of Asaph.*&nbsp;This is rightly entitled an instructive Psalm. It is not a mere recapitulation of important events in Israelitish history, but is intended to be viewed as a parable setting forth the conduct and experience of believers in all ages. It is a singular proof of the obtuseness of mind of many professors that they will object to sermons and expositions upon the historical parts of Scripture, as if they contained no instruction in spiritual matters: were such persons truly enlightened by the Spirit of God, they would perceive that all Scripture is profitable, and would blush at their own folly in undervaluing any portion of the inspired volume.

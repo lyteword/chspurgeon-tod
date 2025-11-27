@@ -1,3 +1,7 @@
+---
+weight: 99
+---
+
 # Psalm 99
 
 This may be called THE SANCTUS, or, THE HOLY, HOLY, HOLY PSALM, for the word "holy" is the conclusion and the refrain of its three main divisions. Its subject is the holiness of the divine government, the sanctity of the mediatorial reign. It seems to us to declare the holiness of Jehovah himself in Ps 99:1-3; it mentions the equity of the king whom the Lord had appointed, as an illustration of the Lord's love of holiness, or more probably it describes the Lord as himself the king, in Ps 99:4-5, and it then sets forth the severely righteous character of God's dealings with those favoured persons whom in former times he had selected to approach him on behalf of the people, Ps 99:6-9. It is a hymn fitted for the cherubim who surround the throne, who are mentioned in Ps 99:1; it is a Psalm most fitting for saints who dwell in Zion, the holy city, and especially worthy to be reverently sung by all who, like David the king, Moses the lawgiver, Aaron the priest, or Samuel the seer, are honoured to lead the church of God, and plead for her with her Lord.

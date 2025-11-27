@@ -1,3 +1,7 @@
+---
+weight: 147
+---
+
 # Psalm 147
 
 **SUBJECT.**&nbsp;This is a specially remarkable song. In it the greatness and the condescending goodness of the Lord are celebrated The God of Israel is set forth in his peculiarity of glory as caring for the sorrowing, the insignificant, and forgotten. The poet finds a singular joy in extolling one who is so singularly gracious. It is a Psalm of the city and of the field, of the first and the second creations, of the common wealth and of the church. It is good and pleasant throughout.

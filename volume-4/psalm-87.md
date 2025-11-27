@@ -1,3 +1,7 @@
+---
+weight: 87
+---
+
 # Psalm 87
 
 **TITLE.**&nbsp;A Psalm or Song for the sons of Korah. A sacred hymn and a national lyric. A theocracy blends the religious and the patriotic ideas in one; and in proportion as nations become Christianized, their popular songs will become deeply imbued with pious sentiments. Judged by this standard, our own land is far in arrears. This "Psalm or song" was either composed by the sons of Korah, or dedicated to them: as they kept the doors of the house of the Lord, they could use this beautiful composition as a Psalm within the doors, and as a song outside.

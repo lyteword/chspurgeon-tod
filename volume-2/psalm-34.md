@@ -1,3 +1,7 @@
+---
+weight: 34
+---
+
 # Psalm 34
 
 **TITLE.**&nbsp;Psalm of David, when he changed his behaviour before Abimelech; who drove him away, and he departed. Of this transaction, which reflects no credit upon David's memory, we have a brief account in 1Sa 21:1-15. Although the gratitude of the psalmist prompted him thankfully to record the goodness of the Lord in vouchsafing an undeserved deliverance, yet he weaves none of the incidents of the escape into the narrative, but dwells only on the grand fact of his being heard in the hour of peril. We may learn from his example not to parade our sins before others, as certain vainglorious professors are wont to do who seem as proud of their sins as old Greenwich pensioners of their battles and their wounds. David played the fool with singular dexterity, but he was not so real a fool as to sing of his own exploits of folly. In the original, the title does not teach us that the psalmist composed this poem at the time of his escape from Achish, the king or Abimelech of Gath, but that it is intended to commemorate that event, and was suggested by it. It is well to mark our mercies with well carved memorials. God deserves our best handiwork. David in view of the special peril from which he was rescued, was at great pains with this Psalm, and wrote it with considerable regularity, in almost exact accordance with the letters of the Hebrew alphabet. This is the second alphabetical Psalm, the twenty-fifth being the first.

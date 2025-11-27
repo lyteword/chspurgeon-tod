@@ -1,3 +1,7 @@
+---
+weight: 112
+---
+
 # Psalm 112
 
 **TITLE AND SUBJECT.**&nbsp;There is no title to this psalm, but it is evidently a companion to the hundred and eleventh, and, like it, it is an alphabetical psalm. Even in the number of verses, and clauses of each verse, it coincides with its predecessor, as also in many of its words and phrases. The reader should carefully compare the two psalms line by line. The subject of the poem before us is—&nbsp;*the blessedness of the righteous man,*&nbsp;and so it bears the same relation to the preceding which the moon does to the sun; for, while the first declares the glory of God, the second speaks of the reflection of the divine brightness in men born from above. God is here praised for the manifestation of his glory which is seen in his people, just as in the preceding psalm he was magnified for his own personal acts. The hundred and eleventh speaks of the great Father, and this describes his children renewed after his image. The psalm cannot be viewed as the extolling of man, for it commences with "Praise ye the Lord; "and it is intended to give to God all the honour of his grace which is manifested in the sons of God.

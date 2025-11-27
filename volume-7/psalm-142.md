@@ -1,3 +1,7 @@
+---
+weight: 142
+---
+
 # Psalm 142
 
 **TITLE.**&nbsp;Maschil of David. This Maschil is written for our instruction. It teaches us principally by example how to order our prayer in times of distress. Such instruction is among the most needful, practical, and effectual parts of our spiritual education. He who has learned how to pray has been taught the most useful of the arts and sciences. The disciples said unto the Son of David, "Lord, teach, us to pray"; and here David gives us a valuable lesson by recording his own experience as to supplication from beneath a cloud.

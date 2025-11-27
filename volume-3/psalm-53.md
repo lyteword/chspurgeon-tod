@@ -1,3 +1,7 @@
+---
+weight: 53
+---
+
 # Psalm 53
 
 **TITLE.**&nbsp;&nbsp;*To the Chief Musician.*&nbsp;If the leader of the choir is privileged to sing the jubilates of divine grace, he must not disdain to chant the miseries of human depravity. This is the second time he has had the same Psalm entrusted to him&nbsp;*(see Psalm 14.)*&nbsp;, and he must, therefore, be the more careful in singing it.&nbsp;*Upon Mahalath.*&nbsp;Here the tune is chosen for the musician, probably some mournfully solemn air; or perhaps a musical instrument is here indicated, and the master of the choir is requested to make it the prominent instrument in the orchestra; at any rate, this is a direction not found in the former copy of the Psalm, and seems to call for greater care. The word&nbsp;*"Mahalath"*&nbsp;appears to signify, in some forms of it, "disease, "and truly this Psalm is&nbsp;*THE SONG OF MAN'S DISEASE—*&nbsp;the mortal, hereditary taint of sin.&nbsp;*Maschil.*&nbsp;This is a second additional note not found in Psalm 14, indicating that double attention is to be given to this most instructive song.&nbsp;*A Psalm of David.*&nbsp;It is not a copy of the fourteenth Psalm, emended and revised by a foreign hand; it is another edition by the same author, emphasised in certain parts, and rewritten for another purpose.

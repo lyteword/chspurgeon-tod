@@ -1,3 +1,7 @@
+---
+weight: 146
+---
+
 # Psalm 146
 
 **DIVISION.**&nbsp;We are now among the Hallelujahs. The rest of our journey lies through the Delectable Mountains. All is praise to the close of the book. The key is high pitched: the music is upon the high sounding cymbals. O for a heart full of joyful gratitude, that we may run, and leap, and glorify God, even as these Psalms do.

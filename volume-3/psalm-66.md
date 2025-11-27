@@ -1,3 +1,7 @@
+---
+weight: 66
+---
+
 # Psalm 66
 
 **TITLE.**&nbsp;&nbsp;*To the Chief Musician.*&nbsp;He had need be a man of great skill, worthily to sing such a Psalm as this: the best music in the world would be honoured by marriage with such expressions.&nbsp;*A Song*&nbsp;or&nbsp;*Psalm*&nbsp;, or a&nbsp;*Song and Psalm.*&nbsp;It may be either said or sung; it is a marvellous poem if it be but read; but set to suitable music, it must have been one of the noblest strains ever heard by the Jewish people. We do not know who is its author, but we see no reason to doubt that David wrote it. It is in the Davidic style, and has nothing in it unsuited to his times. It is true the "house" of God is mentioned, but the tabernacle was entitled to that designation as well as the temple.

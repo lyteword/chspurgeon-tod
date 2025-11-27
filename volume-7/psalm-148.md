@@ -1,3 +1,7 @@
+---
+weight: 148
+---
+
 # Psalm 148
 
 The song is one and indivisible. It seems almost impossible to expound it in detail, for a living poem is not to be dissected verse by verse. It is a song of nature and of grace. As a flash of lightning flames through space, and enwraps both heaven and earth in one vestment of glory, so doth the adoration of the Lord in this Psalm light up all the universe, and cause it to glow with a radiance of praise. The song begins in the heavens, sweeps downward to dragons and all deeps, and then ascends again, till the people near unto Jehovah take up the strain. For its exposition the chief requisite is a heart on fire with reverent love to the Lord over all, who is to be blessed for ever.

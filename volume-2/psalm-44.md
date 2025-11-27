@@ -1,3 +1,7 @@
+---
+weight: 44
+---
+
 # Psalm 44
 
 **TITLE.**&nbsp;To the Chief Musician for the sons of Korah, Maschil. The title is similar to the forty-second, and although this is no proof that it is by the same author it makes it highly probable. No other writer should be sought for to father any of the Psalms when David will suffice, and therefore we are loathe to ascribe this sacred song to any but the great psalmist, yet as we hardly know any period of his life which it would fairly describe, we feel compelled to look elsewhere. Some Israelitish patriot fallen on evil times, sings in mingled faith and sorrow, his country's ancient glory and her present griefs, her traditions of former favour and her experience of pressing ills. By Christians it can best be understood if put into the mouth of the church when persecution is peculiarly severe. The last verses remind us of Milton's famous lines on the massacre of the Protestants among the mountains of Piedmont. The song before us is fitted for the voices of the saved by grace, the sons of Korah, and is to them and to all others full of teaching, hence the title Maschil.

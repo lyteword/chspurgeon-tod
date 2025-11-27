@@ -1,3 +1,7 @@
+---
+weight: 71
+---
+
 # Psalm 71
 
 **TITLE.**&nbsp;There is no title to this Psalm, and hence some conjecture that Psalm 70 is intended to be a prelude to it, and has been broken off from it. Such imaginings have no value with us. We have already met with five Psalms without title, which are, nevertheless, as complete as those which bear them. We have here&nbsp;*THE PRAYER OF THE AGED BELIEVER,*&nbsp;who, in holy confidence of faith, strengthened by a long and remarkable experience, pleads against his enemies, and asks further blessings for himself. Anticipating a gracious reply, he promises to magnify the Lord exceedingly.

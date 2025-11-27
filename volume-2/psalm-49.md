@@ -1,3 +1,7 @@
+---
+weight: 49
+---
+
 # Psalm 49
 
 **TITLE.**&nbsp;To the Chief Musician, a Psalm for the sons of Korah. This is precisely the same as on former occasions, and no remark is needed.

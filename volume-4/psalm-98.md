@@ -1,3 +1,7 @@
+---
+weight: 98
+---
+
 # Psalm 98
 
 **TITLE AND SUBJECT.**&nbsp;This sacred ode, which bears simply the title of "A Psalm, "follows fitly upon the last, and is evidently an integral part of the series of royal psalms. If Ps 97:1-12 described the publication of the gospel, and so the setting up of the kingdom of heaven, the present Psalm is a sort of&nbsp;*Coronation Hymn*&nbsp;, officially proclaiming the conquering Messiah as Monarch over the nations, with blast of trumpets, clapping of hands, and celebration of triumphs. It is a singularly bold and lively song. The critics have fully established the fact that similar expressions occur in Isaiah, but we see no force in the inference that therefore it was written by him; on this principle half the books in the English language might be attributed to Shakespeare. The fact is that these associated Psalms make up a mosaic, in which each one of them has an appropriate place, and is necessary to the completeness of the whole, and therefore we believe them, to be each and all the work of one and the same mind. Paul, if we understand him aright, ascribes Ps 95:1-11 to David, and as we believe that the same writer must have written the whole group, we ascribe this also to the son of Jesse. Whoever that may be, the song is worthy to rank among the most devout and soul stirring of sacred lyrics.

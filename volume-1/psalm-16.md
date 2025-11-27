@@ -1,3 +1,7 @@
+---
+weight: 16
+---
+
 # Psalm 16
 
 TITLE.  MICHTAM OF DAVID.&nbsp;*This is usually understood to mean*&nbsp;THE GOLDEN

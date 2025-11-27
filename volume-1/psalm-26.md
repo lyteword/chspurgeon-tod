@@ -1,3 +1,7 @@
+---
+weight: 26
+---
+
 # Psalm 26
 
 **TITLE.**&nbsp;A Psalm of David. The sweet singer of Israel appears before us in this Psalm as one enduring reproach; in this he was the type of the great Son of David, and is an encouraging example to us to carry the burden of slander to the throne of grace. It is an ingenious surmise that this appeal to heaven was written by David at the time of the assassination of Ishbosheth, by Baanah and Rechab, to protest his innocence of all participation in that treacherous murder; the tenor of the Psalm certainly agrees with the supposed occasion, but it is not possible with such a slender clue to go beyond conjecture.

@@ -1,3 +1,7 @@
+---
+weight: 111
+---
+
 # Psalm 111
 
 **TITLE.**&nbsp;There is no title to this psalm, but it is an alphabetical hymn of praise, having for its subject the works of the Lord in creation, providence, and grace. The sweet singer dwells upon the one idea that God should be known by his people, and that this knowledge when turned into practical piety is man's true wisdom, and the certain cause of lasting adoration. Many are ignorant of what their Creator has done, and hence they are foolish in heart, and silent as to the praises of God: this evil can only be removed by a remembrance of God's works, and a diligent study of them; to this, therefore, the psalm is meant to arouse us. It may be called&nbsp;*The Psalm of God's Works*&nbsp;intended to excite us to the work of praise.

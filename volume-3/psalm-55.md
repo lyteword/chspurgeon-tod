@@ -1,3 +1,7 @@
+---
+weight: 55
+---
+
 # Psalm 55
 
 **TITLE.**&nbsp;&nbsp;*To the Chief Musician on Neginoth.*&nbsp;Another song to be accompanied by stringed instruments. The strain is at one time mournful, and at another softly sweet. It needed the chief musician's best care to see that the music was expressive of the sentiment.&nbsp;*Maschil.*&nbsp;It is not a mere personal hymn, there is teaching in it for us all, and where our Lord shines through David, his personal type, there is a great deep of meaning.&nbsp;*Of David.*&nbsp;The man of many conditions, much tried, and much favoured, persecuted but delivered and exalted, was from experience enabled to write such precious verses in which he sets forth not only the sorrows of common pilgrims, but of the Lord of the way himself.

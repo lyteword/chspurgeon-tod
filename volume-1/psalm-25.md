@@ -1,3 +1,7 @@
+---
+weight: 25
+---
+
 # Psalm 25
 
 **TITLE.** A Psalm of David. David is pictured in this Psalm as in a faithful miniature. His holy trust, his many conflicts, his great transgression, his bitter repentance, and his deep distresses are all here; so that we see the very heart of "the man after God's own heart. " It is evidently a composition of David's later days, for he mentions the sins of his youth, and from its painful references to the craft and cruelty of his many foes, it will not be too speculative a theory to refer it to the period when Absalom was heading the great rebellion against him. This has been styled the second of the seven Penitential Psalms. It is the mark of a true saint that his sorrows remind him of his sins, and his sorrow for sin drives him to his God. 

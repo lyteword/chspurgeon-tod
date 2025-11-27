@@ -1,3 +1,7 @@
+---
+weight: 110
+---
+
 # Psalm 110
 
 **TITLE.**&nbsp;A Psalm of David. Of the correctness of this title there can be no doubt, since our Lord in Mt 22:1 says, "How then doth David in spirit call him Lord." Yet some critics are so fond of finding new authors for the psalms that they dare to fly in the face of the Lord Jesus himself. To escape from finding Jesus here, they read the title, "Psalm of (or concerning) David, "as though it teas not so much written by him as of him, but he that reads with understanding will see little enough of David here except as the writer. He is not the subject of it even in the smallest degree, but Christ is all. How much was revealed to the patriarch David! How blind are some modern wise men, even amid the present blaze of light, as compared with this poet prophet of the darker dispensation. May the Spirit who spoke by the man after God's own heart give us eyes to see the hidden mysteries of this marvellous Psalm, in which every word has an infinity of meaning.

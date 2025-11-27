@@ -1,3 +1,7 @@
+---
+weight: 58
+---
+
 # Psalm 58
 
 To the Chief Musician. Although David had his own case in his mind's eye, yet he wrote not as a private person, but as an inspired prophet, and therefore his song is presented, for public and perpetual use, to the appointed guardian of the Temple psalmody.&nbsp;*Altaschith.*&nbsp;The wicked are here judged and condemned, but over the godly the sacred&nbsp;*"Destroy not"*&nbsp;is solemnly pronounced.&nbsp;*Michtam of David.*&nbsp;This is the fourth of the Psalms of the Golden Secret, and the second of the "Destroy nots." These names if they serve for nothing else may be useful to aid the memory. Men give names to their horses, jewels, and other valuables, and these names are meant not so much to describe as to distinguish them, and in some cases to set forth the owner's high esteem of his treasure; after the same fashion the Oriental poet gave a title to the song he loved, and so aided his memory, and expressed his estimation of the strain. We are not always to look for a meaning in these superscriptions, but to treat them as we would the titles of poems, or the names of tunes.

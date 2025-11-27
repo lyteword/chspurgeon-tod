@@ -1,3 +1,7 @@
+---
+weight: 5
+---
+
 # Psalm 5
 
 TITLE. "To the Chief Musician upon Nehiloth, a Psalm of David."

@@ -1,3 +1,7 @@
+---
+weight: 109
+---
+
 # Psalm 109
 
 &nbsp;*To The Chief Musician.*&nbsp;Intended therefore to be sung, and sung in the temple service! Yet is it by no means easy to imagine the whole nation singing such dreadful imprecations. We ourselves, at any rate, under the gospel dispensation, find it very difficult to infuse into the Psalm a gospel sense, or a sense at all compatible with the Christian spirit; and therefore one would think the Jews must have found it hard to chant such strong language without feeling the spirit of revenge excited; and the arousal of that spirit could never have been the object of divine worship in any period of time—under law or under gospel. At the very outset this title shows that the Psalm has a meaning with which it is fitting for men of God to have fellowship before the throne of the Most High: but what is that meaning? This is a question of no small difficulty, and only a very childlike spirit will ever be able to answer it.

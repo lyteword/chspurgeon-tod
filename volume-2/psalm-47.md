@@ -1,3 +1,7 @@
+---
+weight: 47
+---
+
 # Psalm 47
 
 **TITLE.**&nbsp;To the Chief Musician. Many songs were dedicated to this leader of the chorus, but he was not overloaded thereby. God's service is such delight that it cannot weary us; and that choicest part of it, the singing of his praises, is so pleasurable that we cannot have too much of it. Doubtless, the chief musician, as he was commissioned with so many sacred songs, felt that the more the merrier. A Psalm for the Sons of Korah. We cannot agree with those who think that the sons of Korah were the authors of these Psalms; they have all the indications of David's authorship that one could expect to see. Our ear has grown accustomed to the ring of David's compositions, and we are morally certain that we hear it in this Psalm. Every expert would detect here the autography of the Son of Jesse, or we are greatly mistaken. The Sons of Korah sang these Psalms, but we believe they did not write them. Fit singers were they whose origin reminded them of sin, whose existence was a proof of sovereign grace, and whose name has a close connection with the name of Calvary.

@@ -1,3 +1,7 @@
+---
+weight: 124
+---
+
 # Psalm 124
 
 **TITLE.**&nbsp;A Song of degrees of David. Of course the superfine critics have pounced upon this title as inaccurate, but we are at liberty to believe as much or as little of their assertions as we may please. They declare that there are certain ornaments of language in this little ode which were unknown in the Davidic period. It may be so; but in their superlative wisdom they have ventured upon so many other questionable statements that we are not bound to receive this dictum. Assuredly the manner of the song is very like to David's, and we are unable to see why he should be excluded from the authorship. Whether it be his composition or no, it breathes the same spirit as that which animates the unchallenged songs of the royal composer.

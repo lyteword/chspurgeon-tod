@@ -1,3 +1,7 @@
+---
+weight: 116
+---
+
 # Psalm 116
 
 **SUBJECT.**&nbsp;This is a continuation of the Paschal Hallel, and therefore must in some measure be interpreted in connection with the coming out of Egypt. It has all the appearance of being a personal song in which the believing soul, reminded by the Passover of its own bondage and deliverance, speaks thereof with gratitude, and praises the Lord accordingly. We can conceive the Israelite with a staff in his hand singing, "Return unto thy rest, O my soul, "as he remembered the going back of the house of Jacob to the land of their fathers; and then drinking the cup at the feast using the words of Ps 116:13, "I will take the cup of salvation." The pious man evidently remembers both his own deliverance and that of his people as he sings in the language of Ps 116:16, "Thou hast loosed my bonds"; but he rises into sympathy with his nation as he thinks of the courts of the Lord's house and of the glorious city, and pledges himself to sing "in the midst of thee, O Jerusalem." Personal love fostered by a personal experience of redemption is the theme of this Psalm, and in it we see the redeemed answered when they pray, preserved in time of trouble, resting in their God, walking at large, sensible of their obligations, conscious that they are not their own but bought with a price, and joining with all the ransomed company to sing hallelujahs unto God.

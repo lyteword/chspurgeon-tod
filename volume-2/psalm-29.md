@@ -1,3 +1,7 @@
+---
+weight: 29
+---
+
 # Psalm 29
 
 **TITLE.**&nbsp;A Psalm of David. The title affords us no information beyond the fact that David is the author of this sublime song.

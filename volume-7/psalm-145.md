@@ -1,3 +1,7 @@
+---
+weight: 145
+---
+
 # Psalm 145
 
 This is one of the alphabetical psalms, composed with much art, and, doubtless, so arranged that the memory might be aided. The Holy Spirit condescends to use even the more artificial methods of the poet, to secure attention, and impress the heart.

@@ -1,3 +1,7 @@
+---
+weight: 8
+---
+
 # Psalm 8
 
 TITLE. "To the Chief Musician upon Gittith, a Psalm of David."&nbsp;*We*&nbsp;

@@ -1,3 +1,7 @@
+---
+weight: 92
+---
+
 # Psalm 92
 
 **TITLE.**&nbsp;&nbsp;*A Psalm or Song for the Sabbath day.*&nbsp;This admirable composition is both a Psalm and a Song, full of equal measures of solemnity and joy; and it was intended to be sung upon the day of rest. The subject is the praise of God; praise is Sabbatic work, the joyful occupation of resting hearts. Since a true Sabbath can only be found in God, it is wise to meditate upon him on the Sabbath day. The style is worthy of the theme and of the day, its inspiration is from the "fount of every blessing"; David spake as the Spirit gave him utterance. In the church of Christ, at this hour, no Psalm is more frequently sung upon the Lord's day than the present. The delightful version of Dr. Watts is familiar to us all—

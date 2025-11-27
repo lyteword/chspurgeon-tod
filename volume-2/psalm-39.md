@@ -1,3 +1,7 @@
+---
+weight: 39
+---
+
 # Psalm 39
 
 **TITLE.**&nbsp;To the Chief Musician, even to Jeduthun. Jeduthun's name, which signifies praising or celebrating, was a most appropriate one for a leader in sacred psalmody. He was one of those ordained by the King's order "for song in the house of the Lord with cymbals, psalteries, and harps" 1Ch 15:6, and his children after him appear to have remained in the same hallowed service, even so late as the days of Nehemiah. To have a name and a place in Zion is no small honour, and to hold this place by a long entail of grace is an unspeakable blessing. O that our household may never lack a man to stand before the Lord God of Israel to do him service. David left this somewhat sorrowful ode in Jeduthun's hands because he thought him most fit to set it to music, or because he would distribute the sacred honour of song among all the musicians who in their turn presided in the choir. A Psalm of David. Such as his chequered life would be sure to produce; fit effusions for a man so tempted, so strong in his passions, and yet so firm in faith.

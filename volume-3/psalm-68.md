@@ -1,3 +1,7 @@
+---
+weight: 68
+---
+
 # Psalm 68
 
 **TITLE.**&nbsp;&nbsp;*To the Chief Musician, a Psalm*&nbsp;or&nbsp;*Song of David.*&nbsp;We have already said enough upon this title when dealing with Psalms 65 and 66. The present is obviously a song to be sung at the removal of the ark; and in all probability was rehearsed when David conducted it with holy joy from the house of Obededom to the prepared place on Mount Zion. It is a most soul stirring hymn. The first verses were often the battle song of the Covenanters and Ironsides; and the whole Psalm fitly pictures the way of the Lord Jesus among his saints, and his ascent to glory. The Psalm is at once surpassingly excellent and difficult. Its darkness in some stanzas is utterly impenetrable. Well does a German critic speak of it as a Titan very hard to master. Our slender scholarship has utterly failed us and we have had to follow a surer Guide. We trust our thoughts may not however prove unprofitable.

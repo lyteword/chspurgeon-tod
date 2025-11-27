@@ -1,3 +1,7 @@
+---
+weight: 54
+---
+
 # Psalm 54
 
 **TITLE.**&nbsp;&nbsp;*To the Chief Musician on Neginoth.*&nbsp;The music was to be that of stringed instruments. Variety is to be studied in our tunes, and in all other matters relating to sacred song. Monotony is often the death of congregational praise. Providence is varied, and so should our recording songs be.&nbsp;*Maschil.*&nbsp;We are to learn and to teach by what we sing. Edification must not be divorced from psalmody.&nbsp;*A Psalm of David.*&nbsp;David's productions were as plentiful as they are profitable. His varied life was for our benefit, for from it we derive these hymns, which at this hour are as fresh and as precious as when he wrote them.&nbsp;*When the Ziphims came and said to Saul, Doth not David hide himself with us?*&nbsp;To curry favour with Saul they were guilty of gross inhospitality. What cared they what innocent blood was shed so that they earned the graceless monarch's smile! David came quietly among them, hoping for a little rest in his many flights, but they deserted him in his solitary abode, and betrayed him. He turns to God in prayer, and so strong was his faith that he soon sang himself into delightful serenity.

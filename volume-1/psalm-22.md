@@ -1,3 +1,7 @@
+---
+weight: 22
+---
+
 # Psalm 22
 
 TITLE. "To the chief Musician upon Aijeleth Shahar. A Psalm of David."

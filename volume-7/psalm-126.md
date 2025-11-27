@@ -1,3 +1,7 @@
+---
+weight: 126
+---
+
 # Psalm 126
 
 **TITLE.**&nbsp;A Song of Degrees. This is the seventh Step, and we may therefore expect to meet with some special perfection of joy in it; nor shall we look in vain. We see here not only that Zion abides, but that her joy returns after sorrow. Abiding is not enough, fruitfulness is added. The pilgrims went from blessing to blessing in their psalmody as they proceeded on their holy way. Happy people to whom ever ascent was a song, every halt a hymn. Here the trustor becomes a sower: faith works by love, obtains a present bliss, and secures a harvest of delight.

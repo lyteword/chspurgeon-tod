@@ -1,3 +1,7 @@
+---
+weight: 37
+---
+
 # Psalm 37
 
 **TITLE.**&nbsp;Of David. There is but this word to denote the authorship; whether it was a song or a meditation we are not told. It was written by David in his old age Ps 37:25, and is the more valuable as the record of so varied an experience.

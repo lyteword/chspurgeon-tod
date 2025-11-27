@@ -1,3 +1,7 @@
+---
+weight: 123
+---
+
 # Psalm 123
 
 **TITLE.**&nbsp;A Song of degrees. We are climbing. The first step (Ps. 120) saw us lamenting our troublesome surroundings, and the next saw us lifting or eyes to the hills and resting in assured security; from this we rose to delight in the house of the Lord; but here we look to the Lord himself, and this is the highest ascent of all by many degrees. The eyes are now looking above the hills, and above Jehovah's footstool on earth, to his throne in the heavens. Let us know it as "the Psalm of the eyes". Old authors call it Oculus "Sperans", or the eye of hope. It is a short Psalm, written with singular art, containing one thought, and expressing if in a most engaging manner. Doubtless it would be a favourite song among the people of God. It has been conjectured that this brief song, or rather sigh, may have first been heard in the days of Nehemiah, or under the persecutions of Antiochus. It may be so, but there is no evidence of it; it seems to us quite as probable that afflicted ones in all periods after David's time found this psalm ready to their hand If it appears to describe days remote from David, it is all the more evident that the Psalmist was also a prophet, and sang what he saw in vision.

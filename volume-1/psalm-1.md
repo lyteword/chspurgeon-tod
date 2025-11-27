@@ -1,3 +1,7 @@
+---
+weight: 1
+---
+
 # Psalm 1
 
 **Title &mdash;** *This Psalm may be regarded as* The Preface Psalm *having in it a notification of the contents of the entire Book. It is the psalmists's desire to teach us the way to blessedness, and to warn us of the sure destruction of sinners. This, then, is the matter of the first Psalm, which may be looked upon, in some respects, as the text upon which the whole of the Psalms make up a divine sermon.* 

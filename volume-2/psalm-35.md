@@ -1,3 +1,7 @@
+---
+weight: 35
+---
+
 # Psalm 35
 
 **TITLE.**&nbsp;A Psalm of David. Here is all we know concerning this Psalm, but internal evidence seems to fix the date of its composition in those troublous times when Saul hunted David over hill and dale, and when those who fawned upon the cruel king, slandered the innocent object of his wrath, or it may be referred to the unquiet days of frequent insurrections in David's old age. The whole Psalm is the appeal to heaven of a bold heart and a clear conscience, irritated beyond measure by oppression and malice. Beyond a doubt David's Lord may be seen here by the spiritual eye.

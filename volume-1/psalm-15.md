@@ -1,3 +1,7 @@
+---
+weight: 15
+---
+
 # Psalm 15
 
 SUBJECT, &c.&nbsp;*This Psalm of David bears no dedicatory title at all*&nbsp;

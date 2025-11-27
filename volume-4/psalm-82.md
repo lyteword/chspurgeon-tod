@@ -1,3 +1,7 @@
+---
+weight: 82
+---
+
 # Psalm 82
 
 **TITLE AND SUBJECT.**&nbsp;A Psalm of Asaph. This poet of the temple here acts as a preacher to the court and to the magistracy. Men who do one thing well are generally equal to another; he who writes good verse is not unlikely to be able to preach. What preaching it would have been had Milton entered the pulpit, or had Virgil been an apostle.

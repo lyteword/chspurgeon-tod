@@ -1,3 +1,7 @@
+---
+weight: 42
+---
+
 # Psalm 42
 
 **TITLE.**&nbsp;To the chief Musician, Maschil, for the sons of Korah. Dedicated to the Master of Music, this Psalm is worthy of his office; he who can sing best can have nothing better to sing. It is called, Maschil, or an instructive ode; and full as it is of deep experimental expressions, it is eminently calculated to instruct those pilgrims whose road to heaven is of the same trying kind as David's was. It is always edifying to listen to the experience of a thoroughly gracious and much afflicted saint.

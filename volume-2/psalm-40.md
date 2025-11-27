@@ -1,3 +1,7 @@
+---
+weight: 40
+---
+
 # Psalm 40
 
 **TITLE.**&nbsp;To the Chief Musician. Well might so exceedingly precious a Psalm be specially committed to the most skilled of the sacred musicians. The noblest music should be made tributary to a subject so incomparable. The dedication shows that the song was intended for public worship, and was not a merely personal hymn, as its being in the first person singular might lead us to suppose. A Psalm of David. This is conclusive as to the authorship: lifted by the Holy Spirit into the region of prophecy, David was honoured to write concerning a far greater than himself.

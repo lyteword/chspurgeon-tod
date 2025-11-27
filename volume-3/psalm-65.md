@@ -1,3 +1,7 @@
+---
+weight: 65
+---
+
 # Psalm 65
 
 **TITLE.**&nbsp;This title is very similar to many we have before studied.&nbsp;*To the Chief Musician.*&nbsp;It is consigned to the care of the usual overseer of song. When a man does his work well, there is no use in calling in others for novelty's sake.&nbsp;*A Psalm*&nbsp;and&nbsp;*song of David.*&nbsp;The Hebrew calls it a&nbsp;*Shur and Mizmor*&nbsp;, a combination of psalm and song, which may be best described by the term, "A Lyrical Poem." In this case the Psalm may be said or sung, and be equally suitable. We have had two such Psalms before, Psalms 30 and 48, and we have now the first of a little series of four following each other. It was meant that Psalms of pleading and longing should be followed by hymns of praise.

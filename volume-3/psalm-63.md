@@ -1,3 +1,7 @@
+---
+weight: 63
+---
+
 # Psalm 63
 
 **TITLE.**&nbsp;&nbsp;*A Psalm of David, when he was in the wilderness of Judah.*&nbsp;This was probably written while David was fleeing from Absalom; certainly at the time he wrote it he was king (Ps 63:11), and hard pressed by those who sought his life. David did not leave off singing because he was in the wilderness, neither did he in slovenly idleness go on repeating Psalms intended for other occasions; but he carefully made his worship suitable to his circumstances, and presented to his God a wilderness hymn when he was in the wilderness. There was no desert in his heart, though there was a desert around him. We too may expect to be cast into rough places ere we go hence. In such seasons, may the Eternal Comforter abide with us, and cause us to bless the Lord at all times, making even the solitary place to become a temple for Jehovah. The distinguishing word of this Psalm is&nbsp;*EARLY.*&nbsp;When the bed is the softest we are most tempted to rise at lazy hours; but when comfort is gone, and the couch is hard, if we rise the earlier to seek the Lord, we have much for which to thank the wilderness.

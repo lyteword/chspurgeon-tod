@@ -1,3 +1,7 @@
+---
+weight: 117
+---
+
 # Psalm 117
 
 **SUBJECT.**&nbsp;This Psalm, which is very little in its letter, is exceedingly large in its spirit; for, bursting beyond all bounds of race or nationality, it calls upon all mankind to praise the name of the Lord. In all probability it was frequently used as a brief hymn suitable for almost every occasion, and especially when the time for worship was short. Perhaps it was also sung at the commencement or at the close of other Psalms, just as we now use the doxology. It would have served either to open a service or to conclude it. It is both short and sweet. The same divine Spirit which expatiates in the 119th, here condenses his utterances into two short verses, but yet the same infinite fullness is present and perceptible. It may be worth noting that this is at once the shortest chapter of the Scriptures and the central portion of the whole Bible.

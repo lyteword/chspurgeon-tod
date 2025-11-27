@@ -1,3 +1,7 @@
+---
+weight: 94
+---
+
 # Psalm 94
 
 **SUBJECT.**&nbsp;The writer sees evil doers in power, and smarts under their oppressions. His sense of the divine sovereignty, of which he had been singing in the previous Psalm, leads him to appeal to God as the great Judge of the earth; this he does with much vehemence and importunity, evidently tingling under the lash of the oppressor. Confident in God's existence, and assured of his personal observation of the doings of men, the psalmist rebukes his atheistic adversaries, and proclaims his triumph in his God: he also interprets the severe dispensation of Providence to be in very deed most instructive chastisements, and so he counts those happy who endure them. The Psalm is another pathetic form of the old enigma—"Wherefore do the wicked prosper?" It is another instance of a good man perplexed by the prosperity of the ungodly, cheering his heart by remembering that there is, after all, a King in heaven, by whom all things are overruled for good.

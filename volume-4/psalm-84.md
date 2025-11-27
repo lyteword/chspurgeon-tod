@@ -1,3 +1,7 @@
+---
+weight: 84
+---
+
 # Psalm 84
 
 **TITLE AND SUBJECT.**&nbsp;To the Chief Musician upon Gittith. A Psalm for the sons of Korah. This Psalm well deserved to be committed to the noblest of the sons of song. No music could be too sweet for its theme, or too exquisite in sound to match the beauty of its language. Sweeter than the joy of the wine press, (for that is said to be the meaning of the word rendered upon Gittith), is the joy of the holy assemblies of the Lord's house; not even the favoured children of grace, who are like the sons of Korah, can have a richer subject for song than Zion's sacred festivals.

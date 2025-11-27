@@ -1,3 +1,7 @@
+---
+weight: 17
+---
+
 # Psalm 17
 
 TITLE and SUBJECT.  A prayer of David.&nbsp;*David would not have been a man*&nbsp;

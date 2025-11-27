@@ -1,3 +1,7 @@
+---
+weight: 114
+---
+
 # Psalm 114
 
 **SUBJECT AND DIVISION.**&nbsp;This sublime SONG OF THE EXODUS is one and indivisible. True poetry has here reached its climax: no human mind has ever been able to equal, much less to excel, the grandeur of this Psalm. God is spoken of as leading forth his people from Egypt to Canaan, and causing the whole earth to be moved at his coming. Things inanimate are represented as imitating the actions of living creatures when the Lord passes by. They are apostrophised and questioned with marvellous force of language, till one seems to look upon the actual scene. The God of Jacob is exalted as having command over river, sea, and mountain, and causing all nature to pay homage and tribute before his glorious majesty.

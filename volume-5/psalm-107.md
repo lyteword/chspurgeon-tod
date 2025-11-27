@@ -1,3 +1,7 @@
+---
+weight: 107
+---
+
 # Psalm 107
 
 **SUBJECT.**&nbsp;This is a choice song for the redeemed of the Lord (Ps 107:2). Although it celebrates providential deliverances, and therefore may be sung by any man whose life has been preserved in time of danger; yet under cover of this, it mainly magnifies the Lord for spiritual blessings, of which temporal favours are but types arid shadows. The theme is thanksgiving, and the motives for it. The construction of the psalm is highly poetical, and merely as a composition it would be hard to find its compeer among human productions. The bards of the Bible hold no second place among the sons of song.

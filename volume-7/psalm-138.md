@@ -1,3 +1,7 @@
+---
+weight: 138
+---
+
 # Psalm 138
 
 **TITLE.**&nbsp;A Psalm of David. This Psalm is wisely placed. Whoever edited and arranged these sacred poems, he had an eye to apposition and contrast; for if in Ps 137:1-9 we see the need of silence before revilers, here we see the excellence of a brave confession. There is a time to be silent, lest we cast pearls before swine; and there is a time to speak openly, lest we be found guilty of cowardly not confessing. The Psalm is evidently of a Davidic character, exhibiting all the fidelity, courage, and decision of that King of Israel and Prince of Psalmists. Of course the critics have tried to rend the authorship from David on account of the mention of the temple, though it so happens that in one of the Psalms which is allowed to be David's the same word occurs. Many modern critics are to the word of God what blowflies are to the food of men: they cannot do any good, and unless relentlessly driven away they do great harm.

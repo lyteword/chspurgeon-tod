@@ -1,3 +1,7 @@
+---
+weight: 74
+---
+
 # Psalm 74
 
 **TITLE.**&nbsp;&nbsp;*Maschil of Asaph.*&nbsp;An instructive Psalm by Asaph. The history of the suffering church is always edifying; when we see how the faithful trusted and wrestled with their God in times of dire distress, we are thereby taught how to behave ourselves under similar circumstances; we learn moreover, that when fiery trial befalls us, no strange thing happened unto us, we are following the trail of the host of God.

@@ -1,3 +1,7 @@
+---
+weight: 73
+---
+
 # Psalm 73
 
 **TITLE.**&nbsp;&nbsp;*A Psalm of Asaph.*&nbsp;This is the second Psalm ascribed to Asaph, and the first of eleven consecutive Psalms bearing the name of this eminent singer. Some writers are not sure that Asaph wrote them, but incline to the belief that David was the author, and Asaph the person to whom they were dedicated, that he might sing them when in his turn he became the chief musician. But though our own heart turns in the same direction, facts must be heard; and we find in 2Ch 29:30, that Hezekiah commanded the Levites to sing "the words of David and of Asaph the seer; "and, moreover, in Ne 12:46, David and Asaph are mentioned together, as distinct from "the chief of the singers, "and as it would seem, as joint authors of psalmody. We may, therefore, admit Asaph to be the author of some, if not all, of the twelve Psalms ascribed to him. Often a great star which seems to be but one to the eyes of ordinary observers, turns out upon closer inspection to be of a binary character; so here the Psalms of David are those of Asaph too. The great sun of David has a satellite in the moon of Asaph. By reading our notes on Psalm Fifty, in Volume 2, the reader will glean a little more concerning this man of God.

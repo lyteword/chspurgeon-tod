@@ -1,3 +1,7 @@
+---
+weight: 27
+---
+
 # Psalm 27
 
 **TITLE AND SUBJECT.**&nbsp;Nothing whatever can be drawn from the title as to the time when this Psalm was written, for the heading, "A Psalm of David, "is common to so many of the Psalms; but if one may judge from the matter of the song, the writer was pursued by enemies, Ps 27:2-3, was shut out from the house of the Lord, Ps 27:4, was just parting from father and mother, Ps 27:10, and was subject to slander, Ps 27:12; do not all these meet in the time when Doeg, the Edomite, spake against him to Saul? It is a song of cheerful hope, well fitted for those in trial who have learned to lean upon the Almighty arm. The Psalm may with profit be read in a threefold way, as the language of David, of the Church, and of the Lord Jesus. The plenitude of Scripture will thus appear the more wonderful.

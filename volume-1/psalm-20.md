@@ -1,3 +1,7 @@
+---
+weight: 20
+---
+
 # Psalm 20
 
 SUBJECT.&nbsp;*We have before us a*&nbsp;National Anthem,&nbsp;*fitted to be sung at the*&nbsp;

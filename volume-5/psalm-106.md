@@ -1,3 +1,7 @@
+---
+weight: 106
+---
+
 # Psalm 106
 
 **GENERAL REMARKS**&nbsp;. This Psalm begins and ends with Hallelujah—"Praise ye the Lord." The space between these two descriptions of praise is filled up with the mournful details of Israel's sin, and the extraordinary patience of God; and truly we do well to bless the Lord both at the beginning and the end of our meditations when sin and grace are the themes. This sacred song is occupied with the historical part of the Old Testament, and is one of many which are thus composed: surely this should be a sufficient rebuke to those who speak slightingly of the historical Scriptures; it in becomes a child of God to think lightly of that which the Holy Spirit so frequently uses for our instruction. What other Scriptures had David beside those very histories which are so depreciated, and yet he esteemed them beyond his necessary food, and made them his songs in the house of his pilgrimage?

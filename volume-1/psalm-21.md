@@ -1,3 +1,7 @@
+---
+weight: 21
+---
+
 # Psalm 21
 
 SUBJECT.&nbsp;*The title gives us but little information; it is simply,*&nbsp;To the

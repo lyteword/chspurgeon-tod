@@ -1,3 +1,7 @@
+---
+weight: 18
+---
+
 # Psalm 18
 
 TITLE.  To the Chief Musician&nbsp;*a Psalm*&nbsp;of David, the servant of the Lord,

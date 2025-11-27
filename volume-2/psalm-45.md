@@ -1,3 +1,7 @@
+---
+weight: 45
+---
+
 # Psalm 45
 
 **TITLE.**&nbsp;The many titles of this Psalm mark its royalty, its deep and solemn import, and the delight the writer had in it. To the Chief Musician upon Shoshannim. The most probable translation of this word is upon the lilies, and it is either a poetical title given to this noblest of songs after the Oriental manner, or it may relate to the tune to which it was set, or to the instrument which was meant to accompany it. We incline to the first theory, and if it be the true one, it is easy to see the fitness of borrowing a name for so beautiful, so pure, so choice, so matchless a poem from the golden lilies, whose bright array outshone the glory of Solomon. For the sons of Korah. Special singers are appointed for so divine a hymn. King Jesus deserves to be praised not with random, ranting ravings, but with the sweetest and most skilful music of the best trained choristers. The purest hearts in the spiritual temple are the most harmonious songsters in the ears of God; acceptable song is not a matter so much of tuneful voices as of sanctified affections, but in no case should we sing of Jesus with unprepared hearts. Maschil, an instructive ode, not an idle lay, or a romancing ballad, but a Psalm of holy teaching, didactic and doctrinal. This proves that it is to be spiritually understood. Blessed are the people who know the meaning of its joyful sound. A Song of loves. Not a carnal sentimental love song, but a celestial canticle of everlasting love fit for the tongues and ears of angels.

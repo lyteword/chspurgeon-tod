@@ -1,3 +1,7 @@
+---
+weight: 140
+---
+
 # Psalm 140
 
 This Psalm is in its proper place, and so fitly follows 139 that you might almost read right on, and make no break between the two. Serious injury would follow to the whole Book of Psalms if the order should be interfered with as certain wiseacres propose. It is&nbsp;*The Cry Of A Hunted Soul*&nbsp;the supplication of a believer incessantly persecuted and beset by cunning enemies, who hungered for his destruction. David was hunted like a partridge upon the mountains, and seldom obtained a moment's rest. This is his pathetic appeal to Jehovah for protection, an appeal which gradually intensifies into a denunciation of his bitter foes. With this sacrifice of prayer he offers the salt of faith; for in a very marked and emphatic manner he expresses his personal confidence in the Lord as the Protector of the oppressed, and as his own God and Defender. Few short Psalms are so rich in the jewellery of precious faith.

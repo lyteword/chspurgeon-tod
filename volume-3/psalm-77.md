@@ -1,3 +1,7 @@
+---
+weight: 77
+---
+
 # Psalm 77
 
 **TITLE.**&nbsp;&nbsp;*To the Chief Musician, to Jeduthun.*&nbsp;It was meet that another leader of the psalmody should take his turn. No harp should be silent in the courts of the Lord's house.&nbsp;*A Psalm of Asaph.*&nbsp;Asaph was a man of exercised mind, and often touched the minor key; he was thoughtful, contemplative, believing, but withal there was a dash of sadness about him, and this imparted a tonic flavour to his songs. To follow him with understanding, it is needful to have done business on the great waters, and weathered many an Atlantic gale.

@@ -1,3 +1,7 @@
+---
+weight: 72
+---
+
 # Psalm 72
 
 **TITLE.**&nbsp;&nbsp;*A Psalm for Solomon.*&nbsp;The best linguists affirm that this should be rendered,&nbsp;*of*&nbsp;or&nbsp;*by*&nbsp;Solomon. There is not sufficient ground for the rendering&nbsp;*for*&nbsp;. It is pretty certain that the title declares Solomon to be the author of the Psalm, and yet from Ps 72:20 it would seem that David uttered it in prayer before he died. With some diffidence we suggest that the spirit and matter of the Psalm are David's, but that he was too near his end to pen the words, or cast them into form: Solomon, therefore, caught his dying father's song, fashioned it in goodly verse, and, without robbing his father, made the Psalm his own. It is, we conjecture, the Prayer of David, but the Psalm of Solomon. Jesus is here, beyond all doubt, in the glory of his reign, both as he now is, and as he shall be revealed in the latter day glory.

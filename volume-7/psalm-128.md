@@ -1,3 +1,7 @@
+---
+weight: 128
+---
+
 # Psalm 128
 
 **TITLE.**&nbsp;&nbsp;*A Song of Degrees*&nbsp;. There is an evident ascent from the last Psalm: that did but hint at the way in which a house may be built up, but this draws a picture of that house built, and adorned with domestic bliss through the Lord's own benediction. There is clearly an advance in age, for here we go beyond children to children's children; and also a progress in happiness, for children which in the last Psalm were arrows are here Olive plants, and instead of speaking "with the enemies in the gate" we done with "peace upon Israel." Thus we rise step by step, and sing as we ascend.

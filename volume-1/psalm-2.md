@@ -1,3 +1,7 @@
+---
+weight: 2
+---
+
 # Psalm 2
 
 TITLE.&nbsp;*We shall not greatly err in our summary of this sublime Psalm if we*&nbsp;

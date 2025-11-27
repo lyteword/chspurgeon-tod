@@ -1,3 +1,7 @@
+---
+weight: 105
+---
+
 # Psalm 105
 
 This historical psalm was evidently composed by King David, for the first fifteen verses of it were used as a hymn at the carrying up of the ark from the house of Obededom, and we read in 1Ch 16:7, "Then on that day David delivered first this psalm to thank the Lord, into the hand of Asaph and his brethren." Such a song was suitable for the occasion, for it describes the movements of the Lord's people and his guardian care over them in every place, and all this on account of the covenant of which the ark, then removing, was a symbol. Our last psalm sang the opening chapters of Genesis, and this takes up its closing chapters and conducts us into Exodus and Numbers.

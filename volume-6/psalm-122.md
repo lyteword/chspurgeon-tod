@@ -1,3 +1,7 @@
+---
+weight: 122
+---
+
 # Psalm 122
 
 **TITLE AND SUBJECT.**&nbsp;This brief but spirited Psalm is entitled&nbsp;*"A Song of Degrees of David",*&nbsp;and thus we are informed as go its author, and the occasion for which it was designed: David wrote it for the people to sing at the time of their goings up to the holy feasts at Jerusalem. It comes third in the series, and appears to be suitable to be sung when the people had entered the gates, and their feet stood within the city. It was most natural that they should sing of Jerusalem itself, and invoke peace and prosperity upon the Holy City, for it was the centre of their worship, and the place where the Lord revealed himself above the mercy seat. Possibly the city was not all built in David's day, but he wrote under the spirit of prophecy, and spoke of it as it would be in the age of Solomon; a poet has license to speak of things, not only as they are, but as they will be when they come to their perfection. Jerusalem, or the Habitation of Peace, is used as the key word of this Psalm, wherein we have in the original many happy allusions to the salem, or peace, which they implored upon Jerusalem. When they stood within the triple walls, all things around the pilgrims helped to explain the words which they sang within her ramparts of strength. One voice led the Psalm with its personal "I, " but ten thousand brethren and companions united with the first musician and swelled the chorus of the strain.

@@ -1,3 +1,7 @@
+---
+weight: 23
+---
+
 # Psalm 23
 
 &nbsp;*There is no inspired title to this psalm, and none is needed, for it*&nbsp;

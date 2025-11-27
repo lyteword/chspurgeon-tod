@@ -1,3 +1,7 @@
+---
+weight: 104
+---
+
 # Psalm 104
 
 **GENERAL, REMARKS.**&nbsp;Here we have one of the loftiest and longest sustained flights of the inspired muse. The psalm gives an interpretation to the many voices of nature, and sings sweetly both of creation and providence. The poem contains a complete cosmos sea and land, cloud and sunlight, plant and animal, light and darkness, life and death, are all proved to be expressive of the presence of the Lord. Traces of the six days of creation are very evident, and though the creation of man, which was the crowning work of the sixth day, is not mentioned, this is accounted for from the fact that man is himself the singer: some have ever, discerned marks of the divine rest upon the seventh day in Ps 104:31. It is a poet's version of Genesis. Nor is it alone the present condition of the earth which is here the subject of song; but a hint is given of those holier times when we shall see "a new earth wherein dwelleth righteousness, "out of which the sinner shall be consumed, Ps 104:35. The spirit of ardent praise to God runs through the whole, and with it a distinct realization of the divine Being as a personal existence, loved and trusted as well as adored.

@@ -1,3 +1,7 @@
+---
+weight: 46
+---
+
 # Psalm 46
 
 **TITLE.**&nbsp;To the Chief Musician. He who could sing other Psalms so well was fitly entrusted with this noble ode. Trifles may be left to commoner songsters, but the most skilful musician in Israel must be charged with the due performance of this song, with the most harmonious voices and choicest music. For the Sons of Korah. One alone cannot fulfil the praise, there must be picked choristers under him, whose joyful privilege it shall be to celebrate the service of song in the house of the Lord. As to why the sons of Korah were selected, see our remarks at the head of Psalm 42. It may be well to add that they were a division of the Levites who took their turn in serving at the temple. All the works of holy service ought not to be monopolised by one order of talent, each company of believers should in due course enjoy the privilege. None ought to be without a share in the service of God.

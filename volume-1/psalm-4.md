@@ -1,3 +1,7 @@
+---
+weight: 4
+---
+
 # Psalm 4
 
 TITLE.&nbsp;*This Psalm is apparently intended to accompany the third,*&nbsp;

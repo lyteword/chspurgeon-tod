@@ -1,3 +1,7 @@
+---
+weight: 10
+---
+
 # Psalm 10
 
 &nbsp;*Since this Psalm has no title of its own, it is supposed by some to be a fragment of Psalm 9. We*&nbsp;

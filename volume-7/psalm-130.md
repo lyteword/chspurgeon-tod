@@ -1,3 +1,7 @@
+---
+weight: 130
+---
+
 # Psalm 130
 
 **TITLE.**&nbsp;&nbsp;*A Song of Degrees.*&nbsp;It would be hard to see any upward step from the preceding to the present Psalm, and therefore it is possible that the steps or ascents are in the song itself: certainly it does rise rapidly out of the depths of anguish to the heights of assurance. It follows well upon 129: when we have overcome the trials which arise from man we are the better prepared to meet those sharper sorrows which arise out of our matters towards God. He who has borne the scourges of the wicked is trained in all patience to wait the dealings of the Holy Lord. We name this the DE PROFUNDIS PSALM: "Out of the depths" is the leading word of it: out of those depths we cry, wait, watch, and hope. In this Psalm we hear of the pearl of redemption, Ps 130:7-8: perhaps the sweet singer would never have found that precious thing had he not been cast into the depths. "Pearls lie deep."

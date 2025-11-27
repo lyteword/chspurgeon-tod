@@ -1,3 +1,7 @@
+---
+weight: 14
+---
+
 # Psalm 14
 
 TITLE.&nbsp;*This admirable ode is simply headed,*&nbsp;"To the Chief

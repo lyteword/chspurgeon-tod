@@ -1,3 +1,7 @@
+---
+weight: 60
+---
+
 # Psalm 60
 
 Here is a lengthy title, but it helps us much to expound the Psalm.&nbsp;*To the Chief Musician upon Shushaneduth,*&nbsp;or the Lily of Testimony. The forty-fifth was on the lilies, and represented the kingly warrior in his beauty going forth to war; here we see him dividing the spoil and bearing testimony to the glory of God. Tunes have strange names apparently, but this results from the fact that we do not know what was in the composer's mind, else they might seem to be touchingly appropriate; perhaps the music or the musical instruments have more to do with this title than the Psalm itself. Yet in war songs, roses and lilies are often mentioned, and one remembers Macaulay's Song of the Hugenots, though perhaps we err in mentioning so carnal a verse—

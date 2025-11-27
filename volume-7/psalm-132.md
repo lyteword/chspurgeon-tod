@@ -1,3 +1,7 @@
+---
+weight: 132
+---
+
 # Psalm 132
 
 **TITLE.**&nbsp;&nbsp;*A Song of Degrees.*&nbsp;A joyful song indeed: let all pilgrims to the New Jerusalem sing it often. The degrees or ascents are very visible; the theme ascends step by step from, "afflictions" to a "crown", from "remember David", to, "I will make the horn of David to bud." The latter half is like the over arching sky bending above "the fields of the wood" which are found in the resolves and prayers of the former portion.

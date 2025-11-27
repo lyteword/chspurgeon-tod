@@ -1,3 +1,7 @@
+---
+weight: 120
+---
+
 # Psalm 120
 
 Suddenly we have left the continent of the vast Hundred and Nineteenth Psalm for the islands and islets of the Songs of Degrees. It may be well to engage in protracted devotion upon a special occasion, but this must cast no slur upon the sacred brevities which sanctify the godly life day by day. He who inspired the longest psalm was equally the author of the short compositions which follow it.

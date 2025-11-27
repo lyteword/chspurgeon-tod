@@ -1,3 +1,7 @@
+---
+weight: 6
+---
+
 # Psalm 6
 
 TITLE.&nbsp;*This Psalm is commonly known as the first of the*&nbsp;

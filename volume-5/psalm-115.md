@@ -1,3 +1,7 @@
+---
+weight: 115
+---
+
 # Psalm 115
 
 **SUBJECT.**&nbsp;In the former psalm the past wonders which God had wrought were recounted to his honour, and in the present psalm he is entreated to glorify himself again, because the heathen were presuming upon the absence of miracles, were altogether denying the miracles of former ages, and insulting the people of God with the question, "Where is now their God?" It grieved the heart of the godly that Jehovah should be thus dishonoured, and treating their own condition of reproach as unworthy of notice, they beseech the Lord at least to vindicate his own name. The Psalmist is evidently indignant that the worshippers of foolish idols should be able to put such a taunting question to the people who worshipped the only living and true God; and having spent his indignation in sarcasm upon the images and their makers, he proceeds to exhort the house of Israel to trust in God and bless his name. As those who were dead and gone could no longer sing psalms unto the Lord among the sons of men, he exhorts the faithful who were then living to take care that God is not robbed of his praise, and then he closes with an exulting Hallelujah. Should not living men extol the living God?

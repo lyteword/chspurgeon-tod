@@ -1,3 +1,7 @@
+---
+weight: 79
+---
+
 # Psalm 79
 
 **TITLE AND SUBJECT.**&nbsp;A Psalm of Asaph.&nbsp;*A Psalm of complaint such as Jeremiah might have written amid the ruins of the beloved city. It evidently treats of times of invasion, oppression, and national overthrow. Asaph was a patriotic poet, and was never more at home than when he rehearsed the history of his nation. Would to God that we had national poets whose song should be of the Lord.*&nbsp;

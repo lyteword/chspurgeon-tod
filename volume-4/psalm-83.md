@@ -1,3 +1,7 @@
+---
+weight: 83
+---
+
 # Psalm 83
 
 **TITLE.**&nbsp;A Psalm&nbsp;*or*&nbsp;Song of Asaph. This is the last occasion upon which we shall meet with this eloquent writer. The patriotic poet sings again of wars and dangers imminent, but it is no godless song of a thoughtless nation entering upon war with a light heart. Asaph the seer is well aware of the serious dangers arising from the powerful confederate nations, but his soul in faith stays itself upon Jehovah, while as a poet preacher he excites his countrymen to prayer by means of this sacred lyric. The Asaph who penned this song was in all probability the person referred to in 2Ch 20:14, for the internal evidence referring the subject of the Psalm to the times of Jehoshaphat is overwhelming. The division in the camp of the confederate peoples in the wilderness of Tekoa not only broke up their league, but led to a mutual slaughter, which crippled the power of some of the nations for many years after. They thought to destroy Israel and destroyed each other.

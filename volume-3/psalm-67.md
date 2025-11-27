@@ -1,3 +1,7 @@
+---
+weight: 67
+---
+
 # Psalm 67
 
 **TITLE.**&nbsp;&nbsp;*To the Chief Musician.*&nbsp;Who he was matters not, and who we may be is also of small consequence, so long as the Lord is glorified.&nbsp;*On Neginoth,*&nbsp;or upon stringed instruments. This is the fifth Psalm so entitled, and no doubt like the others was meant to be sung with the accompaniment of "harpers harping with their harps." No author's name is given, but he would be a bold man who should attempt to prove that David did not write it. We will be hard pushed before we will look for any other author upon whom to father these anonymous odes which lie side by side with those ascribed to David, and wear a family likeness to them.&nbsp;*A Psalm*&nbsp;or&nbsp;*Song*&nbsp;. Solemnity and vivacity are here united. A Psalm is a song, but all songs are not Psalms: this is both one and the other.

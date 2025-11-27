@@ -1,3 +1,7 @@
+---
+weight: 137
+---
+
 # Psalm 137
 
 This plaintive ode is one of the most charming compositions in the whole Book of Psalms for its poetic power. If it were not inspired it would nevertheless occupy a high place in poesy, especially the former portion of it, which is tender and patriotic to the highest degree. In the later verses (Ps 137:7-9), we have utterances of burning indignation against the chief adversaries of Israel,—an indignation as righteous as it was fervent. Let those find fault with it who have never seen their temple burned, their city ruined, their wives ravished, and after children slain; they might not, perhaps, be quite so velvet mouthed if they had suffered after this fashion. It is one thing to talk of the bitter feeling which moved captive Israelites in Babylon, and quite another thing to be captives ourselves under a savage and remorseless power, which knew not how to show mercy, but delighted in barbarities to the defenceless. The song is such as might fitly be sung in the Jews' wailing place. It is a fruit of the Captivity in Babylon, and often has it furnished expression for sorrows which else had been unutterable. It is an opalesque Psalm within whose mild radiance there glows afire which strikes the beholder with wonder.

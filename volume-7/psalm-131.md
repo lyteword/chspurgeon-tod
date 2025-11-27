@@ -1,3 +1,7 @@
+---
+weight: 131
+---
+
 # Psalm 131
 
 **TITLE.**&nbsp;&nbsp;*A Song of Degrees of David.*&nbsp;It is both by David and of David: he is the author and the subject of it, and many incidents of his life may be employed to illustrate it. Comparing all the Psalms to gems, we should liken this to a pearl: how beautifully it will adorn the neck of patience. It is one of the shortest Psalms to read, but one of the longest to learn. It speaks of a young child, but it contains the experience of a man in Christ. Lowliness and humility are here seen in connection with a sanctified heart, a will subdued to the mind of God, and a hope looking to the Lord alone happy is the man who can without falsehood use these words as his own; for he wears about him the likeness of his Lord, who said, "I am meek and lowly in heart." The Psalm is in advance of all the Songs of Degrees which have preceded it; for loveliness is one of the highest attainments in the divine life. There are also steps in this Song of Degrees: it is a short ladder, if we count the words; but yet it rises to a great height, reaching from deep humility to fixed confidence. Le Blanc thinks that this is a song of the Israelites who returned from Babylon with, humble hearts, weaned from their idols. At any rate, after any spiritual captivity let it be the expression of our hearts.

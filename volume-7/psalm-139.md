@@ -1,3 +1,7 @@
+---
+weight: 139
+---
+
 # Psalm 139
 
 One of the most notable of the sacred hymns. It sings the omniscience and omnipresence of God, inferring from these the overthrow of the powers of wickedness, since he who sees and hears the abominable deeds and words of the rebellious will surely deal with them according to his justice. The brightness of this Psalm is like unto a sapphire stone, or Ezekiel's "terrible crystal"; it flames out with such flashes of light as to turn night into day. Like a Pharos, this holy song casts a clear light even to the uttermost parts of the sea, and warns us against that practical atheism which ignores the presence of God, and so makes shipwreck of the soul.

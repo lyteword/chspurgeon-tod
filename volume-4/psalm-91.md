@@ -1,3 +1,7 @@
+---
+weight: 91
+---
+
 # Psalm 91
 
 **TITLE.**&nbsp;This Psalm is without a title, and we have no means of ascertaining either the name of its writer, or the date of its composition, with certainly. The Jewish doctors consider that when the author's name is not mentioned we may assign the Psalm to the last named writer; and, if so, this is another Psalm of Moses, the man of God. Many expressions here used are similar to those of Moses in Deuteronomy, and the internal evidence, from the peculiar idioms, would point towards him as the composer. The continued lives of Joshua and Caleb, who followed the Lord fully, make remarkably apt illustrations of this Psalm, for they, as a reward for abiding in continued nearness to the Lord, lived on "amongst the dead, amid their graves." For these reasons it is by no means improbable that this Psalm may have been written by Moses, but we dare not dogmatize. If David's pen was used in giving us this matchless ode, we cannot believe as some do that he this commemorated the plague which devastated Jerusalem on account of his numbering the people. For him, then, to sing of himself as seeing "the reward of the wicked" would be clean contrary to his declaration, "I have sinned, but these sheep, what have they done?"; and the absence of any allusion to the sacrifice upon Zion could not be in any way accounted for, since David's repentance would inevitably have led him to dwell upon the atoning sacrifice and the sprinkling of blood by the hyssop.

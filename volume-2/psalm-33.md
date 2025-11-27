@@ -1,3 +1,7 @@
+---
+weight: 33
+---
+
 # Psalm 33
 
 **TITLE.**&nbsp;This song of praise bears no title or indication of authorship; to teach us, says Dickson, "to look upon Holy Scripture as altogether inspired of God, and not put price upon it for the writers thereof."

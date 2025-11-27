@@ -1,3 +1,7 @@
+---
+weight: 7
+---
+
 # Psalm 7
 
 TITLE. "Shiggaion of David, which he sang unto the Lord, concerning

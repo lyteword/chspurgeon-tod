@@ -1,3 +1,7 @@
+---
+weight: 38
+---
+
 # Psalm 38
 
 **TITLE.**&nbsp;A Psalm of David, to bring remembrance. David felt as if he had been forgotten of his God, and, therefore, he recounted his sorrows and cried mightily for help under them. The same title is given to Psalm 70, where in like manner the psalmist pours out his complaint before the Lord. It would be foolish to make a guess as to the point in David's history when this was written; it may be a commemoration of his own sickness and endurance of cruelty; it may, on the other hand, have been composed by him for the use of sick and slandered saints, without special reference to himself.

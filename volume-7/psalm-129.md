@@ -1,3 +1,7 @@
+---
+weight: 129
+---
+
 # Psalm 129
 
 **TITLE.**&nbsp;&nbsp;*A Song of Degrees*&nbsp;. I fail to see how this is a step beyond the previous Psalm; and yet it is clearly the song of an older and more tried individual, who looks back upon a life of affliction in which he suffered all along, even from his youth. Inasmuch as patience is a higher, or at least more difficult, grace than domestic love, the ascent or progress may perhaps be seen in that direction. Probably if we knew more of the stations on the road to the Temple we should see a reason for the order of these Psalms; but as that information cannot be obtained, we must take the songs as we find them, and remember that, as we do not now go on pilgrimages to Zion, it is our curiosity and not oar necessity which is a loser by our not knowing the cause of the arrangement of the songs in this Pilgrim Psalter.

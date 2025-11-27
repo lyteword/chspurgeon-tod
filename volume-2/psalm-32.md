@@ -1,3 +1,7 @@
+---
+weight: 32
+---
+
 # Psalm 32
 
 **TITLE.**&nbsp;A Psalm of David, Maschil. That David wrote this gloriously evangelic Psalm is proved not only by this heading, but by the words of the apostle Paul, in Ro 4:6-8. "Even as David also describeth the blessedness of the man unto whom God imputeth righteousness without works, "&c. Probably his deep repentance over his great sin was followed by such blissful peace, that he was led to pour out his spirit in the soft music of this choice song. In the order of history it seems to follow the fifty-first.&nbsp;*Maschil*&nbsp;is a new title to us, and indicates that this is an instructive or didactic Psalm. The experience of one believer affords rich instruction to others, it reveals the footsteps of the flock, and so comforts and directs the weak. Perhaps it was important in this case to prefix the word, that doubting saints might not imagine the Psalm to be the peculiar utterance of a singular individual, but might appropriate it to themselves as a lesson from the Spirit of God. David promised in the fifty-first Psalm to teach transgressors the Lord's ways, and here he does it most effectually. Grotius thinks that this Psalm was meant to be sung on the annual day of the Jewish expiation, when a general confession of their sins was made.

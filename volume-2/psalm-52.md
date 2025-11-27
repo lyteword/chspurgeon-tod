@@ -1,3 +1,7 @@
+---
+weight: 52
+---
+
 # Psalm 52
 
 **TITLE.**&nbsp;&nbsp;*To the Chief Musician.*&nbsp;Even short Psalms, if they record but one instance of the goodness of the Lord, and rebuke but briefly the pride of man, are worthy of our best minstrelsy. When we see that each Psalm is dedicated to "the chief musician, "it should make us value our psalmody, and forbid us to praise the Lord carelessly.&nbsp;*Maschil.*&nbsp;An Instructive. Even the malice of a Doeg may furnish instruction to a David.&nbsp;*A Psalm of David.*&nbsp;He was the prime object of Doeg's doggish hatred, and therefore the most fitting person to draw from the incident the lesson concealed within it.&nbsp;*When Doeg the Edomite came and told Saul, and saith unto him, David is come to the house of Ahimelech.*&nbsp;By this deceitful tale bearing, he procured the death of all the priests at Nob: though it had been a crime to have succoured David as a rebel, they were not in their intent and knowledge guilty of the fault. David felt much the villany of this arch enemy, and here he denounces him in vigorous terms; it may be also that he has Saul in his eye.

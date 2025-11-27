@@ -1,3 +1,7 @@
+---
+weight: 41
+---
+
 # Psalm 41
 
 **TITLE.**&nbsp;To the Chief Musician. A Psalm of David. This title has frequently occurred before, and serves to remind us of the value of the Psalm, seeing that it was committed to no mean songster; and also to inform us as to the author who has made his own experience the basis of a prophetic song, in which a far greater than David is set forth. How wide a range of experience David had! What power it gave him to edify future ages! And how full a type of our Lord did he become! What was bitterness to him has proved to be a fountain of unfailing sweetness to many generations of the faithful.

@@ -1,3 +1,7 @@
+---
+weight: 75
+---
+
 # Psalm 75
 
 **TITLE.**&nbsp;&nbsp;*To the Chief Musician.*&nbsp;Here is noble work for him, for the cry of the last Psalm is about to be heard, and the challenge of the foes of Israel taken up by God himself. Here the virgin daughter of Zion despises her foe, and laughs him to scorn. The destruction of Sennacherib's army is a notable illustration of this sacred song.&nbsp;*Al-taschith.*&nbsp;Here is another of the "destroy not" Psalms, and the title may be intended as a check upon the natural fierceness of the oppressed, or a taunt for the savage foe, who is here bitterly bidden to destroy not, because the nation is well aware that he cannot. Here, in holy faith, the sucking child plays at the hole of the asp, and the weaned child puts his hand on the cockatrice den.&nbsp;*A Psalm*&nbsp;or&nbsp;*Song of Asaph.*&nbsp;For reading or singing. A hymn to God and a song for his saints. Happy were the people who having found a Milton in David had an almost equal songster in Asaph: happiest of all, because these poets were not inspired by earth's Castalian fount, but drank of "the fount of every blessing."

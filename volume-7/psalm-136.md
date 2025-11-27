@@ -1,3 +1,7 @@
+---
+weight: 136
+---
+
 # Psalm 136
 
 We know not by whom this Psalm was written, but we do know that it was sung in Solomon's temple (2Ch 7:3,6), and by the armies of Jehoshaphat when they sang themselves into victory in the wilderness of Tekoa. From the striking form of it we should infer that it was a popular hymn among the Lord's ancient people. Most hymns with a solid, simple chorus become favourites with congregations, and this is sure to have been one of the best beloved. It contains nothing but praise. It is tuned to rapture, and can only be fully enjoyed by a devoutly grateful heart.

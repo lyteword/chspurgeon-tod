@@ -1,3 +1,7 @@
+---
+weight: 11
+---
+
 # Psalm 11
 
 SUBJECT.&nbsp;*Charles Simeon gives an excellent summary of this Psalm*&nbsp;

@@ -1,3 +1,7 @@
+---
+weight: 9
+---
+
 # Psalm 9
 
 TITLE. To the Chief Musician upon Muth-labben, a Psalm of David.

@@ -1,3 +1,7 @@
+---
+weight: 121
+---
+
 # Psalm 121
 
 **TITLE, ETC.**&nbsp;This bears no other title than "A Song of degrees". It is several steps in advance of its predecessor, for it tells of the peace of God's house, and the guardian care of the Lord, while Psalm 120 bemoans the departure of peace from the good man's abode, and his exposure to the venomous assaults of slanderous tongues. In the first instance his eyes looked around with anguish, but here they look up with hope. From the constant recurrence of the word keep, we are led to name this song "a Psalm to the keeper of Israel". Were it not placed among the Pilgrim Psalms we should regard it as a martial hymn, fitted for the evensong of one who slept upon the tented field. It is a soldier's song as well as a traveller's hymn. There is an ascent in the psalm itself which rises to the greatest elevation of restful confidence.

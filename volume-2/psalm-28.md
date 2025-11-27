@@ -1,3 +1,7 @@
+---
+weight: 28
+---
+
 # Psalm 28
 
 **TITLE AND SUBJECT.**&nbsp;Again, the title&nbsp;*"A Psalm of David,"*&nbsp;is too general to give us any clue to the occasion on which it was written. Its position, as following the twenty-seventh, seems to have been designed, for it is a most suitable pendant and sequel to it. It is another of those "songs in the night" of which the pen of David was so prolific. The thorn at the breast of the nightingale was said by the old naturalists to make it sing: David's griefs made him eloquent in holy psalmody. The main pleading of this Psalm is that the suppliant may not be confounded with the workers of iniquity for whom he expresses the utmost abhorrence; it may suit any slandered saint, who being misunderstood by men, and treated by them as an unworthy character, is anxious to stand aright before the bar of God. The Lord Jesus may be seen here pleading as the representative of his people.

@@ -1,3 +1,7 @@
+---
+weight: 62
+---
+
 # Psalm 62
 
 **TITLE.**&nbsp;&nbsp;*To the Chief Musician, to Jeduthun.*&nbsp;This is the second Psalm which is dedicated to Jeduthun, or Ethan, the former one being the thirty-ninth, a Psalm which is almost a twin with this in many respects, containing in the original the word translated&nbsp;*only*&nbsp;four times as this does six. We shall meet with two other Psalms similarly appointed for Jeduthun: namely, Psalms 77, and 89. The sons of Jeduthun were porters or doorkeepers, according to 1Ch 16:42. Those who serve well make the best of singers, and those who occupy the highest posts in the choir must not be ashamed to wait at the posts of the doors of the Lord's house.&nbsp;*A PSALM OF DAVID.*&nbsp;Even had not the signature of the royal poet been here placed, we should have been sure from internal evidence that he alone penned these stanzas; they are truly Davidic. From the sixfold use of the word&nbsp;*ac*&nbsp;or&nbsp;*only*&nbsp;, we have been wont to call it&nbsp;*THE ONLY PSALM.*&nbsp;

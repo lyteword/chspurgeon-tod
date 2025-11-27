@@ -1,3 +1,7 @@
+---
+weight: 81
+---
+
 # Psalm 81
 
 **TITLE.**&nbsp;To the Chief Musician upon Gittith. Very little is known of the meaning of this title. We have given the best explanation known to us in connection with Psalm 8 in Vol. 1 of this work. If it be intended to indicate a vintage song, it speaks well for the piety of the people for whom it was written; it is to be feared that in few places even in Christian countries would holy hymns be thought suitable to be sung in connection with the winepress. When the bells upon the horses shall be holiness unto the Lord, then shall the juice of the grape gush forth to the accompaniment of sacred song. A Psalm of Asaph. This poet here again dwells upon the history of his country; his great forte seems to be rehearsing the past in admonitory psalmody. He is the poet of the history and politics of Israel. A truly national songster, at once pious and patriotic.

@@ -1,3 +1,7 @@
+---
+weight: 89
+---
+
 # Psalm 89
 
 We have now reached the majestic&nbsp;*Covenant Psalm*&nbsp;, which, according to the Jewish arrangement closes the third book of the Psalms. It is the utterance of a believer, in presence of great national disaster, pleading with his God, urging the grand argument of covenant engagements, and expecting deliverance and help, because of the faithfulness of Jehovah.

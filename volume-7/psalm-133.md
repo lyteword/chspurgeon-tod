@@ -1,3 +1,7 @@
+---
+weight: 133
+---
+
 # Psalm 133
 
 **TITLE.**&nbsp;&nbsp;*A Song of Degrees of David.*&nbsp;We see no reason for depriving David of the authorship of this sparkling sonnet. He knew by experience the bitterness occasioned by divisions in families, and was well prepared to celebrate in choicest Psalmody the blessing of unity for which he sighed. Among the "songs of degrees", this hymn has certainly attained unto a good degree, and even in common literature it is frequently quoted for its perfume and dew. In this Psalm there is no wry word, all is "sweetness and light",—a notable ascent from Psalm 120 with which the Pilgrims set out. That is full of war and lamentation, but this sings of peace and pleasantness. The visitors to Zion were about to return, and this may have been their hymn of joy because they had seen such union among the tribes who had gathered at the common altar. The previous Psalm, which sings o f the covenant, had also reveal ed the centre of Israel's unity in the Lord's anointed and the promises made to him. No wonder that brethren dwell in unity when God dwells among them, and finds his rest in them. Our translators have given to this Psalm an admirable explanatory heading, "The benefit of the communion of saints." These good men often hit off the meaning of a passage in a few words.

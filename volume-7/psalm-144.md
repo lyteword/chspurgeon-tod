@@ -1,3 +1,7 @@
+---
+weight: 144
+---
+
 # Psalm 144
 
 Albeit that this Psalm is in some measure very similar to Ps 18:1-50, yet it is a new song, and in its latter portion it is strikingly so. Let the reader accept it as a new psalm, and not as a mere variation of an old one, or as two compositions roughly joined together. It is true that it would be a complete composition if the passage from Ps 144:12-15 were dropped; but there are other parts, of David's poems which might be equally self contained if certain verses were omitted; and the same might be said of many uninspired sonnets. It does not, therefore, follow that the latter part was added by another hand, nor even that the latter part was a fragment by the same author, appended to the first song merely with the view of preserving it. It seems to us to be highly probable that the Psalmist, remembering that he had trodden some of the same ground before, felt his mind moved to fresh thought, and that the Holy Spirit used this mood for his own high purposes. Assuredly the addendum is worthy of the greatest Hebrew poet, and it is so admirable in language, and so full of beautiful imagery, that persons of taste who were by no means overloaded with reverence have quoted it times without number, thus confessing its singular poetical excellence. To us the whole psalm appears to be perfect as it stands, and to exhibit such unity throughout that it would be a literary Vandalism, as well as a spiritual crime, to rend away one part from the other.
