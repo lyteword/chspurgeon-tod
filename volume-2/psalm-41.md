@@ -8,7 +8,7 @@ weight: 41
 
 Jesus Christ betrayed by Judas Iscariot is evidently the great theme of this Psalm, but we think not exclusively. He is the antitype of David, and all his people are in their measure like him; hence words suitable to the Great Representative are most applicable to those who are in him. Such as receive a vile return for long kindness to others, may read this song with much comfort, for they will see that it is alas! too common for the best of men, to be rewarded for their holy charity with cruelty and scorn; and when they have been humbled by falling into sin, advantage has been taken of their low estate, their good deeds have been forgotten and the vilest spite has been vented upon them.
 
-**DIVISION.**&nbsp;The psalmist in Ps 41:1-3, describes the mercies which are promised to such as consider the poor, and this he uses as a preface to his own personal plea for succour: from Ps 41:4-9 he states his own case, proceeds to prayer in Ps 41:10, and closes with thanksgiving, Ps 41:11-13.
+**Division &mdash;**&nbsp;The psalmist in Ps 41:1-3, describes the mercies which are promised to such as consider the poor, and this he uses as a preface to his own personal plea for succour: from Ps 41:4-9 he states his own case, proceeds to prayer in Ps 41:10, and closes with thanksgiving, Ps 41:11-13.
 
 ## Exposition
 

@@ -8,7 +8,7 @@ weight: 125
 
 We do not assert that David wrote this Psalm, but we have as much ground for doing so as others have for declaring that it was written after the captivity. It would seem provable that all the Pilgrim Psalms were composed, or, at least, compiled by the same writer, and as some of them are certainly by David, there is too conclusive reason for taking away the rest from him.
 
-**DIVISION.**&nbsp;First we have a song of holy confidence (Ps 125:1-2); then a promise, Ps 125:3; followed by a prayer, Ps 125:4; and a note of warning.
+**Division &mdash;**&nbsp;First we have a song of holy confidence (Ps 125:1-2); then a promise, Ps 125:3; followed by a prayer, Ps 125:4; and a note of warning.
 
 ## Exposition
 

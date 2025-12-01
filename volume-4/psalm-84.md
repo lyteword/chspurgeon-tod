@@ -10,7 +10,7 @@ It matters little when this Psalm was written, or by whom; for our part it exhal
 
 Pilgrimages to the tabernacle were a great feature of Jewish life. In our own country, pilgrimages to the shrine of Thomas of Canterbury, and our Ladye of Walsingham, were so general as to affect the entire population, cause the formation of roads, the erection and maintenance of hostelries, and the creation of a special literature; this may help us to understand the influence of pilgrimage upon the ancient Israelites. Families journeyed together, making bands which grew at each halting place; they camped in sunny glades, sang in unison along the roads, toiled together over the hill and through the slough, and as they went along, stored up happy memories which would never be forgotten. One who was debarred the holy company of the pilgrims, and the devout worship of the congregation, would find in this Psalm fit expression for his mournful spirit.
 
-**DIVISION.**&nbsp;We will make our pauses where the poet or the musician placed them, namely, of the Selahs.
+**Division &mdash;**&nbsp;We will make our pauses where the poet or the musician placed them, namely, of the Selahs.
 
 ## Exposition
 

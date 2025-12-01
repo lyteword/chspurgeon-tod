@@ -8,7 +8,7 @@ weight: 55
 
 **Subject &mdash;**&nbsp;It would be idle to fix a time, and find an occasion for this Psalm with any dogmatism. It reads like a song of the time of Absalom and Ahithophel. It was after David had enjoyed peaceful worship (Ps 55:14), when he was or had just been a dweller in a city (Ps 55:9-11), and when he remembered his former roamings in the wilderness. Altogether it seems to us to relate to that mournful era when the King was betrayed by his trusted counsellor. The spiritual eye ever and anon sees the Son of David and Judas, and the chief priests appearing and disappearing upon the glowing canvas of the Psalm.
 
-**DIVISION.**&nbsp;From Ps 55:1-8, the suppliant spreads his case in general before his God; in Ps 55:9-11, he portrays his enemies; in Ps 55:12-14, he mentions one special traitor, and cries for vengeance, or foretells it in Ps 55:15. From Ps 55:16-19 he consoles himself by prayer and faith; in Ps 55:20-21 he again mentions the deceitful covenant breaker, and closes with a cheering exhortation to the saints (Ps 55:22), and a denunciation of destruction upon the wicked and deceitful (Ps 55:22).
+**Division &mdash;**&nbsp;From Ps 55:1-8, the suppliant spreads his case in general before his God; in Ps 55:9-11, he portrays his enemies; in Ps 55:12-14, he mentions one special traitor, and cries for vengeance, or foretells it in Ps 55:15. From Ps 55:16-19 he consoles himself by prayer and faith; in Ps 55:20-21 he again mentions the deceitful covenant breaker, and closes with a cheering exhortation to the saints (Ps 55:22), and a denunciation of destruction upon the wicked and deceitful (Ps 55:22).
 
 ## Exposition
 

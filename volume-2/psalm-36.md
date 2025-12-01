@@ -6,7 +6,7 @@ weight: 36
 
 **Title &mdash;**&nbsp;To the Chief Musician, He who had the leadership of the Temple service was charged with the use of this song in public worship. What is everybody's business is never done. It was well to have one person specially to attend to the service of song in the house of the Lord. Of David the servant of the Lord. This would seem to indicate that the Psalm peculiarly befits one who esteems it an honour to be called Jehovah's servant. It is THE SONG OF HAPPY SERVICE; such a one as all may join in who bear the easy yoke of Jesus. The wicked are contrasted with the righteous, and the great Lord of devout men is heartily extolled; thus obedience to so good a Master is indirectly insisted on, and rebellion against him is plainly condemned.
 
-**DIVISION.**&nbsp;From Ps 36:1-4 David describes the rebellious: in Ps 36:5-9 he extols the various attributes of the Lord; in Ps 36:10-11 he addresses the Lord in prayer, and in the last verse his faith sees in vision the overthrow of all the workers of iniquity.
+**Division &mdash;**&nbsp;From Ps 36:1-4 David describes the rebellious: in Ps 36:5-9 he extols the various attributes of the Lord; in Ps 36:10-11 he addresses the Lord in prayer, and in the last verse his faith sees in vision the overthrow of all the workers of iniquity.
 
 ## Exposition
 

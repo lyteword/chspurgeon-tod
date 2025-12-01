@@ -10,7 +10,7 @@ A Song upon Alamoth. Which may denote that the music was to be pitched high for 
 
 **Subject &mdash;**&nbsp;Happen what may, the Lord's people are happy and secure, this is the doctrine of the Psalm, and it might, to help our memories, be called THE SONG OF HOLY CONFIDENCE, were it not that from the great reformer's love to this soul-stirring hymn it will probably be best remembered as LUTHER'S PSALM.
 
-**DIVISION.**&nbsp;It is divided by inspired authority into three parts, each of which ends with Selah.
+**Division &mdash;**&nbsp;It is divided by inspired authority into three parts, each of which ends with Selah.
 
 ## Exposition
 

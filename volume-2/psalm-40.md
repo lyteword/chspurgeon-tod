@@ -8,7 +8,7 @@ weight: 40
 
 **Subject &mdash;**&nbsp;Jesus is evidently here, and although it might not be a violent wresting of language to see both David and his Lord, both Christ and the church, the double comment might involve itself in obscurity, and therefore we shall let the sun shine even though this should conceal the stars. Even if the New Testament were not so express upon it, we should have concluded that David spoke of our Lord in Ps 40:6-9, but the apostle in Heb 10:5-9, puts all conjecture out of court, and confines the meaning to him who came into the world to do the Father's will.
 
-**DIVISION.**&nbsp;From Ps 40:1-3, is a personal thanksgiving, followed by a general declaration of Jehovah's goodness to his saints, Ps 40:4-5. In Ps 40:6-10, we have an avowal of dedication to the Lord's will; Ps 40:11-17, contains a prayer for deliverance from pressing trouble, and for the overthrow of enemies.
+**Division &mdash;**&nbsp;From Ps 40:1-3, is a personal thanksgiving, followed by a general declaration of Jehovah's goodness to his saints, Ps 40:4-5. In Ps 40:6-10, we have an avowal of dedication to the Lord's will; Ps 40:11-17, contains a prayer for deliverance from pressing trouble, and for the overthrow of enemies.
 
 ## Exposition
 

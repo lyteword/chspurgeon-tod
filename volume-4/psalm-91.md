@@ -8,7 +8,7 @@ weight: 91
 
 In the whole collection there is not a more cheering Psalm, its tone is elevated and sustained throughout, faith is at its best, and speaks nobly. A German physician was wont to speak of it as the best preservative in times of cholera, and in truth, it is a heavenly medicine against plague and pest. He who can live in its spirit will be fearless, even if once again London should become a lazar-house, and the grave be gorged with carcases.
 
-**DIVISION.**&nbsp;On this occasion we shall follow the divisions which our translators have placed at the head of the Psalm, for they are pithy and suggestive.
+**Division &mdash;**&nbsp;On this occasion we shall follow the divisions which our translators have placed at the head of the Psalm, for they are pithy and suggestive.
 
 Ps 91:1-2—The state of the godly.
 

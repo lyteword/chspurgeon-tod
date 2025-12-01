@@ -8,7 +8,7 @@ weight: 73
 
 **Subject &mdash;**&nbsp;Curiously enough this Seventy-third Psalm corresponds in subject with the Thirty-seventh: it will help the memory of the young to notice the reversed figures. The theme is that ancient stumbling block of good men, which Job's friends could not get over; viz.—the present prosperity of wicked men and the sorrows of the godly. Heathen philosophers have puzzled themselves about this, while to believers it has too often been a temptation.
 
-**DIVISION.**&nbsp;In Ps 73:1 the psalmist declares his confidence in God, and, as it were, plants his foot on a rock while he recounts his inward conflict. From Ps 73:2-14 he states his temptation; then, from Ps 73:15-17 he is embarrassed as how to act, but ultimately finds deliverance from his dilemma. He describes with awe the fate of the ungodly in Ps 73:18-20, condemns his own folly and adores the grace of God, Ps 73:21-24, and concludes by renewing his allegiance to his God, whom he takes afresh to be his portion and delight.
+**Division &mdash;**&nbsp;In Ps 73:1 the psalmist declares his confidence in God, and, as it were, plants his foot on a rock while he recounts his inward conflict. From Ps 73:2-14 he states his temptation; then, from Ps 73:15-17 he is embarrassed as how to act, but ultimately finds deliverance from his dilemma. He describes with awe the fate of the ungodly in Ps 73:18-20, condemns his own folly and adores the grace of God, Ps 73:21-24, and concludes by renewing his allegiance to his God, whom he takes afresh to be his portion and delight.
 
 ## Exposition
 

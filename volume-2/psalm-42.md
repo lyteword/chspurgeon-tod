@@ -10,7 +10,7 @@ That choice band of singers, the sons of Korah, are bidden to make this delightf
 
 **SUBJECT**&nbsp;. It is the cry of a man far removed from the outward ordinances and worship of God, sighing for the long loved house of his God; and at the same time it is the voice of a spiritual believer, under depressions, longing for the renewal of the divine presence, struggling with doubts and fears, but yet holding his ground by faith in the living God. Most of the Lord's family have sailed on the sea which is here so graphically described. It is probable that David's flight from Absalom may have been the occasion for composing this Maschil.
 
-**DIVISION.**&nbsp;The structure of the song directs us to consider it in two parts which end with the same refrain; Ps 42:1-5 and then Ps 42:6-11.
+**Division &mdash;**&nbsp;The structure of the song directs us to consider it in two parts which end with the same refrain; Ps 42:1-5 and then Ps 42:6-11.
 
 ## Exposition
 

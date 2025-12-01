@@ -8,7 +8,7 @@ weight: 108
 
 We have before us&nbsp;*The Warrior's Morning Song*&nbsp;, with which he adores his God and strengthens his heart before entering upon the conflicts of the day. As an old Prussian officer was wont in prayer to invoke the aid of "his Majesty's August Ally", so does David appeal to his God and set up his banner in Jehovah's name.
 
-**DIVISION.**&nbsp;First we have an utterance dictated by the spirit of praise, Ps 108:1-5; then a second deliverance evoked by the spirit of believing prayer, Ps 108:6-12; and then a final word of resolve (Ps 108:13), as the warrior hears the war trumpet summoning him to join battle immediately, and therefore marches with his fellow soldiers at once to the fray.
+**Division &mdash;**&nbsp;First we have an utterance dictated by the spirit of praise, Ps 108:1-5; then a second deliverance evoked by the spirit of believing prayer, Ps 108:6-12; and then a final word of resolve (Ps 108:13), as the warrior hears the war trumpet summoning him to join battle immediately, and therefore marches with his fellow soldiers at once to the fray.
 
 ## Exposition
 

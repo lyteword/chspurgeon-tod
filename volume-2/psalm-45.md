@@ -8,7 +8,7 @@ weight: 45
 
 **Subject &mdash;**&nbsp;Some here see Solomon and Pharaoh's daughter only—they are short sighted; others see both Solomon and Christ—they are cross eyed; well focused spiritual eyes see here Jesus only, or if Solomon be present at all, it must be like those hazy shadows of by passers which cross the face of the camera, and therefore are dimly traceable upon a photographic landscape. "The King, "the God whose throne is for ever and ever, is no mere mortal and his everlasting dominion is not bounded by Lebanon and Egypt's river. This is no wedding song of earthly nuptials, but an Epithalamium for the Heavenly Bridegroom and his elect spouse.
 
-**DIVISION.**&nbsp;Ps 45:1 is an announcement of intention, a preface to the song; Ps 45:3 adores the matchless beauty of Messiah; and from Ps 45:3-9, he is addressed in admiring ascriptions of praise. Ps 45:10-12 are spoken to the bride. The church is further spoken of in Ps 45:13-15, and the Psalm closes with another address to the King, foretelling his eternal fame, Ps 45:16-17.
+**Division &mdash;**&nbsp;Ps 45:1 is an announcement of intention, a preface to the song; Ps 45:3 adores the matchless beauty of Messiah; and from Ps 45:3-9, he is addressed in admiring ascriptions of praise. Ps 45:10-12 are spoken to the bride. The church is further spoken of in Ps 45:13-15, and the Psalm closes with another address to the King, foretelling his eternal fame, Ps 45:16-17.
 
 ## Exposition
 

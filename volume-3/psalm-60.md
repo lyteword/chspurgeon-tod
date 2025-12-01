@@ -12,7 +12,7 @@ Charge for the golden lilies now, upon them with the lance."
 
 Michtam of David, to teach. David obeyed the precept to teach the children of Israel; he recorded the Lord's mighty acts that they might be rehearsed in the ears of generations to come. Golden secrets are to be told on the house tops; these things were not done in a corner and ought not to be buried in silence. We ought gladly to learn what inspiration so beautifully teaches.&nbsp;*When he strove with Aramnaharaim and with Aramzobah.*&nbsp;The combined Aramean tribes sought to overcome Israel, but were signally defeated.&nbsp;*When Joab returned.*&nbsp;He had been engaged in another region, and the enemies of Israel took advantage of his absence, but on his return with Abishai the fortunes of war were changed.&nbsp;*And smote of Edom in the valley of salt twelve thousand.*&nbsp;More than this appear to have fallen according to 1Ch 18:12, but this commemorates one memorable part of the conflict. Terrible must have been the battle, but decisive indeed were the results, and the power of the enemy was utterly broken. Well did the Lord deserve a song from his servant.
 
-**DIVISION.**&nbsp;Properly the song may be said to consist of three parts: the complaining verses, Ps 60:1-3; the happy, Ps 60:4-8; the prayerful, Ps 60:9-12. We have divided it as the sense appeared to change.
+**Division &mdash;**&nbsp;Properly the song may be said to consist of three parts: the complaining verses, Ps 60:1-3; the happy, Ps 60:4-8; the prayerful, Ps 60:9-12. We have divided it as the sense appeared to change.
 
 ## Exposition
 

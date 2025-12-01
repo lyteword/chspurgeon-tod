@@ -10,7 +10,7 @@ There is nothing in this psalm by which we can decide its date, further than thi
 
 This psalm is in its right place and most fittingly follows its predecessor, for as in Ps 125:1-5, we read that the rod of the wicked shall not rest upon the lot of the righteous, we here see it removed from them to their great joy. The word "turn" would seem to be the keynote of the song: it is a Psalm of conversion—conversion from captivity; and it may well be used to set forth the rapture of a pardoned soul when the anger of the Lord is turned away from it. We will call it, "Leading captivity captive."
 
-**DIVISIONS.**&nbsp;The Psalm divides itself into a narrative (Ps 126:1-2), a song (Ps 126:3), a prayer (Ps 126:4), and a promise (Ps 126:5-6).
+**Division &mdash;**&nbsp;The Psalm divides itself into a narrative (Ps 126:1-2), a song (Ps 126:3), a prayer (Ps 126:4), and a promise (Ps 126:5-6).
 
 ## Exposition
 

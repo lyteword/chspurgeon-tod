@@ -8,7 +8,7 @@ weight: 47
 
 **Subject &mdash;**&nbsp;Whether the immediate subject of this Psalm be the carrying up of the ark from the house of Obededom to Mount Zion, or the celebration of some memorable victory, it would be hard to decide. As even the doctors differ, who should dogmatise? But it is very clear that both the present sovereignty of Jehovah, and the final victories of our Lord, are here fitly hymned, while his ascension, as the prophecy of them, is sweetly gloried in.
 
-**DIVISION.**&nbsp;In so short a Psalm, there is no need of any other division than that indicated by the musical pause at the end of Ps 47:4.
+**Division &mdash;**&nbsp;In so short a Psalm, there is no need of any other division than that indicated by the musical pause at the end of Ps 47:4.
 
 ## Exposition
 
