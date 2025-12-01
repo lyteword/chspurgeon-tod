@@ -494,7 +494,7 @@ Evil angels? *Par dispar,* a pair of words which seem not well matched. The latt
 
 **Verse 64.** The daughter-in-law of Eli, when she was at once travailing, and in that travail dying, to make up the full sum of God's judgment upon that wicked house, as one insensible of the death of her father, of her husband, of herself, in comparison of this loss, calls her (then unseasonable) son Ichabod, and with her last breath says, "The glory is departed from Israel, the ark is taken." *Joseph Hall.* 
 
-HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verses 59-72.** 
 
