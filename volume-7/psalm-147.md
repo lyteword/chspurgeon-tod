@@ -4,7 +4,7 @@ weight: 147
 
 # Psalm 147
 
-**SUBJECT.**&nbsp;This is a specially remarkable song. In it the greatness and the condescending goodness of the Lord are celebrated The God of Israel is set forth in his peculiarity of glory as caring for the sorrowing, the insignificant, and forgotten. The poet finds a singular joy in extolling one who is so singularly gracious. It is a Psalm of the city and of the field, of the first and the second creations, of the common wealth and of the church. It is good and pleasant throughout.
+**Subject &mdash;**&nbsp;This is a specially remarkable song. In it the greatness and the condescending goodness of the Lord are celebrated The God of Israel is set forth in his peculiarity of glory as caring for the sorrowing, the insignificant, and forgotten. The poet finds a singular joy in extolling one who is so singularly gracious. It is a Psalm of the city and of the field, of the first and the second creations, of the common wealth and of the church. It is good and pleasant throughout.
 
 **DIVISION.**&nbsp;The, song appears to divide itself into three portions. From Ps 147:1-6, Jehovah is extolled for building up Zion, and blessing his mourners; from Ps 147:7-11, the like praise is given because of his provision for the lowly, and his pleasure in them; and then, from Ps 147:12-20, he is magnified for his work on behalf of his people, and the power of his word in nature and in grace. Let it be studied with joyful gratitude.
 

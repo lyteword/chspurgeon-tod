@@ -8,7 +8,7 @@ weight: 46
 
 A Song upon Alamoth. Which may denote that the music was to be pitched high for the treble or soprano voices of the Hebrew virgins. They went forth in their dances to sing the praises of David when he smote the Philistine, it was meet that they should make merry and be glad when the victories of Jehovah became their theme. We need to praise God upon virgin hearts, with souls chaste towards his fear, with lively and exalted expressions, and happy strains. Or the word Alamoth may refer to shrill sounding instruments, as in 1Ch 15:20, where we read that Zechariah, and Eliab, and Benaiah were to praise the Lord "with psalteries on Alamoth." We are not always, in a slovenly manner, to fall into one key, but with intelligence are to modulate our praises and make them fittingly expressive of the occasion and the joy it creates in our souls. These old musical terms cannot be interpreted with certainty, but they are still useful because they show that care and skill should be used in our sacred music.
 
-**SUBJECT.**&nbsp;Happen what may, the Lord's people are happy and secure, this is the doctrine of the Psalm, and it might, to help our memories, be called THE SONG OF HOLY CONFIDENCE, were it not that from the great reformer's love to this soul-stirring hymn it will probably be best remembered as LUTHER'S PSALM.
+**Subject &mdash;**&nbsp;Happen what may, the Lord's people are happy and secure, this is the doctrine of the Psalm, and it might, to help our memories, be called THE SONG OF HOLY CONFIDENCE, were it not that from the great reformer's love to this soul-stirring hymn it will probably be best remembered as LUTHER'S PSALM.
 
 **DIVISION.**&nbsp;It is divided by inspired authority into three parts, each of which ends with Selah.
 
