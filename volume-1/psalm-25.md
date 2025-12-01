@@ -4,9 +4,9 @@ weight: 25
 
 # Psalm 25
 
-**Title &mdash;**&nbsp; A Psalm of David. David is pictured in this Psalm as in a faithful miniature. His holy trust, his many conflicts, his great transgression, his bitter repentance, and his deep distresses are all here; so that we see the very heart of "the man after God's own heart. " It is evidently a composition of David's later days, for he mentions the sins of his youth, and from its painful references to the craft and cruelty of his many foes, it will not be too speculative a theory to refer it to the period when Absalom was heading the great rebellion against him. This has been styled the second of the seven Penitential Psalms. It is the mark of a true saint that his sorrows remind him of his sins, and his sorrow for sin drives him to his God. 
+**Title &mdash;** A Psalm of David. David is pictured in this Psalm as in a faithful miniature. His holy trust, his many conflicts, his great transgression, his bitter repentance, and his deep distresses are all here; so that we see the very heart of "the man after God's own heart. " It is evidently a composition of David's later days, for he mentions the sins of his youth, and from its painful references to the craft and cruelty of his many foes, it will not be too speculative a theory to refer it to the period when Absalom was heading the great rebellion against him. This has been styled the second of the seven Penitential Psalms. It is the mark of a true saint that his sorrows remind him of his sins, and his sorrow for sin drives him to his God. 
 
-**Subject &amp; Division &mdash;**&nbsp; The twenty-two verses of this Psalm begin in the original with the letters of the Hebrew alphabet in their proper order. It is the first instance we have of an inspired acrostic or alphabetical song. This method may have been adopted by the writer to assist the memory; and the Holy Spirit may have employed it to show us that the graces of style and the arts of poetry may lawfully be used in his service. Why should not all the wit and ingenuity of man be sanctified to noblest ends by being laid upon the altar of God? From the singularity of the structure of the Psalm, it is not easy to discover any marked divisions; there are great changes of thought, but there is no variation of subject; the moods of the writer's mind are twofold—prayer and meditation; and as these appear in turns, we should thus divide the verses. Prayer from Ps 25:1-7; meditation, Ps 25:8-10; prayer, Ps 25:11; meditation, Ps 25:12-15; prayer, Ps 25:16-22. 
+**Subject &amp; Division &mdash;** The twenty-two verses of this Psalm begin in the original with the letters of the Hebrew alphabet in their proper order. It is the first instance we have of an inspired acrostic or alphabetical song. This method may have been adopted by the writer to assist the memory; and the Holy Spirit may have employed it to show us that the graces of style and the arts of poetry may lawfully be used in his service. Why should not all the wit and ingenuity of man be sanctified to noblest ends by being laid upon the altar of God? From the singularity of the structure of the Psalm, it is not easy to discover any marked divisions; there are great changes of thought, but there is no variation of subject; the moods of the writer's mind are twofold—prayer and meditation; and as these appear in turns, we should thus divide the verses. Prayer from Ps 25:1-7; meditation, Ps 25:8-10; prayer, Ps 25:11; meditation, Ps 25:12-15; prayer, Ps 25:16-22. 
 
 ## Exposition
 
@@ -22,10 +22,10 @@ weight: 25
 
 **Verse 6.** *Remember, O Lord, thy tender mercies and thy lovingkindnesses.* We are usually tempted in seasons of affliction to fear that our God has forgotten us, or forgotten his usual kindness towards us; hence the soul doth as it were put the Lord in remembrance, and beseech him to recollect those deeds of love which once he wrought towards it. There is a holy boldness which ventures thus to deal with the Most High, let us cultivate it; but there is also an unholy unbelief which suggests our fears, let us strive against it with all our might. What gems are those two expressions, *"tender mercies and lovingkindnesses!"* They are the virgin honey of language; for sweetness no words can excel them; but as for the gracious favours which are intended by them, language fails to describe them. 
 
-> "When all thy mercies, O my God, 
-> My rising soul surveys, 
-> Transported with the view, I am lost 
-> In wonder, love and praise. " 
+> "When all thy mercies, O my God,  
+> My rising soul surveys,  
+> Transported with the view, I am lost  
+> In wonder, love and praise."  
 
 If the Lord will only do unto us in the future as in the past, we shall be well content. We seek no change in the divine action, we only crave that the river of grace may never cease to flow. *For they have been ever of old.* A more correct translation would be "from eternity. " David was a sound believer in the doctrine of God's eternal love. The Lord's lovingkindnesses are no novelties. When we plead with him to bestow them upon us, we can urge use and custom of the most ancient kind. In courts of law men make much of precedents, and we may plead them at the throne of grace. "Faith, "saith Dickson, "must make use of experiences and read them over unto God, out of the register of a sanctified memory, as a recorder to him who cannot forget. " With a unchangeable God it is a most effectual argument to remind him of his ancient mercies and his eternal love. By tracing all that we enjoy to the fountain head of everlasting love we shall greatly cheer our hearts, and those do us but sorry service who try to dissuade us from meditating upon election and its kindred topics. 
 
@@ -292,36 +292,36 @@ If the Lord will only do unto us in the future as in the past, we shall be well 
 
 **Verse 14.** 1. A secret, and who know it. 2. A wonder, and who see it. 
 
-**Verse 15.** 1. What we are like. A silly bird.  
-2\. What is our danger? "Net."  
-3\. Who is our friend? "The Lord."  
-4\. What is our wisdom? "Mine eyes," etc.  
+**Verse 15.** 1. What we are like. A silly bird. 
+2\. What is our danger? "Net." 
+3\. Who is our friend? "The Lord." 
+4\. What is our wisdom? "Mine eyes," etc. 
 
 **Verse 16.** A desolate soul seeking heavenly company, and an afflicted spirit crying for divine mercy. Our God the balm of all our wounds. 
 
-**Verses 16-18.** David is a petitioner as well as a sufferer; and those sorrows will never injure us that bring us near to God. Three things he prays for:—1. *Deliverance.* This we are called to desire, consistently with resignation to the divine will.  
-2\. *Notice.* A kind look from God is desirable at any time in any circumstances; but in affliction and pain, it is like life from the dead.  
-3\. *Pardon.* Trials are apt to revive a sense of guilt. *William Jay.*  
+**Verses 16-18.** David is a petitioner as well as a sufferer; and those sorrows will never injure us that bring us near to God. Three things he prays for:—1. *Deliverance.* This we are called to desire, consistently with resignation to the divine will. 
+2\. *Notice.* A kind look from God is desirable at any time in any circumstances; but in affliction and pain, it is like life from the dead. 
+3\. *Pardon.* Trials are apt to revive a sense of guilt. *William Jay.* 
 
-**Verse 18.** Two things are here taught us:—  
-1\. That a kind look from God is very desirable in affliction: (a) It is a look of special observation; (b) It is a look of tender compassion; (c) It is a look of support and assistance (with God, power and compassion go together).  
-2\. The sweetest cordial under trouble would be an assurance of divine forgiveness: (a) Because trouble is very apt to bring our sins to remembrance; (b) Because a sense of pardon will in great measure remove all distressing fears of death and judgment.  
+**Verse 18.** Two things are here taught us:— 
+1\. That a kind look from God is very desirable in affliction: (a) It is a look of special observation; (b) It is a look of tender compassion; (c) It is a look of support and assistance (with God, power and compassion go together). 
+2\. The sweetest cordial under trouble would be an assurance of divine forgiveness: (a) Because trouble is very apt to bring our sins to remembrance; (b) Because a sense of pardon will in great measure remove all distressing fears of death and judgment. 
 
-Improvement:  
-1\. Let us adore the goodness of God, that one so great and glorious should bestow a favourable look upon any of our sinful race.  
-2\. Let the benefit we have received from the Lord's looking upon us in *former* afflictions, engage us to *pray,* and encourage us to *hope,* that he will now look upon us again.  
+Improvement: 
+1\. Let us adore the goodness of God, that one so great and glorious should bestow a favourable look upon any of our sinful race. 
+2\. Let the benefit we have received from the Lord's looking upon us in *former* afflictions, engage us to *pray,* and encourage us to *hope,* that he will now look upon us again. 
 3\. If a kind look from God be so comfortable, what must *heaven* be! *Samuel Lavington.*
 
-**Verse 18.** 1. It is well when our sorrows remind us of our sins.  
-2\. When we are as earnest to be forgiven as to be delivered.  
-3\. When we bring both to the right place in prayer.  
+**Verse 18.** 1. It is well when our sorrows remind us of our sins. 
+2\. When we are as earnest to be forgiven as to be delivered. 
+3\. When we bring both to the right place in prayer. 
 4\. When we are submissive about our sorrows—*"Look,"* etc. —but very explicit about our sins—*"forgive,"* etc. 
 
 **Verse 19.** The spiritual enemies of the saint. Their number, malice, craft, power, etc. 
 
-**Verse 20.** Soul preservation:  
-1\. Its twofold character, "Keep," and "deliver."  
-2\. Its dreadful alternative, "Let me not be ashamed."  
+**Verse 20.** Soul preservation: 
+1\. Its twofold character, "Keep," and "deliver." 
+2\. Its dreadful alternative, "Let me not be ashamed." 
 3\. Its effectual guarantee, "I put my trust in thee."
 
 **Verse 20.** A superhuman keeping, a natural fear, a spiritual trust. 

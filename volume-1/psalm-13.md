@@ -4,9 +4,9 @@ weight: 13
 
 # Psalm 13
 
-OCCASION. *The Psalm cannot be referred to any especial event or* period in David's history. All attempts to find it a birthplace are but guesses. It was, doubtless, more than once the language of that much tried man of God, and is intended to express the feelings of the people of God in those ever-returning trials which beset them. If the reader has never yet found occasion to use the language of this brief ode, he will do so ere long, if he be a man after the Lord's own heart. We have been wont to call this the "How Long Psalm." We had almost said the Howling Psalm, from the incessant repetition of the cry "how long?" 
+**Occasion &mdash;** *The Psalm cannot be referred to any especial event or* period in David's history. All attempts to find it a birthplace are but guesses. It was, doubtless, more than once the language of that much tried man of God, and is intended to express the feelings of the people of God in those ever-returning trials which beset them. If the reader has never yet found occasion to use the language of this brief ode, he will do so ere long, if he be a man after the Lord's own heart. We have been wont to call this the "How Long Psalm." We had almost said the Howling Psalm, from the incessant repetition of the cry "how long?" 
 
-**Division &mdash;**&nbsp; *This Psalm is very readily to be divided into three* parts: the question of anxiety, 1, 2; the cry of prayer, 3, 4; the song of faith, 5, 6. 
+**Division &mdash;** *This Psalm is very readily to be divided into three* parts: the question of anxiety, 1, 2; the cry of prayer, 3, 4; the song of faith, 5, 6. 
 
 ## Exposition
 

@@ -4,9 +4,9 @@ weight: 17
 
 # Psalm 17 
 
-**Title &amp; Subject &mdash;**&nbsp; A prayer of David. *David would not have been a man* after God's own heart, if he had not been a man of prayer. He was a master in the sacred art of supplication. He flies to prayer in all times of need, as a pilot speeds to the harbour in the stress of tempest. So frequent were David's prayers that they could not be all dated and entitled; and hence this simply bears the author's name, and nothing more. The smell of the furnace is upon the present psalm, but there is evidence in the last verse that he who wrote it came unharmed out of the flame. We have in the present plaintive song,AN APPEAL TO HEAVEN *from the persecutions of earth. A* spiritual eye may see Jesus here. 
+**Title &amp; Subject &mdash;** A prayer of David. *David would not have been a man* after God's own heart, if he had not been a man of prayer. He was a master in the sacred art of supplication. He flies to prayer in all times of need, as a pilot speeds to the harbour in the stress of tempest. So frequent were David's prayers that they could not be all dated and entitled; and hence this simply bears the author's name, and nothing more. The smell of the furnace is upon the present psalm, but there is evidence in the last verse that he who wrote it came unharmed out of the flame. We have in the present plaintive song,AN APPEAL TO HEAVEN *from the persecutions of earth. A* spiritual eye may see Jesus here. 
 
-**Division &mdash;**&nbsp; *There are no very clear lines of demarcation between the parts;* but we prefer the division adopted by that precious old commentator, David Dickson. In verses 1-4, David craves justice in the controversy between him and his oppressors. In verses 5 and 6, he requests of the Lord grace to act rightly while under the trial. From verse 7-12, he seeks protection from his foes, whom he graphically describes; and in verses 13 and 14, pleads that they may be disappointed; closing the whole in the most comfortable confidence that all would certainly be well with himself at the last. 
+**Division &mdash;** *There are no very clear lines of demarcation between the parts;* but we prefer the division adopted by that precious old commentator, David Dickson. In verses 1-4, David craves justice in the controversy between him and his oppressors. In verses 5 and 6, he requests of the Lord grace to act rightly while under the trial. From verse 7-12, he seeks protection from his foes, whom he graphically describes; and in verses 13 and 14, pleads that they may be disappointed; closing the whole in the most comfortable confidence that all would certainly be well with himself at the last. 
 
 ## Exposition
 
@@ -42,7 +42,7 @@ Verse 15. *"As for me."* "I neither envy nor covet these men's happiness, but pa
 
 ## Explanatory Notes & Quaint Sayings
 
-***Title &mdash;**&nbsp; "A prayer of David."* Since many of the Psalms consist of *prayers,* the question may be asked why such an inscription more especially belongs to this. But though the others contain divers prayers mixed with other matters, this is a supplication through its whole course.— *The Venerable Bede,* 672-735. 
+***Title &mdash;** "A prayer of David."* Since many of the Psalms consist of *prayers,* the question may be asked why such an inscription more especially belongs to this. But though the others contain divers prayers mixed with other matters, this is a supplication through its whole course.— *The Venerable Bede,* 672-735. 
 
 *Verse* 1. *"Hear . . . attend . . . give ear."* This petition repeated thrice, indicates a great power of feeling and many tears; because the craft of the ungodly, in truth, grieves and afflicts the spiritual man more than their power and violence, for we can get a knowledge of open force and violence, and, when we see the danger, can in some way guard against it.— *Martin Luther.* 
 
