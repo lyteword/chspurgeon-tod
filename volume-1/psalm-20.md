@@ -1,1482 +1,157 @@
----
-weight: 20
----
+--- 
+weight: 20 
+--- 
 
-# Psalm 20
+# Psalm 20 
 
-SUBJECT.&nbsp;*We have before us a*&nbsp;National Anthem,&nbsp;*fitted to be sung at the*&nbsp;
+SUBJECT. *We have before us a* National Anthem, *fitted to be sung at the*  outbreak of war, when the monarch was girding on his sword for the fight. If David had not been vexed with wars, we might never have been favoured with such psalms as this. There is a needs be for the trials of one saint, that he may yield consolation to others. A happy people here plead for a beloved sovereign, and with loving hearts cry to Jehovah, "God save the King." We gather that this song was intended to be sung in public, not only from the matter of the song, but also from its dedication"To the Chief Musician." *We know its author to have been Israel's sweet singer, from the*  short title,"A Psalm of David." *The particular occasion which suggested*  it, it would be mere folly to conjecture, for Israel was almost always at war in David's day. His sword may have been hacked, but it was never rusted. Kimchi reads the title,concerning David, *or,* for David, *and it*  is clear that the king is the subject as well as the composer of the song. It needs but a moment's reflection to perceive that this hymn of prayer is prophetical of our Lord Jesus, and is the cry of the ancient church on behalf of her Lord, as she sees him in vision enduring a great fight of afflictions on her behalf. The militant people of God, with the great Captain of salvation at their head, may still in earnest plead that the pleasure of the Lord may prosper in his hand. We shall endeavour to keep to this view of the subject in our brief exposition, but we cannot entirely restrict out remarks to it. 
 
-outbreak of war, when the monarch was girding on his sword for the fight.
-
-If David had not been vexed with wars, we might never have been favoured
-
-with such psalms as this.  There is a needs be for the trials of one saint,
-
-that he may yield consolation to others.  A happy people here plead for a
-
-beloved sovereign, and with loving hearts cry to Jehovah, "God save the
-
-King."  We gather that this song was intended to be sung in public, not only
-
-from the matter of the song, but also from its dedication"To the Chief
-
-Musician."&nbsp;*We know its author to have been Israel's sweet singer, from the*&nbsp;
-
-short title,"A Psalm of David."&nbsp;*The particular occasion which suggested*&nbsp;
-
-it, it would be mere folly to conjecture, for Israel was almost always at
-
-war in David's day.  His sword may have been hacked, but it was never
-
-rusted.  Kimchi reads the title,concerning David,&nbsp;*or,*&nbsp;for David,&nbsp;*and it*&nbsp;
-
-is clear that the king is the subject as well as the composer of the song.
-
-It needs but a moment's reflection to perceive that this hymn of prayer is
-
-prophetical of our Lord Jesus, and is the cry of the ancient church on
-
-behalf of her Lord, as she sees him in vision enduring a great fight of
-
-afflictions on her behalf.  The militant people of God, with the great
-
-Captain of salvation at their head, may still in earnest plead that the
-
-pleasure of the Lord may prosper in his hand.  We shall endeavour to keep to
-
-this view of the subject in our brief exposition, but we cannot entirely
-
-restrict out remarks to it.
-
-DIVISION.&nbsp;*The first four verses are a prayer for the success of the king.*&nbsp;
-
-Verses 5, 6, and 7 express unwavering confidence in God and his Anointed;
-
-verse 8 declares the defeat of the foe, and verse 9 is a concluding appeal
-
-to Jehovah.
+DIVISION. *The first four verses are a prayer for the success of the king.* Verses 5, 6, and 7 express unwavering confidence in God and his Anointed; verse 8 declares the defeat of the foe, and verse 9 is a concluding appeal to Jehovah. 
 
 ## EXPOSITION
 
-Verse 1.&nbsp;*"The Lord hear thee in the day of trouble."*&nbsp;All loyal subjects
+Verse 1. *"The Lord hear thee in the day of trouble."* All loyal subjects pray for their king, and most certainly citizens of Zion have good cause to pray for the Prince of Peace. In times of conflict loving subjects redouble their pleas, and surely in the sorrows of our Lord his church could not but be in earnest. All the Saviour's days were days of trouble, and he also made them days of prayer; the church joins her intercession with her Lord's, and pleads that he may be heard in his cries and tears. The agony in the garden was especially a gloomy hour, but he was heard in that he feared. He knew that his Father heard him always, yet in that troublous hour no reply came until thrice he had fallen on his face in the garden; then sufficient strength was given in answer to prayer, and he rose a victor from the conflict. On the cross also his prayer was not unheard, for in the twenty-second Psalm he tells us, "thou hast heard me from the horns of the unicorns." The church in this verse implies that her Lord would be himself much given to prayer; in this he is our example, teaching us that if we are to receive any advantage from the prayers of others, we must first pray for ourselves. What a mercy that we *may* pray in the day of trouble, and what a still more blessed privilege that no trouble can prevent the Lord from hearing us! Troubles roar like thunder, but the believer's voice will be heard above the storm. O Jesus, when thou pleadest for us in our hour of trouble, the Lord Jehovah will hear thee. This is a most refreshing confidence, and it may be indulged in without fear.  *"The name of the God of Jacob defend thee;"* or, as some read it, "set thee in a high place." By *"the name"* is meant the revealed character and Word of God; we are not to worship "the unknown God," but we should seek to know the covenant God of Jacob, who has been pleased to reveal his name and attributes to his people. There may be much in a royal name, or a learned name, or a venerable name, but it will be a theme for heavenly scholarship to discover all that is contained in the divine name. The glorious power of God defended and preserved the Lord Jesus through the battle of his life and death, and exalted him above all his enemies. His warfare is now accomplished in his own proper person, but in his mystical body, the church, he is still beset with dangers, and only the eternal arm of our God in covenant can defend the soldiers of the cross, and set them on high out of the reach of their foes. The day of trouble is not over, the pleading Saviour is not silent, and the name of the God of Israel is still the defence of the faithful. The name, *"God of Jacob,"* is suggestive; Jacob had his day of trouble, he wrestled, was heard, was defended, and in due time was set on high, and his God is our God still, the same God to all his wrestling Jacobs. The whole verse is a very fitting benediction to be pronounced by a gracious heart over a child, a friend, or a minister, in prospect of trial; it includes both temporal and spiritual protection, and directs the mind to the great source of all good. How delightful to believe that our heavenly Father has pronounced it upon our favoured heads!
 
-pray for their king, and most certainly citizens of Zion have good cause to
+Verse 2. *"Send thee help from the sanctuary."* Out of heaven's sanctuary came the angel to strengthen our Lord, and from the precious remembrance of God's doings in his sanctuary our Lord refreshed himself when on the tree. There is no help like that which is of God's sending, and no deliverance like that which comes out of his sanctuary. The sanctuary to us is the person of our blessed Lord, who was typified by the temple, and is the true sanctuary which God has pitched, and not man: let us fly to the cross for shelter in all times of need and help will be sent to us. Men of the world despise sanctuary help, but our hearts have learned to prize it beyond all material aid. They seek help out of the armoury, or the treasury, or the buttery, but we turn to the sanctuary. *"And strengthen thee out of Zion."*  Out of the assemblies of the pleading saints who had for ages prayed for their Lord, help might well result to the despised sufferer, for praying breath is never spent in vain. To the Lord's mystical body the richest comes in answer to the pleadings of his saints assembled for holy worship as his Zion. Certain advertisers recommend a strengthening plaster, but nothing can give such strength to the loins of a saint as waiting upon God in the assemblies of his people. This verse is a benediction befitting a Sabbath morning, and may be the salutation either of a pastor to his people, or of a church to its minister. God in the sanctuary of his dear Son's person, and in the city of his chosen church is the proper object of his people's prayers, and under such a character may they confidently look to him for his promised aid.
 
-pray for the Prince of Peace.  In times of conflict loving subjects redouble
+Verse 3. *"Remember all thy offerings, and accept thy burnt sacrifice.*  Selah."Before war kings offered sacrifice, upon the acceptance of which the depended for success; our blessed Lord presented himself as a victim, and was a sweet savour unto the Most High, and then he met and routed the embattled legions of hell. Still does his burnt sacrifice perfume the courts of heaven, and through him the offerings of his people are received as *his* sacrifices and oblations. We ought in our spiritual conflicts to have an eye to the sacrifice of Jesus, and never venture to war until first the Lord has given us a token for good at the altar of the cross, where faith beholds her bleeding Lord. *"Selah."* It is well to pause at the cross before we march onward to battle, and with the psalmist cry "Selah." We are too much in a hurry to make good haste. A little pausing might greatly help our speed. Stay, good man, there is a haste which hinders; rest awhile, meditate on the burnt sacrifice, and put thy heart right for the stern work which lieth before thee.
 
-their pleas, and surely in the sorrows of our Lord his church could not but
+Verse 4. *"Grant thee according to thine own heart, and fulfil all thy*  counsel."Christ's desire and counsel were both set upon the salvation of his people; the church of old desired for him good speed in his design, and the church in these latter days, with all her heart desires the complete fulfilment of his purpose. In Christ Jesus sanctified souls may appropriate this verse as a promise; they shall have their desire, and their plans to glorify their Master shall succeed. We may have our own will, when our will is God's will. This was always the case with our Lord, and yet he said, "not as I will, but as thou wilt." What need for submission in our case; if it was necessary to him, how much more for us?
 
-be in earnest.  All the Saviour's days were days of trouble, and he also
+Verse 5. *"We will rejoice in thy salvation."* In Jesus there is salvation; it is his own, and hence it is called thy *salvation;* but it is ours to receive and ours to rejoice in. We should fixedly resolve that come what may, we will rejoice in the saving arm of the Lord Jesus. The people in this psalm, before their king went to battle, felt sure of victory, and therefore began to rejoice beforehand; how much more ought we to do this who have seen the victory completely won! Unbelief begins weeping for the funeral before the man is dead; why should not faith commence piping before the dance of victory begins? Buds are beautiful, and promises not yet fulfilled are worthy to be admired. If joy were more general among the Lord's people, God would be more glorified among men; the happiness of the subjects is the honour of the sovereign. *"And in the name of our God we*  will set up our banners."We lift the standard of defiance in the face of the foe, and wave the flag of victory over the fallen adversary. Some proclaim war in the name of one king, and some of another, but the faithful go to war in Jesu's name, the name of the incarnate God, Immanuel, God with us. The times are evil at present, but so long as Jesus lives and reigns in his church we need not furl our banners in fear, but advance them with sacred courage. Jesu's tremendous name Puts all our foes to flight; Jesus, the meek, the angry Lamb A lion is in fight." The church cannot forget that Jesus is her advocate before the throne, and therefore she sums up the desires already expressed in the short sentence, *"The Lord fulfil all thy petitions."* Be it never forgotten that among those petitions is that choice one, "Father, I will that they also whom thou hast given me be with me where I am."
 
-made them days of prayer; the church joins her intercession with her Lord's,
+Verse 6. *"Now know I that the Lord saveth his anointed."* We live and learn, and what we learn we are not ashamed to acknowledge. He who thinks he knows everything will miss the joy of finding out new truth; he will never be able to cry, "now know I," for he is so wise in his own conceit that he knows all that can be revealed and more. Souls conscious of ignorance shall be taught of the Lord, and rejoice as they learn. Earnest prayer frequently leads to assured confidence. The church pleaded that the Lord Jesus might win the victory in his great struggle, and now by faith she sees him saved by the omnipotent arm. She evidently finds a sweet relish in the fragrant title of "anointed;" she thinks of him as ordained before all worlds to his great work, and then endowed with the needful qualifications by being anointed of the Spirit of the Lord; and this is evermore the choicest solace of the believer, that Jehovah himself hath anointed Jesus to be a Prince and a Saviour, and that our shield is thus the Lord's own anointed. *"He will hear him from his holy heaven with the saving strength*  of his right hand."It is here asserted confidently that God's holiness and power would both come to the rescue of the Saviour in his conflict, and surely these two glorious attributes found congenial work in answering the sufferer's cries. Since Jesus was heard, we shall be; God is in heaven, but our prayers can scale those glorious heights; those heavens are holy, but Jesus purifies our prayers, and so they gain admittance; our need is great, but the divine arm is strong, and all its strength is "saving strength;" that strength, moreover, is in the hand which is most used and which is used most readily—the right hand. What encouragements are these for pleading saints!
 
-and pleads that he may be heard in his cries and tears.  The agony in the
+Verse 6. Contrasts frequently bring out the truth vividly, and here the church sets forth the creature confidences of carnal men in contrast with her reliance upon the Prince Immanuel and the invisible Jehovah. *"Some*  trust in chariots, and some in horses."Chariots and horses make an imposing show, and with their rattling, and dust, and fine caparisons, make so great a figure that vain man is much taken with them; yet the discerning eye of faith sees more in an invisible God than in all these. The most dreaded war-engine of David's day was the war-chariot, armed with scythes, which mowed down men like grass: this was the boast and glory of the neighbouring nations; but the saints considered the name of Jehovah to be a far better defence. As the Israelites might not keep horses, it was natural for them to regard the enemy's calvary with more than usual dread. It is, therefore, all the greater evidence of faith that the bold songster can here disdain even the horse of Egypt in comparison with the Lord of hosts. Alas, how many in our day who profess to be the Lord's are as abjectly dependent upon their fellow-men or upon an arm of flesh in some shape or other, as if they had never known the name of Jehovah at all. Jesus, be thou alone our rock and refuge, and never may we mar the simplicity of our faith. *"We*  will remember the name of the Lord our God.""Our God" in covenant, who has chosen us and whom we have chosen; this God is our God. The name of our God is JEHOVAH, and this should never be forgotten; the self-existent, independent, immutable, ever-present, all-filling I AM. Let us adore that matchless name, and never dishonour it by distrust or creature confidence. Reader, you must *know* it before you can *remember* it. May the blessed Spirit reveal it graciously to your soul!
 
-garden was especially a gloomy hour, but he was heard in that he feared.  He
+Verse 8. How different the end of those whose trusts are different! The enemies of God are uppermost at first, but they ere long are brought down by force, or else fall of their own accord. Their foundation is rotten, and therefore when the time comes it gives way under them; their chariots are burned in the fire, and their horses die of pestilence, and where is their boasted strength? As for those who rest on Jehovah, they are often cast down at the first onset, but an Almighty arm uplifts them, and they joyfully stand upright. The victory of Jesus is the inheritance of his people. The world, death, Satan, and sin, shall all be trampled beneath the feet of the champions of faith; while those who rely upon an arm of flesh shall be ashamed and confounded for ever.
 
-knew that his Father heard him always, yet in that troublous hour no reply
-
-came until thrice he had fallen on his face in the garden; then sufficient
-
-strength was given in answer to prayer, and he rose a victor from the
-
-conflict.  On the cross also his prayer was not unheard, for in the
-
-twenty-second Psalm he tells us, "thou hast heard me from the horns of the
-
-unicorns."  The church in this verse implies that her Lord would be himself
-
-much given to prayer; in this he is our example, teaching us that if we are
-
-to receive any advantage from the prayers of others, we must first pray for
-
-ourselves.  What a mercy that we&nbsp;*may*&nbsp;pray in the day of trouble, and what
-
-a still more blessed privilege that no trouble can prevent the Lord from
-
-hearing us!  Troubles roar like thunder, but the believer's voice will be
-
-heard above the storm.  O Jesus, when thou pleadest for us in our hour of
-
-trouble, the Lord Jehovah will hear thee.  This is a most refreshing
-
-confidence, and it may be indulged in without fear.
-
-&nbsp;*"The name of the God of Jacob defend thee;"*&nbsp;or, as some read it, "set
-
-thee in a high place."  By&nbsp;*"the name"*&nbsp;is meant the revealed character and
-
-Word of God; we are not to worship "the unknown God," but we should seek to
-
-know the covenant God of Jacob, who has been pleased to reveal his name and
-
-attributes to his people.  There may be much in a royal name, or a learned
-
-name, or a venerable name, but it will be a theme for heavenly scholarship
-
-to discover all that is contained in the divine name.  The glorious power of
-
-God defended and preserved the Lord Jesus through the battle of his life and
-
-death, and exalted him above all his enemies.  His warfare is now
-
-accomplished in his own proper person, but in his mystical body, the church,
-
-he is still beset with dangers, and only the eternal arm of our God in
-
-covenant can defend the soldiers of the cross, and set them on high out of
-
-the reach of their foes.  The day of trouble is not over, the pleading
-
-Saviour is not silent, and the name of the God of Israel is still the
-
-defence of the faithful.  The name,&nbsp;*"God of Jacob,"*&nbsp;is suggestive; Jacob
-
-had his day of trouble, he wrestled, was heard, was defended, and in due
-
-time was set on high, and his God is our God still, the same God to all his
-
-wrestling Jacobs.  The whole verse is a very fitting benediction to be
-
-pronounced by a gracious heart over a child, a friend, or a minister, in
-
-prospect of trial; it includes both temporal and spiritual protection, and
-
-directs the mind to the great source of all good.  How delightful to believe
-
-that our heavenly Father has pronounced it upon our favoured heads!
-
-Verse 2.&nbsp;*"Send thee help from the sanctuary."*&nbsp;Out of heaven's sanctuary
-
-came the angel to strengthen our Lord, and from the precious remembrance of
-
-God's doings in his sanctuary our Lord refreshed himself when on the tree.
-
-There is no help like that which is of God's sending, and no deliverance
-
-like that which comes out of his sanctuary.  The sanctuary to us is the
-
-person of our blessed Lord, who was typified by the temple, and is the true
-
-sanctuary which God has pitched, and not man: let us fly to the cross for
-
-shelter in all times of need and help will be sent to us.  Men of the world
-
-despise sanctuary help, but our hearts have learned to prize it beyond all
-
-material aid.  They seek help out of the armoury, or the treasury, or the
-
-buttery, but we turn to the sanctuary.&nbsp;*"And strengthen thee out of Zion."*&nbsp;
-
-Out of the assemblies of the pleading saints who had for ages prayed for
-
-their Lord, help might well result to the despised sufferer, for praying
-
-breath is never spent in vain.  To the Lord's mystical body the richest
-
-comes in answer to the pleadings of his saints assembled for holy worship as
-
-his Zion.  Certain advertisers recommend a strengthening plaster, but
-
-nothing can give such strength to the loins of a saint as waiting upon God
-
-in the assemblies of his people.  This verse is a benediction befitting a
-
-Sabbath morning, and may be the salutation either of a pastor to his people,
-
-or of a church to its minister.  God in the sanctuary of his dear Son's
-
-person, and in the city of his chosen church is the proper object of his
-
-people's prayers, and under such a character may they confidently look to
-
-him for his promised aid.
-
-Verse 3.&nbsp;*"Remember all thy offerings, and accept thy burnt sacrifice.*&nbsp;
-
-Selah."Before war kings offered sacrifice, upon the acceptance of which
-
-the depended for success; our blessed Lord presented himself as a victim,
-
-and was a sweet savour unto the Most High, and then he met and routed the
-
-embattled legions of hell.  Still does his burnt sacrifice perfume the
-
-courts of heaven, and through him the offerings of his people are received
-
-as&nbsp;*his*&nbsp;sacrifices and oblations.  We ought in our spiritual conflicts to
-
-have an eye to the sacrifice of Jesus, and never venture to war until first
-
-the Lord has given us a token for good at the altar of the cross, where
-
-faith beholds her bleeding Lord.&nbsp;*"Selah."*&nbsp;It is well to pause at the
-
-cross before we march onward to battle, and with the psalmist cry "Selah."
-
-We are too much in a hurry to make good haste.  A little pausing might
-
-greatly help our speed.  Stay, good man, there is a haste which hinders;
-
-rest awhile, meditate on the burnt sacrifice, and put thy heart right for
-
-the stern work which lieth before thee.
-
-Verse 4.&nbsp;*"Grant thee according to thine own heart, and fulfil all thy*&nbsp;
-
-counsel."Christ's desire and counsel were both set upon the salvation of
-
-his people; the church of old desired for him good speed in his design, and
-
-the church in these latter days, with all her heart desires the complete
-
-fulfilment of his purpose.  In Christ Jesus sanctified souls may appropriate
-
-this verse as a promise; they shall have their desire, and their plans to
-
-glorify their Master shall succeed.  We may have our own will, when our will
-
-is God's will.  This was always the case with our Lord, and yet he said,
-
-"not as I will, but as thou wilt."  What need for submission in our case; if
-
-it was necessary to him, how much more for us?
-
-Verse 5.&nbsp;*"We will rejoice in thy salvation."*&nbsp;In Jesus there is
-
-salvation; it is his own, and hence it is called thy&nbsp;*salvation;*&nbsp;but it is
-
-ours to receive and ours to rejoice in.  We should fixedly resolve that come
-
-what may, we will rejoice in the saving arm of the Lord Jesus.  The people
-
-in this psalm, before their king went to battle, felt sure of victory, and
-
-therefore began to rejoice beforehand; how much more ought we to do this who
-
-have seen the victory completely won!  Unbelief begins weeping for the
-
-funeral before the man is dead; why should not faith commence piping before
-
-the dance of victory begins?  Buds are beautiful, and promises not yet
-
-fulfilled are worthy to be admired.  If joy were more general among the
-
-Lord's people, God would be more glorified among men; the happiness of the
-
-subjects is the honour of the sovereign.&nbsp;*"And in the name of our God we*&nbsp;
-
-will set up our banners."We lift the standard of defiance in the face of
-
-the foe, and wave the flag of victory over the fallen adversary.  Some
-
-proclaim war in the name of one king, and some of another, but the faithful
-
-go to war in Jesu's name, the name of the incarnate God, Immanuel, God with
-
-us.  The times are evil at present, but so long as Jesus lives and reigns in
-
-his church we need not furl our banners in fear, but advance them with
-
-sacred courage.
-
-Jesu's tremendous name
-
-Puts all our foes to flight;
-
-Jesus, the meek, the angry Lamb
-
-A lion is in fight."
-
-The church cannot forget that Jesus is her advocate before the throne,
-
-and therefore she sums up the desires already expressed in the short
-
-sentence,&nbsp;*"The Lord fulfil all thy petitions."*&nbsp;Be it never forgotten that
-
-among those petitions is that choice one, "Father, I will that they also
-
-whom thou hast given me be with me where I am."
-
-Verse 6.&nbsp;*"Now know I that the Lord saveth his anointed."*&nbsp;We live and
-
-learn, and what we learn we are not ashamed to acknowledge.  He who thinks
-
-he knows everything will miss the joy of finding out new truth; he will
-
-never be able to cry, "now know I," for he is so wise in his own conceit
-
-that he knows all that can be revealed and more.  Souls conscious of
-
-ignorance shall be taught of the Lord, and rejoice as they learn.  Earnest
-
-prayer frequently leads to assured confidence.  The church pleaded that the
-
-Lord Jesus might win the victory in his great struggle, and now by faith she
-
-sees him saved by the omnipotent arm.  She evidently finds a sweet relish in
-
-the fragrant title of "anointed;" she thinks of him as ordained before all
-
-worlds to his great work, and then endowed with the needful qualifications
-
-by being anointed of the Spirit of the Lord; and this is evermore the
-
-choicest solace of the believer, that Jehovah himself hath anointed Jesus to
-
-be a Prince and a Saviour, and that our shield is thus the Lord's own
-
-anointed.&nbsp;*"He will hear him from his holy heaven with the saving strength*&nbsp;
-
-of his right hand."It is here asserted confidently that God's holiness
-
-and power would both come to the rescue of the Saviour in his conflict, and
-
-surely these two glorious attributes found congenial work in answering the
-
-sufferer's cries.  Since Jesus was heard, we shall be; God is in heaven, but
-
-our prayers can scale those glorious heights; those heavens are holy, but
-
-Jesus purifies our prayers, and so they gain admittance; our need is great,
-
-but the divine arm is strong, and all its strength is "saving strength;"
-
-that strength, moreover, is in the hand which is most used and which is used
-
-most readily—the right hand.  What encouragements are these for pleading
-
-saints!
-
-Verse 6.  Contrasts frequently bring out the truth vividly, and here the
-
-church sets forth the creature confidences of carnal men in contrast with
-
-her reliance upon the Prince Immanuel and the invisible Jehovah.&nbsp;*"Some*&nbsp;
-
-trust in chariots, and some in horses."Chariots and horses make an
-
-imposing show, and with their rattling, and dust, and fine caparisons, make
-
-so great a figure that vain man is much taken with them; yet the discerning
-
-eye of faith sees more in an invisible God than in all these.  The most
-
-dreaded war-engine of David's day was the war-chariot, armed with scythes,
-
-which mowed down men like grass: this was the boast and glory of the
-
-neighbouring nations; but the saints considered the name of Jehovah to be a
-
-far better defence.  As the Israelites might not keep horses, it was natural
-
-for them to regard the enemy's calvary with more than usual dread.  It is,
-
-therefore, all the greater evidence of faith that the bold songster can here
-
-disdain even the horse of Egypt in comparison with the Lord of hosts.  Alas,
-
-how many in our day who profess to be the Lord's are as abjectly dependent
-
-upon their fellow-men or upon an arm of flesh in some shape or other, as if
-
-they had never known the name of Jehovah at all.  Jesus, be thou alone our
-
-rock and refuge, and never may we mar the simplicity of our faith.&nbsp;*"We*&nbsp;
-
-will remember the name of the Lord our God.""Our God" in covenant, who
-
-has chosen us and whom we have chosen; this God is our God.  The name of our
-
-God is JEHOVAH, and this should never be forgotten; the self-existent,
-
-independent, immutable, ever-present, all-filling I AM.  Let us adore that
-
-matchless name, and never dishonour it by distrust or creature confidence.
-
-Reader, you must&nbsp;*know*&nbsp;it before you can&nbsp;*remember*&nbsp;it.  May the blessed
-
-Spirit reveal it graciously to your soul!
-
-Verse 8.  How different the end of those whose trusts are different!  The
-
-enemies of God are uppermost at first, but they ere long are brought down by
-
-force, or else fall of their own accord.  Their foundation is rotten, and
-
-therefore when the time comes it gives way under them; their chariots are
-
-burned in the fire, and their horses die of pestilence, and where is their
-
-boasted strength?  As for those who rest on Jehovah, they are often cast
-
-down at the first onset, but an Almighty arm uplifts them, and they joyfully
-
-stand upright.  The victory of Jesus is the inheritance of his people.  The
-
-world, death, Satan, and sin, shall all be trampled beneath the feet of the
-
-champions of faith; while those who rely upon an arm of flesh shall be
-
-ashamed and confounded for ever.
-
-Verse 9.  The Psalm is here recapitulated.  That Jesus might himself be
-
-delivered, and might then, as our King, hear us, is the two-fold desire of
-
-the Psalm.  The first request is granted, and the second is sure to all the
-
-seed; and therefore we may close the Psalm with the hearty shout, "God save
-
-the King." "God save King Jesus, and may he soon come to reign."
+Verse 9. The Psalm is here recapitulated. That Jesus might himself be delivered, and might then, as our King, hear us, is the two-fold desire of the Psalm. The first request is granted, and the second is sure to all the seed; and therefore we may close the Psalm with the hearty shout, "God save the King." "God save King Jesus, and may he soon come to reign." 
 
 ## EXPLANATORY NOTES AND QUAINT SAYINGS
 
-&nbsp;*Whole Psalm.*&nbsp;This Psalm is the prayer which the church might be supposed
+*Whole Psalm.* This Psalm is the prayer which the church might be supposed offering up, had all the redeemed stood by the cross, or in Gethsemane, in full consciousness of what was doing there. Messiah, in reading these words, would know that he had elsewhere the sympathy he longed for, when he said to the three disciples, "Tarry ye here, and watch with me." Matthew 26:38. It is thus a pleasant song, of the sacred singer of Israel, to set forth the feelings of the redeemed in their Head, whether in his sufferings or in the glory that was to follow.— *Andrew A. Bonar.*  
 
-offering up, had all the redeemed stood by the cross, or in Gethsemane, in
+*Whole Psalm.* There are traces of liturgical arrangement in many of the Psalms. There is frequently an adaptation to the circumstances of public worship. Thus, when the Jewish church wished to celebrate the great act of Messiah the High Priest making a sacrifice for the people on the day of atonement, as represented in the twenty-second Psalm, a subject so solemn, grand, and affecting, was not commenced suddenly and unpreparedly, but first a suitable occasion was sought, proper characters were introduced, and a scene in some degree appropriate to the great event was fitted for its reception. The priests and Levites endeavour to excite in the minds of the worshippers an exalted tone of reverent faith. The majesty and power of God, all the attributes which elevate the thoughts, are called in to fill the souls of the worshippers with the most intense emotion; and when the feelings are strung to the highest pitch, an awful, astounding impression succeeds, when the words are slowly chanted, "My God, my God, why hast thou forsaken me?" We are to suppose, then, that the series of Psalms, from the twentieth to the twenty-fourth inclusive, was used as a service or office in the public worship of the Jewish church.*— *R. H. Ryland, M.A., in "The Psalms Restored to Messiah* ," 1853. * NOTE: This is a purely gratuitous statement, but is less unlikely than many other assertions of annotators who have a cause to plead.— *C. H. S.*  
 
-full consciousness of what was doing there.  Messiah, in reading these
+*Whole Psalm.* Really good wishes are good things, and should be expressed in words and deeds. The whole Psalm thus teaches. Christian sympathy is a great branch of Christian duty. There may be a great deal of obliging kindness in that which costs us little.— *William S. Plumer.*  
 
-words, would know that he had elsewhere the sympathy he longed for, when he
+*Verse* 1. *"The Lord hear thee in the day of trouble."* All the days of Christ were *days of trouble.* He was a brother born for adversity, a man of sorrows and acquainted with griefs. . . . But more particularly it was a *"day of trouble"* with him when he was in the garden, heavy and sore amazed, and his sweat was, as it were, drops of blood falling on the ground, and his soul was exceeding sorrowful, even unto death; but more especially this was his case when he hung upon the cross. . . . when he bore all the sins of his people, endured the wrath of his Father, and was forsaken by him. Now, in this *"day of trouble,"* both when in the garden and on the cross, he prayed unto his Father, as he had been used to do in other cases, and at other times; and the church here prays that God would hear and answer him, as he did.— *Condensed from John Gill.*  
 
-said to the three disciples, "Tarry ye here, and watch with me."  Matthew
+*Verse* 1. *"The name."* Whereas they say, *"The name of the God of*  Jacob,"thereby they mean God himself; but they thus speak of God because all the knowledge that we have of God ariseth from the knowledge of his name, and as to that end he hath given himself in the Scriptures sundry names, that thereby we might know not only what he is in himself, so far as it is meet for us to know, but especially what he is to us, so by them, and them principally, we know him to be, as he is, not only in himself, but unto us. . . . From this knowledge of the name of God ariseth confidence in prayer! as when they know him, and here call him *"the God of Jacob,"* that is, he that hath made a covenant of mercy with him and with his posterity, that he will be their God and they shall be his people, that they may be bold to flee to him for succour, and confidently call upon him in the day of their trouble to hear them, and to help them, as they do. And the more that they know of his name, that is, of his goodness, mercy, truth, power, wisdom, justice, etc., so may they the more boldly pray unto him, not doubting but that he will be answerable unto his name. . . . For as among men, according to the good name that they have for liberality and pity, so will men be ready to come unto them in their need, and the poor will say, "I will go to such an house, for they have a good name, and are counted good to the poor, and merciful, all men speak well of them for their liberality;" and this name of theirs giveth the encouragement to come boldly and often. So when we know God thus by his name, it will make us bold to come unto him in prayer. . . . Or, if a man be never so merciful, and others know it not, and so they are ignorant of his good name that he hath, and that he is worthy of, they cannot, with any good hope, come unto him, for they know not what he is; they have heard nothing of him at all. So when, by unbelief, we hardly conceive of God and of his goodness, or for want of knowledge are ignorant of his good name, even of all his mercy, and of his truth, pity, and compassion that is in him, and so know not his great and glorious name, we can have little or no heart at all to come unto him in trouble, and seek unto him for help by prayer, as these did here; and this maketh some so forward unto prayer, they are so well acquainted with *the*  name of God,that they doubt not of speeding, and others again are so backward unto it, they are so wholly ignorant of his name.— *Nicholas Bownd,* 1604. 
 
-26:38.  It is thus a pleasant song, of the sacred singer of Israel, to set
+*Verse* 1. *"The name of the God of Jacob defend thee."* This is a beautiful allusion to the history of the patriarch Jacob. Jehovah had appeared for him, when he fled from his brother Esau, at Bethel, and Jacob said to his household, "Let us arise, and go up to Bethel; and I will make there an altar unto God, *who answered me in the day of my distress,* and was with me in the way which I went." Genesis 35:3.— *John Morison.*  
 
-forth the feelings of the redeemed in their Head, whether in his sufferings
+*Verse* 1. *"The name of the God of Jacob defend thee."* Hebrew, *"set*  thee in an high place,"such as God's name is. Proverbs 18:10. "The righteous runneth into it and is safe," as in a tower of brass, or town of war. By *the name of God* is meant, *Deus nominatissimus,* the most renowned God, saith Junias, and "worthy to be praised," as Psalm 18:3; and he is called the God of Jacob here, saith another, first, because Jacob was once in the like distress (Genesis 32:6, 7); secondly, because he prayed to the like purpose (Genesis 35:3); thirdly, because he prevailed with God as a prince; "and there God spake with us" (Hosea 12:4); fourthly, because *God*  of Jacobis the same with "God of Israel," and so the covenant is pleaded.— *John Trapp.*  
 
-or in the glory that was to follow.—&nbsp;*Andrew A. Bonar.*&nbsp;
+*Verse* 1. *"The name of the God of Jacob defend thee."* There is an assurance of thy protection, of thy safety, in the midst of ten thousand foes, and of thy perseverance to the end. But you will say, how will the name of the God of Jacob defend me? Try it. I have, over and over again; therefore I speak what I do know, and testify what I have seen. *"The name*  of the God of Jacob defend thee."I was once goaded by a poor silly Irish papist to try it, who told me, in his consummate ignorance and bigotry, that if a priest would but give him a drop of holy water, and make a circle with it around a field full of wild beasts, they would not hurt him. I retired in disgust at the abominable trickery of such villains, reflecting, what a fool I am that I cannot put such trust in my God as this poor deluded man puts in his priest and a drop of holy water! And I resolved to try what  *"the name of the God of Jacob"* would do, having the Father's fixed decrees, the Son's unalterable responsibility, and the Spirit's invincible grace and operation around me. I tried it and felt my confidence brighten. O brethren, get encircled with covenant engagements, and covenant blood, and covenant grace, and covenant promises, and covenant securities; then will "the Lord *hear you in the time of trouble, and the name of the God of Jacob*  will defend you."— *Joseph Irons.*  
 
-&nbsp;*Whole Psalm.*&nbsp;There are traces of liturgical arrangement in many of the
+*Verse* 1. A sweeter wish, or a more consolatory prayer for a child of sorrow was never uttered by man, *"The Lord hear thee in the day of trouble;*  the name of the God of Jacob defend thee."And who is there of the sons of men to whom a *"day of trouble"* does not come, whose path is not darkened at times, or with whom is it unclouded sunshine from the cradle to the grave? "Few plants," says old Jacomb, "have both the morning and the evening sun;" and one far older than he said, "Man is born to trouble." A  *"day of trouble,"* then, is the heritage of every child of Adam. How sweet, as I have said, how sweet the wish, *"The Lord hear thee in the day*  of trouble."It is the prayer of another in behalf of some troubled one, and yet it implies that the troubled one himself had also prayed, *"The Lord*  hear thee"—hear and answer thine own prayer!— *Barton Bouchier.*  
 
-Psalms.  There is frequently an adaptation to the circumstances of public
+*Verses* 1, 2. The scene presented in this place to the eye of faith is deeply affecting. Here is the Messiah pouring out his heart in prayer in the day of his trouble; his spouse overhears his agonising groans; she is moved with the tenderest sympathy towards him; she mingles her prayers with his; she entreats that he may be supported and defended. . . . It may now, perhaps, be said, he is out of the reach of trouble, he is highly exalted, he does not want our sympathies or our prayers. True; yet still we may pray for him—see Matthew 25:40—"Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me." We can pray for him in his members. And thus is fulfilled what is written in Psalm 72:15, "And he shall live, and to him shall be given of the gold of Sheba;  *prayer* also shall be made for him continually (that is, in his suffering members); and daily shall he be praised" (that is, in his own admirable person).— *Hamilton Verschoyle,* 1843. 
 
-worship.  Thus, when the Jewish church wished to celebrate the great act of
+*Verses* 1-5. These are the words of the people, which they spake unto God in the behalf of their king; and so they did as David desired them, namely, pray for him. If they did thus pray for him, being desired thereunto, and it was their bound duty so to do, and they knew it to be so, and therefore did make conscience of it, and it had been a great fault for them to have failed in it; then by consequence it followeth of necessity, that whensoever any of our brethren or sisters in Christ shall desire this duty at our hands, we must be careful to perform it; and it were a fault not to be excused in us, both against God and them, to fail in it. Therefore we must not think that when godly men and women at their parting or otherwise, desire our prayers, and say, "I pray you pray for me," or, "remember me in your prayers," that these are words of course (though I do not deny, but that many do so use them, and so doing they take the name of God in vain); but we should be persuaded, that out of the abundance of their feeling of their own wants they speak unto us, and so be willing by our prayers to help to supply them. And especially we should do it when they shall make known their estate unto us, as here David did to the people, giving them to understand that he should or might be in great danger of his enemies, and so it was *"a time of trouble"* unto him, as he called it. . . . Most of all, this duty of prayer ought to be carefully performed when we have promised it unto any upon such notice of their estate. For as all promises ought to be kept, yea, though it be to our own hindrance, so those most of all that so nearly concern them. And as if when any should desire us to speak to some great man for them, and we promise to do it, and they trust to it, hoping that we will be as good as our words; it were a great deceit in us to fail them, and so to frustrate their expectation; so when any have desired us to speak to God for them, and upon our promise they would comfort themselves over it, if we should by negligence deceive them, it were a great fault in us, and that which the Lord would require at our hands, though they should never know of it. Therefore, as we ought daily to pray one for another unasked, as our Saviour Christ hath taught us, "O our Father which art in heaven," etc., so more especially and by name should we do it for them that have desired it of us. And so parents especially should not forget their children in their prayers, which daily ask their blessing, and hope to be blessed of God by their prayers. Secondarily, if we should neglect to pray for them that have desired it at our hands, how could we have any hope that others whom we have desired to pray for us should perform that duty unto us? Nay, might not we justly fear that they would altogether neglect it, seeing we do neglect them? and should it not be just with God so to punish us? according to the saying of our Saviour Christ, "With what measure ye mete, it shall be measured to you again." Matthew 7:2. And I remember that this was the saying of a reverend father in the church, who is now fallen asleep in the Lord, when any desired him to pray for them (as many did, and more than any that I have known), he would say unto them, "I pray you, pray for me, and pray that I may remember you, and then I hope I shall not forget you." Therefore if we would have others pray for us, let us pray for them.— *Nicholas Bownd.*  
 
-Messiah the High Priest making a sacrifice for the people on the day of
+*Verses* 1, 5. In the first verse the psalmist says, *"The Lord hear thee*  in the day if trouble;"and in the fifth he says, *"The Lord perform all*  thy petitions."Does he in both these cases refer to one and the same time? The prayers mentioned in the first verse are offered in *"the day of*  trouble,"in the days of his flesh; are the petitions to which he refers in the fourth verse also offered in the days of his flesh? Many think not. Before our blessed Saviour departed out of this world, he prayed to the Father for those whom he had given him, that he would keep them from the evil of the world, that they might be one, even as he was one with the Father. He prayed too for his murderers. After his ascension into heaven, he sat down at the right hand of the Father, where he "maketh intercession for us." "If any man sin, we have an advocate with the Father, Jesus Christ, the righteous." It is to this, as many think, that the prophet refers when he says, *"The Lord perform all thy petitions;"* to the intercession which he is continually making for us.— *F. H. Dunwell.*  
 
-atonement, as represented in the twenty-second Psalm, a subject so solemn,
+*Verse* 2. *"Send thee help from the sanctuary."* Here we see the nature of true faith, that it causeth us to see *help* in *heaven,* and so to pray for it when there is none to be seen in the earth. And this is the difference between faith and unbelief; that the very unbelievers can by reason conceive of help, so long as they have any means to help them; but if they fail they can see none at all; so they are like unto those that are purblind, who can see nothing but near at hand. But faith seeth afar off, even into heaven, so that it is "the evidence of things that are not seen;" for it looketh unto the power of God, who hath all means in his hand, or can work without them, who made all of nothing, and "calleth the things that be not, as though they were." So that as the holy martyr Stephen, when his enemies were ready to burst for anger, and gnash at him with their teeth, looked steadfastly into heaven, and saw Christ standing at the right hand of God ready to defend him; so faith in the promises of the word doth see help in heaven ready for us, when there are no means in earth,— *Nicholas Bownd.*  
 
-grand, and affecting, was not commenced suddenly and unpreparedly, but first
+*Verse* 2. *"Send thee help from the sanctuary."* Why *"from the*  sanctuary,"but because the Lord presented himself there as upon the mercy-seat! The sanctuary was in Zion, the mercy-seat was in the sanctuary, the Lord was in the mercy-seat; he would have himself set forth as residing there. Herein they pray, and pray in faith, for help and strength.— *David Clarkson.*  
 
-a suitable occasion was sought, proper characters were introduced, and a
+*Verse* 2. *"Strengthen theee out of Zion."* That is, out of the assemblies of the saints, where they are praying hard for thy welfare.— *John Trapp.*  
 
-scene in some degree appropriate to the great event was fitted for its
+*Verse* 3. *"Remember all thy offerings, and accept thy burnt sacrifice."*  "All thy offerings;"the humiliation that brought him from heaven to earth; the patient tabernacling in the womb of the holy Virgin; the poor nativity; the hard manger; ox and ass for courtiers; the weary flight into Egypt; the poor cottage at Nazareth; the doing all good, and bearing all evil; the miracles, the sermons, the teachings; the being called a man gluttonous and a wine-bibber, the friend of publicans and sinners; the attribution of his wondrous deeds to Beelzebub. *"And accept thy burnt*  sacrifice."As every part of the victim was consumed in a burnt sacrifice, so what limb, what sense of our dear Lord did not agonise in his passion? The thorny crown on his head; the nails in his hands and feet; the reproaches that filled his ears; the gloating multitude on whom his dying gaze rested; the vinegar and the gall; the evil odours of the hill of death and corruption. The ploughers ploughed upon his back, and made long furrows; his most sacred face was smitten with the palm of the hand, his head with the reed. What could have been done more for the vineyard than he did not do in it? Isaiah 5:4. So, what more could have been borne by the vine, that this dear Vine did not bear? *"Remember"* them now, O Father, call to mind for us sinners, for us miserable sinners, and for our salvation, *"all"* these *"offerings;" "accept,"* instead of our eternal punishment, who are guilty, his *"burnt sacrifice,"* who did no sin, neither was guile found in his mouth!— *Dionysius, and Gerhohus* (1093-1169), *quoted by J. M. Neale.*  
 
-reception.  The priests and Levites endeavour to excite in the minds of the
+*Verse* 3. *"Accept:"* Hebrew, *"turn to ashes,"* by fire form heaven, in token of his acceptance, as was usual.— *Matthew Poole.*  
 
-worshippers an exalted tone of reverent faith.  The majesty and power of
+*Verse* 3. *"That thy burnt offering may be fat."* That is, abundant, fruitful, and full. But here we must understand this burnt offering, as we did the sacrifice, in a spiritual sense, as we have before observed. Thus Christ offered up himself wholly upon the cross to be consumed by the fire of love. And here, instead of "all thy sacrifice," it might be rendered "the whole of thy sacrifice." Even as burnt sacrifice (*holocaustum*) signifies the whole of it being burnt with fire. By which groanings of the Spirit, he shows and teaches the righteous, that they should pray and hope that none of their sufferings shall be vain, but that all shall be well-pleasing, remembered, and fully acceptable.— *Martin Luther.*  
 
-God, all the attributes which elevate the thoughts, are called in to fill
+*Verse* 3. *"Selah."* * This word, in the judgment of the learned, is sometime *vox optantis,* the voice of one that wisheth, equivalent to  *amen;* of *vox admirantis,* the voice of one admiring, showing some special matter; or *vox affirmantis,* of one affirming, avouching what is said; or  *vox meditantis,* of one meditating, requiring consideration of what is said. But withal, it is a rest in music. Jerome saith it is *commutatio*  metri,or *vicissitudo canendi.* — *Edward Marbury.*  * See pages 25, 29, 38. Psalm 3. 
 
-the souls of the worshippers with the most intense emotion; and when the
+*Verse* 4. *"Grant thee according to thine own heart, and fulfil all thy*  counsel."Let us here call to mind the zealous and earnest desire of the Redeemer to accomplish his work, "I have a baptism to be baptised with; and how am I straitened till it be accomplished." Luke 12:50. "With desire I have desired to eat this passover with you before I suffer" (Luke 22:15); that he might leave a memorial of his sufferings and death, for the strengthening and refreshing of their souls. These earnest desires and anticipations did the Father satisfy, as of one with whom he was well pleased.— *W. Wilson.*  
 
-feelings are strung to the highest pitch, an awful, astounding impression
+*Verse* 4. *"Fulfil all thy counsel;"* whatever was agreed upon in the counsel and covenant of peace between him and his Father, relating to his own glory, and the salvation of his people.— *John Gill.*  
 
-succeeds, when the words are slowly chanted, "My God, my God, why hast thou
+*Verse* 4. *"Fulfil all thy counsel."* Answer thee, *ad cardinem*  desiderii,as a father, Augustine, expresseth it; let it be unto thee even as thou wilt. Sometimes God doth not only grant a man's prayer, but fulfilleth his counsel; that is, in that very way, by that very means, which his judgment pitched upon in his thoughts.— *John Trapp.*  
 
-forsaken me?"  We are to suppose, then, that the series of Psalms, from the
+*Verse* 5 (*first clause*). Whosoever do partake with Christ's subjects in trouble, shall share with them also in the joy of their deliverance; therefore it is said, *"We will rejoice in thy salvation."* — *David Dickson.*  
 
-twentieth to the twenty-fourth inclusive, was used as a service or office in
+*Verse* 5. *"In the name of our God."* As those cried out, Judges 7:20, "The sword of the Lord and of Gideon;" and as we have it in Joshua 6:20, "And the people shouted, and the walls of Jericho fell down;" and king Abiah, crying out with his men in the same, killed five hundred thousand of the children of Israel; and so now also, according to the military custom in our day, the soldiers boast in the name and glory of their general, in order to encourage themselves against their enemies. And it is just this custom that the present verse is now teaching, only in a godly and religious manner.— *Martin Luther.*  
 
-the public worship of the Jewish church.*—&nbsp;*R. H.  Ryland, M.A., in "The Psalms Restored to Messiah*&nbsp;," 1853.
+*Verse* 5. *"In the name of our God we will set up our banners."* The banners formerly so much used were a part of military equipage, borne in times of war to assemble, direct, distinguish, and encourage the troops. They might possibly be used for other purposes also. Occasions of joy, splendid processions, and especially a royal habitation, might severally be distinguished in this way. The words of the psalmist may perhaps be wholly figurative: but if they should be literally understood, the allusion of erecting a banner in the name of the Lord, acknowledging his glory, and imploring his favour, might be justified from an existing practice. Certain it is that we find this custom prevalent on this very principle in other places, into which it might originally have been introduced from Judea. Thus Mr. Turner (*Embassy to Thibet* , p. 31), says, "I was told that it was a custom with the Soobah to ascend the hill every month, when he sets up a white flag, and performs some religious ceremonies, to conciliate the favour of a dewata, or invisible being, the genius of the place, who is said to hover about the summit, dispensing at his will, good and evil to every thing around him.— *Samuel Burder's "Oriental Customs,"* 1812. 
 
-* NOTE: This is a purely gratuitous statement, but is less unlikely than many other assertions of annotators who have a cause to plead.—&nbsp;*C. H. S.*&nbsp;
+*Verse* 5. *"In the name of our God we will set up our banners."* In all religious as well as warlike processions the people carry banners. Hence, on the pinnacles of their sacred cars, on the domes or gateways of their temples, and on the roof of a new house, may be seen the banner of the caste of sect, floating in the air. Siva the Supreme, also, is described as having a banner in the celestial world.— *Joseph Robert's "Oriental Illustrations".*  
 
-&nbsp;*Whole Psalm.*&nbsp;Really good wishes are good things, and should be expressed
+*Verse* 5. *"In the name of our God we will set up our banners."* 1. We will wage war in his name, we will see that our cause be good, and make his glory our end in every expedition; we will ask counsel at his mouth, and take him along with us; we will follow his conduct, implore his aid, and depend upon it, and refer the issue to him. David went against Goliath in the name of the Lord of hosts. 1 Samuel 17:45. 2. We will celebrate our victories in his name. When *"we lift up our banners"* in triumph, and set up our trophies, it shall be *"in the name of our God,"* he shall have all the glory of our success, and no instrument shall have any part of the honour that is due to him.— *Matthew Henry.*  
 
-in words and deeds.  The whole Psalm thus teaches.  Christian sympathy is a
+*Verse* 5. *"'We will set up our banners."* Confession of Christ, as the only name whereby we can be saved, is the *"banner"* which distinguishes his faithful people. O that this confession were more distinct, more pure, more zealous, in those who seem to be his followers, then would they be more united, more bold, in the profession of their religion, more successful in the cause of Christ, terrible as an army with *"banners."* Canticles 5:4.— *W. Wilson.*  
 
-great branch of Christian duty.  There may be a great deal of obliging
+*Verse* 5. *"Our banners."* Will you know the staff, the colours, and the flag or streamer of this ensign? Why, the staff is his cross, the colours are blood and water, and the streamer the gospel, or preaching of them to the world. The staff that carried the colours, was of old time fashioned like a cross, a cross bar near the top there was, from which the flag or streamer hung; so as it were prefiguring, that all the hosts and armies of the nations were one day to be gathered under the *banner of the cross,* to which soldiers should daily flow out of all the nations and kingdoms of the earth.— *Mark Frank,* 1613-1664. 
 
-kindness in that which costs us little.—&nbsp;*William S. Plumer.*&nbsp;
+*Verse* 5. *"The Lord fulfil all thy petitions,"* for thyself and for others, now that thou sittest on the right hand of the Father, pleading for us and showing thy side and thy wounds.— *Dionysius, quoted by Isaac Williams.*  
 
-&nbsp;*Verse*&nbsp;1.&nbsp;*"The Lord hear thee in the day of trouble."*&nbsp;All the days of
+*Verse* 6. *"Now know I."* A sudden change of number, speaking in the person of one, thereby to note the unity and consent of the people to this prayer, as though they had been all one, and uttered it all with one mouth.  *"The Lord will help his anointed;"* that is, his king, whom he hath established. See Psalm 2:2; 18:50. *"And will hear him* (see verse 1),  *from his sanctuary."* One readeth it thus—"from the heavens of his holiness;" meaning, from heaven where his holiness dwelleth.— *Thomas Wilcocks.*  
 
-Christ were&nbsp;*days of trouble.*&nbsp;He was a brother born for adversity, a man
+*Verse* 6. *"He will hear him."* I would be glad of the prayers of all the churches of Christ; O that there were not a saint on earth but that I were by name in his morning and evening prayer (whosoever that art that readest, I beseech thee pray for me); but above all, let me have a property in those prayers and intercessions that are proper only to *Christ;* I am sure then I should never miscarry: Christ's prayers are heavenly, glorious, and very effectual.— *Isaac Ambrose,* 1592-1674. 
 
-of sorrows and acquainted with griefs. . . .  But more particularly it was
+*Verse* 6. *"His anointed."* As priests, and sometimes kings and prophets, were among the Jews *anointed* to their offices, so our Saviour was anointed as a Prophet, to preach glad tidings to the meek; as a Priest, to bind up the broken-hearted; and as a King to deliver the captives. As the unction means designation and ordination, it is properly applied to the divine person of the Mediator: he is spoken of as God, who was "anointed with the oil of gladness above his fellows." Hebrews 1:8, 9. As the anointing with the Holy Spirit signifies the *gifts* and *aids* of the Holy Spirit, it terminates upon his human nature only, and not his divine person, which has all the perfections in itself, and cannot properly, in the sense last mentioned, be said to be anointed with the Holy Spirit. But yet as the human nature is taken into a subsistence in his divine Person, the anointed may properly enough be predicated and affirmed of his Person. The unction of our Redeemer has a great *stress* laid upon it in Scripture. And therefore we read, "Whosoever believeth that Jesus is the Christ, is born of God." "Who is a liar but he that denieth that Jesus is the Christ?" 1 John 5:1; 2:22. Our Saviour's enemies were sensible of this, when they made an order, that if "any man did confess that he was Christ, he should be put out out of the synagogue." John 9:22. Our Saviour's anointing was *superior*  to that of any other, and more excellent as to the work to which he was consecrated. The apostles and others, who are called his followers, had the Spirit *by measure,* but Christ *without measure.* He is "fairer than the sons of men" (Psalm 45:2); and had a glory as the "only begotten of the Father, full of grace and truth" (John 1:14, 16); and of his fullness the apostles and all others receive. Christ's anointing answers to that of Aaron his type; the precious ointment which was "poured upon his head, ran down to the skirts of his garments." Psalm 133:2. Our Saviour was so anointed, as to "fill all in all." Ephesians 1:23. He filleth all his members, and all their faculties, with all those measures of the Spirit, which they ever receive.— *Condensed from John Hurrion,* 1675-1731. 
 
-a&nbsp;*"day of trouble"*&nbsp;with him when he was in the garden, heavy and sore
+*Verse* 7. *"Some trust in chariots, and some in horses: but we will*  remember the name of the Lord our God."About Michaelmas I was in the utmost extremity, and having gone out in very fine weather, I contemplated the azure heavens, and my heart was so strengthened in faith (which I do not ascribe to my own powers, but solely to the grace of God), that I thought within myself, "What an excellent thing it is when we have nothing, and can rely upon nothing, but yet are acquainted with the living God, who made heaven and earth, and place our confidence alone in him, which enables us to be so tranquil even in necessity!" Although I was well aware that I required something that very day, yet my heart was so strong in faith that I was cheerful, and of good courage. On coming home I was immediately waited upon by the overseer of the workmen and masons, who, as it was Saturday, required money to pay their wages. He expected the money to be ready, which he wished to go and pay, but enquired, however, whether I had received anything. "Has anything arrived?" asked he. I answered, "No, but I have faith in God." Scarcely had I uttered the words when a student was announced, who brought me thirty dollars from some one, whom he would not name. I then went into the room again, and asked the other "how much he required this time for the workmen's wages?" He answered, "Thirty dollars." "Here they are," said I, and enquired at the same time, "if he needed any more?" He said, "No," which very much strengthened the faith of both of us, since we so visibly saw the miraculous hand of God, who sent it at the very moment when it was needed.— *Augustus Herman Frank,* 1663-1727. 
 
-amazed, and his sweat was, as it were, drops of blood falling on the ground,
+*Verse* 7. *"Some trust in chariots,"* etc. Vain is the confidence of all wickedness. In war, chariots, horses, navies, numbers, discipline, former successes, are relied on; but the battle is not to the strong. "Providence favours the strong battalions" may sound well in a worldling's ear, but neither Providence nor the Bible so teaches. In peace, riches, friends, ships, farms, stocks, are relied upon, yet they can neither help nor save. Let him that glorieth glory in the Lord.— *William S. Plumer.*  
 
-and his soul was exceeding sorrowful, even unto death; but more especially
+*Verse* 7. *"We will remember the name of the Lord our God."* By *the name*  of Godis generally understood, in Holy Writ, the various properties and attributes of God: these properties and attributes make up and constitute the *name* of God. As when Solomon says, "The name of the Lord is a strong tower; the righteous runneth into it and is safe." And, by remembering, considering, meditating upon this name of God, the psalmist represents himself as comforted or strengthened, whatever might be the duties to which he was called, or the dangers to which he was exposed. Others were for looking to other sources of safety and strength, "some trusting in chariots, and some in horses;" but the psalmist always set himself to the "remembering the name of the Lord our God;" and always, it would seem, with satisfaction and success. And here is the peculiarity of the passage on which we wish to dwell, and from which we hope to draw important lessons and truths—the psalmist "remembers the name of the Lord his God;" not any one property or attribute of God; but the whole combination of divine perfections. And he  *"remembers"* this "name;" the expression implying, not a transient thought, but meditation—consideration; and yet the result of the recollection is gladness and confidence.— *Henry Melvill.*  
 
-this was his case when he hung upon the cross. . . .  when he bore all the
+*Verse* 7. It is easy to persuade papists to lean on priests and saints, on old rags and painted pictures—on any idol; but it is hard to get a Protestant to trust in the living God.— *William Arnot,* 1858. 
 
-sins of his people, endured the wrath of his Father, and was forsaken by
+*Verse* 7. Weak man cannot choose but have some confidence without himself in case of apparent difficulties, and natural men do look first to some earthly thing wherein they confide. *"Some trust in chariots, and some in*  horses,"some in one creature, some in another. The believer must quit his confidence in these things, whether he have them or want them, and must rely on what God hath promised in his word to do unto us. *"But we will remember*  the name of the Lord our God."— *David Dickson.*  
 
-him.  Now, in this&nbsp;*"day of trouble,"*&nbsp;both when in the garden and on the
+*Verse* 7. They that *"trust in chariots and horses,"* will have no king but Caesar; but the "armies in heaven" which follow thee have themselves no arms, and no strength but in following thee.— *Isaac Williams.*  
 
-cross, he prayed unto his Father, as he had been used to do in other cases,
+*Verse* 7. Numa being told that his enemies were coming upon him, as he was offering sacrifices, thought it was sufficient for his safety that he could say, I am about the service of my God. When Jehoshaphat had once established a preaching ministry in all the cities of Judah, then, and not till then, the fear of the Lord fell on the neighbouring nations, and they made no war; albeit, he had before that placed forces in all the fenced cities.— *Charles Bradbury.*  
 
-and at other times; and the church here prays that God would hear and answer
+*Verse* 7. Some their warrior horses boast, Some their chariots' marshall'd host; But our trust we will proclaim In our God Jehovah's name."  *Richard Mant.*  
 
-him, as he did.—&nbsp;*Condensed from John Gill.*&nbsp;
+*Verse* 8. *"They are brought down,"* from their horses and chariots in which they trusted. Hebrew: *they bowed down,* as being unable to stand longer because of their mortal wounds. Compare Judges 5:27. *"Stand*  upright."Standing firmly upon our legs, and keeping the field, as conquerors use to do.— *Matthew Poole.*  
 
-&nbsp;*Verse*&nbsp;1.&nbsp;*"The name."*&nbsp;Whereas they say,&nbsp;*"The name of the God of*&nbsp;
+## HINTS TO THE VILLAGE PREACHER This Psalm has been much used for coronation, thanksgiving, and fast sermons, and no end of nonsense and sickening flattery has been tacked thereto by the trencher-chaplains of the world's church. If kings had been devils, some of these gentry would have praised their horns and hoofs; for although some of their royal highnesses have been very obedient servants of the prince of darkness, these false prophets have dubbed them "most gracious sovereigns," and have been as much dazzled in their presence as if they had beheld the beatific vision.— *C. H. S.*  *Whole Psalm.* A loyal song and prayer for subjects of King Jesus. 
 
-Jacob,"thereby they mean God himself; but they thus speak of God because
+*Verse* 1. Two great mercies in great trouble—hearing at the throne, and defence from the throne. 
 
-all the knowledge that we have of God ariseth from the knowledge of his
+*Verses* 1, 2. I. The Lord's trouble in its nature and its cause. II. How the Lord exercised himself in his trouble. III. We ought not to be unmoved spectators of the trouble of Jesus.  *Hamilton Verschoyle.*  
 
-name, and as to that end he hath given himself in the Scriptures sundry
+*Verses* 1-3. A model of good wishes for our friends. I. *They include personal piety.* The person who is spoken of prays, goes to the sanctuary, and offers sacrifice. We must wish our friend grace. II. *They point upward.* The blessings are distinctly recognised as divine. III. *They do not exclude trouble.*  IV. *They are eminently spiritual.* Acceptance, etc. 
 
-names, that thereby we might know not only what he is in himself, so far as
+*Verse* 2. Sanctuary help—a suggestive topic. 
 
-it is meet for us to know, but especially what he is to us, so by them, and
+*Verse* 3. God's ceaseless respect to the sacrifice of Jesus. 
 
-them principally, we know him to be, as he is, not only in himself, but unto
+*Verses* 3, 4. The great privilege of this fourfold acceptance in the Beloved. 
 
-us. . . . From this knowledge of the name of God ariseth confidence in
+*Verse* 5. Joy in salvation, to be resolved on and practised. 
 
-prayer! as when they know him, and here call him&nbsp;*"the God of Jacob,"*&nbsp;that
+*Verse* 5. *Setting up the banner.* Open avowal of allegiance, declaration of war, index of perseverance, claim of possession, signal of triumph. 
 
-is, he that hath made a covenant of mercy with him and with his posterity,
+*Verse* 5 (*last clause*). The prevalence of our Lord's intercession, and the acceptance of our prayers through him. 
 
-that he will be their God and they shall be his people, that they may be
+*Verse* 6. *"His anointed."* Our Lord as the Anointed. When? With what unction? How? For what offices? etc. 
 
-bold to flee to him for succour, and confidently call upon him in the day of
+*Verse* 6. *"He will hear him."* The ever-prevalent Intercessor. 
 
-their trouble to hear them, and to help them, as they do.  And the more that
+*Verse* 6. God's *"saving strength;"* the strength of his most used and most skilful hand. 
 
-they know of his name, that is, of his goodness, mercy, truth, power,
+*Verse* 6 (*first clause*). *"Now know I."* The moment when faith in Jesus fills the soul. The time when assurance is given. The period when a truth gleams into the soul. etc. 
 
-wisdom, justice, etc., so may they the more boldly pray unto him, not
+*Verse* 7. *Creature confidence.* Apparently mighty, well adapted, showy, noisy, etc. *Faithful trust.* Silent, spiritual, divine, etc. 
 
-doubting but that he will be answerable unto his name. . . . For as
+*Verse* 7. *"The name of the Lord our God."* Comfortable reflections from the name and character of the true God. 
 
-among men, according to the good name that they have for liberality and
+*Verse* 8. *Tables turned.*  
 
-pity, so will men be ready to come unto them in their need, and the poor
+*Verse* 9. *"Save, Lord."* One of the shortest and most pithy prayers in the Bible. 
 
-will say, "I will go to such an house, for they have a good name, and are
+*Verse* 9. (*last clause*). I. To whom we come, and what then. *"To a king."*  II. How we come, and what it means. *"We call."*  III. What we want, and what it implies. *"Hear us."*  
 
-counted good to the poor, and merciful, all men speak well of them for their
+## WORK UPON THE TWENTIETH PSALM  
 
-liberality;" and this name of theirs giveth the encouragement to come boldly
-
-and often.  So when we know God thus by his name, it will make us bold to
-
-come unto him in prayer. . . . Or, if a man be never so merciful, and
-
-others know it not, and so they are ignorant of his good name that he hath,
-
-and that he is worthy of, they cannot, with any good hope, come unto him,
-
-for they know not what he is; they have heard nothing of him at all.  So
-
-when, by unbelief, we hardly conceive of God and of his goodness, or for
-
-want of knowledge are ignorant of his good name, even of all his mercy, and
-
-of his truth, pity, and compassion that is in him, and so know not his great
-
-and glorious name, we can have little or no heart at all to come unto him in
-
-trouble, and seek unto him for help by prayer, as these did here; and this
-
-maketh some so forward unto prayer, they are so well acquainted with&nbsp;*the*&nbsp;
-
-name of God,that they doubt not of speeding, and others again are so
-
-backward unto it, they are so wholly ignorant of his name.—&nbsp;*Nicholas Bownd,*&nbsp;1604.
-
-&nbsp;*Verse*&nbsp;1.&nbsp;*"The name of the God of Jacob defend thee."*&nbsp;This is a
-
-beautiful allusion to the history of the patriarch Jacob.  Jehovah had
-
-appeared for him, when he fled from his brother Esau, at Bethel, and Jacob
-
-said to his household, "Let us arise, and go up to Bethel; and I will make
-
-there an altar unto God,&nbsp;*who answered me in the day of my distress,*&nbsp;and
-
-was with me in the way which I went."  Genesis 35:3.—&nbsp;*John Morison.*&nbsp;
-
-&nbsp;*Verse*&nbsp;1.&nbsp;*"The name of the God of Jacob defend thee."*&nbsp;Hebrew,&nbsp;*"set*&nbsp;
-
-thee in an high place,"such as God's name is.  Proverbs 18:10.  "The
-
-righteous runneth into it and is safe," as in a tower of brass, or town of
-
-war.  By&nbsp;*the name of God*&nbsp;is meant,&nbsp;*Deus nominatissimus,*&nbsp;the most
-
-renowned God, saith Junias, and "worthy to be praised," as Psalm 18:3; and
-
-he is called the God of Jacob here, saith another, first, because Jacob was
-
-once in the like distress (Genesis 32:6, 7); secondly, because he prayed to
-
-the like purpose (Genesis 35:3); thirdly, because he prevailed with God as a
-
-prince; "and there God spake with us" (Hosea 12:4); fourthly, because&nbsp;*God*&nbsp;
-
-of Jacobis the same with "God of Israel," and so the covenant is pleaded.—&nbsp;*John Trapp.*&nbsp;
-
-&nbsp;*Verse*&nbsp;1.&nbsp;*"The name of the God of Jacob defend thee."*&nbsp;There is an
-
-assurance of thy protection, of thy safety, in the midst of ten thousand
-
-foes, and of thy perseverance to the end.  But you will say, how will the
-
-name of the God of Jacob defend me?  Try it.  I have, over and over again;
-
-therefore I speak what I do know, and testify what I have seen.&nbsp;*"The name*&nbsp;
-
-of the God of Jacob defend thee."I was once goaded by a poor silly Irish
-
-papist to try it, who told me, in his consummate ignorance and bigotry, that
-
-if a priest would but give him a drop of holy water, and make a circle with
-
-it around a field full of wild beasts, they would not hurt him.  I retired
-
-in disgust at the abominable trickery of such villains, reflecting, what a
-
-fool I am that I cannot put such trust in my God as this poor deluded man
-
-puts in his priest and a drop of holy water!  And I resolved to try what
-
-&nbsp;*"the name of the God of Jacob"*&nbsp;would do, having the Father's fixed
-
-decrees, the Son's unalterable responsibility, and the Spirit's invincible
-
-grace and operation around me.  I tried it and felt my confidence brighten.
-
-O brethren, get encircled with covenant engagements, and covenant blood, and
-
-covenant grace, and covenant promises, and covenant securities; then will
-
-"the Lord&nbsp;*hear you in the time of trouble, and the name of the God of Jacob*&nbsp;
-
-will defend you."—&nbsp;*Joseph Irons.*&nbsp;
-
-&nbsp;*Verse*&nbsp;1.  A sweeter wish, or a more consolatory prayer for a child of
-
-sorrow was never uttered by man,&nbsp;*"The Lord hear thee in the day of trouble;*&nbsp;
-
-the name of the God of Jacob defend thee."And who is there of the sons of
-
-men to whom a&nbsp;*"day of trouble"*&nbsp;does not come, whose path is not darkened
-
-at times, or with whom is it unclouded sunshine from the cradle to the
-
-grave?  "Few plants," says old Jacomb, "have both the morning and the
-
-evening sun;" and one far older than he said, "Man is born to trouble."  A
-
-&nbsp;*"day of trouble,"*&nbsp;then, is the heritage of every child of Adam.  How
-
-sweet, as I have said, how sweet the wish,&nbsp;*"The Lord hear thee in the day*&nbsp;
-
-of trouble."It is the prayer of another in behalf of some troubled one,
-
-and yet it implies that the troubled one himself had also prayed,&nbsp;*"The Lord*&nbsp;
-
-hear thee"—hear and answer thine own prayer!—&nbsp;*Barton Bouchier.*&nbsp;
-
-&nbsp;*Verses*&nbsp;1, 2.  The scene presented in this place to the eye of faith is
-
-deeply affecting.  Here is the Messiah pouring out his heart in prayer in
-
-the day of his trouble; his spouse overhears his agonising groans; she is
-
-moved with the tenderest sympathy towards him; she mingles her prayers with
-
-his; she entreats that he may be supported and defended. . . . It may
-
-now, perhaps, be said, he is out of the reach of trouble, he is highly
-
-exalted, he does not want our sympathies or our prayers.  True; yet still we
-
-may pray for him—see Matthew 25:40—"Inasmuch as ye have done it unto
-
-one of the least of these my brethren, ye have done it unto me."  We can
-
-pray for him in his members.  And thus is fulfilled what is written in Psalm
-
-72:15, "And he shall live, and to him shall be given of the gold of Sheba;
-
-&nbsp;*prayer*&nbsp;also shall be made for him continually (that is, in his suffering
-
-members); and daily shall he be praised" (that is, in his own admirable
-
-person).—&nbsp;*Hamilton Verschoyle,*&nbsp;1843.
-
-&nbsp;*Verses*&nbsp;1-5.  These are the words of the people, which they spake unto
-
-God in the behalf of their king; and so they did as David desired them,
-
-namely, pray for him.  If they did thus pray for him, being desired
-
-thereunto, and it was their bound duty so to do, and they knew it to be so,
-
-and therefore did make conscience of it, and it had been a great fault for
-
-them to have failed in it; then by consequence it followeth of necessity,
-
-that whensoever any of our brethren or sisters in Christ shall desire this
-
-duty at our hands, we must be careful to perform it; and it were a fault not
-
-to be excused in us, both against God and them, to fail in it.  Therefore we
-
-must not think that when godly men and women at their parting or otherwise,
-
-desire our prayers, and say, "I pray you pray for me," or, "remember me in
-
-your prayers," that these are words of course (though I do not deny, but
-
-that many do so use them, and so doing they take the name of God in vain);
-
-but we should be persuaded, that out of the abundance of their feeling of
-
-their own wants they speak unto us, and so be willing by our prayers to help
-
-to supply them.  And especially we should do it when they shall make known
-
-their estate unto us, as here David did to the people, giving them to
-
-understand that he should or might be in great danger of his enemies, and so
-
-it was&nbsp;*"a time of trouble"*&nbsp;unto him, as he called it. . . . Most of all,
-
-this duty of prayer ought to be carefully performed when we have promised it
-
-unto any upon such notice of their estate.  For as all promises ought to be
-
-kept, yea, though it be to our own hindrance, so those most of all that so
-
-nearly concern them.  And as if when any should desire us to speak to some
-
-great man for them, and we promise to do it, and they trust to it, hoping
-
-that we will be as good as our words; it were a great deceit in us to fail
-
-them, and so to frustrate their expectation; so when any have desired us to
-
-speak to God for them, and upon our promise they would comfort themselves
-
-over it, if we should by negligence deceive them, it were a great fault in
-
-us, and that which the Lord would require at our hands, though they should
-
-never know of it.  Therefore, as we ought daily to pray one for another
-
-unasked, as our Saviour Christ hath taught us, "O our Father which art in
-
-heaven," etc., so more especially and by name should we do it for them that
-
-have desired it of us.  And so parents especially should not forget their
-
-children in their prayers, which daily ask their blessing, and hope to be
-
-blessed of God by their prayers.  Secondarily, if we should neglect to pray
-
-for them that have desired it at our hands, how could we have any hope that
-
-others whom we have desired to pray for us should perform that duty unto us?
-
-Nay, might not we justly fear that they would altogether neglect it, seeing
-
-we do neglect them? and should it not be just with God so to punish us?
-
-according to the saying of our Saviour Christ, "With what measure ye mete,
-
-it shall be measured to you again."  Matthew 7:2.  And I remember that this
-
-was the saying of a reverend father in the church, who is now fallen asleep
-
-in the Lord, when any desired him to pray for them (as many did, and more
-
-than any that I have known), he would say unto them, "I pray you, pray for
-
-me, and pray that I may remember you, and then I hope I shall not forget
-
-you."  Therefore if we would have others pray for us, let us pray for them.—&nbsp;*Nicholas Bownd.*&nbsp;
-
-&nbsp;*Verses*&nbsp;1, 5.  In the first verse the psalmist says,&nbsp;*"The Lord hear thee*&nbsp;
-
-in the day if trouble;"and in the fifth he says,&nbsp;*"The Lord perform all*&nbsp;
-
-thy petitions."Does he in both these cases refer to one and the same
-
-time?  The prayers mentioned in the first verse are offered in&nbsp;*"the day of*&nbsp;
-
-trouble,"in the days of his flesh; are the petitions to which he refers in
-
-the fourth verse also offered in the days of his flesh?  Many think not.
-
-Before our blessed Saviour departed out of this world, he prayed to the
-
-Father for those whom he had given him, that he would keep them from the
-
-evil of the world, that they might be one, even as he was one with the
-
-Father.  He prayed too for his murderers.  After his ascension into heaven,
-
-he sat down at the right hand of the Father, where he "maketh intercession
-
-for us." "If any man sin, we have an advocate with the Father, Jesus Christ,
-
-the righteous."  It is to this, as many think, that the prophet refers when
-
-he says,&nbsp;*"The Lord perform all thy petitions;"*&nbsp;to the intercession which
-
-he is continually making for us.—&nbsp;*F. H. Dunwell.*&nbsp;
-
-&nbsp;*Verse*&nbsp;2.&nbsp;*"Send thee help from the sanctuary."*&nbsp;Here we see the nature
-
-of true faith, that it causeth us to see&nbsp;*help*&nbsp;in&nbsp;*heaven,*&nbsp;and so to pray
-
-for it when there is none to be seen in the earth.  And this is the
-
-difference between faith and unbelief; that the very unbelievers can by
-
-reason conceive of help, so long as they have any means to help them; but if
-
-they fail they can see none at all; so they are like unto those that are
-
-purblind, who can see nothing but near at hand.  But faith seeth afar off,
-
-even into heaven, so that it is "the evidence of things that are not seen;"
-
-for it looketh unto the power of God, who hath all means in his hand, or can
-
-work without them, who made all of nothing, and "calleth the things that be
-
-not, as though they were."  So that as the holy martyr Stephen, when his
-
-enemies were ready to burst for anger, and gnash at him with their teeth,
-
-looked steadfastly into heaven, and saw Christ standing at the right hand of
-
-God ready to defend him; so faith in the promises of the word doth see help
-
-in heaven ready for us, when there are no means in earth,—&nbsp;*Nicholas Bownd.*&nbsp;
-
-&nbsp;*Verse*&nbsp;2.&nbsp;*"Send thee help from the sanctuary."*&nbsp;Why&nbsp;*"from the*&nbsp;
-
-sanctuary,"but because the Lord presented himself there as upon the
-
-mercy-seat!  The sanctuary was in Zion, the mercy-seat was in the sanctuary,
-
-the Lord was in the mercy-seat; he would have himself set forth as residing
-
-there.  Herein they pray, and pray in faith, for help and strength.—&nbsp;*David Clarkson.*&nbsp;
-
-&nbsp;*Verse*&nbsp;2.&nbsp;*"Strengthen theee out of Zion."*&nbsp;That is, out of the
-
-assemblies of the saints, where they are praying hard for thy welfare.—&nbsp;*John Trapp.*&nbsp;
-
-&nbsp;*Verse*&nbsp;3.&nbsp;*"Remember all thy offerings, and accept thy burnt sacrifice."*&nbsp;
-
-"All thy offerings;"the humiliation that brought him from heaven to
-
-earth; the patient tabernacling in the womb of the holy Virgin; the poor
-
-nativity; the hard manger; ox and ass for courtiers; the weary flight into
-
-Egypt; the poor cottage at Nazareth; the doing all good, and bearing all
-
-evil; the miracles, the sermons, the teachings; the being called a man
-
-gluttonous and a wine-bibber, the friend of publicans and sinners; the
-
-attribution of his wondrous deeds to Beelzebub.&nbsp;*"And accept thy burnt*&nbsp;
-
-sacrifice."As every part of the victim was consumed in a burnt sacrifice,
-
-so what limb, what sense of our dear Lord did not agonise in his passion?
-
-The thorny crown on his head; the nails in his hands and feet; the
-
-reproaches that filled his ears; the gloating multitude on whom his dying
-
-gaze rested; the vinegar and the gall; the evil odours of the hill of death
-
-and corruption.  The ploughers ploughed upon his back, and made long
-
-furrows; his most sacred face was smitten with the palm of the hand, his
-
-head with the reed.  What could have been done more for the vineyard than he
-
-did not do in it?  Isaiah 5:4.  So, what more could have been borne by the
-
-vine, that this dear Vine did not bear?&nbsp;*"Remember"*&nbsp;them now, O Father,
-
-call to mind for us sinners, for us miserable sinners, and for our
-
-salvation,&nbsp;*"all"*&nbsp;these&nbsp;*"offerings;" "accept,"*&nbsp;instead of our eternal
-
-punishment, who are guilty, his&nbsp;*"burnt sacrifice,"*&nbsp;who did no sin, neither
-
-was guile found in his mouth!—&nbsp;*Dionysius, and Gerhohus*&nbsp;(1093-1169),&nbsp;*quoted by J. M. Neale.*&nbsp;
-
-&nbsp;*Verse*&nbsp;3.&nbsp;*"Accept:"*&nbsp;Hebrew,&nbsp;*"turn to ashes,"*&nbsp;by fire form heaven, in
-
-token of his acceptance, as was usual.—&nbsp;*Matthew Poole.*&nbsp;
-
-&nbsp;*Verse*&nbsp;3.&nbsp;*"That thy burnt offering may be fat."*&nbsp;That is, abundant,
-
-fruitful, and full.  But here we must understand this burnt offering, as we
-
-did the sacrifice, in a spiritual sense, as we have before observed.  Thus
-
-Christ offered up himself wholly upon the cross to be consumed by the fire
-
-of love.  And here, instead of "all thy sacrifice," it might be rendered
-
-"the whole of thy sacrifice."  Even as burnt sacrifice (&nbsp;*holocaustum*&nbsp;)
-
-signifies the whole of it being burnt with fire.  By which groanings of the
-
-Spirit, he shows and teaches the righteous, that they should pray and hope
-
-that none of their sufferings shall be vain, but that all shall be
-
-well-pleasing, remembered, and fully acceptable.—&nbsp;*Martin Luther.*&nbsp;
-
-&nbsp;*Verse*&nbsp;3.&nbsp;*"Selah."*&nbsp;*  This word, in the judgment of the learned, is
-
-sometime&nbsp;*vox optantis,*&nbsp;the voice of one that wisheth, equivalent to
-
-&nbsp;*amen;*&nbsp;of&nbsp;*vox admirantis,*&nbsp;the voice of one admiring, showing some special
-
-matter; or&nbsp;*vox affirmantis,*&nbsp;of one affirming, avouching what is said; or
-
-&nbsp;*vox meditantis,*&nbsp;of one meditating, requiring consideration of what is
-
-said.  But withal, it is a rest in music.  Jerome saith it is&nbsp;*commutatio*&nbsp;
-
-metri,or&nbsp;*vicissitudo canendi.*&nbsp;—&nbsp;*Edward Marbury.*&nbsp;
-
-* See pages 25, 29, 38.  Psalm 3.
-
-&nbsp;*Verse*&nbsp;4.&nbsp;*"Grant thee according to thine own heart, and fulfil all thy*&nbsp;
-
-counsel."Let us here call to mind the zealous and earnest desire of the
-
-Redeemer to accomplish his work, "I have a baptism to be baptised with; and
-
-how am I straitened till it be accomplished."  Luke 12:50.  "With desire I
-
-have desired to eat this passover with you before I suffer" (Luke 22:15);
-
-that he might leave a memorial of his sufferings and death, for the
-
-strengthening and refreshing of their souls.  These earnest desires and
-
-anticipations did the Father satisfy, as of one with whom he was well
-
-pleased.—&nbsp;*W. Wilson.*&nbsp;
-
-&nbsp;*Verse*&nbsp;4.&nbsp;*"Fulfil all thy counsel;"*&nbsp;whatever was agreed upon in the
-
-counsel and covenant of peace between him and his Father, relating to his
-
-own glory, and the salvation of his people.—&nbsp;*John Gill.*&nbsp;
-
-&nbsp;*Verse*&nbsp;4.&nbsp;*"Fulfil all thy counsel."*&nbsp;Answer thee,&nbsp;*ad cardinem*&nbsp;
-
-desiderii,as a father, Augustine, expresseth it; let it be unto thee even
-
-as thou wilt.  Sometimes God doth not only grant a man's prayer, but
-
-fulfilleth his counsel; that is, in that very way, by that very means, which
-
-his judgment pitched upon in his thoughts.—&nbsp;*John Trapp.*&nbsp;
-
-&nbsp;*Verse*&nbsp;5 (&nbsp;*first clause*&nbsp;).  Whosoever do partake with Christ's subjects in
-
-trouble, shall share with them also in the joy of their deliverance;
-
-therefore it is said,&nbsp;*"We will rejoice in thy salvation."*&nbsp;—&nbsp;*David Dickson.*&nbsp;
-
-&nbsp;*Verse*&nbsp;5.&nbsp;*"In the name of our God."*&nbsp;As those cried out, Judges 7:20,
-
-"The sword of the Lord and of Gideon;" and as we have it in Joshua 6:20,
-
-"And the people shouted, and the walls of Jericho fell down;" and king
-
-Abiah, crying out with his men in the same, killed five hundred thousand of
-
-the children of Israel; and so now also, according to the military custom in
-
-our day, the soldiers boast in the name and glory of their general, in order
-
-to encourage themselves against their enemies.  And it is just this custom
-
-that the present verse is now teaching, only in a godly and religious
-
-manner.—&nbsp;*Martin Luther.*&nbsp;
-
-&nbsp;*Verse*&nbsp;5.&nbsp;*"In the name of our God we will set up our banners."*&nbsp;The
-
-banners formerly so much used were a part of military equipage, borne in
-
-times of war to assemble, direct, distinguish, and encourage the troops.
-
-They might possibly be used for other purposes also.  Occasions of joy,
-
-splendid processions, and especially a royal habitation, might severally be
-
-distinguished in this way.  The words of the psalmist may perhaps be wholly
-
-figurative: but if they should be literally understood, the allusion of
-
-erecting a banner in the name of the Lord, acknowledging his glory, and
-
-imploring his favour, might be justified from an existing practice.  Certain
-
-it is that we find this custom prevalent on this very principle in other
-
-places, into which it might originally have been introduced from Judea.
-
-Thus Mr. Turner (&nbsp;*Embassy to Thibet*&nbsp;, p. 31), says, "I was told that it was
-
-a custom with the Soobah to ascend the hill every month, when he sets up a
-
-white flag, and performs some religious ceremonies, to conciliate the favour
-
-of a dewata, or invisible being, the genius of the place, who is said to
-
-hover about the summit, dispensing at his will, good and evil to every thing
-
-around him.—&nbsp;*Samuel Burder's "Oriental Customs,"*&nbsp;1812.
-
-&nbsp;*Verse*&nbsp;5.&nbsp;*"In the name of our God we will set up our banners."*&nbsp;In all
-
-religious as well as warlike processions the people carry banners.  Hence,
-
-on the pinnacles of their sacred cars, on the domes or gateways of their
-
-temples, and on the roof of a new house, may be seen the banner of the caste
-
-of sect, floating in the air.  Siva the Supreme, also, is described as
-
-having a banner in the celestial world.—&nbsp;*Joseph Robert's "Oriental Illustrations".*&nbsp;
-
-&nbsp;*Verse*&nbsp;5.&nbsp;*"In the name of our God we will set up our banners."*&nbsp;1.  We
-
-will wage war in his name, we will see that our cause be good, and make his
-
-glory our end in every expedition; we will ask counsel at his mouth, and
-
-take him along with us; we will follow his conduct, implore his aid, and
-
-depend upon it, and refer the issue to him.  David went against Goliath in
-
-the name of the Lord of hosts.  1 Samuel 17:45.  2. We will celebrate our
-
-victories in his name.  When&nbsp;*"we lift up our banners"*&nbsp;in triumph, and set
-
-up our trophies, it shall be&nbsp;*"in the name of our God,"*&nbsp;he shall have all
-
-the glory of our success, and no instrument shall have any part of the
-
-honour that is due to him.—&nbsp;*Matthew Henry.*&nbsp;
-
-&nbsp;*Verse*&nbsp;5.&nbsp;*"'We will set up our banners."*&nbsp;Confession of Christ, as the
-
-only name whereby we can be saved, is the&nbsp;*"banner"*&nbsp;which distinguishes his
-
-faithful people.  O that this confession were more distinct, more pure, more
-
-zealous, in those who seem to be his followers, then would they be more
-
-united, more bold, in the profession of their religion, more successful in
-
-the cause of Christ, terrible as an army with&nbsp;*"banners."*&nbsp;Canticles 5:4.—&nbsp;*W. Wilson.*&nbsp;
-
-&nbsp;*Verse*&nbsp;5.&nbsp;*"Our banners."*&nbsp;Will you know the staff, the colours, and the
-
-flag or streamer of this ensign?  Why, the staff is his cross, the colours
-
-are blood and water, and the streamer the gospel, or preaching of them to
-
-the world.  The staff that carried the colours, was of old time fashioned
-
-like a cross, a cross bar near the top there was, from which the flag or
-
-streamer hung; so as it were prefiguring, that all the hosts and armies of
-
-the nations were one day to be gathered under the&nbsp;*banner of the cross,*&nbsp;to
-
-which soldiers should daily flow out of all the nations and kingdoms of the
-
-earth.—&nbsp;*Mark Frank,*&nbsp;1613-1664.
-
-&nbsp;*Verse*&nbsp;5.&nbsp;*"The Lord fulfil all thy petitions,"*&nbsp;for thyself and for
-
-others, now that thou sittest on the right hand of the Father, pleading for
-
-us and showing thy side and thy wounds.—&nbsp;*Dionysius, quoted by Isaac Williams.*&nbsp;
-
-&nbsp;*Verse*&nbsp;6.&nbsp;*"Now know I."*&nbsp;A sudden change of number, speaking in the
-
-person of one, thereby to note the unity and consent of the people to this
-
-prayer, as though they had been all one, and uttered it all with one mouth.
-
-&nbsp;*"The Lord will help his anointed;"*&nbsp;that is, his king, whom he hath
-
-established.  See Psalm 2:2; 18:50.&nbsp;*"And will hear him*&nbsp;(see verse 1),
-
-&nbsp;*from his sanctuary."*&nbsp;One readeth it thus—"from the heavens of his
-
-holiness;" meaning, from heaven where his holiness dwelleth.—&nbsp;*Thomas Wilcocks.*&nbsp;
-
-&nbsp;*Verse*&nbsp;6.&nbsp;*"He will hear him."*&nbsp;I would be glad of the prayers of all the
-
-churches of Christ; O that there were not a saint on earth but that I were
-
-by name in his morning and evening prayer (whosoever that art that readest,
-
-I beseech thee pray for me); but above all, let me have a property in those
-
-prayers and intercessions that are proper only to&nbsp;*Christ;*&nbsp;I am sure then I
-
-should never miscarry: Christ's prayers are heavenly, glorious, and very
-
-effectual.—&nbsp;*Isaac Ambrose,*&nbsp;1592-1674.
-
-&nbsp;*Verse*&nbsp;6.&nbsp;*"His anointed."*&nbsp;As priests, and sometimes kings and prophets,
-
-were among the Jews&nbsp;*anointed*&nbsp;to their offices, so our Saviour was anointed
-
-as a Prophet, to preach glad tidings to the meek; as a Priest, to bind up
-
-the broken-hearted; and as a King to deliver the captives.  As the unction
-
-means designation and ordination, it is properly applied to the divine
-
-person of the Mediator: he is spoken of as God, who was "anointed with the
-
-oil of gladness above his fellows."  Hebrews 1:8, 9.  As the anointing with
-
-the Holy Spirit signifies the&nbsp;*gifts*&nbsp;and&nbsp;*aids*&nbsp;of the Holy Spirit, it
-
-terminates upon his human nature only, and not his divine person, which has
-
-all the perfections in itself, and cannot properly, in the sense last
-
-mentioned, be said to be anointed with the Holy Spirit.  But yet as the
-
-human nature is taken into a subsistence in his divine Person, the anointed
-
-may properly enough be predicated and affirmed of his Person.  The unction
-
-of our Redeemer has a great&nbsp;*stress*&nbsp;laid upon it in Scripture.  And
-
-therefore we read, "Whosoever believeth that Jesus is the Christ, is born of
-
-God."  "Who is a liar but he that denieth that Jesus is the Christ?"  1 John
-
-5:1; 2:22.  Our Saviour's enemies were sensible of this, when they made an
-
-order, that if "any man did confess that he was Christ, he should be put out
-
-out of the synagogue."  John 9:22.  Our Saviour's anointing was&nbsp;*superior*&nbsp;
-
-to that of any other, and more excellent as to the work to which he was
-
-consecrated.  The apostles and others, who are called his followers, had the
-
-Spirit&nbsp;*by measure,*&nbsp;but Christ&nbsp;*without measure.*&nbsp;He is "fairer than the
-
-sons of men" (Psalm 45:2); and had a glory as the "only begotten of the
-
-Father, full of grace and truth" (John 1:14, 16); and of his fullness the
-
-apostles and all others receive.  Christ's anointing answers to that of
-
-Aaron his type; the precious ointment which was "poured upon his head, ran
-
-down to the skirts of his garments."  Psalm 133:2.  Our Saviour was so
-
-anointed, as to "fill all in all."  Ephesians 1:23.  He filleth all his
-
-members, and all their faculties, with all those measures of the Spirit,
-
-which they ever receive.—&nbsp;*Condensed from John Hurrion,*&nbsp;1675-1731.
-
-&nbsp;*Verse*&nbsp;7.&nbsp;*"Some trust in chariots, and some in horses: but we will*&nbsp;
-
-remember the name of the Lord our God."About Michaelmas I was in the
-
-utmost extremity, and having gone out in very fine weather, I contemplated
-
-the azure heavens, and my heart was so strengthened in faith (which I do not
-
-ascribe to my own powers, but solely to the grace of God), that I thought
-
-within myself, "What an excellent thing it is when we have nothing, and can
-
-rely upon nothing, but yet are acquainted with the living God, who made
-
-heaven and earth, and place our confidence alone in him, which enables us to
-
-be so tranquil even in necessity!"  Although I was well aware that I
-
-required something that very day, yet my heart was so strong in faith that I
-
-was cheerful, and of good courage.  On coming home I was immediately waited
-
-upon by the overseer of the workmen and masons, who, as it was Saturday,
-
-required money to pay their wages.  He expected the money to be ready, which
-
-he wished to go and pay, but enquired, however, whether I had received
-
-anything.  "Has anything arrived?"  asked he.  I answered, "No, but I have
-
-faith in God."  Scarcely had I uttered the words when a student was
-
-announced, who brought me thirty dollars from some one, whom he would not
-
-name.  I then went into the room again, and asked the other "how much he
-
-required this time for the workmen's wages?"  He answered, "Thirty dollars."
-
-"Here they are," said I, and enquired at the same time, "if he needed any
-
-more?"  He said, "No," which very much strengthened the faith of both of us,
-
-since we so visibly saw the miraculous hand of God, who sent it at the very
-
-moment when it was needed.—&nbsp;*Augustus Herman Frank,*&nbsp;1663-1727.
-
-&nbsp;*Verse*&nbsp;7.&nbsp;*"Some trust in chariots,"*&nbsp;etc.  Vain is the confidence of all
-
-wickedness.  In war, chariots, horses, navies, numbers, discipline, former
-
-successes, are relied on; but the battle is not to the strong.  "Providence
-
-favours the strong battalions" may sound well in a worldling's ear, but
-
-neither Providence nor the Bible so teaches.  In peace, riches, friends,
-
-ships, farms, stocks, are relied upon, yet they can neither help nor save.
-
-Let him that glorieth glory in the Lord.—&nbsp;*William S. Plumer.*&nbsp;
-
-&nbsp;*Verse*&nbsp;7.&nbsp;*"We will remember the name of the Lord our God."*&nbsp;By&nbsp;*the name*&nbsp;
-
-of Godis generally understood, in Holy Writ, the various properties and
-
-attributes of God:  these properties and attributes make up and constitute
-
-the&nbsp;*name*&nbsp;of God.  As when Solomon says, "The name of the Lord is a strong
-
-tower; the righteous runneth into it and is safe."  And, by remembering,
-
-considering, meditating upon this name of God, the psalmist represents
-
-himself as comforted or strengthened, whatever might be the duties to which
-
-he was called, or the dangers to which he was exposed.  Others were for
-
-looking to other sources of safety and strength, "some trusting in chariots,
-
-and some in horses;" but the psalmist always set himself to the "remembering
-
-the name of the Lord our God;" and always, it would seem, with satisfaction
-
-and success.  And here is the peculiarity of the passage on which we wish to
-
-dwell, and from which we hope to draw important lessons and truths—the
-
-psalmist "remembers the name of the Lord his God;" not any one property or
-
-attribute of God; but the whole combination of divine perfections.  And he
-
-&nbsp;*"remembers"*&nbsp;this "name;" the expression implying, not a transient thought,
-
-but meditation—consideration; and yet the result of the recollection is
-
-gladness and confidence.—&nbsp;*Henry Melvill.*&nbsp;
-
-&nbsp;*Verse*&nbsp;7.  It is easy to persuade papists to lean on priests and saints, on
-
-old rags and painted pictures—on any idol; but it is hard to get a
-
-Protestant to trust in the living God.—&nbsp;*William Arnot,*&nbsp;1858.
-
-&nbsp;*Verse*&nbsp;7.  Weak man cannot choose but have some confidence without himself
-
-in case of apparent difficulties, and natural men do look first to some
-
-earthly thing wherein they confide.&nbsp;*"Some trust in chariots, and some in*&nbsp;
-
-horses,"some in one creature, some in another.  The believer must quit his
-
-confidence in these things, whether he have them or want them, and must rely
-
-on what God hath promised in his word to do unto us.&nbsp;*"But we will remember*&nbsp;
-
-the name of the Lord our God."—&nbsp;*David Dickson.*&nbsp;
-
-&nbsp;*Verse*&nbsp;7.  They that&nbsp;*"trust in chariots and horses,"*&nbsp;will have no king
-
-but Caesar; but the "armies in heaven" which follow thee have themselves no
-
-arms, and no strength but in following thee.—&nbsp;*Isaac Williams.*&nbsp;
-
-&nbsp;*Verse*&nbsp;7.  Numa being told that his enemies were coming upon him, as he was
-
-offering sacrifices, thought it was sufficient for his safety that he could
-
-say, I am about the service of my God.  When Jehoshaphat had once
-
-established a preaching ministry in all the cities of Judah, then, and not
-
-till then, the fear of the Lord fell on the neighbouring nations, and they
-
-made no war; albeit, he had before that placed forces in all the fenced
-
-cities.—&nbsp;*Charles Bradbury.*&nbsp;
-
-&nbsp;*Verse*&nbsp;7.
-
-Some their warrior horses boast,
-
-Some their chariots' marshall'd host;
-
-But our trust we will proclaim
-
-In our God Jehovah's name."
-
-&nbsp;*Richard Mant.*&nbsp;
-
-&nbsp;*Verse*&nbsp;8.&nbsp;*"They are brought down,"*&nbsp;from their horses and chariots in
-
-which they trusted.  Hebrew:&nbsp;*they bowed down,*&nbsp;as being unable to stand
-
-longer because of their mortal wounds.  Compare Judges 5:27.&nbsp;*"Stand*&nbsp;
-
-upright."Standing firmly upon our legs, and keeping the field, as
-
-conquerors use to do.—&nbsp;*Matthew Poole.*&nbsp;
-
-## HINTS TO THE VILLAGE PREACHER
-
-This Psalm has been much used for coronation, thanksgiving, and fast
-
-sermons, and no end of nonsense and sickening flattery has been tacked
-
-thereto by the trencher-chaplains of the world's church.  If kings had been
-
-devils, some of these gentry would have praised their horns and hoofs; for
-
-although some of their royal highnesses have been very obedient servants of
-
-the prince of darkness, these false prophets have dubbed them "most gracious
-
-sovereigns," and have been as much dazzled in their presence as if they had
-
-beheld the beatific vision.—&nbsp;*C. H. S.*&nbsp;
-
-&nbsp;*Whole Psalm.*&nbsp;A loyal song and prayer for subjects of King Jesus.
-
-&nbsp;*Verse*&nbsp;1.  Two great mercies in great trouble—hearing at the throne,
-
-and defence from the throne.
-
-&nbsp;*Verses*&nbsp;1, 2.
-
-I.  The Lord's trouble in its nature and its cause.
-
-II.  How the Lord exercised himself in his trouble.
-
-III.  We ought not to be unmoved spectators of the trouble of Jesus.
-
-&nbsp;*Hamilton Verschoyle.*&nbsp;
-
-&nbsp;*Verses*&nbsp;1-3.  A model of good wishes for our friends.
-
-I.&nbsp;*They include personal piety.*&nbsp;The person
-
-who is spoken of prays, goes to the sanctuary, and offers sacrifice.  We must
-
-wish our friend grace.
-
-II.&nbsp;*They point upward.*&nbsp;The
-
-blessings are distinctly recognised as divine.
-
-III.&nbsp;*They do not exclude trouble.*&nbsp;
-
-IV.&nbsp;*They are eminently spiritual.*&nbsp;Acceptance, etc.
-
-&nbsp;*Verse*&nbsp;2.  Sanctuary help—a suggestive topic.
-
-&nbsp;*Verse*&nbsp;3.  God's ceaseless respect to the sacrifice of Jesus.
-
-&nbsp;*Verses*&nbsp;3, 4.  The great privilege of this fourfold acceptance in the Beloved.
-
-&nbsp;*Verse*&nbsp;5.  Joy in salvation, to be resolved on and practised.
-
-&nbsp;*Verse*&nbsp;5.&nbsp;*Setting up the banner.*&nbsp;Open avowal of allegiance, declaration
-
-of war, index of perseverance, claim of possession, signal of triumph.
-
-&nbsp;*Verse*&nbsp;5 (&nbsp;*last clause*&nbsp;).  The prevalence of our Lord's intercession, and
-
-the acceptance of our prayers through him.
-
-&nbsp;*Verse*&nbsp;6.&nbsp;*"His anointed."*&nbsp;Our Lord as the Anointed.  When?  With what
-
-unction?  How?  For what offices? etc.
-
-&nbsp;*Verse*&nbsp;6.&nbsp;*"He will hear him."*&nbsp;The ever-prevalent Intercessor.
-
-&nbsp;*Verse*&nbsp;6.  God's&nbsp;*"saving strength;"*&nbsp;the strength of his most used and
-
-most skilful hand.
-
-&nbsp;*Verse*&nbsp;6 (&nbsp;*first clause*&nbsp;).&nbsp;*"Now know I."*&nbsp;The moment when faith in Jesus
-
-fills the soul.  The time when assurance is given.  The period when a truth
-
-gleams into the soul. etc.
-
-&nbsp;*Verse*&nbsp;7.&nbsp;*Creature confidence.*&nbsp;Apparently mighty, well adapted, showy,
-
-noisy, etc.&nbsp;*Faithful trust.*&nbsp;Silent, spiritual, divine, etc.
-
-&nbsp;*Verse*&nbsp;7.&nbsp;*"The name of the Lord our God."*&nbsp;Comfortable reflections from
-
-the name and character of the true God.
-
-&nbsp;*Verse*&nbsp;8.&nbsp;*Tables turned.*&nbsp;
-
-&nbsp;*Verse*&nbsp;9.&nbsp;*"Save, Lord."*&nbsp;One of the shortest and most pithy prayers in
-
-the Bible.
-
-&nbsp;*Verse*&nbsp;9.  (&nbsp;*last clause*&nbsp;).
-
-I.  To whom we come, and what then.&nbsp;*"To a king."*&nbsp;
-
-II.  How we come, and what it means.&nbsp;*"We call."*&nbsp;
-
-III.  What we want, and what it implies.&nbsp;*"Hear us."*&nbsp;
-
-## WORK UPON THE TWENTIETH PSALM
-
-&nbsp;*"Medicines for the plague;*&nbsp;that is, Godly and Fruitful Sermons upon
-
-part of the Twentieth Psalme, full of instructions and comfort; very fit
-
-generally for all times of affliction, but more particularly applied to this
-
-late visitation of the Plague.  Preached at the same time at Norton in
-
-Suffolke, by NICHOLAS BOWND, Doctor of Divinite. . . . 1604."
-
-[Twenty-one Sermons on verses 1-6.  4to.]
-
+*"Medicines for the plague;* that is, Godly and Fruitful Sermons upon part of the Twentieth Psalme, full of instructions and comfort; very fit generally for all times of affliction, but more particularly applied to this late visitation of the Plague. Preached at the same time at Norton in Suffolke, by NICHOLAS BOWND, Doctor of Divinite. . . . 1604." [Twenty-one Sermons on verses 1-6. 4to.] 

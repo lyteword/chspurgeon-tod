@@ -1,1508 +1,159 @@
----
-weight: 21
----
+--- 
+weight: 21 
+--- 
 
-# Psalm 21
+# Psalm 21 
 
-SUBJECT.&nbsp;*The title gives us but little information; it is simply,*&nbsp;To the
+SUBJECT. *The title gives us but little information; it is simply,* To the chief Musician, a Psalm of David. *Probably written by David, sung by* David, relating to David, and intended by David to refer in its fullest reach of meaning to David's Lord. It is evidently the fit companion of Psalm Twenty, and is in its proper position next to it. Psalm Twenty anticipates what this regards as realized. If we pray to-day for a benefit and receive it, we must, ere the sun goes down, praise God for that mercy, or we deserve to be denied the next time. It has been called David's triumphant song, and we may remember it asThe Royal Triumphal Ode. *"The* king" is most prominent throughout, and we shall read it to true profit if our meditation of him shall be sweet while perusing it. We must crown him with the glory of our salvation; singing of his love, and praising his power, The next psalm will take us to the foot of the cross, this introduces us to the steps of the throne. 
 
-chief Musician, a Psalm of David.&nbsp;*Probably written by David, sung by*&nbsp;
+DIVISION. *The division of the translators will answer every purpose. A* thanksgiving for victory, verses 1 to 6. Confidence of further success, verses 7 to 13. 
 
-David, relating to David, and intended by David to refer in its fullest
+## EXPOSITION 
 
-reach of meaning to David's Lord.  It is evidently the fit companion of
+Verse 1. *"The king shall joy in thy strength, O Lord."* Jesus is a Royal Personage. The question, "Art thou a King then?" received a full answer from the Saviour's lips: "Thou sayest that I am a King. To this end was I born, and for this purpose came I into the world, that I might bear witness unto the truth." He is not merely *a* King, but *the* King; King over minds and hearts, reigning with a dominion of love, before which all other rule is but mere brute force. He was proclaimed King even on the cross, for there, indeed, to the eye of faith, he reigned as on a throne, blessing with more than imperial munificence the needy sons of earth. Jesus has wrought out the salvation of his people, but as a man he found his strength in Jehovah his God, to whom he addressed himself in prayer upon the lonely mountain's side, and in the garden's solitary gloom. That strength so abundantly given is here gratefully acknowledged, and made the subject of joy. The Man of Sorrows is now anointed with the oil of gladness above his fellows. Returned in triumph from the overthrow of all his foes, he offers his own rapturous *Te Deum* in the temple above, and joys in the power of the Lord. Herein let every subject of King Jesus imitate the King; let us lean upon Jehovah's strength, let us joy in it by unstaggering faith, let us exult in it in our thankful songs. Jesus not only has thus rejoiced, but he *shall* do so as he sees the power of divine grace bringing out from their sinful hiding-places the purchase of his soul's travail; we also shall rejoice more and more as we learn by experience more and more fully the strength of the arm of our covenant God. Our weakness unstrings our harps, but his strength tunes them anew. If we cannot sing a note in honour of our own strength, we can at any rate rejoice in our omnipotent God. *"And in thy salvation how greatly shall he rejoice!"* Everything is ascribed to God; the source is *thy strength* and the stream is *thy* salvation.Jehovah planned and ordained it, works it and crowns it, and therefore it is his salvation. The joy here spoken of is described by a note of exclamation and a word of wonder: *"how greatly!"* The rejoicing of our risen Lord must, like his agony, be unutterable. If the mountains of his joy rise in proportion to the depth of the valleys of his grief, then his sacred bliss is high as the seventh heaven. For the joy which was set before him as he endured the cross, despising the shame, and now that joy daily grows, for he rests in his love and rejoices over his redeemed with singing, as in due order they are brought to find their salvation in his blood. Let us with our Lord rejoice in salvation, as coming from God, as coming to us, as extending itself to others, and as soon to encompass all lands. We need not be afraid of too much rejoicing in this respect; this solid foundation will well sustain the loftiest edifice of joy. The shoutings of the early methodists in the excitement of the joy were far more pardonable than our own lukewarmness. Our joy should have some sort of inexpressibleness in it. 
 
-Psalm Twenty, and is in its proper position next to it.  Psalm Twenty
+Verse 2. *"Thou hast given him his heart's desire."* That desire he ardently pursued when he was on earth, both by his prayer, his actions, and his suffering; he manifested that his heart longed to redeem his people, and now in heaven he has his desire granted him, for he sees his beloved coming to be with him where he is. The desires of the Lord Jesus were from his heart, and the Lord heard them; if our hearts are right with God, he will in our case also "fulfil the desires of them that fear him." *"And hast not withholden the request of his lips."* What is in the well of the heart is sure to come up in the bucket of the lips, and those are the only true prayers where the heart's desire is first, and the lip's request follows after. Jesus prayed vocally as well as mentally; speech is a great assistance to thought. Some of us feel that even when alone we find it easier to collect our thoughts when we can pray aloud. The requests of the Saviour were not withheld. He was and still is a prevailing Pleader. Our Advocate on high returns not empty from the throne of grace. He asked for his elect in the eternal council-chamber, he asked for blessings for them here, he asked for glory for them hereafter, and his requests have speeded. He is ready to ask for us at the mercy-seat. Have we not at this hour some desire to send up to his Father by him? Let us not be slack to use our willing, loving, all-prevailing Intercessor. *"Selah."* Here a pause is very properly inserted that we may admire the blessed success of the king's prayers, and that we may prepare our own requests which may be presented through him. If we had a few more quiet rests, a few more Selahs in our public worship, it might be profitable. 
 
-anticipates what this regards as realized.  If we pray to-day for a benefit
+Verse 3. *"For thou preventest him with the blessings of goodness."* The word *prevent* formerly signified to precede or go before, and assuredly Jehovah preceded his Son with blessings. Before he died saints were saved by the anticipated merit of his death, before he came believers saw his day and were glad, and he himself had his delights with the sons of men. The Father is so willing to give blessings through his Son, that instead of his being constrained to bestow his grace, he outstrips the Mediatorial march of mercy. "I say not that I will pray the Father for you, for the Father himself loveth you." Before Jesus calls the Father answers, and while he is yet speaking he hears. Mercies may be bought with blood, but they are also freely given. The love of Jehovah is not caused by the Redeemer's sacrifice, but that love, with its blessings of goodness, preceded the great atonement, and provided it for our salvation. Reader, it will be a happy thing for thee if, like thy Lord, thou canst see both providence and grace preceding thee, forestalling thy needs, and preparing thy path. Mercy, in the case of many of us, ran before our desires and prayers, and it ever outruns our endeavours and expectancies, and even our hopes are left to lag behind. Prevenient grace deserves a song; we may make one out of this sentence; let us try. All our mercies are to be viewed as *"blessings;"* gifts of a blessed God, meant to make us blessed; they are *"blessings of* goodness,"not of merit, but of free favour; and they come to us in a *preventing way,* a way of prudent foresight, such as only preventing love could have arranged. In this light the verse is itself a sonnet! *"Thou settest a crown of pure gold on his head."* Jesus wore the thorn-crown, but now wears the glory-crown. It is a *"crown,"* indicating royal nature, imperial power, deserved honour, glorious conquest, and divine government. The crown is of the richest, rarest, most resplendent, and most lasting order— *"gold,"* and that gold of the most refined and valuable sort, *"pure gold,"* to indicate the excellence of his dominion. This crown is set upon his head most firmly, and whereas other monarchs find their diadems fitting loosely, his is fixed so that no power can move it, for Jehovah himself has set it upon his brow. Napoleon crowned himself, but Jehovah crowned the Lord Jesus; the empire of the one melted in an hour, but the other has an abiding dominion. Some versions read, "a crown of precious stones;" this may remind us of those beloved ones who shall be as jewels in his crown, of whom he has said, "They shall be mine in the day when I make up my jewels." May we be set in the golden circlet of the Redeemer's glory, and adorn his head for ever! 
 
-and receive it, we must, ere the sun goes down, praise God for that mercy,
+Verse 4. *"He asked life of thee, and thou gavest it him, even length of* days for ever and ever."The first words may suit King David, but the length of days for ever and ever can only refer to the King Messiah. Jesus, as man, prayed for resurrection and he received it, and now possesses it in immortality. He died once, but being raised from the dead he dieth no more. "Because I live, ye shall live also," is the delightful intimation which the Saviour gives us, that we are partakers of his eternal life. We had never found this jewel, if he had not rolled away the stone which covered it. 
 
-or we deserve to be denied the next time.  It has been called David's
+Verse 5. *"His glory is great in thy salvation."* Immanuel bears the palm; he once bore the cross. The Father has glorified the Son, so that there is no glory like unto that which surroundeth him. See his person as it is described by John in the Revelation; see his dominion as it stretches from sea to sea; see his splendour as he is revealed in flaming fire. Lord, who is like unto thee? Solomon in all his glory could not be compared with thee, thou once despised Man of Nazareth! Mark, reader: salvation is ascribed to God; and thus the Son, as our Saviour, magnifies his Father; but the Son's glory is also greatly seen, for the Father glorifies his Son. *"Honour and majesty hast thou laid upon him."* Parkhurst reads, "splendour and beauty." These are put upon Jesus as chains of gold, and stars and tokens of honour are placed upon princes and great men. As the wood of the tabernacle was overlaid with pure gold, so is Jesus covered with glory and honour. If there be a far more exceeding and eternal weight of glory for his humble followers, what must there be for our Lord himself? The whole weight of sin was laid upon him; it is but meet that the full measure of the glory of bearing it away should be laid upon the same beloved person. A glory commensurate with his shame he must and will receive, for well has he earned it. It is not possible for us to honour Jesus too much; what our God delights to do, we may certainly do to our utmost. Oh for new crowns for the lofty brow which once was marred with thorns! Let him be crowned with majesty Who bowed his head to death, And be his honours sounded high By all things that have breath." 
 
-triumphant song, and we may remember it asThe Royal Triumphal Ode.&nbsp;*"The*&nbsp;
+Verse 6. *"For thou hast made him most blessed for ever."* He is most blessed in himself, for he is God over all, blessed for ever; but this relates to him as our Mediator, in which capacity blessedness is given to him as a reward. The margin has it, *thou hast set him to be blessings;* he is an overflowing wellspring of blessings to others, a sun filling the universe with light. According as the Lord sware unto Abraham, the promised seed is an everlasting source of blessings to all the nations of the earth. He is set for this, ordained, appointed, made incarnate with this very design, that he may bless the sons of men. Oh that sinners had sense enough to use the Saviour for that end to which he is ordained, viz., to be a Saviour to lost and guilty souls. *"Thou hast made him exceeding glad with thy countenance."* He who is a blessing to others cannot but be glad himself; the unbounded good-doing of Jesus ensures him unlimited joy. The loving favour of his Father, the countenance of God, gives Jesus exceeding joy. This is the purest stream to drink of, and Jesus chooses no other. His joy is full. Its source is divine. Its continuance is eternal. Its degree exceeding all bounds. The countenance of God makes the Prince of Heaven glad; how ought we to seek it, and how careful should we be lest we should provoke him by our sins to hide his face from us! Our anticipations may cheerfully fly forward to the hour when the joy of our Lord shall be shed abroad on all the saints, and the countenance of Jehovah shall shine upon all the blood-bought. So shall we "enter into the joy of our Lord." So far all has been "the shout of them that triumph, the song of them that feast." Let us shout and sing with them, for Jesus is our King, and in his triumphs we share a part. 
 
-king" is most prominent throughout, and we shall read it to true profit if
+Verse 7. *"For the king trusteth in the Lord."* Our Lord, like a true King and leader, was a master in the use of the weapons, and could handle well the shield of faith, for he has set us a brilliant example of unwavering confidence in God. He felt himself safe in his Father's care until his hour was come, he knew that he was always heard in heaven; he committed his cause to him that judgeth right, and in his last moments he committed his spirit into the same hands. The joy expressed in the former verses was the joy of faith, and the victory achieved was due to the same precious grace. A holy confidence in Jehovah is the true mother of victories. This psalm of triumph was composed long before our Lord's conflict began, but faith overleaps the boundaries of time, and chants her "Io triumphe," while yet she sings her battle song. *"Through the mercy of the Most High he shall not be moved."* Eternal mercy secures the mediatorial throne of Jesus. He who is Most High in every sense, engages all his infinite perfections to maintain the throne of grace upon which our King in Zion reigns. He was not moved *from* his purpose, nor *in* his sufferings, nor *by* his enemies, nor shall he be moved *from* the completion of his designs. He is the same yesterday, to-day, and for ever. Other empires are dissolved by the lapse of years, but eternal mercy maintains his growing dominion evermore; other kings fail because they rest upon an arm of flesh, but our monarch reigns on in splendour because he trusteth in Jehovah. It is a great display of divine mercy to men that the throne of King Jesus is still among them: nothing but divine mercy could sustain it, for human malice would overturn it to-morrow if it could. We ought to trust in God for the promotion of the Redeemer's kingdom, for in Jehovah the King himself trusts: all unbelieving methods of action, and especially all reliance upon mere human ability, should be for ever discarded from a kingdom where the monarch sets the examples of walking by faith in God. 
 
-our meditation of him shall be sweet while perusing it.  We must crown him
+Verse 8. *"Thine hand shall find out all thine enemies: thy right hand* shall find out those that hate thee."The destruction of the wicked is a fitting subject for joy to the friends of righteousness; hence here, and in most scriptural songs, it is noted with calm thanksgiving. "Thou hast put down the mighty from their seats," is a note of the same song which sings, "and hast exalted them of low degree." We pity the lost for they are men, but we cannot pity them as enemies of Christ. None can escape from the wrath of the victorious King, nor is it desirable that they should. Without looking for his flying foes he will find them with his hand, for his presence is about and around them. In vain shall any hope for escape, he will find out all, and be able to punish all, and that too with the ease and rapidity which belong to the warrior's right hand. The finding out relates, we think, not only to the discovery of the hiding places of the haters of God, but to the touching of them in their tenderest parts, so as to cause the severest suffering. When he appears to judge the world hard hearts will be subdued into terror, and proud spirits humbled into shame. He who has the key of human nature can touch all its springs at his will, and find out the means of bringing the utmost confusion and terror upon those who aforetime boastfully expressed their hatred of him. 
 
-with the glory of our salvation; singing of his love, and praising his
+Verse 9. *"Thou shalt make them as a fiery oven in the time of thine* anger."They themselves shall be an oven to themselves, and so their own tormentors. Those who burned with anger against thee shall be burned by thine anger. The fire of sin will be followed by the fire of wrath. Even as the smoke of Sodom and Gomorrah went up to heaven, so shall the enemies of the Lord Jesus be utterly and terribly consumed. Some read it, "thou shalt put them as it were into a furnace of fire." Like faggots cast into an oven they shall burn furiously beneath the anger of the Lord; "they shall be cast into a furnace of fire, there shall be weeping and gnashing of teeth." These are terrible words, and those teachers do not well who endeavour by their sophistical reasonings to weaken their force. Reader, never tolerate slight thoughts of hell, or you will soon have low thoughts of sin. The hell of sinners must be fearful beyond all conception, or such language as the present would not be used. Who would have the Son of God to be his enemy when such an overthrow awaits his foes? The expression, "the time of thine anger," reminds us that as now is the time of his grace, so there will be a set time for his wrath. The judge goes upon assize at an appointed time. There is a day of vengeance of our God; let those who despise the day of grace remember this day of wrath. *"The Lord shall swallow them up in his wrath, and the fire shall devour* them."Jehovah will himself visit with his anger the enemies of his Son. The Lord Jesus will, as it were, judge by commission from God, whose solemn assent and co-operation shall be with him in his sentences upon impenitent sinners. An utter destruction of soul and body, so that both shall be swallowed up with misery, and be devoured with anguish, is here intended. Oh, the wrath to come! The wrath to come! Who can endure it? Lord, save us from it, for Jesu's sake. 
 
-power,  The next psalm will take us to the foot of the cross, this
+Verse 10. *"Their fruit shalt thou destroy from the earth."* Their life's work shall be a failure, and the result of their toil shall be disappointment. That in which they prided themselves shall be forgotten; their very names shall be wiped out as abominable, *"and their seed from* among the children of men."Their posterity following in their footsteps shall meet with a similar overthrow, till at last the race shall come to an end. Doubtless the blessing of God is often handed down by the righteous to their sons, as almost a heirloom in the family, while the dying sinner bequeaths a curse to his descendants. If men will hate the Son of God, they must not wonder if their own sons meet with no favour. 
 
-introduces us to the steps of the throne.
+Verse 11. *"For they intended evil against thee."* God takes notice of intentions. He who would but could not is as guilty as he who did. Christ's church and cause are not only attacked by those who do not understand it, but there are many who have the light and yet hate it. Intentional evil has a virus in it which is not found in sins of ignorance; now as ungodly men with malice aforethought attack the gospel of Christ, their crime is great, and their punishment will be proportionate. The words *"against thee"* show us that he who intends evil against the poorest believer means ill to the King himself: let persecutors beware. *"They imagined a mischievous device, which they are not able to* perform."Want of power is the clog on the foot of the haters of the Lord Jesus. They have the wickedness to *imagine,* and the cunning to *devise,* and the malice to plot *mischief,* but blessed be God, they fail in ability; yet they shall be judged as to their hearts, and the will shall be taken for the deed in the great day of account. When we read the boastful threatenings of the enemies of the gospel at the present day, we may close our reading by cheerfully repeating, *"which they are not able to perform."* The serpent may hiss, but his head is broken; the lion may worry, but he cannot devour: the tempest may thunder, but cannot strike. Old Giant Pope bites his nails at the pilgrims, but he cannot pick their bones as aforetime. Growling forth a hideous "non possumus," the devil and all his allies retire in dismay from the walls of Zion, for the Lord is there. 
 
-DIVISION.&nbsp;*The division of the translators will answer every purpose.  A*&nbsp;
+Verse 12. *"Therefore shalt thou make them turn their back, when thou shalt* make ready thine arrows upon thy strings against the face of them."For a time the foes of God may make bold advances, and threaten to overthrow everything, but a few ticks of the clock will alter the face of their affairs. At first they advance impudently enough, but Jehovah meets them to their teeth, and a taste of the sharp judgment of God speedily makes them flee in dismay. The original has in it the thought of the wicked being set as a butt for God to shoot at, a target for his wrath to aim at. What a dreadful situation! As an illustration upon a large scale, remember Jerusalem during the siege; and for a specimen in an individual, read the story of the death-bed of Francis Spira. God takes sure aim; who would be his target? His arrows are sharp and transfix the heart; who would wish to be wounded by them? Ah, ye enemies of God, your boastings will soon be over when once the shafts begin to fly! 
 
-thanksgiving for victory, verses 1 to 6.  Confidence of further success,
+Verse 13. *"Be thou exalted, Lord, in thine own strength."* A sweet concluding verse. Our hearts shall join in it. It is always right to praise the Lord when we call to remembrance his goodness to his Son, and the overthrow of his foes. The exaltation of the name of God should be the business of every Christian; but since such poor things as we fail to honour him as he deserves, we may invoke his own power to aid us. Be high, O God, but do thou maintain thy loftiness by thine own almightiness, for no other power can worthily do it. *"So will we sing and praise thy power."* For a time the saints may mourn, but the glorious appearance of their divine Helper awakens their joy. Joy should always flow in the channel of praise. All the attributes of God are fitting subjects to be celebrated by the music of our hearts and voices, and when we observe a display of his *power,* we must extol it. He wrought our deliverance alone, and he alone shall have the praise. 
 
-verses 7 to 13.
+## EXPLANATORY NOTES AND QUAINT SAYINGS 
 
-## EXPOSITION
+*Whole Psalm.* The last Psalm was a litany before the king went forth to battle. This is apparently a *Te Deum* on his return.— *J. J. Stewart Perowne, B.D., in the "Book of Psalms: a New Translation,* with Introduction and Notes,"1864. 
 
-Verse 1.&nbsp;*"The king shall joy in thy strength, O Lord."*&nbsp;Jesus is a Royal
+*Whole Psalm.* The prayer which the church offers up at the conclusion of the preceding Psalm now issues in a hymn of praise, the result of a believing view of the glory which is to follow, when Messiah's sufferings are ended. This is one of the beautiful songs of which we find many in Scripture, prepared by the Holy Spirit to awaken and enliven the hopes and expectations of the church while she waits for the Lord, and to give utterance to her joy at the time of his arrival. The theme is Messiah's exaltation and glory, and the time chosen for its delivery is just the moment when darkness covered the earth, and all nature seemed about to die with its expiring Lord. Scripture deals largely in contrasts. It seems to be suitable to the human mind to turn from one extreme to another. Man can endure any change, however violent and contradictory, but a long continuance, a sameness either of joy or sorrow, has a debilitating and depressing effect.— *R. H. Ryland.* 
 
-Personage.  The question, "Art thou a King then?" received a full answer
+*Whole Psalm.* "After this I looked. . . . and behold a throne was set in heaven, and one sat on the throne." Revelation 4:1, 2. Such may be considered as the description of this Psalm, after the foregoing prayer. "He who in the preceding Psalm," says St. Jerome, "was prayed for as having taken the form of a servant, in this is King of kings, and Lord of lords."— *Isaac Williams.* 
 
-from the Saviour's lips: "Thou sayest that I am a King.  To this end was I
+*Whole Psalm.* I am persuaded that there is not one who consents to the application of the preceding Psalm to Christ in his trouble, who will fail to recognise in this, Christ in his triumph. There he was in the dark valley—the valley of Achor; now he is on the mount of Zion; there he was enduring sorrow and travail; now he remembers no more the anguish, for joy that a spiritual seed is born into the world; there he was beset with deadly enemies, who encompassed him on every side; but here he has entered upon that which is written in Psalm 78:65, 66, "Then the Lord awaked as one out of sleep, and like a mighty man that shouteth by reason of wine. And he smote his enemies in the hinder parts: he put them to a perpetual reproach."— *Hamilton Verschoyle.* 
 
-born, and for this purpose came I into the world, that I might bear witness
+*Whole Psalm.* As you have already observed in the heading of this Psalm, it is said to have been composed by David. He wrote of himself in the third person, and as *"the king."* He penned the Psalm, not so much for his own use, as for his people's. It is, in fact, a national anthem, celebrating the majesty and glory of David, but ascribing both to God—expressing confidence in David's future, but building that confidence upon God alone.— *Samuel Martin, in "Westminster Chapel Pulpit,"* 1860. 
 
-unto the truth."  He is not merely&nbsp;*a*&nbsp;King, but&nbsp;*the*&nbsp;King; King over minds
+*Verse* 1. *"Thy strength. . . . thy salvation."* So you have two words, *"virtus* and *salus,"* strength and salvation. Note them well; for not *virtus* without *salus* , not *salus* without *virtus,* neither without the other is full, nor both without *Tua Domine.* *In virtute* is well, so it have *in salute* after it. For not in strength alone is there matter of joy, every way considered. No, not in *God's strength,* if it have not *salvation* behind it. Strength, not to smite us down, but strength to deliver; this is the joyful side. Now turn it the other way. As strength, if it end in salvation, is just cause for joy, so salvation, if it go with strength, makes joy yet more joyful; for it becomes a strong salvation, a mighty deliverance.— *Launcelot Andrews (Bishop)* , 1555-1626, *in "Conspiracie of the Goweries."* 
 
-and hearts, reigning with a dominion of love, before which all other rule is
+*Verse* 1. *"In thy salvation how greatly shall he rejoice."* Oh, it is good rejoicing in the strength of that arm which shall never wither, and in the shadow of those wings which shall never cast their feathers! In him that is not there yesterday and here to-day, but the same yesterday, to-day, and for ever! For as he is, so shall the joy be.— *Launcelot Andrews.* 
 
-but mere brute force.  He was proclaimed King even on the cross, for there,
+*Verse* 2. *"Thou hast given him the desire of his soul."* He desired to eat the passover, and to lay down his life when he would, and again when he would to take it; and thou hast given it to him. *"And hast not deprived* him of the good pleasure of his lips.""My peace," saith he, "I leave with you;" and it was done.— *Augustine, in loc.* 
 
-indeed, to the eye of faith, he reigned as on a throne, blessing with more
+*Verse* 2 ( *first clause* ). Good men are sure to have out their prayers either in money, or in money's worth, as they say—in that very thing, or a better.— *John Trapp.* 
 
-than imperial munificence the needy sons of earth.  Jesus has wrought out
+*Verse* 2. *"Selah."* See pages 25, 29, 38, 345. 
 
-the salvation of his people, but as a man he found his strength in Jehovah
+*Verse* 3. *"For thou preventest him with the blessings of goodness: thou* settest a crown of pure gold on his head."The Son of God could not be more ready to ask for the blessings of the divine goodness, than the Father was to give them; and his disposition is the same towards all his adopted sons. Christ, as King and Priest, weareth a crown of glory, represented by the purest and most resplendent of metals—gold. He is pleased to esteem his saints, excelling in different virtues, as the rubies, the sapphires, and the emeralds, which grace and adorn that crown. Who would not be ambitious of obtaining a place therein?— *George Horne.* 
 
-his God, to whom he addressed himself in prayer upon the lonely mountain's
+*Verse* 3. *"Thou hast prevented him with the blessings of goodness."* As if he should say, "Lord, I never asked for a kingdom, I never thought of a kingdom, but thou hast prevented me with the blessings of thy goodness." . . . . . From whence I take up this note or doctrine, that it is a sweet thing and worthy of all our thankful acknowledgments, to be prevented with the blessings of God's goodness, or God's good blessings. . . . It is no new thing for God to walk in a way of preventing love and mercy with the children of men. Thus he hath always dealt, doth deal, and will deal; thus he hath always dealt with the world, with the nations of the world, with great towns and places, with families, and with particular souls. . . . As for particular souls, you know how it was with Matthew the publican, sitting at the receipt of custom. "Come and follow me," says Christ; preventing of him. And you know how it was with Paul: "I was a blasphemer, and I was a persecutor, but I obtained mercy." How so? Did he seek it first? "No," says he, "I went breathing out threatenings against the people of God, and God met me, and unhorsed me; God prevented me with his grace and mercy." Thus Paul. And pray tell me what do you think of that whole chapter of Luke—the fifteenth? There are three parables: the parable of the lost groat, of the lost sheep, and of the lost son. The woman lost her groat, and swept to find it; but did the groat make first toward the woman, or the woman make after the groat first? The shepherd lost his sheep, but did the sheep make first after the shepherd, or the shepherd after the sheep? Indeed, it is said concerning the lost son, that he first takes up a resolution, "I will return home to my father," but when his father saw him afar off, he ran and met him, and embraced him, and welcomed him home. Why? But to show that the work of grace and mercy shall be all along carried on in a way of preventing love.— *Condensed from William Bridge,* 1600-1670. 
 
-side, and in the garden's solitary gloom.  That strength so abundantly given
+*Verse* 3. *"For thou hast prevented him with the blessings of sweetness."* Because he had first quaffed the blessings of thy sweetness, the gall of our sins did not hurt him.— *Augustine.* 
 
-is here gratefully acknowledged, and made the subject of joy.  The Man of
+*Verse* 3. *"Thou preventest him."* The word *"prevent"* is now generally used to represent the idea of hindrance. *"Thou preventest him,"* would mean commonly, "Thou hinderest him." But here the word "prevent" means *to* go before.Thou goest before him with the blessings of thy goodness as a pioneer, to make crooked ways straight, and rough places smooth; or, as one who strews flowers in the path of another, to render the way beautiful to the eye and pleasant to the tread.— *Samuel Martin.* 
 
-Sorrows is now anointed with the oil of gladness above his fellows.
+*Verse* 3 ( *first clause* ). The text is an acknowledgment of God's goodness. God has anticipated David's wants; and he writes, *"Thou* preventest—thou goest before him— *with goodness."* The words *"blessings of goodness"* suggest that God's gifts are God's love embodied and expressed. And this greatly enhances the value of our blessings— that they are cups as full of God and of God's kindness as of happiness and blessedness.— *Samuel Martin.* 
 
-Returned in triumph from the overthrow of all his foes, he offers his own
+*Verse* 3 ( *first clause* ). A large portion of our blessing is given us before our asking or seeking. Existence, reason, intellect, a birth in a Christian land, the calling of our nation to the knowledge of Christ, and Christ himself, with many other things, are unsought bestowed on men, as was David's right to the throne on him. No one ever asked for a Saviour till God of his own motion promised "the seed of the woman."— *William S. Plumer.* 
 
-rapturous&nbsp;*Te Deum*&nbsp;in the temple above, and joys in the power of the Lord.
+*Verse* 3. *"Thou settest a crown of pure gold on his head."* Christ may be said to have a fourfold glory, or crown. 1. As God co-essential with the Father; "the brightness of the Father's glory, and the express image of his person." Hebrews 1:1, 2, 3. 2. He hath a crown and glory as Mediator, in respect of the power, authority, and glory wherewith he is invested as God's great deputy, and anointed upon the hill of Zion, having power, and a rod of iron, even in reference to enemies. 3. He hath a crown and glory in respect of the manifestation of his glory in the executing of his offices, when he makes his mediatory power and glory apparent in particular steps: thus sometimes he is said *to take his power to him* (Revelation 11:17); and is said *to be crowned* when the white horse of the gospel rides in triumph. Revelation 6:2. The last step of this glory will be in the day of judgment; in short, this consists in his exercising his former power committed to him as Mediator. 4. There is a crown and glory which is in a manner put on him by particular believers, when he is glorified by them, not by adding anything to his infinite glory, but by their acknowledging of him to be so.— *James Durham,* 1622-1658. 
 
-Herein let every subject of King Jesus imitate the King; let us lean upon
+*Verse* 3. *"The crown of pure gold"* has respect to his exaltation at the right hand of God, where he is crowned with glory and honour, and this *"crown"* being of *"pure gold,"* denotes the purity, glory, solidity, and perpetuity of his kingdom.— *John Gill.* 
 
-Jehovah's strength, let us joy in it by unstaggering faith, let us exult in
+*Verse* 4. *"He asked life of thee, and thou gavest it him, even length of* days for ever and ever."The glory of God is concerned in Christ's living for ever—1. The glory of his *faithfulness:* for eternal life and blessedness were pledged to Immanuel in covenant as the reward of his work (Psalm 110:1-4; Isaiah 9:6, 7, etc.); and it was in the anticipation and confident hope of this, that he "endured the cross, despising the shame." Hebrews 12:2; Psalm 16:8-11. 2. The glory of his *justice.* The justice of God was honoured and fully satisfied in all its righteous demands by the death of Christ. His subsequent life is the expression on the part of God of that satisfaction. His perpetual life is a permanent declaration that in him and his finished work the everlasting righteousness of Jehovah rests for ever satisfied. Death can "never more have dominion over him:" for to inflict the penalty again would be a violation of justice. 3. The glory of his *grace.* The glory of this grace he now lives actively to promote. John 17:2. By living *"ever"* at God's right hand, he appears as an eternal memorial of God's love in making him our Mediator and Substitute—our Saviour from sin and wrath; and his permanent appearance there will keep all heaven perpetually in mind that "by the grace of God they are what they are," owing all to the sovereign mercy of God through Jesus Christ. He shall appear as the blessed medium through which all the gifts and joys of salvation shall flow to the guilty for evermore. Thus the power of God and all his moral attributes secure the perpetuity of the life of the risen and exalted Saviour.— *Ralph Wardlaw, D.D.* 
 
-it in our thankful songs.  Jesus not only has thus rejoiced, but he&nbsp;*shall*&nbsp;
+*Verse* 4. *"He asked life of thee, and thou gavest it him."* He asked a resurrection, saying, "Father, glorify thy Son;" and thou gavest it him. *"Length of days for ever and ever."* The prolonged ages of this world which the church was to have, and after them an eternity, world without end.— *Augustine.* 
 
-do so as he sees the power of divine grace bringing out from their sinful
+*Verse* 4. *"He asked life of thee,"* etc. Thus God is better to his people than their prayers; and when they ask but one blessing, he answereth them as Naaman did Gehazi, with, Nay, take two. Hezekiah asked but one life, and God gave him fifteen years, which we reckon at two lives and more. He giveth liberally and like himself; as great Alexander did when he gave the poor beggar a city; and when he sent his schoolmaster a ship full of frankincense, and bade him sacrifice freely.— *John Trapp.* 
 
-hiding-places the purchase of his soul's travail; we also shall rejoice more
+*Verses* 4-8. If David had before been without the symbol of his royal dignity, namely, the diadem, he was the more justified in praising the goodness of God, which had now transferred it from the head of an enemy to his own.— *Augustus F. Tholuck.* 
 
-and more as we learn by experience more and more fully the strength of the
+*Verse* 5. *"His glory is great in thy salvation."* I remember one dying, and hearing some discourse of Jesus Christ; "Oh," said she, "speak more of this—let me hear more of this—be not weary of telling his praise; I long to see him, how should I but long to hear of him?" Surely I cannot say too much of Jesus Christ. On this blessed subject no man can possibly hyperbolise. Had I the tongues of men and angels, I could never fully set forth Christ. It involves an eternal contradiction, that the creature can see to the bottom of the Creator. Suppose all the sands on the sea-shore, all the flowers, herbs, leaves, twigs of trees in woods and forests, all the stars of heaven, were all rational creatures; and had they that wisdom and tongues of angels to speak of the loveliness, beauty, glory, and excellency of Christ, as gone to heaven, and sitting at the right hand of his Father, they would, in all their expressions, stay millions of miles on this side Jesus Christ. Oh, the loveliness, beauty, and glory of his countenance! Can I speak, or you hear of such a Christ? And are we not all in a burning love, in a seraphical love, or at least in a conjugal love? O my heart, how is it thou art not love sick? How is it thou dost not charge the daughters of Jerusalem as the spouse did: "I charge you, O daughters of Jerusalem, if ye find my beloved, that ye shall tell him, that I *am* sick of love." Canticles 5:8.— *Isaac Ambrose.* 
 
-arm of our covenant God.  Our weakness unstrings our harps, but his strength
+*Verse* 5. *"Honour and majesty hast thou laid upon him."* If it be demanded whether Christ were exalted unto his glory and dignity, according to both his natures, both his Godhead and his manhood, I answer, according to both. According to his Godhead, not as it is considered in itself, but inasmuch as his Godhead, which from his birth unto his death did little show itself, after his resurrection was made manifest in his manhood; for, as the apostle saith (Romans 1:4), "He was declared mightily to be the Son of God by the resurrection from the dead," even by the resurrection and after his resurrection from the dead, he which was thought only to be man, was most plainly manifested likewise to be God. Now, as touching his manhood, he was therein exalted unto highest majesty in the heavenly places, not only shaking off all infirmities of man's nature, but also being beautified and adorned with all qualities of glory, both in his soul and in his body, yet so that he still retaineth the properties of a true body, for even as he was man, he was set at the right hand of the Father, to rule and reign over all, till all his enemies be destroyed, and put under his feet. To knit up all in a word, Christ, God and man, after his resurrection, was crowned with glory and honour, even such as plainly showed him to be God, and was set on the throne of God, there to rule and reign as sovereign Lord and King, till he come in the clouds to judge both quick and dead. Here, then, is both matter of comfort and consolation unto the godly, and likewise for fear and astonishment unto the wicked and ungodly.— *Henry Airway,* 1560-1616. 
 
-tunes them anew.  If we cannot sing a note in honour of our own strength, we
+*Verse* 5 ( *last clause* ). Christ was "a man of sorrows" on earth, but he is full of joy in heaven. He that "wipes away all tears from the eyes of his people," surely has none in his own. There was a *joy set before him* before he suffered, and doubtless it was given him, when he sat down at God's right hand. We may take the latter to be an actual donation of the former; the joy he had in prospect when he suffered he had in possession when he came to his throne. This is the time of his receiving the Father's public approbation, and the tokens of his love, before the whole heavenly assembly, which must be matter of great joy to him who so much valued and delighted in his Father's love.— *John Hurrion,* 1675-1731. 
 
-can at any rate rejoice in our omnipotent God.
+*Verse* 5. Happy he who hath a bone, or an arm, to put the crown upon the head of our highest King, whose chariot is paved with love. Were there ten thousand millions of heavens created above these highest heavens, and again as many above them, and as many above them, till angels were wearied with counting, it were but too low a seat to fix the princely throne of that Lord Jesus (whose ye are) above them all.— *Samuel Rutherford.* 
 
-&nbsp;*"And in thy salvation how greatly shall he rejoice!"*&nbsp;Everything is
+*Verse* 6. *"Thou hast made him exceeding glad:"* literally, "brightened him," possibly in allusion to the brightness of Moses' face. *Dalman Hapstone, M.A., in "The Ancient Psalms. . . . A Literal—Translation and Notes,"* etc., 1867. 
 
-ascribed to God; the source is&nbsp;*thy strength*&nbsp;and the stream is&nbsp;*thy*&nbsp;
+*Verse* 6. *"Thou hast made him exceeding glad with thy countenance."* Though this be metamorphically used for *favour,* yet is the speech not all metaphor, and that well-experienced Christians will tell you.— *Zachary Bogan, in "The Mirth of a Christian Life,"* 1653. 
 
-salvation.Jehovah planned and ordained it, works it and crowns it, and
+*Verse* 6 ( *first clause* ). Literally, as in the Bible marginal translation, "Thou hast set him *to be* blessings for ever." Most truly said of the King in whom all the nations of the earth were to be blessed.— *Richard Mant.* 
 
-therefore it is his salvation.  The joy here spoken of is described by a
+*Verse* 8. *"Thine hand shall find out all thine enemies: thy right hand* shall find out those that hate thee."By a kind of climax in the form of expression, *"hand,"* is followed by *"right hand,"* a still more emphatic sign of active strength. To *"find,"* in this connection, includes the ideas of detecting and reaching. Compare 1 Samuel 23:17; Isaiah 10:10; in the latter of which places the verb is construed with a preposition (Heb.), as it is in the first clause of the verse before us, whereas in the other clause it governs the noun directly. If any difference of meaning was intended, it is probably not greater than that between *find* and *find out* in English.— *Joseph Addison Alexander.* 
 
-note of exclamation and a word of wonder:&nbsp;*"how greatly!"*&nbsp;The rejoicing of
+*Verse* 8. *"Thine hand shall find out all thine enemies: thy right hand* shall find out those that hate thee."Saul killed himself, for fear of falling into the hands of his enemies, and thought death less terrible than the shame that he would have endured in seeing himself in their power. What will it be then "to fall into the hands of the living God" (Hebrews 10:31), of an offended God? of God unchangeably determined to be avenged? "Who can stand before his indignation?" says the prophet Nahum (chap. 1:6). Who will dare look on him? Who will dare show himself? *"Who may abide the day of* his coming"(Malachi 3:2) without shuddering and fainting for fear? If Joseph's brethren were so terrified that they "could not answer him," when he said, "I am Joseph your brother," how will it be with sinners, when they shall hear the voice of the Son of God, when he shall triumph over them in his wrath, and say unto them, "I am he" whom ye despised; "I am he" whom ye have offended; "I am he" whom ye have crucified? If these words, "I am he," overthrew the soldiers in the garden of Olives (John 18:6), though spoken with extreme gentleness, how will it be when his indignation bursts forth, when it falls upon his enemies like a thunderbolt, and reduces them into dust? Then will they cry out in terror, and say to the mountains, *"Fall on* us, and hide us from the face of him that sitteth on the throne, and from the wrath of the Lamb."Revelation 6:16.— *James Nouet.* 
 
-our risen Lord must, like his agony, be unutterable.  If the mountains of
+*Verse* 8. *"Thine hand shall find out,"* etc. It is not meant only of a discovery of a person (though it be a truth, that the Lord will discover all that are his enemies), but *thine hand shall find them out,* is, it shall take hold of them, grasp them, and arrest them. "Thine hand shall find out" *all* "thine enemies," though close, though covert enemies; not only thy above-ground enemies, but thy under-ground enemies; as well those that undermine thee, as those that assault thee.— *Joseph Caryl.* 
 
-his joy rise in proportion to the depth of the valleys of his grief, then
+*Verse* 9. *"Thou shalt make them as a fiery oven in the time of thine* anger: the Lord shall swallow them up in his wrath, and the fire shall devour them."How then shall it fare with sinners, when, after all, shall come that general fire so often foretold, which shall either fall from heaven, or ascend out of hell, or (according to Albertus Magnus), proceed from both, and shall devour and consume all it meets with? Whither shall the miserable fly, when that river of flames, or (to say better), that inundation and deluge of fire shall so encompass them, as no place of surety shall be left; where nothing can avail but a holy life; when all besides shall perish, in that universal ruin of the whole world? What lamentations were in Rome, when it burnt for seven days together! What shrieks were heard in Troy, when it was wholly consumed with flames! What howling and astonishment in Pentapolis, when those cities were destroyed with fire from heaven! What weeping there was in Jerusalem, when they beheld the house of God, the glory of their kingdom, the wonder of the world, involved in fire and smoke! Imagine what these people felt; they saw their houses and goods on fire, and no possibility of saving them; when the husband heard the shrieks and cries of his dying wife; the father, of his little children; and, unawares, perceived himself so encompassed with flames, that he could neither relieve them, nor free himself. What shall it then profit the worldlings, to have rich vessels of gold and silver, curious embroideries, precious tapestries, pleasant gardens, sumptuous palaces, and all what the world now esteems, when they shall with their own eyes, behold their costly palaces burnt, their rich and curious pieces of gold melted, and their flourishing and pleasant orchards consumed, without power to preserve them or themselves? All shall burn, and with it the world, and all the memory and fame of it shall die; and that which mortals thought to be immortal, shall then end and perish.— *Jeremy Taylor.* 
 
-his sacred bliss is high as the seventh heaven.  For the joy which was set
+*Verse* 9. *"Thou shalt make them as a fiery oven in the time of thine* anger."They shall not only be cast into a furnace of fire (Matthew 13:42), but he shall make them themselves as a fiery oven or furnace, they shall be their own tormentors, the reflections and terrors of their own consciences will be their hell. Those that might have had Christ to rule and save them, but rejected him, and fought against him, even the remembrance of that will be enough to make them to eternity a fiery oven to themselves.— *Matthew Henry.* 
 
-before him as he endured the cross, despising the shame, and now that joy
+*Verse* 9. *"Thou shalt make them as a fiery oven:"* thou shalt make them on fire within, by the consciousness of their ungodliness: *"In the time of* thy countenance;"in the time of thy manifestation.— *Augustine.* 
 
-daily grows, for he rests in his love and rejoices over his redeemed with
+*Verse* 9. *"As a fiery oven,"* where the burning is extremely hot, the heat striking upon what is in it from all sides, above, below, and about, on all hands, and the door closed from going out, or from suffering any cool refreshment to come in.— *David Dickson.* 
 
-singing, as in due order they are brought to find their salvation in his
+*Verse* 9. *"As a fiery oven."* Shall make them like a vault of fire, literally, *"an oven,"* as in our translation, or "furnace of fire." Bishop Horsley remarks, "It describes the smoke of the Messiah's enemies perishing by fire, ascending like the smoke of a furnace. 'The smoke of their torments shall ascend for ever and ever.'" How awfully grand is that description of the ruins of the cities of the plain, as the prospect struck on Abraham's eye on the fatal morning of their destruction! "And he looked toward Sodom and Gomorrah, and toward all the land of the plain, and beheld, and, lo, the smoke of the country went up as the smoke of a furnace." Milton puts it— Overhead the dismal hiss Of fiery darts in flaming volleys flew, And flying vaulted either host with fire." *Richard Mant.* 
 
-blood.  Let us with our Lord rejoice in salvation, as coming from God, as
+*Verse* 9. The Chaldee reads:—"The fire of Gehenna, or hell."— *John Morison.* 
 
-coming to us, as extending itself to others, and as soon to encompass all
+*Verse* 9. *"The time of thine anger."* If God be willing to pour out his heavy displeasure upon those that displease him, what can hinder his mighty arm from performing? Creatures indeed may be angry, but oftentimes, like drones without stings, cannot hurt; as cannons charged with powder without shot only make a roaring; like the Pope's Bulls, threaten many, hurt none but those whose conscience is enslaved. Saul may be angry at David, but cannot find him out; but from God's all-piercing eye none can hide himself. Satan may desire to kill Job, Jonah may be angry till death for Nineveh's preservation; yet God puts a bit in both their mouths, who, if he be angry, nothing can be holden out of his reach. Princes, if they take captives, may have them rescued from them again, as Lot was from the King of Sodom; bought with a price, as Joseph of the Ishmaelites. But no power can rescue us from God's anger, no ransom but Christ's blood redeem us. God's will being set afoot, all his attributes follow; if his will say, Be angry, his eye seek out the object of his anger, and finds it; his wisdom tempers the cup, his hand whets the sword, his arm strikes the blow. Thus you see there is a time of God's anger for sin, because he will have it so.— *John Cragge.* 
 
-lands.  We need not be afraid of too much rejoicing in this respect; this
+*Verse* 9. *"The fire shall devour them."* Being troubled by the vengeance of the Lord, after the accusation of their conscience, they shall be given up to eternal fire to be devoured.— *Augustine.* 
 
-solid foundation will well sustain the loftiest edifice of joy.  The
+*Verse* 9. I have read that a frown of Queen Elizabeth killed Sir Christopher Hatton, the Lord Chancellor of England. What then shall the frowns of the King of nations do? If the rocks rend, the mountains melt, and the foundations of the earth tremble under his wrath; how will the ungodly sinner appear when he comes in all his royal glory to take vengeance on all that knew him not, and that obeyed not his glorious gospel?— *Charles Bradbury.* 
 
-shoutings of the early methodists in the excitement of the joy were far more
+*Verse* 10. *"Their fruit shalt thou destroy from the earth, and their seed* from among the children of men."A day is coming when all the *"fruits"* of sin, brought forth by sinners in their words, their writings, and their actions shall be *"destroyed;"* yea, the tree itself, which had produced them, shall be rooted up, and cast into the fire. The *"seed"* and posterity of the wicked, if they continue in the way of their forefathers, will be punished like them. Let parents consider, that upon their principles and practices may depend the salvation or destruction of multitudes after them. The case of the Jews, daily before their eyes, should make them tremble.— *George Horne.* 
 
-pardonable than our own lukewarmness.  Our joy should have some sort of
+*Verse* 11. *"They intended,"* or warped. Hebrew, *have bent or* stretched.A similitude taken from weavers, who warp their yarn before they weave: or from archers, who, when they have bent their bow and put in their arrow, do take their aim.— *John Diodati.* 
 
-inexpressibleness in it.
+*Verse* 12. *"Therefore shalt thou make them turn their back,"* or *thou* shalt set them as a butt, "when thou shalt make ready thine arrows upon thy strings against the face of them."The judgments of God are called his *"arrows,"* being sharp, swift, sure and deadly. What a dreadful situation, to be set as a mark and *"butt"* at which these arrows are directed! View Jerusalem encompassed by the Roman armies without, and torn to pieces by the animosity of desperate and bloody factions within! No farther commentary is requisite upon this verse.— *George Horne.* 
 
-Verse 2.&nbsp;*"Thou hast given him his heart's desire."*&nbsp;That desire he ardently
+## HINTS TO THE VILLAGE PREACHER 
 
-pursued when he was on earth, both by his prayer, his actions, and his
+*Verse* 1. The joy of Jesus and of his people in the strength and salvation of God. 
 
-suffering; he manifested that his heart longed to redeem his people, and now
+*Verses* 1, 2. The doctrine of the resurrection of Jesus Christ contained in the text, may be considered under three heads: I. *As an answer to prayer.* II. *His joy therein—even in the resurrection.* III. As a necessary appendage to this— *our own individual concern in his glory and in his joy.* *Hamilton Verschoyle.* 
 
-in heaven he has his desire granted him, for he sees his beloved coming to
+*Verse* 2. The successful Advocate. 
 
-be with him where he is.  The desires of the Lord Jesus were from his heart,
+*Verse* 3 ( *first clause* ). Preventing mercies. 
 
-and the Lord heard them; if our hearts are right with God, he will in our
+*Verse* 3 ( *first clause* ). GOD GOING BEFORE US, or God's anticipation of our necessities by his merciful dispensations. God prevents us with the blessings of his goodness: I. When we come into the world. II. When we become personal transgressors. III. When we enter upon the duties and upon the cares of mature life. IV. When, in the general course of life, we enter upon new paths. V. In the dark "valley of the shadow of death." VI. By giving us many mercies without our asking for them; and thus creating occasion, not for prayer, but for praise only. VII. By opening to us the gate of heaven, and by storing heaven with every provision for our blessedness.— *Samuel Martin.* 
 
-case also "fulfil the desires of them that fear him."
+*Verse* 3 ( *second clause* ). Jesus crowned. I. His previous labours. II. The dominion bestowed. III. The character of the crown. IV. The divine coronant. 
 
-&nbsp;*"And hast not withholden the request of his lips."*&nbsp;What is in the
+*Verse* 4. Jesus ever living. 
 
-well of the heart is sure to come up in the bucket of the lips, and those
+*Verse* 5. The glory of the Mediator. 
 
-are the only true prayers where the heart's desire is first, and the lip's
+*Verse* 6. The blessedness of Jesus. 
 
-request follows after.  Jesus prayed vocally as well as mentally; speech is
+*Verse* 7. Jesus, and example of faith and of its results. 
 
-a great assistance to thought.  Some of us feel that even when alone we find
+*Verse* 8. The secret sinner unearthed, and deprived of all hope of concealment. 
 
-it easier to collect our thoughts when we can pray aloud.  The requests of
+*Verses* 8, 9. The certainty and terror of the punishment of the wicked. 
 
-the Saviour were not withheld.  He was and still is a prevailing Pleader.
+*Verses* 11, 12. The guilt and punishment of evil intentions. 
 
-Our Advocate on high returns not empty from the throne of grace.  He asked
+*Verse* 12. The retreat of the grand army of hell. 
 
-for his elect in the eternal council-chamber, he asked for blessings for
-
-them here, he asked for glory for them hereafter, and his requests have
-
-speeded.  He is ready to ask for us at the mercy-seat.  Have we not at this
-
-hour some desire to send up to his Father by him?  Let us not be slack to
-
-use our willing, loving, all-prevailing Intercessor.
-
-&nbsp;*"Selah."*&nbsp;Here a pause is very properly inserted that we may admire
-
-the blessed success of the king's prayers, and that we may prepare our own
-
-requests which may be presented through him.  If we had a few more quiet
-
-rests, a few more Selahs in our public worship, it might be profitable.
-
-Verse 3.&nbsp;*"For thou preventest him with the blessings of goodness."*&nbsp;The
-
-word&nbsp;*prevent*&nbsp;formerly signified to precede or go before, and assuredly
-
-Jehovah preceded his Son with blessings.  Before he died saints were saved
-
-by the anticipated merit of his death, before he came believers saw his day
-
-and were glad, and he himself had his delights with the sons of men.  The
-
-Father is so willing to give blessings through his Son, that instead of his
-
-being constrained to bestow his grace, he outstrips the Mediatorial march of
-
-mercy.  "I say not that I will pray the Father for you, for the Father
-
-himself loveth you."  Before Jesus calls the Father answers, and while he is
-
-yet speaking he hears.  Mercies may be bought with blood, but they are also
-
-freely given.  The love of Jehovah is not caused by the Redeemer's
-
-sacrifice, but that love, with its blessings of goodness, preceded the great
-
-atonement, and provided it for our salvation.  Reader, it will be a happy
-
-thing for thee if, like thy Lord, thou canst see both providence and grace
-
-preceding thee, forestalling thy needs, and preparing thy path.  Mercy, in
-
-the case of many of us, ran before our desires and prayers, and it ever
-
-outruns our endeavours and expectancies, and even our hopes are left to lag
-
-behind.  Prevenient grace deserves a song; we may make one out of this
-
-sentence; let us try.  All our mercies are to be viewed as&nbsp;*"blessings;"*&nbsp;
-
-gifts of a blessed God, meant to make us blessed; they are&nbsp;*"blessings of*&nbsp;
-
-goodness,"not of merit, but of free favour; and they come to us in a
-
-&nbsp;*preventing way,*&nbsp;a way of prudent foresight, such as only preventing love
-
-could have arranged.  In this light the verse is itself a sonnet!
-
-&nbsp;*"Thou settest a crown of pure gold on his head."*&nbsp;Jesus wore the
-
-thorn-crown, but now wears the glory-crown.  It is a&nbsp;*"crown,"*&nbsp;indicating
-
-royal nature, imperial power, deserved honour, glorious conquest, and divine
-
-government.  The crown is of the richest, rarest, most resplendent, and most
-
-lasting order—&nbsp;*"gold,"*&nbsp;and that gold of the most refined and valuable
-
-sort,&nbsp;*"pure gold,"*&nbsp;to indicate the excellence of his dominion.  This crown
-
-is set upon his head most firmly, and whereas other monarchs find their
-
-diadems fitting loosely, his is fixed so that no power can move it, for
-
-Jehovah himself has set it upon his brow.  Napoleon crowned himself, but
-
-Jehovah crowned the Lord Jesus; the empire of the one melted in an hour, but
-
-the other has an abiding dominion.  Some versions read, "a crown of precious
-
-stones;" this may remind us of those beloved ones who shall be as jewels in
-
-his crown, of whom he has said, "They shall be mine in the day when I make
-
-up my jewels."  May we be set in the golden circlet of the Redeemer's glory,
-
-and adorn his head for ever!
-
-Verse 4.&nbsp;*"He asked life of thee, and thou gavest it him, even length of*&nbsp;
-
-days for ever and ever."The first words may suit King David, but the
-
-length of days for ever and ever can only refer to the King Messiah.  Jesus,
-
-as man, prayed for resurrection and he received it, and now possesses it in
-
-immortality.  He died once, but being raised from the dead he dieth no more.
-
-"Because I live, ye shall live also," is the delightful intimation which the
-
-Saviour gives us, that we are partakers of his eternal life.  We had never
-
-found this jewel, if he had not rolled away the stone which covered it.
-
-Verse 5.&nbsp;*"His glory is great in thy salvation."*&nbsp;Immanuel bears the palm;
-
-he once bore the cross.  The Father has glorified the Son, so that there is
-
-no glory like unto that which surroundeth him.  See his person as it is
-
-described by John in the Revelation; see his dominion as it stretches from
-
-sea to sea; see his splendour as he is revealed in flaming fire.  Lord, who
-
-is like unto thee?  Solomon in all his glory could not be compared with
-
-thee, thou once despised Man of Nazareth!  Mark, reader: salvation is
-
-ascribed to God; and thus the Son, as our Saviour, magnifies his Father; but
-
-the Son's glory is also greatly seen, for the Father glorifies his Son.
-
-&nbsp;*"Honour and majesty hast thou laid upon him."*&nbsp;Parkhurst reads,
-
-"splendour and beauty."  These are put upon Jesus as chains of gold, and
-
-stars and tokens of honour are placed upon princes and great men.  As the
-
-wood of the tabernacle was overlaid with pure gold, so is Jesus covered with
-
-glory and honour.  If there be a far more exceeding and eternal weight of
-
-glory for his humble followers, what must there be for our Lord himself?
-
-The whole weight of sin was laid upon him; it is but meet that the full
-
-measure of the glory of bearing it away should be laid upon the same beloved
-
-person.  A glory commensurate with his shame he must and will receive, for
-
-well has he earned it.  It is not possible for us to honour Jesus too much;
-
-what our God delights to do, we may certainly do to our utmost. Oh for new
-
-crowns for the lofty brow which once was marred with thorns!
-
-Let him be crowned with majesty
-
-Who bowed his head to death,
-
-And be his honours sounded high
-
-By all things that have breath."
-
-Verse 6.&nbsp;*"For thou hast made him most blessed for ever."*&nbsp;He is most
-
-blessed in himself, for he is God over all, blessed for ever; but this
-
-relates to him as our Mediator, in which capacity blessedness is given to
-
-him as a reward.  The margin has it,&nbsp;*thou hast set him to be blessings;*&nbsp;he
-
-is an overflowing wellspring of blessings to others, a sun filling the
-
-universe with light.  According as the Lord sware unto Abraham, the promised
-
-seed is an everlasting source of blessings to all the nations of the earth.
-
-He is set for this, ordained, appointed, made incarnate with this very
-
-design, that he may bless the sons of men.  Oh that sinners had sense enough
-
-to use the Saviour for that end to which he is ordained, viz., to be a
-
-Saviour to lost and guilty souls.
-
-&nbsp;*"Thou hast made him exceeding glad with thy countenance."*&nbsp;He who is a
-
-blessing to others cannot but be glad himself; the unbounded good-doing of
-
-Jesus ensures him unlimited joy.  The loving favour of his Father, the
-
-countenance of God, gives Jesus exceeding joy.  This is the purest stream to
-
-drink of, and Jesus chooses no other.  His joy is full.  Its source is
-
-divine.  Its continuance is eternal.  Its degree exceeding all bounds.  The
-
-countenance of God makes the Prince of Heaven glad; how ought we to seek it,
-
-and how careful should we be lest we should provoke him by our sins to hide
-
-his face from us!  Our anticipations may cheerfully fly forward to the hour
-
-when the joy of our Lord shall be shed abroad on all the saints, and the
-
-countenance of Jehovah shall shine upon all the blood-bought.  So shall we
-
-"enter into the joy of our Lord."
-
-So far all has been "the shout of them that triumph, the song of them
-
-that feast."  Let us shout and sing with them, for Jesus is our King, and in
-
-his triumphs we share a part.
-
-Verse 7.&nbsp;*"For the king trusteth in the Lord."*&nbsp;Our Lord, like a true King
-
-and leader, was a master in the use of the weapons, and could handle well
-
-the shield of faith, for he has set us a brilliant example of unwavering
-
-confidence in God.  He felt himself safe in his Father's care until his hour
-
-was come, he knew that he was always heard in heaven; he committed his cause
-
-to him that judgeth right, and in his last moments he committed his spirit
-
-into the same hands.  The joy expressed in the former verses was the joy of
-
-faith, and the victory achieved was due to the same precious grace.  A holy
-
-confidence in Jehovah is the true mother of victories.  This psalm of
-
-triumph was composed long before our Lord's conflict began, but faith
-
-overleaps the boundaries of time, and chants her "Io triumphe," while yet
-
-she sings her battle song.
-
-&nbsp;*"Through the mercy of the Most High he shall not be moved."*&nbsp;Eternal
-
-mercy secures the mediatorial throne of Jesus.  He who is Most High in every
-
-sense, engages all his infinite perfections to maintain the throne of grace
-
-upon which our King in Zion reigns.  He was not moved&nbsp;*from*&nbsp;his purpose,
-
-nor&nbsp;*in*&nbsp;his sufferings, nor&nbsp;*by*&nbsp;his enemies, nor shall he be moved&nbsp;*from*&nbsp;
-
-the completion of his designs.  He is the same yesterday, to-day, and for
-
-ever.  Other empires are dissolved by the lapse of years, but eternal mercy
-
-maintains his growing dominion evermore; other kings fail because they rest
-
-upon an arm of flesh, but our monarch reigns on in splendour because he
-
-trusteth in Jehovah.  It is a great display of divine mercy to men that the
-
-throne of King Jesus is still among them: nothing but divine mercy could
-
-sustain it, for human malice would overturn it to-morrow if it could.  We
-
-ought to trust in God for the promotion of the Redeemer's kingdom, for in
-
-Jehovah the King himself trusts: all unbelieving methods of action, and
-
-especially all reliance upon mere human ability, should be for ever
-
-discarded from a kingdom where the monarch sets the examples of walking by
-
-faith in God.
-
-Verse 8.&nbsp;*"Thine hand shall find out all thine enemies: thy right hand*&nbsp;
-
-shall find out those that hate thee."The destruction of the wicked is a
-
-fitting subject for joy to the friends of righteousness; hence here, and in
-
-most scriptural songs, it is noted with calm thanksgiving.  "Thou hast put
-
-down the mighty from their seats," is a note of the same song which sings,
-
-"and hast exalted them of low degree."  We pity the lost for they are men,
-
-but we cannot pity them as enemies of Christ.  None can escape from the
-
-wrath of the victorious King, nor is it desirable that they should.  Without
-
-looking for his flying foes he will find them with his hand, for his
-
-presence is about and around them.  In vain shall any hope for escape, he
-
-will find out all, and be able to punish all, and that too with the ease and
-
-rapidity which belong to the warrior's right hand.  The finding out relates,
-
-we think, not only to the discovery of the hiding places of the haters of
-
-God, but to the touching of them in their tenderest parts, so as to cause
-
-the severest suffering.  When he appears to judge the world hard hearts will
-
-be subdued into terror, and proud spirits humbled into shame.  He who has
-
-the key of human nature can touch all its springs at his will, and find out
-
-the means of bringing the utmost confusion and terror upon those who
-
-aforetime boastfully expressed their hatred of him.
-
-Verse 9.&nbsp;*"Thou shalt make them as a fiery oven in the time of thine*&nbsp;
-
-anger."They themselves shall be an oven to themselves, and so their own
-
-tormentors.  Those who burned with anger against thee shall be burned by
-
-thine anger.  The fire of sin will be followed by the fire of wrath.  Even
-
-as the smoke of Sodom and Gomorrah went up to heaven, so shall the enemies
-
-of the Lord Jesus be utterly and terribly consumed.  Some read it, "thou
-
-shalt put them as it were into a furnace of fire."  Like faggots cast into
-
-an oven they shall burn furiously beneath the anger of the Lord; "they shall
-
-be cast into a furnace of fire, there shall be weeping and gnashing of
-
-teeth."  These are terrible words, and those teachers do not well who
-
-endeavour by their sophistical reasonings to weaken their force.  Reader,
-
-never tolerate slight thoughts of hell, or you will soon have low thoughts
-
-of sin.  The hell of sinners must be fearful beyond all conception, or such
-
-language as the present would not be used.  Who would have the Son of God to
-
-be his enemy when such an overthrow awaits his foes?  The expression, "the
-
-time of thine anger," reminds us that as now is the time of his grace, so
-
-there will be a set time for his wrath.  The judge goes upon assize at an
-
-appointed time.  There is a day of vengeance of our God; let those who
-
-despise the day of grace remember this day of wrath.
-
-&nbsp;*"The Lord shall swallow them up in his wrath, and the fire shall devour*&nbsp;
-
-them."Jehovah will himself visit with his anger the enemies of his Son.
-
-The Lord Jesus will, as it were, judge by commission from God, whose solemn
-
-assent and co-operation shall be with him in his sentences upon impenitent
-
-sinners.  An utter destruction of soul and body, so that both shall be
-
-swallowed up with misery, and be devoured with anguish, is here intended.
-
-Oh, the wrath to come!  The wrath to come!  Who can endure it?  Lord, save
-
-us from it, for Jesu's sake.
-
-Verse 10.&nbsp;*"Their fruit shalt thou destroy from the earth."*&nbsp;Their life's
-
-work shall be a failure, and the result of their toil shall be
-
-disappointment.  That in which they prided themselves shall be forgotten;
-
-their very names shall be wiped out as abominable,&nbsp;*"and their seed from*&nbsp;
-
-among the children of men."Their posterity following in their footsteps
-
-shall meet with a similar overthrow, till at last the race shall come to an
-
-end.  Doubtless the blessing of God is often handed down by the righteous to
-
-their sons, as almost a heirloom in the family, while the dying sinner
-
-bequeaths a curse to his descendants.  If men will hate the Son of God, they
-
-must not wonder if their own sons meet with no favour.
-
-Verse 11.&nbsp;*"For they intended evil against thee."*&nbsp;God takes notice of
-
-intentions.  He who would but could not is as guilty as he who did.
-
-Christ's church and cause are not only attacked by those who do not
-
-understand it, but there are many who have the light and yet hate it.
-
-Intentional evil has a virus in it which is not found in sins of ignorance;
-
-now as ungodly men with malice aforethought attack the gospel of Christ,
-
-their crime is great, and their punishment will be proportionate.  The words
-
-&nbsp;*"against thee"*&nbsp;show us that he who intends evil against the poorest
-
-believer means ill to the King himself: let persecutors beware.
-
-&nbsp;*"They imagined a mischievous device, which they are not able to*&nbsp;
-
-perform."Want of power is the clog on the foot of the haters of the Lord
-
-Jesus.  They have the wickedness to&nbsp;*imagine,*&nbsp;and the cunning to&nbsp;*devise,*&nbsp;
-
-and the malice to plot&nbsp;*mischief,*&nbsp;but blessed be God, they fail in ability;
-
-yet they shall be judged as to their hearts, and the will shall be taken for
-
-the deed in the great day of account.  When we read the boastful
-
-threatenings of the enemies of the gospel at the present day, we may close
-
-our reading by cheerfully repeating,&nbsp;*"which they are not able to perform."*&nbsp;
-
-The serpent may hiss, but his head is broken; the lion may worry, but he
-
-cannot devour: the tempest may thunder, but cannot strike.  Old Giant Pope
-
-bites his nails at the pilgrims, but he cannot pick their bones as
-
-aforetime.  Growling forth a hideous "non possumus," the devil and all his
-
-allies retire in dismay from the walls of Zion, for the Lord is there.
-
-Verse 12.&nbsp;*"Therefore shalt thou make them turn their back, when thou shalt*&nbsp;
-
-make ready thine arrows upon thy strings against the face of them."For a
-
-time the foes of God may make bold advances, and threaten to overthrow
-
-everything, but a few ticks of the clock will alter the face of their
-
-affairs.  At first they advance impudently enough, but Jehovah meets them to
-
-their teeth, and a taste of the sharp judgment of God speedily makes them
-
-flee in dismay.  The original has in it the thought of the wicked being set
-
-as a butt for God to shoot at, a target for his wrath to aim at.  What a
-
-dreadful situation!  As an illustration upon a large scale, remember
-
-Jerusalem during the siege; and for a specimen in an individual, read the
-
-story of the death-bed of Francis Spira.  God takes sure aim; who would be
-
-his target?  His arrows are sharp and transfix the heart; who would wish to
-
-be wounded by them?  Ah, ye enemies of God, your boastings will soon be over
-
-when once the shafts begin to fly!
-
-Verse 13.&nbsp;*"Be thou exalted, Lord, in thine own strength."*&nbsp;A sweet
-
-concluding verse.  Our hearts shall join in it.  It is always right to
-
-praise the Lord when we call to remembrance his goodness to his Son, and the
-
-overthrow of his foes.  The exaltation of the name of God should be the
-
-business of every Christian; but since such poor things as we fail to honour
-
-him as he deserves, we may invoke his own power to aid us.  Be high, O God,
-
-but do thou maintain thy loftiness by thine own almightiness, for no other
-
-power can worthily do it.
-
-&nbsp;*"So will we sing and praise thy power."*&nbsp;For a time the saints may
-
-mourn, but the glorious appearance of their divine Helper awakens their joy.
-
-Joy should always flow in the channel of praise.  All the attributes of God
-
-are fitting subjects to be celebrated by the music of our hearts and voices,
-
-and when we observe a display of his&nbsp;*power,*&nbsp;we must extol it.  He wrought
-
-our deliverance alone, and he alone shall have the praise.
-
-## EXPLANATORY NOTES AND QUAINT SAYINGS
-
-&nbsp;*Whole Psalm.*&nbsp;The last Psalm was a litany before the king went forth to
-
-battle.  This is apparently a&nbsp;*Te Deum*&nbsp;on his return.—&nbsp;*J. J. Stewart Perowne, B.D., in the "Book of Psalms: a New Translation,*&nbsp;
-
-with Introduction and Notes,"1864.
-
-&nbsp;*Whole Psalm.*&nbsp;The prayer which the church offers up at the conclusion of
-
-the preceding Psalm now issues in a hymn of praise, the result of a
-
-believing view of the glory which is to follow, when Messiah's sufferings
-
-are ended.  This is one of the beautiful songs of which we find many in
-
-Scripture, prepared by the Holy Spirit to awaken and enliven the hopes and
-
-expectations of the church while she waits for the Lord, and to give
-
-utterance to her joy at the time of his arrival.  The theme is Messiah's
-
-exaltation and glory, and the time chosen for its delivery is just the
-
-moment when darkness covered the earth, and all nature seemed about to die
-
-with its expiring Lord.  Scripture deals largely in contrasts.  It seems to
-
-be suitable to the human mind to turn from one extreme to another.  Man can
-
-endure any change, however violent and contradictory, but a long
-
-continuance, a sameness either of joy or sorrow, has a debilitating and
-
-depressing effect.—&nbsp;*R. H. Ryland.*&nbsp;
-
-&nbsp;*Whole Psalm.*&nbsp;"After this I looked. . . . and behold a throne was set in
-
-heaven, and one sat on the throne."  Revelation 4:1, 2.  Such may be
-
-considered as the description of this Psalm, after the foregoing prayer.
-
-"He who in the preceding Psalm," says St. Jerome, "was prayed for as having
-
-taken the form of a servant, in this is King of kings, and Lord of lords."—&nbsp;*Isaac Williams.*&nbsp;
-
-&nbsp;*Whole Psalm.*&nbsp;I am persuaded that there is not one who consents to the
-
-application of the preceding Psalm to Christ in his trouble, who will fail
-
-to recognise in this, Christ in his triumph.  There he was in the dark
-
-valley—the valley of Achor; now he is on the mount of Zion; there he was
-
-enduring sorrow and travail; now he remembers no more the anguish, for joy
-
-that a spiritual seed is born into the world; there he was beset with deadly
-
-enemies, who encompassed him on every side; but here he has entered upon
-
-that which is written in Psalm 78:65, 66, "Then the Lord awaked as one out
-
-of sleep, and like a mighty man that shouteth by reason of wine.  And he
-
-smote his enemies in the hinder parts: he put them to a perpetual reproach."—&nbsp;*Hamilton Verschoyle.*&nbsp;
-
-&nbsp;*Whole Psalm.*&nbsp;As you have already observed in the heading of this Psalm,
-
-it is said to have been composed by David.  He wrote of himself in the third
-
-person, and as&nbsp;*"the king."*&nbsp;He penned the Psalm, not so much for his own
-
-use, as for his people's.  It is, in fact, a national anthem, celebrating
-
-the majesty and glory of David, but ascribing both to God—expressing
-
-confidence in David's future, but building that confidence upon God alone.—&nbsp;*Samuel Martin, in "Westminster Chapel Pulpit,"*&nbsp;1860.
-
-&nbsp;*Verse*&nbsp;1.&nbsp;*"Thy strength. . . . thy salvation."*&nbsp;So you have two words,
-
-&nbsp;*"virtus*&nbsp;and&nbsp;*salus,"*&nbsp;strength and salvation.  Note them well; for not
-
-&nbsp;*virtus*&nbsp;without&nbsp;*salus*&nbsp;, not&nbsp;*salus*&nbsp;without&nbsp;*virtus,*&nbsp;neither without the
-
-other is full, nor both without&nbsp;*Tua Domine.*&nbsp;&nbsp;*In virtute*&nbsp;is well, so it
-
-have&nbsp;*in salute*&nbsp;after it.  For not in strength alone is there matter of
-
-joy, every way considered.  No, not in&nbsp;*God's strength,*&nbsp;if it have not
-
-&nbsp;*salvation*&nbsp;behind it.  Strength, not to smite us down, but strength to
-
-deliver; this is the joyful side.  Now turn it the other way.  As strength,
-
-if it end in salvation, is just cause for joy, so salvation, if it go with
-
-strength, makes joy yet more joyful; for it becomes a strong salvation, a
-
-mighty deliverance.—&nbsp;*Launcelot Andrews (Bishop)*&nbsp;, 1555-1626,&nbsp;*in "Conspiracie of the Goweries."*&nbsp;
-
-&nbsp;*Verse*&nbsp;1.&nbsp;*"In thy salvation how greatly shall he rejoice."*&nbsp;Oh, it is
-
-good rejoicing in the strength of that arm which shall never wither, and in
-
-the shadow of those wings which shall never cast their feathers!  In him
-
-that is not there yesterday and here to-day, but the same yesterday, to-day,
-
-and for ever!  For as he is, so shall the joy be.—&nbsp;*Launcelot Andrews.*&nbsp;
-
-&nbsp;*Verse*&nbsp;2.&nbsp;*"Thou hast given him the desire of his soul."*&nbsp;He desired to
-
-eat the passover, and to lay down his life when he would, and again when he
-
-would to take it; and thou hast given it to him.&nbsp;*"And hast not deprived*&nbsp;
-
-him of the good pleasure of his lips.""My peace," saith he, "I leave with
-
-you;" and it was done.—&nbsp;*Augustine, in loc.*&nbsp;
-
-&nbsp;*Verse*&nbsp;2 (&nbsp;*first clause*&nbsp;).  Good men are sure to have out their prayers
-
-either in money, or in money's worth, as they say—in that very thing, or
-
-a better.—&nbsp;*John Trapp.*&nbsp;
-
-&nbsp;*Verse*&nbsp;2.&nbsp;*"Selah."*&nbsp;See pages 25, 29, 38, 345.
-
-&nbsp;*Verse*&nbsp;3.&nbsp;*"For thou preventest him with the blessings of goodness: thou*&nbsp;
-
-settest a crown of pure gold on his head."The Son of God could not be
-
-more ready to ask for the blessings of the divine goodness, than the Father
-
-was to give them; and his disposition is the same towards all his adopted
-
-sons.  Christ, as King and Priest, weareth a crown of glory, represented by
-
-the purest and most resplendent of metals—gold.  He is pleased to esteem
-
-his saints, excelling in different virtues, as the rubies, the sapphires,
-
-and the emeralds, which grace and adorn that crown.  Who would not be
-
-ambitious of obtaining a place therein?—&nbsp;*George Horne.*&nbsp;
-
-&nbsp;*Verse*&nbsp;3.&nbsp;*"Thou hast prevented him with the blessings of goodness."*&nbsp;As
-
-if he should say, "Lord, I never asked for a kingdom, I never thought of a
-
-kingdom, but thou hast prevented me with the blessings of thy goodness." . .
-
-. . . From whence I take up this note or doctrine, that it is a sweet thing
-
-and worthy of all our thankful acknowledgments, to be prevented with the
-
-blessings of God's goodness, or God's good blessings. . . .  It is no
-
-new thing for God to walk in a way of preventing love and mercy with the
-
-children of men.  Thus he hath always dealt, doth deal, and will deal; thus
-
-he hath always dealt with the world, with the nations of the world, with
-
-great towns and places, with families, and with particular souls. . . . As
-
-for particular souls, you know how it was with Matthew the publican, sitting
-
-at the receipt of custom.  "Come and follow me," says Christ; preventing of
-
-him.  And you know how it was with Paul: "I was a blasphemer, and I was a
-
-persecutor, but I obtained mercy."  How  so?  Did he seek it first?  "No,"
-
-says he, "I went breathing out threatenings against the people of God, and
-
-God met me, and unhorsed me; God prevented me with his grace and mercy."
-
-Thus Paul.  And pray tell me what do you think of that whole chapter of
-
-Luke—the fifteenth?  There are three parables: the parable of the lost groat,
-
-of the lost sheep, and of the lost son.  The woman lost her groat, and swept
-
-to find it; but did the groat make first toward the woman, or the woman make
-
-after the groat first?  The shepherd lost his sheep, but did the sheep make
-
-first after the shepherd, or the shepherd after the sheep?  Indeed, it is
-
-said concerning the lost son, that he first takes up a resolution, "I will
-
-return home to my father," but when his father saw him afar off, he ran and
-
-met him, and embraced him, and welcomed him home.  Why?  But to show that
-
-the work of grace and mercy shall be all along carried on in a way of
-
-preventing love.—&nbsp;*Condensed from William Bridge,*&nbsp;1600-1670.
-
-&nbsp;*Verse*&nbsp;3.&nbsp;*"For thou hast prevented him with the blessings of sweetness."*&nbsp;
-
-Because he had first quaffed the blessings of thy sweetness, the gall of our
-
-sins did not hurt him.—&nbsp;*Augustine.*&nbsp;
-
-&nbsp;*Verse*&nbsp;3.&nbsp;*"Thou preventest him."*&nbsp;The word&nbsp;*"prevent"*&nbsp;is now generally
-
-used to represent the idea of hindrance.&nbsp;*"Thou preventest him,"*&nbsp;would
-
-mean commonly, "Thou hinderest him."  But here the word "prevent" means&nbsp;*to*&nbsp;
-
-go before.Thou goest before him with the blessings of thy goodness as a
-
-pioneer, to make crooked ways straight, and rough places smooth; or, as one
-
-who strews flowers in the path of another, to render the way beautiful to
-
-the eye and pleasant to the tread.—&nbsp;*Samuel Martin.*&nbsp;
-
-&nbsp;*Verse*&nbsp;3 (&nbsp;*first clause*&nbsp;).  The text is an acknowledgment of God's
-
-goodness.  God has anticipated David's wants; and he writes,&nbsp;*"Thou*&nbsp;
-
-preventest—thou goest before him—&nbsp;*with goodness."*&nbsp;The words
-
-&nbsp;*"blessings of goodness"*&nbsp;suggest that God's gifts are God's love embodied
-
-and expressed.  And this greatly enhances the value of our blessings—
-
-that they are cups as full of God and of God's kindness as of happiness and
-
-blessedness.—&nbsp;*Samuel Martin.*&nbsp;
-
-&nbsp;*Verse*&nbsp;3 (&nbsp;*first clause*&nbsp;).  A large portion of our blessing is given us
-
-before our asking or seeking.  Existence, reason, intellect, a birth in a
-
-Christian land, the calling of our nation to the knowledge of Christ, and
-
-Christ himself, with many other things, are unsought bestowed on men, as was
-
-David's right to the throne on him.  No one ever asked for a Saviour till
-
-God of his own motion promised "the seed of the woman."—&nbsp;*William S. Plumer.*&nbsp;
-
-&nbsp;*Verse*&nbsp;3.&nbsp;*"Thou settest a crown of pure gold on his head."*&nbsp;Christ may
-
-be said to have a fourfold glory, or crown.  1. As God co-essential with the
-
-Father; "the brightness of the Father's glory, and the express image of his
-
-person."  Hebrews 1:1, 2, 3.  2. He hath a crown and glory as Mediator, in
-
-respect of the power, authority, and glory wherewith he is invested as God's
-
-great deputy, and anointed upon the hill of Zion, having power, and a rod of
-
-iron, even in reference to enemies.  3. He hath a crown and glory in respect
-
-of the manifestation of his glory in the executing of his offices, when he
-
-makes his mediatory power and glory apparent in particular steps: thus
-
-sometimes he is said&nbsp;*to take his power to him*&nbsp;(Revelation 11:17); and is
-
-said&nbsp;*to be crowned*&nbsp;when the white horse of the gospel rides in triumph.
-
-Revelation 6:2.  The last step of this glory will be in the day of judgment;
-
-in short, this consists in his exercising his former power committed to him
-
-as Mediator.  4. There is a crown and glory which is in a manner put on him
-
-by particular believers, when he is glorified by them, not by adding
-
-anything to his infinite glory, but by their acknowledging of him to be so.—&nbsp;*James Durham,*&nbsp;1622-1658.
-
-&nbsp;*Verse*&nbsp;3.&nbsp;*"The crown of pure gold"*&nbsp;has respect to his exaltation at the
-
-right hand of God, where he is crowned with glory and honour, and this
-
-&nbsp;*"crown"*&nbsp;being of&nbsp;*"pure gold,"*&nbsp;denotes the purity, glory, solidity, and
-
-perpetuity of his kingdom.—&nbsp;*John Gill.*&nbsp;
-
-&nbsp;*Verse*&nbsp;4.&nbsp;*"He asked life of thee, and thou gavest it him, even length of*&nbsp;
-
-days for ever and ever."The glory of God is concerned in Christ's living
-
-for ever—1. The glory of his&nbsp;*faithfulness:*&nbsp;for eternal life and
-
-blessedness were pledged to Immanuel in covenant as the reward of his work
-
-(Psalm 110:1-4; Isaiah 9:6, 7, etc.); and it was in the anticipation and
-
-confident hope of this, that he "endured the cross, despising the shame."
-
-Hebrews 12:2; Psalm 16:8-11.  2. The glory of his&nbsp;*justice.*&nbsp;The justice
-
-of God was honoured and fully satisfied in all its righteous demands by the
-
-death of Christ.  His subsequent life is the expression on the part of God
-
-of that satisfaction.  His perpetual life is a permanent declaration that in
-
-him and his finished work the everlasting righteousness of Jehovah rests for
-
-ever satisfied.  Death can "never more have dominion over him:" for to
-
-inflict the penalty again would be a violation of justice.  3. The glory of
-
-his&nbsp;*grace.*&nbsp;The glory of this grace he now lives actively to promote.
-
-John 17:2.  By living&nbsp;*"ever"*&nbsp;at God's right hand, he appears as an eternal
-
-memorial of God's love in making him our Mediator and Substitute—our
-
-Saviour from sin and wrath; and his permanent appearance there will keep all
-
-heaven perpetually in mind that "by the grace of God they are what they
-
-are," owing all to the sovereign mercy of God through Jesus Christ.  He
-
-shall appear as the blessed medium through which all the gifts and joys of
-
-salvation shall flow to the guilty for evermore.  Thus the power of God and
-
-all his moral attributes secure the perpetuity of the life of the risen and
-
-exalted Saviour.—&nbsp;*Ralph Wardlaw, D.D.*&nbsp;
-
-&nbsp;*Verse*&nbsp;4.&nbsp;*"He asked life of thee, and thou gavest it him."*&nbsp;He asked a
-
-resurrection, saying, "Father, glorify thy Son;" and thou gavest it him.
-
-&nbsp;*"Length of days for ever and ever."*&nbsp;The prolonged ages of this world
-
-which the church was to have, and after them an eternity, world without end.—&nbsp;*Augustine.*&nbsp;
-
-&nbsp;*Verse*&nbsp;4.&nbsp;*"He asked life of thee,"*&nbsp;etc.  Thus God is better to his
-
-people than their prayers; and when they ask but one blessing, he answereth
-
-them as Naaman did Gehazi, with, Nay, take two.  Hezekiah asked but one
-
-life, and God gave him fifteen years, which we reckon at two lives and more.
-
-He giveth liberally and like himself; as great Alexander did when he gave
-
-the poor beggar a city; and when he sent his schoolmaster a ship full of
-
-frankincense, and bade him sacrifice freely.—&nbsp;*John Trapp.*&nbsp;
-
-&nbsp;*Verses*&nbsp;4-8.  If David had before been without the symbol of his royal
-
-dignity, namely, the diadem, he was the more justified in praising the
-
-goodness of God, which had now transferred it from the head of an enemy to
-
-his own.—&nbsp;*Augustus F. Tholuck.*&nbsp;
-
-&nbsp;*Verse*&nbsp;5.&nbsp;*"His glory is great in thy salvation."*&nbsp;I remember one dying,
-
-and hearing some discourse of Jesus Christ; "Oh," said she, "speak more of
-
-this—let me hear more of this—be not weary of telling his praise; I
-
-long to see him, how should I but long to hear of him?"  Surely I cannot say
-
-too much of Jesus Christ.  On this blessed subject no man can possibly
-
-hyperbolise.  Had I the tongues of men and angels, I could never fully set
-
-forth Christ.  It involves an eternal contradiction, that the creature can
-
-see to the bottom of the Creator.  Suppose all the sands on the sea-shore,
-
-all the flowers, herbs, leaves, twigs of trees in woods and forests, all the
-
-stars of heaven, were all rational creatures; and had they that wisdom and
-
-tongues of angels to speak of the loveliness, beauty, glory, and excellency
-
-of Christ, as gone to heaven, and sitting at the right hand of his Father,
-
-they would, in all their expressions, stay millions of miles on this side
-
-Jesus Christ.  Oh, the loveliness, beauty, and glory of his countenance!
-
-Can I speak, or you hear of such a Christ?  And are we not all in a burning
-
-love, in a seraphical love, or at least in a conjugal love?  O my heart, how
-
-is it thou art not love sick?  How is it thou dost not charge the daughters
-
-of Jerusalem as the spouse did: "I charge you, O daughters of Jerusalem, if
-
-ye find my beloved, that ye shall tell him, that I&nbsp;*am*&nbsp;sick of love."
-
-Canticles 5:8.—&nbsp;*Isaac Ambrose.*&nbsp;
-
-&nbsp;*Verse*&nbsp;5.&nbsp;*"Honour and majesty hast thou laid upon him."*&nbsp;If it be
-
-demanded whether Christ were exalted unto his glory and dignity, according
-
-to both his natures, both his Godhead and his manhood, I answer, according
-
-to both.  According to his Godhead, not as it is considered in itself, but
-
-inasmuch as his Godhead, which from his birth unto his death did little show
-
-itself, after his resurrection was made manifest in his manhood; for, as the
-
-apostle saith (Romans 1:4), "He was declared mightily to be the Son of God
-
-by the resurrection from the dead," even by the resurrection and after his
-
-resurrection from the dead, he which was thought only to be man, was most
-
-plainly manifested likewise to be God.  Now, as touching his manhood, he was
-
-therein exalted unto highest majesty in the heavenly places, not only
-
-shaking off all infirmities of man's nature, but also being beautified and
-
-adorned with all qualities of glory, both in his soul and in his body, yet
-
-so that he still retaineth the properties of a true body, for even as he was
-
-man, he was set at the right hand of the Father, to rule and reign over all,
-
-till all his enemies be destroyed, and put under his feet.  To knit up all
-
-in a word, Christ, God and man, after his resurrection, was crowned with
-
-glory and honour, even such as plainly showed him to be God, and was set on
-
-the throne of God, there to rule and reign as sovereign Lord and King, till
-
-he come in the clouds to judge both quick and dead.  Here, then, is both
-
-matter of comfort and consolation unto the godly, and likewise for fear and
-
-astonishment unto the wicked and ungodly.—&nbsp;*Henry Airway,*&nbsp;1560-1616.
-
-&nbsp;*Verse*&nbsp;5 (&nbsp;*last clause*&nbsp;).  Christ was "a man of sorrows" on earth, but he
-
-is full of joy in heaven.  He that "wipes away all tears from the eyes of
-
-his people," surely has none in his own.  There was a&nbsp;*joy set before him*&nbsp;
-
-before he suffered, and doubtless it was given him, when he sat down at
-
-God's right hand.  We may take the latter to be an actual donation of the
-
-former; the joy he had in prospect when he suffered he had in possession
-
-when he came to his throne.  This is the time of his receiving the Father's
-
-public approbation, and the tokens of his love, before the whole heavenly
-
-assembly, which must be matter of great joy to him who so much valued and
-
-delighted in his Father's love.—&nbsp;*John Hurrion,*&nbsp;1675-1731.
-
-&nbsp;*Verse*&nbsp;5.  Happy he who hath a bone, or an arm, to put the crown upon the
-
-head of our highest King, whose chariot is paved with love.  Were there ten
-
-thousand millions of heavens created above these highest heavens, and again
-
-as many above them, and as many above them, till angels were wearied with
-
-counting, it were but too low a seat to fix the princely throne of that Lord
-
-Jesus (whose ye are) above them all.—&nbsp;*Samuel Rutherford.*&nbsp;
-
-&nbsp;*Verse*&nbsp;6.&nbsp;*"Thou hast made him exceeding glad:"*&nbsp;literally, "brightened
-
-him," possibly in allusion to the brightness of Moses' face.
-
-&nbsp;*Dalman Hapstone, M.A., in "The Ancient Psalms. . . . A Literal—Translation and Notes,"*&nbsp;etc., 1867.
-
-&nbsp;*Verse*&nbsp;6.&nbsp;*"Thou hast made him exceeding glad with thy countenance."*&nbsp;
-
-Though this be metamorphically used for&nbsp;*favour,*&nbsp;yet is the speech not all
-
-metaphor, and that well-experienced Christians will tell you.—&nbsp;*Zachary Bogan, in "The Mirth of a Christian Life,"*&nbsp;1653.
-
-&nbsp;*Verse*&nbsp;6 (&nbsp;*first clause*&nbsp;).  Literally, as in the Bible marginal
-
-translation, "Thou hast set him&nbsp;*to be*&nbsp;blessings for ever."  Most truly
-
-said of the King in whom all the nations of the earth were to be blessed.—&nbsp;*Richard Mant.*&nbsp;
-
-&nbsp;*Verse*&nbsp;8.&nbsp;*"Thine hand shall find out all thine enemies: thy right hand*&nbsp;
-
-shall find out those that hate thee."By a kind of climax in the form of
-
-expression,&nbsp;*"hand,"*&nbsp;is followed by&nbsp;*"right hand,"*&nbsp;a still more emphatic
-
-sign of active strength.  To&nbsp;*"find,"*&nbsp;in this connection, includes the
-
-ideas of detecting and reaching.  Compare 1 Samuel 23:17; Isaiah 10:10; in
-
-the latter of which places the verb is construed with a preposition (Heb.),
-
-as it is in the first clause of the verse before us, whereas in the other
-
-clause it governs the noun directly.  If any difference of meaning was
-
-intended, it is probably not greater than that between&nbsp;*find*&nbsp;and&nbsp;*find out*&nbsp;
-
-in English.—&nbsp;*Joseph Addison Alexander.*&nbsp;
-
-&nbsp;*Verse*&nbsp;8.&nbsp;*"Thine hand shall find out all thine enemies: thy right hand*&nbsp;
-
-shall find out those that hate thee."Saul killed himself, for fear of
-
-falling into the hands of his enemies, and thought death less terrible than
-
-the shame that he would have endured in seeing himself in their power.  What
-
-will it be then "to fall into the hands of the living God" (Hebrews 10:31),
-
-of an offended God? of God unchangeably determined to be avenged?  "Who can
-
-stand before his indignation?" says the prophet Nahum (chap. 1:6).  Who will
-
-dare look on him?  Who will dare show himself?&nbsp;*"Who may abide the day of*&nbsp;
-
-his coming"(Malachi 3:2) without shuddering and fainting for fear?  If
-
-Joseph's brethren were so terrified that they "could not answer him," when
-
-he said, "I am Joseph your brother," how will it be with sinners, when they
-
-shall hear the voice of the Son of God, when he shall triumph over them in
-
-his wrath, and say unto them, "I am he" whom ye despised; "I am he" whom ye
-
-have offended; "I am he" whom ye have crucified?  If these words, "I am he,"
-
-overthrew the soldiers in the garden of Olives (John 18:6), though spoken
-
-with extreme gentleness, how will it be when his indignation bursts forth,
-
-when it falls upon his enemies like a thunderbolt, and reduces them into
-
-dust?  Then will they cry out in terror, and say to the mountains,&nbsp;*"Fall on*&nbsp;
-
-us, and hide us from the face of him that sitteth on the throne, and from
-
-the wrath of the Lamb."Revelation 6:16.—&nbsp;*James Nouet.*&nbsp;
-
-&nbsp;*Verse*&nbsp;8.&nbsp;*"Thine hand shall find out,"*&nbsp;etc.  It is not meant only of a
-
-discovery of a person (though it be a truth, that the Lord will discover all
-
-that are his enemies), but&nbsp;*thine hand shall find them out,*&nbsp;is, it shall
-
-take hold of them, grasp them, and arrest them.  "Thine hand shall find out"
-
-&nbsp;*all*&nbsp;"thine enemies," though close, though covert enemies; not only thy
-
-above-ground enemies, but thy under-ground enemies; as well those that
-
-undermine thee, as those that assault thee.—&nbsp;*Joseph Caryl.*&nbsp;
-
-&nbsp;*Verse*&nbsp;9.&nbsp;*"Thou shalt make them as a fiery oven in the time of thine*&nbsp;
-
-anger: the Lord shall swallow them up in his wrath, and the fire shall
-
-devour them."How then shall it fare with sinners, when, after all, shall
-
-come that general fire so often foretold, which shall either fall from
-
-heaven, or ascend out of hell, or (according to Albertus Magnus), proceed
-
-from both, and shall devour and consume all it meets with?  Whither shall
-
-the miserable fly, when that river of flames, or (to say better), that
-
-inundation and deluge of fire shall so encompass them, as no place of surety
-
-shall be left; where nothing can avail but a holy life; when all besides
-
-shall perish, in that universal ruin of the whole world?  What lamentations
-
-were in Rome, when it burnt for seven days together!  What shrieks were
-
-heard in Troy, when it was wholly consumed with flames!  What howling and
-
-astonishment in Pentapolis, when those cities were destroyed with fire from
-
-heaven!  What weeping there was in Jerusalem, when they beheld the house of
-
-God, the glory of their kingdom, the wonder of the world, involved in fire
-
-and smoke!  Imagine what these people felt; they saw their houses and goods
-
-on fire, and no possibility of saving them; when the husband heard the
-
-shrieks and cries of his dying wife; the father, of his little children;
-
-and, unawares, perceived himself so encompassed with flames, that he could
-
-neither relieve them, nor free himself.  What shall it then profit the
-
-worldlings, to have rich vessels of gold and silver, curious embroideries,
-
-precious tapestries, pleasant gardens, sumptuous palaces, and all what the
-
-world now esteems, when they shall with their own eyes, behold their costly
-
-palaces burnt, their rich and curious pieces of gold melted, and their
-
-flourishing and pleasant orchards consumed, without power to preserve them
-
-or themselves?  All shall burn, and with it the world, and all the memory
-
-and fame of it shall die; and that which mortals thought to be immortal,
-
-shall then end and perish.—&nbsp;*Jeremy Taylor.*&nbsp;
-
-&nbsp;*Verse*&nbsp;9.&nbsp;*"Thou shalt make them as a fiery oven in the time of thine*&nbsp;
-
-anger."They shall not only be cast into a furnace of fire (Matthew
-
-13:42), but he shall make them themselves as a fiery oven or furnace, they
-
-shall be their own tormentors, the reflections and terrors of their own
-
-consciences will be their hell.  Those that might have had Christ to rule
-
-and save them, but rejected him, and fought against him, even the
-
-remembrance of that will be enough to make them to eternity a fiery oven to
-
-themselves.—&nbsp;*Matthew Henry.*&nbsp;
-
-&nbsp;*Verse*&nbsp;9.&nbsp;*"Thou shalt make them as a fiery oven:"*&nbsp;thou shalt make them
-
-on fire within, by the consciousness of their ungodliness:&nbsp;*"In the time of*&nbsp;
-
-thy countenance;"in the time of thy manifestation.—&nbsp;*Augustine.*&nbsp;
-
-&nbsp;*Verse*&nbsp;9.&nbsp;*"As a fiery oven,"*&nbsp;where the burning is extremely hot, the
-
-heat striking upon what is in it from all sides, above, below, and about, on
-
-all hands, and the door closed from going out, or from suffering any cool
-
-refreshment to come in.—&nbsp;*David Dickson.*&nbsp;
-
-&nbsp;*Verse*&nbsp;9.&nbsp;*"As a fiery oven."*&nbsp;Shall make them like a vault of fire,
-
-literally,&nbsp;*"an oven,"*&nbsp;as in our translation, or "furnace of fire."  Bishop
-
-Horsley remarks, "It describes the smoke of the Messiah's enemies perishing
-
-by fire, ascending like the smoke of a furnace.  'The smoke of their
-
-torments shall ascend for ever and ever.'"  How awfully grand is that
-
-description of the ruins of the cities of the plain, as the prospect struck
-
-on Abraham's eye on the fatal morning of their destruction!  "And he looked
-
-toward Sodom and Gomorrah, and toward all the land of the plain, and beheld,
-
-and, lo, the smoke of the country went up as the smoke of a furnace."
-
-Milton puts it—
-
-Overhead the dismal hiss
-
-Of fiery darts in flaming volleys flew,
-
-And flying vaulted either host with fire."
-
-&nbsp;*Richard Mant.*&nbsp;
-
-&nbsp;*Verse*&nbsp;9.  The Chaldee reads:—"The fire of Gehenna, or hell."—&nbsp;*John Morison.*&nbsp;
-
-&nbsp;*Verse*&nbsp;9.&nbsp;*"The time of thine anger."*&nbsp;If God be willing to pour out his
-
-heavy displeasure upon those that displease him, what can hinder his mighty
-
-arm from performing?  Creatures indeed may be angry, but oftentimes, like
-
-drones without stings, cannot hurt; as cannons charged with powder without
-
-shot only make a roaring; like the Pope's Bulls, threaten many, hurt none
-
-but those whose conscience is enslaved.  Saul may be angry at David, but
-
-cannot find him out; but from God's all-piercing eye none can hide himself.
-
-Satan may desire to kill Job, Jonah may be angry till death for Nineveh's
-
-preservation; yet God puts a bit in both their mouths, who, if he be angry,
-
-nothing can be holden out of his reach.  Princes, if they take captives, may
-
-have them rescued from them again, as Lot was from the King of Sodom; bought
-
-with a price, as Joseph of the Ishmaelites.  But no power can rescue us from
-
-God's anger, no ransom but Christ's blood redeem us.  God's will being set
-
-afoot, all his attributes follow; if his will say, Be angry, his eye seek
-
-out the object of his anger, and finds it; his wisdom tempers the cup, his
-
-hand whets the sword, his arm strikes the blow.  Thus you see there is a
-
-time of God's anger for sin, because he will have it so.—&nbsp;*John Cragge.*&nbsp;
-
-&nbsp;*Verse*&nbsp;9.&nbsp;*"The fire shall devour them."*&nbsp;Being troubled by the vengeance
-
-of the Lord, after the accusation of their conscience, they shall be given
-
-up to eternal fire to be devoured.—&nbsp;*Augustine.*&nbsp;
-
-&nbsp;*Verse*&nbsp;9.  I have read that a frown of Queen Elizabeth killed Sir
-
-Christopher Hatton, the Lord Chancellor of England.  What then shall the
-
-frowns of the King of nations do?  If the rocks rend, the mountains melt,
-
-and the foundations of the earth tremble under his wrath; how will the
-
-ungodly sinner appear when he comes in all his royal glory to take vengeance
-
-on all that knew him not, and that obeyed not his glorious gospel?—&nbsp;*Charles Bradbury.*&nbsp;
-
-&nbsp;*Verse*&nbsp;10.&nbsp;*"Their fruit shalt thou destroy from the earth, and their seed*&nbsp;
-
-from among the children of men."A day is coming when all the&nbsp;*"fruits"*&nbsp;
-
-of sin, brought forth by sinners in their words, their writings, and their
-
-actions shall be&nbsp;*"destroyed;"*&nbsp;yea, the tree itself, which had produced
-
-them, shall be rooted up, and cast into the fire.  The&nbsp;*"seed"*&nbsp;and
-
-posterity of the wicked, if they continue in the way of their forefathers,
-
-will be punished like them.  Let parents consider, that upon their
-
-principles and practices may depend the salvation or destruction of
-
-multitudes after them.  The case of the Jews, daily before their eyes,
-
-should make them tremble.—&nbsp;*George Horne.*&nbsp;
-
-&nbsp;*Verse*&nbsp;11.&nbsp;*"They intended,"*&nbsp;or warped.  Hebrew,&nbsp;*have bent or*&nbsp;
-
-stretched.A similitude taken from weavers, who warp their yarn before
-
-they weave: or from archers, who, when they have bent their bow and put in
-
-their arrow, do take their aim.—&nbsp;*John Diodati.*&nbsp;
-
-&nbsp;*Verse*&nbsp;12.&nbsp;*"Therefore shalt thou make them turn their back,"*&nbsp;or&nbsp;*thou*&nbsp;
-
-shalt set them as a butt, "when thou shalt make ready thine arrows upon thy
-
-strings against the face of them."The judgments of God are called his
-
-&nbsp;*"arrows,"*&nbsp;being sharp, swift, sure and deadly.  What a dreadful situation,
-
-to be set as a mark and&nbsp;*"butt"*&nbsp;at which these arrows are directed!  View
-
-Jerusalem encompassed by the Roman armies without, and torn to pieces by the
-
-animosity of desperate and bloody factions within!  No farther commentary is
-
-requisite upon this verse.—&nbsp;*George Horne.*&nbsp;
-
-## HINTS TO THE VILLAGE PREACHER
-
-&nbsp;*Verse*&nbsp;1.  The joy of Jesus and of his people in the strength and salvation
-
-of God.
-
-&nbsp;*Verses*&nbsp;1, 2.  The doctrine of the resurrection of Jesus Christ contained
-
-in the text, may be considered under three heads:
-
-I.&nbsp;*As an answer to prayer.*&nbsp;
-
-II.&nbsp;*His joy therein—even in the resurrection.*&nbsp;
-
-III.  As a necessary appendage to
-
-this—&nbsp;*our own individual concern in his glory and in his joy.*&nbsp;
-
-&nbsp;*Hamilton Verschoyle.*&nbsp;
-
-&nbsp;*Verse*&nbsp;2.  The successful Advocate.
-
-&nbsp;*Verse*&nbsp;3 (&nbsp;*first clause*&nbsp;).  Preventing mercies.
-
-&nbsp;*Verse*&nbsp;3 (&nbsp;*first clause*&nbsp;).  GOD GOING BEFORE US, or God's anticipation of
-
-our necessities by his merciful dispensations.  God prevents us with the
-
-blessings of his goodness:
-
-I.  When we come into the world.
-
-II.  When we become personal transgressors.
-
-III.  When we enter upon the duties and upon the cares of mature life.
-
-IV.  When, in the general course of life, we enter upon new paths.
-
-V.  In the dark "valley of the shadow of death."
-
-VI.  By giving us many mercies without our asking
-
-for them; and thus creating occasion, not for prayer, but for praise only.
-
-VII.  By opening to us the gate of heaven, and
-
-by storing heaven with every provision for our blessedness.—&nbsp;*Samuel Martin.*&nbsp;
-
-&nbsp;*Verse*&nbsp;3 (&nbsp;*second clause*&nbsp;).  Jesus crowned.
-
-I.  His previous labours.
-
-II.  The dominion bestowed.
-
-III.  The character of the crown.
-
-IV.  The divine coronant.
-
-&nbsp;*Verse*&nbsp;4.  Jesus ever living.
-
-&nbsp;*Verse*&nbsp;5.  The glory of the Mediator.
-
-&nbsp;*Verse*&nbsp;6.  The blessedness of Jesus.
-
-&nbsp;*Verse*&nbsp;7.  Jesus, and example of faith and of its results.
-
-&nbsp;*Verse*&nbsp;8.  The secret sinner unearthed, and deprived of all hope of
-
-concealment.
-
-&nbsp;*Verses*&nbsp;8, 9.  The certainty and terror of the punishment of the wicked.
-
-&nbsp;*Verses*&nbsp;11, 12.  The guilt and punishment of evil intentions.
-
-&nbsp;*Verse*&nbsp;12.  The retreat of the grand army of hell.
-
-&nbsp;*Verse*&nbsp;13.&nbsp;*A devout Doxology.*&nbsp;
-
-I.  God exalted.
-
-II.  God alone exalted.
-
-III.  God exalted by his own strength.
-
-IV.  His people singing his praise.
-
+*Verse* 13. *A devout Doxology.* I. God exalted. II. God alone exalted. III. God exalted by his own strength. IV. His people singing his praise. 
