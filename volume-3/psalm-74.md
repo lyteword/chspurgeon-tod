@@ -4,7 +4,7 @@ weight: 74
 
 # Psalm 74
 
-**TITLE.**&nbsp;&nbsp;*Maschil of Asaph.*&nbsp;An instructive Psalm by Asaph. The history of the suffering church is always edifying; when we see how the faithful trusted and wrestled with their God in times of dire distress, we are thereby taught how to behave ourselves under similar circumstances; we learn moreover, that when fiery trial befalls us, no strange thing happened unto us, we are following the trail of the host of God.
+**Title &mdash;**&nbsp;&nbsp;*Maschil of Asaph.*&nbsp;An instructive Psalm by Asaph. The history of the suffering church is always edifying; when we see how the faithful trusted and wrestled with their God in times of dire distress, we are thereby taught how to behave ourselves under similar circumstances; we learn moreover, that when fiery trial befalls us, no strange thing happened unto us, we are following the trail of the host of God.
 
 **DIVISION.**&nbsp;From Ps 74:1-11 the poet pleads the sorrows of the nation, and the despite done to the assemblies of the Lord; then he urges former displays of divine power as a reason for present deliverance (Ps 74:12-23). Whether it is a prophetic Psalm, intended for use in troubles foreseen, or whether it was written by a later Asaph, after the invasion by Sennacherib or during the Maccabean wars, it would be very hard to determine, but we see no difficulty in the first supposition.
 

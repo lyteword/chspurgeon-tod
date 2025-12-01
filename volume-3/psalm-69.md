@@ -4,7 +4,7 @@ weight: 69
 
 # Psalm 69
 
-**TITLE.**&nbsp;&nbsp;*To the Chief Musician upon Shoshannim.*&nbsp;Thus for the second time we have a Psalm entitled "upon the lilies." In the forty-first they were golden lilies, dropping sweet smelling myrrh, and blooming in the fair gardens which skirt the ivory palaces: in this we have the lily among thorns, the lily of the valley, fair and beautiful, blooming in the garden of Gethsemane.&nbsp;*A Psalm of David.*&nbsp;If any enquire, "of whom speaketh the psalmist this? of himself, or of some other man?" we would reply, "of himself, and of some other man." Who that other is, we need not be long in discovering; it is the Crucified alone who can say, "in my thirst they gave me vinegar to drink." His footprints all through this sorrowful song have been pointed out by the Holy Spirit in the New Testament, and therefore we believe, and are sure, that the Son of Man is here. Yet is seems to be the intention of the Spirit, while he gives us personal types, and so shows the likeness to the firstborn which exists in the heirs of salvation, to set forth the disparities between the best of the sons of men, and the Son of God, for there are verses here which we dare not apply to our Lord; we almost shudder when we see our brethren attempting to do so, as for instance Ps 69:5. Especially do we note the difference between David and the Son of David in the imprecations of the one against his enemies, and the prayers of the other for them. We commence our exposition of this Psalm with much trembling, for we feel that we are entering with our Great High Priest into the most holy place.
+**Title &mdash;**&nbsp;&nbsp;*To the Chief Musician upon Shoshannim.*&nbsp;Thus for the second time we have a Psalm entitled "upon the lilies." In the forty-first they were golden lilies, dropping sweet smelling myrrh, and blooming in the fair gardens which skirt the ivory palaces: in this we have the lily among thorns, the lily of the valley, fair and beautiful, blooming in the garden of Gethsemane.&nbsp;*A Psalm of David.*&nbsp;If any enquire, "of whom speaketh the psalmist this? of himself, or of some other man?" we would reply, "of himself, and of some other man." Who that other is, we need not be long in discovering; it is the Crucified alone who can say, "in my thirst they gave me vinegar to drink." His footprints all through this sorrowful song have been pointed out by the Holy Spirit in the New Testament, and therefore we believe, and are sure, that the Son of Man is here. Yet is seems to be the intention of the Spirit, while he gives us personal types, and so shows the likeness to the firstborn which exists in the heirs of salvation, to set forth the disparities between the best of the sons of men, and the Son of God, for there are verses here which we dare not apply to our Lord; we almost shudder when we see our brethren attempting to do so, as for instance Ps 69:5. Especially do we note the difference between David and the Son of David in the imprecations of the one against his enemies, and the prayers of the other for them. We commence our exposition of this Psalm with much trembling, for we feel that we are entering with our Great High Priest into the most holy place.
 
 **DIVISION.**&nbsp;This Psalm consists of two portions of 18 verses each. These again may each be sub divided into three parts. Under the first head, from Ps 69:1-4, the sufferer spreads his complaint before God; then he pleads that his zeal for God is the cause of his sufferings, in Ps 69:5-12: and this encourages him to plead for help and deliverance, from Ps 69:13-18. In the second half of the Psalm he details the injurious conduct of his adversaries, from Ps 69:19-21; calls for their punishment, Ps 69:22-28, and then returns to prayer, and to a joyful anticipation of divine interposition and its results, Ps 69:29-36.
 
@@ -118,7 +118,7 @@ Those who choose evil shall have their choice. Men who hate divine mercy shall n
 
 ## Explanatory Notes & Quaint Sayings
 
-**TITLE.**&nbsp;&nbsp;*To the Chief Musician, on the lilies, of David*&nbsp;.&nbsp;*On the lilies,*&nbsp;points to the beauty of the subject treated of.&nbsp;*D. W. Hengstenberg.*&nbsp;
+**Title &mdash;**&nbsp;&nbsp;*To the Chief Musician, on the lilies, of David*&nbsp;.&nbsp;*On the lilies,*&nbsp;points to the beauty of the subject treated of.&nbsp;*D. W. Hengstenberg.*&nbsp;
 
 **Whole Psalm.**&nbsp;The subject of the Psalm is an ideal person, representing the whole class of religious sufferers. The only individual in whom the various traits meet is Christ. That he is not, however, the exclusive, or even the immediate subject, is clear from the confession in Ps 69:5. There is no Psalm, except for the twenty-second, more distinctly applied to him in the New Testament.&nbsp;*Joseph Addison Alexander.*&nbsp;
 
@@ -504,7 +504,7 @@ But, if ever human heart was riven and ruptured by the mere amount of mental ago
 
 1\.The inheritance: "Inherit it; "we reign with Christ on earth, then in heaven.
 
-2\.The title.
+2\.The **Title &mdash;**&nbsp;
 
 (a) Legal: "Seed of his servants"—Abraham, Jacob, David—David's Lord and Son.
 

@@ -4,7 +4,7 @@ weight: 64
 
 # Psalm 64
 
-**TITLE.**&nbsp;&nbsp;*To the Chief Musician.*&nbsp;The leader of the choir, for the time being, is charged with this song. It were well if the chief musicians of all our congregations estimated their duty at its due solemnity, for it is no mean thing to be called to lead the sacred song of God's people, and the responsibility is by no means light.&nbsp;*A Psalm of David.*&nbsp;His life was one of conflict, and very seldom does he finish a Psalm without mentioning his enemies; in this instance his thoughts are wholly occupied with prayer against them.
+**Title &mdash;**&nbsp;&nbsp;*To the Chief Musician.*&nbsp;The leader of the choir, for the time being, is charged with this song. It were well if the chief musicians of all our congregations estimated their duty at its due solemnity, for it is no mean thing to be called to lead the sacred song of God's people, and the responsibility is by no means light.&nbsp;*A Psalm of David.*&nbsp;His life was one of conflict, and very seldom does he finish a Psalm without mentioning his enemies; in this instance his thoughts are wholly occupied with prayer against them.
 
 **DIVISION.**&nbsp;From Ps 64:1-6 he describes the cruelty and craftiness of his foes, and from Ps 64:7-10 he prophesies their overthrow.
 

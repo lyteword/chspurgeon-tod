@@ -4,7 +4,7 @@ weight: 70
 
 # Psalm 70
 
-**TITLE.**&nbsp;&nbsp;*To the Chief Musician, A Psalm of David.*&nbsp;So far the title corresponds with Psalm 40, of which this is a copy with variations. David appears to have written the full length Psalm, and also to have made this excerpt from it, and altered it to suit the occasion. It is a fit pendant to Psalm 69, and a suitable preface to Psalm 71.&nbsp;*To bring to remembrance.*&nbsp;This is the poor man's memorial. David personally pleads with God that he may not be forgotten, but David's Lord may be heard here also. Even if the Lord seems to forget us, we must not forget him. This memorial Psalm acts as a connecting link between the two Psalms of supplicatory expostulation, and makes up with them a precious triad of song.
+**Title &mdash;**&nbsp;&nbsp;*To the Chief Musician, A Psalm of David.*&nbsp;So far the title corresponds with Psalm 40, of which this is a copy with variations. David appears to have written the full length Psalm, and also to have made this excerpt from it, and altered it to suit the occasion. It is a fit pendant to Psalm 69, and a suitable preface to Psalm 71.&nbsp;*To bring to remembrance.*&nbsp;This is the poor man's memorial. David personally pleads with God that he may not be forgotten, but David's Lord may be heard here also. Even if the Lord seems to forget us, we must not forget him. This memorial Psalm acts as a connecting link between the two Psalms of supplicatory expostulation, and makes up with them a precious triad of song.
 
 ## Exposition
 

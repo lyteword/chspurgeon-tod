@@ -4,7 +4,7 @@ weight: 43
 
 # Psalm 43
 
-**TITLE.**&nbsp;On account of the similarity of the structure of this Psalm to that of Psalm forty-two, it has been supposed to be a fragment wrongly separated from the preceding song; but it is always dangerous to allow these theories of error in Holy Scripture, and in this instance it would be very difficult to show just cause for such an admission. Why should the Psalm have been broken? Its similarity would have secured its unity had it ever been part and parcel of the forty-second. Is it not far more likely that some in their fancied wisdom united them wrongly in the few MSS in which they are found as one? We believe the fact is that the style of the poetry was pleasant to the writer, and therefore in after life he wrote this supplemental hymn after the same manner. As an appendix it needed no title. David complains of his enemies, and asks the privilege of communion with God as his surest deliverance from them.
+**Title &mdash;**&nbsp;On account of the similarity of the structure of this Psalm to that of Psalm forty-two, it has been supposed to be a fragment wrongly separated from the preceding song; but it is always dangerous to allow these theories of error in Holy Scripture, and in this instance it would be very difficult to show just cause for such an admission. Why should the Psalm have been broken? Its similarity would have secured its unity had it ever been part and parcel of the forty-second. Is it not far more likely that some in their fancied wisdom united them wrongly in the few MSS in which they are found as one? We believe the fact is that the style of the poetry was pleasant to the writer, and therefore in after life he wrote this supplemental hymn after the same manner. As an appendix it needed no **Title &mdash;**&nbsp; David complains of his enemies, and asks the privilege of communion with God as his surest deliverance from them.
 
 **DIVISION.**&nbsp;The psalmist cried to God in prayer, Ps 43:1-3. Promises praise in the anticipation of an answer, Ps 43:4, and chides himself for his despondency, Ps 43:5.
 
@@ -178,7 +178,7 @@ From&nbsp;*the word of the Spirit*&nbsp;, the word of God. Ps 119:50: "This is m
 
 3\.&nbsp;*The value of joy*&nbsp;, as comfort, strength, etc.
 
-**Verse 4.**&nbsp;&nbsp;*God my exceeding joy.*&nbsp;A most rich and precious title.
+**Verse 4.**&nbsp;&nbsp;*God my exceeding joy.*&nbsp;A most rich and precious **Title &mdash;**&nbsp;
 
 **Verse 4.**&nbsp;&nbsp;*(last clause)*&nbsp;. Possession, praise, resolution.
 

@@ -4,7 +4,7 @@ weight: 40
 
 # Psalm 40
 
-**TITLE.**&nbsp;To the Chief Musician. Well might so exceedingly precious a Psalm be specially committed to the most skilled of the sacred musicians. The noblest music should be made tributary to a subject so incomparable. The dedication shows that the song was intended for public worship, and was not a merely personal hymn, as its being in the first person singular might lead us to suppose. A Psalm of David. This is conclusive as to the authorship: lifted by the Holy Spirit into the region of prophecy, David was honoured to write concerning a far greater than himself.
+**Title &mdash;**&nbsp;To the Chief Musician. Well might so exceedingly precious a Psalm be specially committed to the most skilled of the sacred musicians. The noblest music should be made tributary to a subject so incomparable. The dedication shows that the song was intended for public worship, and was not a merely personal hymn, as its being in the first person singular might lead us to suppose. A Psalm of David. This is conclusive as to the authorship: lifted by the Holy Spirit into the region of prophecy, David was honoured to write concerning a far greater than himself.
 
 **SUBJECT.**&nbsp;Jesus is evidently here, and although it might not be a violent wresting of language to see both David and his Lord, both Christ and the church, the double comment might involve itself in obscurity, and therefore we shall let the sun shine even though this should conceal the stars. Even if the New Testament were not so express upon it, we should have concluded that David spoke of our Lord in Ps 40:6-9, but the apostle in Heb 10:5-9, puts all conjecture out of court, and confines the meaning to him who came into the world to do the Father's will.
 

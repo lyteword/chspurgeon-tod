@@ -4,7 +4,7 @@ weight: 55
 
 # Psalm 55
 
-**TITLE.**&nbsp;&nbsp;*To the Chief Musician on Neginoth.*&nbsp;Another song to be accompanied by stringed instruments. The strain is at one time mournful, and at another softly sweet. It needed the chief musician's best care to see that the music was expressive of the sentiment.&nbsp;*Maschil.*&nbsp;It is not a mere personal hymn, there is teaching in it for us all, and where our Lord shines through David, his personal type, there is a great deep of meaning.&nbsp;*Of David.*&nbsp;The man of many conditions, much tried, and much favoured, persecuted but delivered and exalted, was from experience enabled to write such precious verses in which he sets forth not only the sorrows of common pilgrims, but of the Lord of the way himself.
+**Title &mdash;**&nbsp;&nbsp;*To the Chief Musician on Neginoth.*&nbsp;Another song to be accompanied by stringed instruments. The strain is at one time mournful, and at another softly sweet. It needed the chief musician's best care to see that the music was expressive of the sentiment.&nbsp;*Maschil.*&nbsp;It is not a mere personal hymn, there is teaching in it for us all, and where our Lord shines through David, his personal type, there is a great deep of meaning.&nbsp;*Of David.*&nbsp;The man of many conditions, much tried, and much favoured, persecuted but delivered and exalted, was from experience enabled to write such precious verses in which he sets forth not only the sorrows of common pilgrims, but of the Lord of the way himself.
 
 **SUBJECT.**&nbsp;It would be idle to fix a time, and find an occasion for this Psalm with any dogmatism. It reads like a song of the time of Absalom and Ahithophel. It was after David had enjoyed peaceful worship (Ps 55:14), when he was or had just been a dweller in a city (Ps 55:9-11), and when he remembered his former roamings in the wilderness. Altogether it seems to us to relate to that mournful era when the King was betrayed by his trusted counsellor. The spiritual eye ever and anon sees the Son of David and Judas, and the chief priests appearing and disappearing upon the glowing canvas of the Psalm.
 
@@ -82,7 +82,7 @@ Our Lord, while free from all idle wishes, found much strength in solitude, and 
 
 ## Explanatory Notes & Quaint Sayings
 
-**TITLE.**&nbsp;Maschil. This is often prefixed to those Psalms in which David speaks of himself as being chastened by God, inasmuch as the end of chastisement is instruction.&nbsp;*Simon de Muis,*&nbsp;1587-1644.
+**Title &mdash;**&nbsp;Maschil. This is often prefixed to those Psalms in which David speaks of himself as being chastened by God, inasmuch as the end of chastisement is instruction.&nbsp;*Simon de Muis,*&nbsp;1587-1644.
 
 **Whole Psalm.**&nbsp;A prayer of the Man Christ in his humiliation, despised and rejected of men, when he was made sin for his people, that they might be made the righteousness of God in him, when he was about to suffer their punishment, pay their debt, and discharge their ransom. Utter depravity of the inhabitants of Jerusalem; betrayal of Messiah by one of the twelve whom he had ordained to the apostolical office, and who was Messiah's constant attendant in all his ministerial circuits. Premature and punitive death of the traitor Judas, and of others banded together to crucify the Lord of glory.&nbsp;*John Noble Coleman, M.A., in "A Revision of the authorised English Version of the Book of Psalms, "*&nbsp;1863.
 

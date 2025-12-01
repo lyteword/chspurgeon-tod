@@ -4,7 +4,7 @@ weight: 84
 
 # Psalm 84
 
-**TITLE AND SUBJECT.**&nbsp;To the Chief Musician upon Gittith. A Psalm for the sons of Korah. This Psalm well deserved to be committed to the noblest of the sons of song. No music could be too sweet for its theme, or too exquisite in sound to match the beauty of its language. Sweeter than the joy of the wine press, (for that is said to be the meaning of the word rendered upon Gittith), is the joy of the holy assemblies of the Lord's house; not even the favoured children of grace, who are like the sons of Korah, can have a richer subject for song than Zion's sacred festivals.
+**Title &amp; Subject &mdash;**&nbsp;To the Chief Musician upon Gittith. A Psalm for the sons of Korah. This Psalm well deserved to be committed to the noblest of the sons of song. No music could be too sweet for its theme, or too exquisite in sound to match the beauty of its language. Sweeter than the joy of the wine press, (for that is said to be the meaning of the word rendered upon Gittith), is the joy of the holy assemblies of the Lord's house; not even the favoured children of grace, who are like the sons of Korah, can have a richer subject for song than Zion's sacred festivals.
 
 It matters little when this Psalm was written, or by whom; for our part it exhales to us a Davidic perfume, it smells of the mountain heather and the lone places of the wilderness, where King David must have often lodged during his many wars. This sacred ode is one of the choicest of the collection; it has a mild radiance about it, entitling it to be called&nbsp;*The Pearl of Psalms.*&nbsp;If the twenty-third be the most popular, the one-hundred- and-third the most joyful, the one-hundred-and-nineteenth the most deeply experimental, the fifty-first the most plaintive, this is one of the most sweet of the Psalms of peace.
 
@@ -42,7 +42,7 @@ Pilgrimages to the tabernacle were a great feature of Jewish life. In our own co
 
 ## Explanatory Notes & Quaint Sayings
 
-**TITLE.**&nbsp;Here note, that the sons, that is, the posterity of wicked and rebellious Korah, have an honourable place in God's sacred and solemn service: for to them sundry of David's psalms are commended. . . . Here see the verifying of God's word, for the comfort of all godly children, that the son shall not bear the iniquity of the father, Eze 18:14,17,20, if he see his father's sins and turn from them.&nbsp;*Thomas Pierson (1570-1633), in "David's Heart's Desire."*&nbsp;
+**Title &mdash;**&nbsp;Here note, that the sons, that is, the posterity of wicked and rebellious Korah, have an honourable place in God's sacred and solemn service: for to them sundry of David's psalms are commended. . . . Here see the verifying of God's word, for the comfort of all godly children, that the son shall not bear the iniquity of the father, Eze 18:14,17,20, if he see his father's sins and turn from them.&nbsp;*Thomas Pierson (1570-1633), in "David's Heart's Desire."*&nbsp;
 
 **Whole Psalm.**&nbsp;
 

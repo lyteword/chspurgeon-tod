@@ -4,7 +4,7 @@ weight: 29
 
 # Psalm 29
 
-**TITLE.**&nbsp;A Psalm of David. The title affords us no information beyond the fact that David is the author of this sublime song.
+**Title &mdash;**&nbsp;A Psalm of David. The title affords us no information beyond the fact that David is the author of this sublime song.
 
 **SUBJECT.**&nbsp;It seems to be the general opinion of modern annotators, that this Psalm is meant to express the glory of God as heard in the pealing thunder, and seen in the equinoctial tornado. Just as the eighth Psalm is to be read by moonlight, when the stars are bright, as the nineteenth needs the rays of the rising sun to bring out its beauty, so this can be best rehearsed beneath the black wing of tempest, by the glare of the lightning, or amid that dubious dusk which heralds the war of elements. The verses march to the tune of thunderbolts. God is everywhere conspicuous, and all the earth is hushed by the majesty of his presence. The word of God in the law and gospel is here also depicted in its majesty of power. True ministers are sons of thunder, and the voice of God in Christ Jesus is full of majesty. Thus we have God's works and God's word joined together: let no man put them asunder by a false idea that theology and science can by any possibility oppose each other. We may, perhaps, by a prophetic glance, behold in this Psalm the dread tempests of the latter days, and the security of the elect people.
 

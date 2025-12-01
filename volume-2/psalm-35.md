@@ -4,7 +4,7 @@ weight: 35
 
 # Psalm 35
 
-**TITLE.**&nbsp;A Psalm of David. Here is all we know concerning this Psalm, but internal evidence seems to fix the date of its composition in those troublous times when Saul hunted David over hill and dale, and when those who fawned upon the cruel king, slandered the innocent object of his wrath, or it may be referred to the unquiet days of frequent insurrections in David's old age. The whole Psalm is the appeal to heaven of a bold heart and a clear conscience, irritated beyond measure by oppression and malice. Beyond a doubt David's Lord may be seen here by the spiritual eye.
+**Title &mdash;**&nbsp;A Psalm of David. Here is all we know concerning this Psalm, but internal evidence seems to fix the date of its composition in those troublous times when Saul hunted David over hill and dale, and when those who fawned upon the cruel king, slandered the innocent object of his wrath, or it may be referred to the unquiet days of frequent insurrections in David's old age. The whole Psalm is the appeal to heaven of a bold heart and a clear conscience, irritated beyond measure by oppression and malice. Beyond a doubt David's Lord may be seen here by the spiritual eye.
 
 **DIVISIONS.**&nbsp;The most natural mode of dividing this Psalm is to note its triple character. Its complaint, prayer, and promise of praise are repeated with remarkable parallelism three times, even as our Lord in the Garden prayed three times using the same words. The first portion occupies verse 1 to 10, the second from 11-18, and the last from 19 to the close; each section ending with a note of grateful song.
 

@@ -4,7 +4,7 @@ weight: 126
 
 # Psalm 126
 
-**TITLE.**&nbsp;A Song of Degrees. This is the seventh Step, and we may therefore expect to meet with some special perfection of joy in it; nor shall we look in vain. We see here not only that Zion abides, but that her joy returns after sorrow. Abiding is not enough, fruitfulness is added. The pilgrims went from blessing to blessing in their psalmody as they proceeded on their holy way. Happy people to whom ever ascent was a song, every halt a hymn. Here the trustor becomes a sower: faith works by love, obtains a present bliss, and secures a harvest of delight.
+**Title &mdash;**&nbsp;A Song of Degrees. This is the seventh Step, and we may therefore expect to meet with some special perfection of joy in it; nor shall we look in vain. We see here not only that Zion abides, but that her joy returns after sorrow. Abiding is not enough, fruitfulness is added. The pilgrims went from blessing to blessing in their psalmody as they proceeded on their holy way. Happy people to whom ever ascent was a song, every halt a hymn. Here the trustor becomes a sower: faith works by love, obtains a present bliss, and secures a harvest of delight.
 
 There is nothing in this psalm by which we can decide its date, further than this,—that it is a song after a great deliverance from oppression. "Turning captivity" by no means requires an actual removal into banishment to fill out the idea; rescue from any dire affliction or crushing tyranny would be fitly described as "captivity turned." Indeed, the passage is not applicable to captives in Babylon, for it is Zion itself which is in captivity and not a part of her citizens: the holy city was in sorrow and distress; though it could not be removed, the prosperity could be diminished. Some dark cloud lowered over the beloved capital, and its citizens prayed "Turn again our captivity. O Lord."
 
@@ -44,7 +44,7 @@ This verse will have a higher fulfilment in the day of the final overthrow of th
 
 ## Explanatory Notes & Quaint Sayings
 
-**TITLE.**&nbsp;Augustine interprets the title, "A Song of Degrees, i.e. a Song of drawing upwards", of the drawing (going) up to the heavenly Jerusalem. This is right, inasmuch as the deliverance from the captivity of sin and death should in an increased measure excite those feelings of gratitude which Israel must have felt on being delivered from their corporeal captivity; in this respect again is the history of the outward theocracy a type of the history of the church.—Augustus F. Tholuck, 1856.
+**Title &mdash;**&nbsp;Augustine interprets the title, "A Song of Degrees, i.e. a Song of drawing upwards", of the drawing (going) up to the heavenly Jerusalem. This is right, inasmuch as the deliverance from the captivity of sin and death should in an increased measure excite those feelings of gratitude which Israel must have felt on being delivered from their corporeal captivity; in this respect again is the history of the outward theocracy a type of the history of the church.—Augustus F. Tholuck, 1856.
 
 **Whole Psalm.**&nbsp;In its Christian aspect the psalm represents the seventh of the "degrees" in our ascent to the Jerusalem that is above. The Christian's exultation at his deliverance from the spiritual captivity of sin.—&nbsp;*H. T. Armfield.*&nbsp;
 

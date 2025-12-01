@@ -4,7 +4,7 @@ weight: 41
 
 # Psalm 41
 
-**TITLE.**&nbsp;To the Chief Musician. A Psalm of David. This title has frequently occurred before, and serves to remind us of the value of the Psalm, seeing that it was committed to no mean songster; and also to inform us as to the author who has made his own experience the basis of a prophetic song, in which a far greater than David is set forth. How wide a range of experience David had! What power it gave him to edify future ages! And how full a type of our Lord did he become! What was bitterness to him has proved to be a fountain of unfailing sweetness to many generations of the faithful.
+**Title &mdash;**&nbsp;To the Chief Musician. A Psalm of David. This title has frequently occurred before, and serves to remind us of the value of the Psalm, seeing that it was committed to no mean songster; and also to inform us as to the author who has made his own experience the basis of a prophetic song, in which a far greater than David is set forth. How wide a range of experience David had! What power it gave him to edify future ages! And how full a type of our Lord did he become! What was bitterness to him has proved to be a fountain of unfailing sweetness to many generations of the faithful.
 
 Jesus Christ betrayed by Judas Iscariot is evidently the great theme of this Psalm, but we think not exclusively. He is the antitype of David, and all his people are in their measure like him; hence words suitable to the Great Representative are most applicable to those who are in him. Such as receive a vile return for long kindness to others, may read this song with much comfort, for they will see that it is alas! too common for the best of men, to be rewarded for their holy charity with cruelty and scorn; and when they have been humbled by falling into sin, advantage has been taken of their low estate, their good deeds have been forgotten and the vilest spite has been vented upon them.
 
@@ -56,7 +56,7 @@ Though death and hell obstruct the way, "
 
 ## Explanatory Notes & Quaint Sayings
 
-**TITLE.**&nbsp;The&nbsp;*Syriac*&nbsp;says, "It was a Psalm of David, when he appointed overseers to take care of the poor."&nbsp;*Adam Clarke.*&nbsp;
+**Title &mdash;**&nbsp;The&nbsp;*Syriac*&nbsp;says, "It was a Psalm of David, when he appointed overseers to take care of the poor."&nbsp;*Adam Clarke.*&nbsp;
 
 **Whole Psalm.**&nbsp;A prophecy of Christ and the traitor Judas.&nbsp;*Eusebius of Caesarea, quoted by J. M. Neale.*&nbsp;
 

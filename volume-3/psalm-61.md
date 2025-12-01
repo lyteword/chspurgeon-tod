@@ -4,7 +4,7 @@ weight: 61
 
 # Psalm 61
 
-**TITLE.**&nbsp;&nbsp;*To the Chief Musician upon Neginah, a Psalm of David.*&nbsp;The original indicates that both the hymn and the musical instrument were David's. He wrote the verses and himself sang them to the stringed instrument whose sound he loved so well. We have left the Psalms entitled&nbsp;*Michtam,*&nbsp;but we shall still find much precious meaning though the golden name be wanting. We have met with the title of this Psalm before, in Psalms 4, 6, 54, and 55, but with this difference, that in the present case the word is in the singular number: the Psalm itself is very personal, and well adapted for the private devotion of a single individual.
+**Title &mdash;**&nbsp;&nbsp;*To the Chief Musician upon Neginah, a Psalm of David.*&nbsp;The original indicates that both the hymn and the musical instrument were David's. He wrote the verses and himself sang them to the stringed instrument whose sound he loved so well. We have left the Psalms entitled&nbsp;*Michtam,*&nbsp;but we shall still find much precious meaning though the golden name be wanting. We have met with the title of this Psalm before, in Psalms 4, 6, 54, and 55, but with this difference, that in the present case the word is in the singular number: the Psalm itself is very personal, and well adapted for the private devotion of a single individual.
 
 **SUBJECT AND DIVISION.**&nbsp;This Psalm is a pearl. It is little, but precious. To many a mourner it has furnished utterance when the mind could not have devised a speech for itself. It was evidently composed by David after he had come to the throne,—see Ps 61:6. The second verse leads us to believe that it was written during the psalmist's enforced exile from the tabernacle, which was the visible abode of God: if so, the period of Absalom's rebellion has been most suitably suggested as the date of its authorship, and Delitzsch is correct in entitling it, "Prayer and thanksgiving of an expelled King on his way back to his throne." We might divide the verses according to the sense, but it is preferable to follow the author's own arrangement, and make a break at each SELAH.
 
@@ -40,7 +40,7 @@ He who communes with God is always at home. The divine omnipresence surrounds su
 
 ## Explanatory Notes & Quaint Sayings
 
-**TITLE.**&nbsp;The word&nbsp;*Neginah*&nbsp;(the singular of&nbsp;*Neginoth*&nbsp;) may be understood to be synonymous with the&nbsp;*kinnor*&nbsp;or harp: that is to say, the instrument of eight strings, probably played with a bow or plectrum.&nbsp;*John Jess.*&nbsp;
+**Title &mdash;**&nbsp;The word&nbsp;*Neginah*&nbsp;(the singular of&nbsp;*Neginoth*&nbsp;) may be understood to be synonymous with the&nbsp;*kinnor*&nbsp;or harp: that is to say, the instrument of eight strings, probably played with a bow or plectrum.&nbsp;*John Jess.*&nbsp;
 
 **Verse 1.**&nbsp;&nbsp;*Hear my cry, O God; attend unto my prayer.*&nbsp;Aquinas saith that some read the words thus,&nbsp;*Intende ad cantica mea,*&nbsp;attend unto my songs—and so the words may be safely read, from the Hebrew word hgr&nbsp;*ranah,*&nbsp;which signifies to shout or shrill out for joy—to note that the prayers of the saints are like pleasant songs and delightful ditties in the ears of God. No mirth, no music, can be so pleasing to us as the prayers of the saints are pleasing to God. So 2:14 Ps 141:2.&nbsp;*Thomas Brooks.*&nbsp;
 

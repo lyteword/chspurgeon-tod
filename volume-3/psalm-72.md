@@ -4,7 +4,7 @@ weight: 72
 
 # Psalm 72
 
-**TITLE.**&nbsp;&nbsp;*A Psalm for Solomon.*&nbsp;The best linguists affirm that this should be rendered,&nbsp;*of*&nbsp;or&nbsp;*by*&nbsp;Solomon. There is not sufficient ground for the rendering&nbsp;*for*&nbsp;. It is pretty certain that the title declares Solomon to be the author of the Psalm, and yet from Ps 72:20 it would seem that David uttered it in prayer before he died. With some diffidence we suggest that the spirit and matter of the Psalm are David's, but that he was too near his end to pen the words, or cast them into form: Solomon, therefore, caught his dying father's song, fashioned it in goodly verse, and, without robbing his father, made the Psalm his own. It is, we conjecture, the Prayer of David, but the Psalm of Solomon. Jesus is here, beyond all doubt, in the glory of his reign, both as he now is, and as he shall be revealed in the latter day glory.
+**Title &mdash;**&nbsp;&nbsp;*A Psalm for Solomon.*&nbsp;The best linguists affirm that this should be rendered,&nbsp;*of*&nbsp;or&nbsp;*by*&nbsp;Solomon. There is not sufficient ground for the rendering&nbsp;*for*&nbsp;. It is pretty certain that the title declares Solomon to be the author of the Psalm, and yet from Ps 72:20 it would seem that David uttered it in prayer before he died. With some diffidence we suggest that the spirit and matter of the Psalm are David's, but that he was too near his end to pen the words, or cast them into form: Solomon, therefore, caught his dying father's song, fashioned it in goodly verse, and, without robbing his father, made the Psalm his own. It is, we conjecture, the Prayer of David, but the Psalm of Solomon. Jesus is here, beyond all doubt, in the glory of his reign, both as he now is, and as he shall be revealed in the latter day glory.
 
 **DIVISION.**&nbsp;We shall follow the division suggested by Alexander. "A glowing description of the reign of Messiah as righteous, Ps 72:1-7; universal, Ps 72:8-11; beneficent, Ps 72:12-14; and perpetual, Ps 72:15-17; to which are added a doxology, Ps 72:18-19; and a postscript, Ps 72:20."
 
@@ -82,7 +82,7 @@ God's church is no mean thing; its beginnings are small, but its increase is of 
 
 ## Explanatory Notes & Quaint Sayings
 
-**TITLE.**&nbsp;&nbsp;*For Solomon.*&nbsp;I shall but mention a threefold analogy between Christ and Solomon.
+**Title &mdash;**&nbsp;&nbsp;*For Solomon.*&nbsp;I shall but mention a threefold analogy between Christ and Solomon.
 
 1\.In his&nbsp;*personal wisdom*&nbsp;(1Ki 4:29-30); so Christ (Col 2:3); "In him are hid all the treasures of wisdom and knowledge."
 
