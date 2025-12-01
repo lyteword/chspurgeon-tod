@@ -8,7 +8,7 @@ weight: 54
 
 **DIVISION.**&nbsp;From Ps 54:1-3, where the Selah makes a pause for us, the psalmist pleads with God, and then in the rest of the song, laying aside all doubt, he chants a hymn of joyful triumph. The vigour of faith is the death of anxiety, and the birth of security.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Save me, O God.*&nbsp;Thou art my Saviour; all around me are my foes and their eager helpers. No shelter is permitted me. Every land rejects me and denies me rest. But thou, O God, wilt give me refuge, and deliver me from all my enemies. By thy name, by thy great and glorious nature. Employ all thine attributes for me. Let every one of the perfections which are blended in thy divine name work for me. Is not thine honour pledged for my defence? And judge me by thy strength. Render justice to me, for none else will or can. Thou canst give me efficient justice, and right my wrongs by thine omnipotence. We dare not appeal to God in a bad cause, but when we know that we can fearlessly carry our cause before his justice we may well commit it to his power.
 
@@ -36,7 +36,7 @@ Out of all trouble our covenant God is pledged to bring us, and therefore even n
 
 And mine eye hath seen his desire upon mine enemies. He knew that yet he should look on his haughty foes, gazing down on them in triumph as now they looked on him in contempt. He desired this as a matter of justice, and not of personal pique. His righteous soul exulted because he knew that unprovoked and gratuitous malice would meet with a righteous punishment. Could we keep out of our hearts all personal enmity as fully as the psalmist did in this Psalm, we might yet equally feel with him a sacred acquiescence and delight in that divine justice which will save the righteous and overthrow the malicious. In closing, let us trust that if we are as friendless as this man of God, we may resort in prayer as he did, exercise the like faith, and find ourselves ere long singing the same joyous hymn of praise.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;From the inscription, learn,
 
@@ -88,7 +88,7 @@ And mine eye hath seen his desire upon mine enemies. He knew that yet he should 
 
 **Verse 7.**&nbsp;The reader will note that the words&nbsp;*his desire*&nbsp;are supplied by our translators, and are not in the original text.&nbsp;*C. H. S.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;In the deliverance of the saints the honour and power of God are concerned.
 
@@ -144,7 +144,7 @@ And mine eye hath seen his desire upon mine enemies. He knew that yet he should 
 
 **Verse 7.**&nbsp;(&nbsp;*first clause*&nbsp;). The exclamation of the newly pardoned penitent, the cry of the delivered saint, the song of the ripe Christian, the shout of the glorified believer.
 
-## WORK UPON THE FIFTY-FOURTH PSALM
+## Works Upon The Fifty-Fourth Psalm
 
 In CHANDLER'S&nbsp;*"Life of David, "*&nbsp;pp. 152-4, there is an Exposition of this Psalm.
 

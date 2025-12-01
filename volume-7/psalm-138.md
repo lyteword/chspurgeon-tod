@@ -8,7 +8,7 @@ weight: 138
 
 **DIVISION.**&nbsp;In full confidence David is prepared to own his God before the gods of the heathen, or before angels or rulers (Ps 138:1-3); he declares that he will instruct and convert kings and nations, till on very highway men shall sing the praises of the Lord (Ps 138:4-5). Having thus spoken, he utters his personal confidence in Jehovah, who will help his lowly servant, and preserve him from all the malice of wrathful foes.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*I will praise thee with my whole heart.*&nbsp;His mind is so taken up with God that he does not mention his name: to him there is no other God, and Jehovah is so perfectly realized and so intimately known, that the Psalmist, in addressing him, no more thinks of mentioning his name than we should do if we were speaking to a father or a friend. He sees God with his mind's eye, and simply addresses him with the pronoun "thee." He is resolved to praise the Lord, and to do it with the whole force of his life, even with his whole heart. He would not submit to act as one under restraint, because of the opinions of others; but in the presence of the opponents of the living God he would be as hearty in worship as if all were friends and would cheerfully unite with him. If others do not praise the Lord, there is all the more reason why we should do so, and should do so with enthusiastic eagerness. We need a broken heart to mourn our own sins, but a whole heart to praise the Lord's perfections. If ever our heart is whole and wholly occupied with one thing, it should be when we are praising the Lord.
 
@@ -46,7 +46,7 @@ And never was forfeited yet."
 
 God is concerned in all that concerns his servants. He will see to it that none of their precious things shall fail of completion; their life, their strength, their hopes, their graces, their pilgrimage, shall each and all be perfected. Jehovah himself will see to this and therefore it is most sure. Thy mercy, O Lord, endureth for ever. The refrain of the former Psalm is in his ears, and he repeats it as his own personal conviction and consolation. The first clause of the verse is the assurance of faith, and this second one reaches to the full assurance of understanding. God's work in us will abide unto perfection because God's mercy towards us thus abideth. Forsake not the works of thine own hands. Our confidence does not cause us to live without prayer, but encourages us to pray all more. Since we have it written upon our hearts that God will perfect his work in us, and we see it also written in Scripture that his mercy changeth not, with holy earnestness entreat that we may not be forsaken. If there be anything good in us, it is the work Of God's own hands: will he leave it? Why has he wrought so much in us if he means to give us up?—it will be a sheer effort. He who has gone so far will surely persevere with us to the end. Our hope for the final perseverance of the believer lies in the final perseverance of believer's God. If the Lord begins to build, and does not finish, it will not be his honour. He will have a desire to the work of his hands, for he knows it has cost him already, and he will not throw away a vessel upon which he has expended so much of labour and skill. Therefore do we praise him with our, whole heart, even in the presence of those who depart from his Holy Word, and, set up another God and another gospel; which are not another, but there be some that trouble us.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Psalm 138:1 to 145:21.**&nbsp;These eight Psalms are composed in the first person, and they follow very happily after the fifteen "Songs of Up goings", and the three Psalms of praise uttered by the chorus of those who have&nbsp;*gone up*&nbsp;to Sion. Those Psalms were the united utterances of national devotion. These eight Psalms are the devout Israelite's Manual of&nbsp;*private*&nbsp;prayer and praise.—&nbsp;*Christopher Wordsworth.*&nbsp;
 
@@ -154,7 +154,7 @@ God is concerned in all that concerns his servants. He will see to it that none 
 
 **Verse 8.**&nbsp;&nbsp;*Thine own hands.*&nbsp;His creating hands formed our souls at the beginning; his nail pierced hands redeemed them on Calvary; his glorified hands will hold our souls fast and not let them go for ever. Unto his hands let us commend our spirits, sure that even though the works of our hands have made void the works of his hands, yet his hands will again make perfect all that our hands have unmade.—&nbsp;*J.W. Burgon.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verses 1-3.**&nbsp;David vexed with rival gods, as we are with rival gospels. How will he act?
 

@@ -8,7 +8,7 @@ weight: 107
 
 **DIVISION.**&nbsp;The psalmist commences by dedicating his poem to the redeemed who have been gathered from captivity, Ps 107:1-3; he then likens their history to that of travellers lost in the desert, Ps 107:4-9; to that of prisoners in iron bondage, Ps 107:10-16; to that of sick men, Ps 107:17-22; and to that of mariners tossed with tempest, Ps 107:23-32. In the closing verses the judgment of God on the rebellious, and the mercies of God to his own afflicted people are made the burden of the song, Ps 107:33-42; and then the psalm closes with a sort of summing up, in Ps 107:43, which declares that those who study the works and ways of the Lord shall be sure to see and praise his goodness.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*O give thanks unto the Lord, for he is good.*&nbsp;It is all we can give him, and the least we can give; therefore let us diligently render to him our thanksgiving. The psalmist is in earnest in the exhortation, hence the use of the interjection "O", to intensity his words: let us be at all times thoroughly fervent in the praises of the Lord, both with our lips and with our lives, by thanksgiving and thanks living. JEHOVAH, for that is the name here used, is not to be worshipped with groans and cries, but with thanks, for he is good; and these thanks should be heartily rendered, for his is no common goodness: he is good by nature, and essence, and proven to be good in all the acts of his eternity. Compared with him there is none good, no, not one: but he is essentially, perpetually, superlatively, infinitely good. We are the perpetual partakers of his goodness, and therefore ought above all his creatures to magnify his name. Our praise should be increased by the fact that the divine goodness is not a transient thing, but in the attribute of mercy abides for ever the same, for his mercy endureth for ever. The word&nbsp;*endureth*&nbsp;has been properly supplied by the translators, but yet it somewhat restricts the sense, which will be better seen if we read it,&nbsp;*"for his mercy forever."*&nbsp;That mercy had no beginning, and shall never know an end. Our sin required that goodness should display itself to us in the form of mercy, and it has done so, and will do so evermore; let us not be slack in praising the goodness which thus adapts itself to our fallen nature.
 
@@ -100,7 +100,7 @@ it behooves us to walk before him with reverential gratitude, and so to live tha
 
 **Verse 43.**&nbsp;Those who notice providence shall never be long without a providence notice. It is wise to observe what the Lord doth, for he is wonderful in counsel; has given us eyes to see with, and it is foolish to close them when there is most to observe; but we must observe wisely, otherwise we may soon confuse ourselves and others with hasty reflections upon the dealings of the Lord. In a thousand ways the lovingkindness of the Lord is shown, and if we will prudently watch, we shall come to a better understanding of it. To understand the delightful attribute of lovingkindness is an attainment as pleasant it is profitable: those who are proficient scholars in this art will be among sweetest singers to the glory of Jehovah.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;Dr. Lowth, in his 20th prelection, remarks of this psalm:—No doubt the composition of this psalm is admirable throughout; and the descriptive part of it adds at least its share of beauty to the whole; but what is but most to be admired is its&nbsp;*conciseness,*&nbsp;and withal the expressiveness of the diction, which strikes the imagination with inimitable elegance. The&nbsp;*weary*&nbsp;and&nbsp;*bewildered traveller,*&nbsp;the miserable&nbsp;*captive*&nbsp;in the hideous dungeon, the sick dying man, the&nbsp;*seaman foundering*&nbsp;in a storm, are described in so affecting manner, that they far exceed anything of the kind, though never so laboured. I may add that had such an Idyle appeared in Theocritus or Virgil or had it been found as a scene in any of the Greek tragedians, even in Aeschylus himself, it would probably have been produced as their master piece.—&nbsp;*Adam Clarke.*&nbsp;
 
@@ -444,7 +444,7 @@ The splashed up foam upon the lights of heaven.
 
 **Verse 43.**&nbsp;When we speak of the love and favour of God to his people, we are prone to understand by it nothing but pleasing providence, grateful to our senses: now the&nbsp;*lovingkindness*&nbsp;of God is not only seen in pleasing dispensations, but in adverse providence also: "Whom he loveth he chasteneth, and scourgeth every child whom he receiveth": "all things are yours", saith the apostle. This knowledge must be gained by&nbsp;*observation.*&nbsp;—&nbsp;*John Collinges.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Whole Psalm.**&nbsp;This psalm is like the Interpreter's house in Bunyan's "Pilgrim's Progress." Pilgrim is told that he will there see excellent and profitable things. The same promise is given in the introduction to this psalm, where we have,
 
@@ -562,7 +562,7 @@ The splashed up foam upon the lights of heaven.
 
 **Verse 43.**&nbsp;The best observation and the noblest understanding.
 
-## WORKS UPON THE HUNDRED AND SEVENTH PSALM
+## Works Upon The Hundred And Seventh Psalm
 
 Pe lagov.&nbsp;*Nec inter vivos, nec inter mortuos,*&nbsp;Neither amongst the Living, nor amongst the Dead. Or, an IMPROVEMENT of the SEA. Upon
 

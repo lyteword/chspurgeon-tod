@@ -10,7 +10,7 @@ weight: 40
 
 **DIVISION.**&nbsp;From Ps 40:1-3, is a personal thanksgiving, followed by a general declaration of Jehovah's goodness to his saints, Ps 40:4-5. In Ps 40:6-10, we have an avowal of dedication to the Lord's will; Ps 40:11-17, contains a prayer for deliverance from pressing trouble, and for the overthrow of enemies.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*I waited patiently for the Lord.*&nbsp;Patient waiting upon God was a special characteristic of our Lord Jesus. Impatience never lingered in his heart, much less escaped his lips. All through his agony in the garden, his trial of cruel mockings before Herod and Pilate, and his passion on the tree, he waited in omnipotence of patience. No glance of wrath, no word of murmuring, no deed of vengeance came from God's patient Lamb; he waited and waited on; was patient, and patient to perfection, far excelling all others who have according to their measure glorified God in the fires. Job on the dunghill does not equal Jesus on the cross. The Christ of God wears the imperial crown among the patient. Did the Only Begotten wait, and shall we be petulant and rebellious?&nbsp;*And he inclined unto me, and heard my cry.*&nbsp;Neither Jesus the head, nor any one of the members of his body, shall ever wait upon the Lord in vain. Mark the figure of inclining, as though the suppliant cried out of the lowest depression, and condescending love stooped to hear his feeble moans. What a marvel is it that our Lord Jesus should have to cry as we do, and wait as we do, and should receive the Father's help after the same process of faith and pleading as must be gone through by ourselves! The Saviour's prayers among the midnight mountains and in Gethsemane expound this verse. The Son of David was brought very low, but he rose to victory; and here he teaches us how to conduct our conflicts so as to succeed after the same glorious pattern of triumph. Let us arm ourselves with the same mind; and panoplied in patience, armed with prayer, and girt with faith, let us maintain the Holy War.
 
@@ -46,7 +46,7 @@ weight: 40
 
 **Verse 17.**&nbsp;&nbsp;*But I am poor and needy.*&nbsp;The man of sorrows closes with another appeal, based upon his affliction and poverty.&nbsp;*Yet the Lord thinketh upon me.*&nbsp;Sweet was this solace to the holy heart of the great sufferer. The Lord's thoughts of us are a cheering subject of meditation, for they are ever kind and never cease. His disciples forsook him, and his friends forgat him, but Jesus knew that Jehovah never turned away his heart from him, and this upheld him in the hour of need.&nbsp;*Thou art my help and my deliverer.*&nbsp;His unmoved confidence stayed itself alone on God. O that all believers would imitate more fully their great Apostle and High Priest in his firm reliance upon God, even when afflictions abounded and the light was veiled.&nbsp;*Make no tarrying, O my God.*&nbsp;The peril was imminent, the need urgent, the suppliant could not endure delay, nor was he made to wait, for the angel came to strengthen, and the brave heart of Jesus rose up to meet the foe. Lord Jesus, grant that in all our adversities we may possess like precious faith, and be found like thee, more than conquerors.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;&nbsp;*David's Psalm*&nbsp;, or, a&nbsp;*Psalm of David*&nbsp;;but David's name is here set first, which elsewhere commonly is last: or&nbsp;*A Psalm concerning David,*&nbsp;that is&nbsp;*Christ,*&nbsp;who is called&nbsp;*David*&nbsp;in the prophets: Ho 3:5 Jer 30:9 Eze 34:23 32:24. Of him this Psalm entreateth as the apostle teacheth, Heb 10:5-6, etc.&nbsp;*Henry Ainsworth.*&nbsp;
 
@@ -182,7 +182,7 @@ Of a land I shall visit no more."
 
 But the dearest connexion in the world cannot be always thinking upon you. Half his time he is in a state of unconsciousness; and how much during the other half is he engrossed! But there is no remission in the Lord's thoughts...Observe in the next place, the&nbsp;*wisdom*&nbsp;of his thoughts. You have a dear child, absent from you, and you follow him in your mind. But you know not his present circumstances. You left him in such a place; but where is he now? You left him in such a condition. But what is he now? Perhaps while you are thinking upon his health, he is groaning under a bruised limb, or a painful disorder. Perhaps, while you are thinking of his safety, some enemy is taking advantage of his innocency. Perhaps, while you are rejoicing in his prudence, he is going to take a step that will involve him for life. But when God thinketh upon you, he is perfectly acquainted with your situation, your dangers, your wants. He knows all your walking through this great wilderness, and can afford you the seasonable succour you need. For again, observe the&nbsp;*efficiency*&nbsp;of his thoughts. You think upon another, and you are anxious to guide, or defend, or relieve him. But in how many cases can you think only? Solicitude cannot control the disease of the body, cannot dissipate the melancholy of the mind. But with God all things are possible. He who thinks upon you is a God at hand and not afar off; he has all events under his control; he is the God of all grace. If, therefore, he does not immediately deliver, it is not because he is unable to redress, but because he is waiting to be gracious.&nbsp;*William Jay.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;
 
@@ -364,7 +364,7 @@ Hide me, O Gethsemane!"
 
 3\.The less delay in prayer and active efforts the sooner God will appear for us.
 
-## WORKS UPON THE FORTIETH PSALM
+## Works Upon The Fortieth Psalm
 
 A Sermon upon the Fortieth Psalme, preached in the time of Public&nbsp;*Fast; in*&nbsp;"Sermons by the Rev. ROBERT BRUCE, Minister of Edinburgh, reprinted from the original edition of 1590, and 1591...Edinburgh: printed for the Wodrow Society. 1843."
 

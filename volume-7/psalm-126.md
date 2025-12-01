@@ -12,7 +12,7 @@ This psalm is in its right place and most fittingly follows its predecessor, for
 
 **DIVISIONS.**&nbsp;The Psalm divides itself into a narrative (Ps 126:1-2), a song (Ps 126:3), a prayer (Ps 126:4), and a promise (Ps 126:5-6).
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*When the Lord turned again the captivity of Zion, we were like them that dream.*&nbsp;Being in trouble, the gracious pilgrims remember for their comfort times of national woe which were succeeded by remarkable deliverances. Then sorrow was gone like a dream, and the joy which followed was so great that it seemed too good to be true, and they feared that it must be the vision of an idle brain. So sudden and so overwhelming was their joy that they felt like men out of themselves, ecstatic, or in a trance. The captivity had been great, and great was the deliverance; for the great God himself had wrought it: it seemed too good o be actually true: each man said to himself,
 
@@ -42,7 +42,7 @@ This verse will have a higher fulfilment in the day of the final overthrow of th
 
 **Verse 6.**&nbsp;&nbsp;*He.*&nbsp;The general assurance is applied to each one in particular. That which is spoken in the previous verse in the plural—"they", is here repeated in the singular—"he."&nbsp;*He that goeth forth and weepeth, bearing precious seed shall doubtless come again with rejoicing, bringing his sheaves with him.*&nbsp;He leaves his couch to go forth into the frosty air and tread the heavy soil; and as he goes he weeps because of past failures, or because the ground is so sterile, or the weather so unseasonable, or his corn so scarce, and his enemies so plentiful and so eager to rob him of his reward. He drops a seed and a tear, a seed and a tear, and so goes on his way. In his basket he has seed which is precious to him, for he has little of it, and it is his hope for the next year. Each grain leaves his hand with anxious prayer that it may not be lost: he thinks little of himself, but much of his seed, and he eagerly asks, "Will it prosper? shall I receive a reward for my labour?" Yes, good husbandman, doubtless you will gather sheaves from your sowing. Because the Lord has written doubtless, take heed that you do not doubt. No reason for doubt can remain after the Lord has spoken. You will return to this field—not to sow, but to reap; not to weep, but to rejoice; and after awhile you will go home again with nimbler step than today, though with a heavier load, for you shall have sheaves to bear with you. Your handful shall be so greatly multiplied that many sheaves shall spring from it; and you shall have the pleasure of reaping them and bringing them home to the place from which you went out weeping. This is a figurative description of that which was literally described in the first three verses. It is the turning of the worker's captivity, when, instead of seed buried beneath black earth, he sees the waving crops inviting him to a golden harvest. It is somewhat singular to find this promise of fruitfulness in close contact with ret urn from captivity; and yet it is so in our own experience, for when our own soul is revived the souls of others are blessed by our labours. If any of us, having been once lonesome and lingering captives, have now returned home, and have become longing and labouring sowers, may the Lord, who has already delivered us, soon transform us into glad hearted reapers, and to him shall be praise for ever and ever. Amen.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;Augustine interprets the title, "A Song of Degrees, i.e. a Song of drawing upwards", of the drawing (going) up to the heavenly Jerusalem. This is right, inasmuch as the deliverance from the captivity of sin and death should in an increased measure excite those feelings of gratitude which Israel must have felt on being delivered from their corporeal captivity; in this respect again is the history of the outward theocracy a type of the history of the church.—Augustus F. Tholuck, 1856.
 
@@ -252,7 +252,7 @@ While bearing his plentiful sheaves."
 
 **Verse 6.**&nbsp;&nbsp;*Sheaves.*&nbsp;The psalm which begins with "dream" and ends with "sheaves" invites us to think of Joseph; Joseph, "in whom", according to S. Ambrose's beautiful application, "there was revealed the future resurrection of the Lord Jesus, to whom both his eleven disciples did obeisance when they saw him gone into Galilee, and to whom all the saints shall on their resurrection do obeisance, bringing forth the fruit of good works, as it is written, "He shall doubtless come again with rejoicing, bringing his sheaves with him."—&nbsp;*H. T. Armfield.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;
 
@@ -420,7 +420,7 @@ c) His rich rewards—"bringing his sheaves with him."
 
 —&nbsp;*W. H. J. P.*&nbsp;
 
-## WORK UPON THE HUNDRED AND TWENTY-SIXTH PSALM
+## Works Upon The Hundred And Twenty-Sixth Psalm
 
 The Jews' deliverance out of Babylon, and the mystery of our Redemption:&nbsp;*Plainely demonstrated in ten Sermons upon the 126.*&nbsp;Psalme. ...Preached in Yorkshire, By John Hume, Minister of the Word ... London...1628&nbsp;*4to*&nbsp;.
 

@@ -8,7 +8,7 @@ weight: 69
 
 **DIVISION.**&nbsp;This Psalm consists of two portions of 18 verses each. These again may each be sub divided into three parts. Under the first head, from Ps 69:1-4, the sufferer spreads his complaint before God; then he pleads that his zeal for God is the cause of his sufferings, in Ps 69:5-12: and this encourages him to plead for help and deliverance, from Ps 69:13-18. In the second half of the Psalm he details the injurious conduct of his adversaries, from Ps 69:19-21; calls for their punishment, Ps 69:22-28, and then returns to prayer, and to a joyful anticipation of divine interposition and its results, Ps 69:29-36.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Save me, O God.*&nbsp;"He saved others, himself he cannot save." With strong cries and tears he offered up prayers and supplications unto him that was able to save him from death, and was heard in that he feared (Heb 5:7). Thus David had prayed, and here his Son and Lord utters the same cry. This is the second Psalm which begins with a "Save me, O God, "and the former (Psalm 54) is but a short summary of this more lengthened complaint. It is remarkable that such a scene of woe should be presented to us immediately after the jubilant ascension hymn of the last Psalm, but this only shows how interwoven are the glories and the sorrows of our ever blessed Redeemer. The head which now is crowned with glory is the same which wore the thorns; he to whom we pray, "Save us, O God, "is the selfsame person who cried, "Save me, O God." For the waters are come in unto my soul. Sorrows, deep, abounding, deadly, had penetrated his inner nature. Bodily anguish is not his first complaint; he begins not with the gall which embittered his lips, but with the mighty griefs which broke into his heart. All the sea outside a vessel is less to be feared than that which finds its way into the hold. A wounded spirit who can bear. Our Lord in this verse is seen before us as a Jonah, crying, "The waters compassed me about, even to the soul." He was doing business for us on the great waters, at his Father's command; the stormy wind was lifting up the waves thereof, and he went down to the depths till his soul was melted because of trouble. In all this he has sympathy with us, and is able to succour us when we, like Peter, beginning to sink, cry to him, "Lord, save, or we perish."
 
@@ -116,7 +116,7 @@ Those who choose evil shall have their choice. Men who hate divine mercy shall n
 
 **Verse 36.**&nbsp;&nbsp;*The seed also of his servants shall inherit it.*&nbsp;Under this image, which, however, we dare not regard as a mere simile, but as having in itself a literal significance, we have set forth to us the enrichment of the saints, consequent upon the sorrow of their Lord. The termination of this Psalm strongly recalls in us that of the twenty-second. The&nbsp;*seed*&nbsp;lie near the Saviour's heart, and their enjoyment of all promised good is the great concern of his disinterested soul. Because they are his Father's servants, therefore he rejoices in their welfare. And they that love his name shall dwell therein. He has an eye to the Father's glory, for it is to his praise that those who love him should attain, and for ever enjoy, the utmost happiness. Thus a Psalm, which began in the deep waters, ends in the city which hath foundations. How gracious is the change. Hallelujah.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;&nbsp;*To the Chief Musician, on the lilies, of David*&nbsp;.&nbsp;*On the lilies,*&nbsp;points to the beauty of the subject treated of.&nbsp;*D. W. Hengstenberg.*&nbsp;
 
@@ -334,7 +334,7 @@ But, if ever human heart was riven and ruptured by the mere amount of mental ago
 
 **Verse 33.**&nbsp;&nbsp;*The Lord heareth the poor.*&nbsp;The consolation is much greater when it is said, "The Lord heareth the poor, "than if it were written, He hath heard poor David.&nbsp;*Musculus.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;Our trials like waters.
 

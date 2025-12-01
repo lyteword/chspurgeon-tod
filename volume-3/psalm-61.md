@@ -8,7 +8,7 @@ weight: 61
 
 **SUBJECT AND DIVISION.**&nbsp;This Psalm is a pearl. It is little, but precious. To many a mourner it has furnished utterance when the mind could not have devised a speech for itself. It was evidently composed by David after he had come to the throne,—see Ps 61:6. The second verse leads us to believe that it was written during the psalmist's enforced exile from the tabernacle, which was the visible abode of God: if so, the period of Absalom's rebellion has been most suitably suggested as the date of its authorship, and Delitzsch is correct in entitling it, "Prayer and thanksgiving of an expelled King on his way back to his throne." We might divide the verses according to the sense, but it is preferable to follow the author's own arrangement, and make a break at each SELAH.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Hear my cry, O God.*&nbsp;He was in terrible earnest; he shouted, he lifted up his voice on high. He is not however content with the expression of his need: to give his sorrows vent is not enough for him, he wants actual audience of heaven, and manifold succour as the result. Pharisees may rest in their prayers; true believers are eager for an answer to them: ritualists may be satisfied when they have, "said or sung" their litanies and collects, but living children of God will never rest till their supplications have entered the ears of the Lord God of Sabaoth. Attend unto my prayer. Give it thy consideration, and such an answer as thy wisdom sees fit. When it comes to crying with us, we need not doubt but that it will come to attending with God. Our heavenly Father is not hardened against the cries of his own children. What a consoling thought it is that the Lord at all times hears his people's cries, and is never forgetful of their prayers; whatever else fails to move him, praying breath is never spent in vain!
 
@@ -38,7 +38,7 @@ He who communes with God is always at home. The divine omnipresence surrounds su
 
 **Verse 8.**&nbsp;&nbsp;*So will I sing praise unto thy name for ever.*&nbsp;Because my prayer is answered, my song shall be perpetual; because Jesus for ever sits at thy right hand, it shall be acceptable; because I am preserved in him, it shall be grateful. David had given vocal utterance to his prayer by a cry; he will now give expression to his praise by a song: there should be a parallel between our supplications and our thanksgivings. We ought not to leap in prayer, and limp in praise. The vow to celebrate the divine name&nbsp;*for ever*&nbsp;is no hyperbolical piece of extravagance, but such as grace and glory shall enable us to carry out to the letter. That I may daily perform my vows. To God who adds days to our days we will devote all our days. We vowed perpetual praise, and we desire to render it without intermission. We would worship God&nbsp;*de die in diem,*&nbsp;going right on as the days roll on. We ask no vacation from this heavenly vocation; we would make no pause in this sacred service. God daily performs his promises, let us daily perform our vows: he keeps his covenant, let us not forget ours. Blessed be the name of the Lord from this time forth, even for evermore.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;The word&nbsp;*Neginah*&nbsp;(the singular of&nbsp;*Neginoth*&nbsp;) may be understood to be synonymous with the&nbsp;*kinnor*&nbsp;or harp: that is to say, the instrument of eight strings, probably played with a bow or plectrum.&nbsp;*John Jess.*&nbsp;
 
@@ -92,7 +92,7 @@ He who communes with God is always at home. The divine omnipresence surrounds su
 
 **Verse 8.**&nbsp;They that are godly are oppressed and vexed in the church or congregation for this purpose: that when they are pressed, they should cry; and when they cry, that they should be heard; and when they are heard, that they should laud and praise God.&nbsp;*Augustine.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 Whole Psalm. The progressive&nbsp;*I wills.*&nbsp;
 

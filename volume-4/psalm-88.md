@@ -8,7 +8,7 @@ weight: 88
 
 **SUBJECT AND DIVISION.**&nbsp;This Psalm is fragmentary, and the only division of any service to us would be that suggested by Albert Barnes, viz.—A description of the sick man's sufferings (Ps 88:1-9), and a prayer for mercy and deliverance (Ps 88:10-18). We shall, however, consider each verse separately, and so exhibit the better the incoherence of the author's grief. The reader had better first peruse the Psalm as a whole.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*O Lord God of my salvation.*&nbsp;This is a hopeful title by which to address the Lord, and it has about it the only ray of comfortable light which shines throughout the Psalm. The writer has salvation, he is sure of that, and God is the sole author of it. While a man can see God as his Saviour, it is not altogether midnight with him. While the living God can be spoken of as the life of our salvation, our hope will not quite expire. It is one of the characteristics of true faith that she turns to Jehovah, the saving God, when all other confidences have proved liars unto her. I have cried day and night before thee. His distress had not blown out the sparks of his prayer, but thickened them into a greater ardency, till they burned perpetually like a furnace at full blast. His prayer was personal—whoever had not prayed, he had done so; it was intensely earnest, so that it was correctly described as a cry, such as children utter to move the pity of their parents; and it was unceasing, neither the business of the day nor the weariness of the night had silenced it: surely such entreaties could not be in vain. Perhaps, if Heman's pain had not been incessant his supplications might have been intermittent; it is a good thing that sickness will not let us rest if we spend our restlessness in prayer. Day and night are both suitable to prayer; it is no work of darkness, therefore let us go with Daniel and pray when men can see us, yet, since supplication needs no light, let us accompany Jacob and wrestle at Jabbok till the day breaketh. Evil is transformed to good when it drives us to prayer. One expression of the text is worthy of special note; "before thee" is a remarkable intimation that the Psalmist's cries had an aim and a direction towards the Lord, and were not the mere clamours of nature, but the groanings of a gracious heart towards Jehovah, the God of salvation. Of what use are arrows shot into the air? The archer's business is to look well at the mark he drives at. Prayers must be directed to heaven with earnest care. So thought Heman—his cries were all meant for the heart of his God. He had no eye to onlookers as Pharisees have, but all his prayers were before his God.
 
@@ -62,7 +62,7 @@ Tell to thy Lord thy fears."
 
 (We have not attempted to interpret this Psalm concerning our Lord, but we fully believe that where the members are, the Head is to be seen preeminently. To have given a double exposition under each verse would have been difficult and confusing; we have therefore left the Messianic references to be pointed out in the Notes, where, if God the Holy Ghost be pleased to illustrate the page, we have gathered up more than enough to lead each devout reader to behold Jesus, the man of sorrows and the acquaintance of grief.)
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;&nbsp;*Mahalath Leannoth*&nbsp;I lean to the idea, that the words&nbsp;*Mahalath Leannoth,*&nbsp;are intended to denote some musical instrument of the plaintive order, and in this opinion&nbsp;*Kimchi*&nbsp;and other Jewish writers perfectly agree. They assert that it was a wind instrument, answering very much to the flute, and employed mainly in giving utterance to sentiments of grief, upon occasions of great sorrow and lamentation. With this view of the title, I should look for no new translation, but should just read it substantially as our translators here: "A Song or Psalm for the sons of Korah", to the giver of victory, upon Mahalath Leannoth, an instruction for Heman, the Ezrahite.—&nbsp;*John Morison.*&nbsp;
 
@@ -242,7 +242,7 @@ But these are reflections which must not be dwelt upon. When they begin to grow 
 
 **Verse 18.**&nbsp;The very rhythm of the last line shows that the piece is not complete. The ear remains in suspense; until the majestic Ps 89:1-52 shall burst upon it like a bright Resurrection morning.—&nbsp;*William Kay.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;
 

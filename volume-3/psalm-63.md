@@ -8,7 +8,7 @@ weight: 63
 
 **DIVISION.**&nbsp;In Ps 63:1-8 verses the writer expresses his holy desires after God, and his confidence in him, and then in Ps 63:9-11 remaining three verses he prophesies the overthrow of all his enemies. This Psalm is peculiarly suitable for the bed of sickness, or in any constrained absence from public worship.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*O God, thou art my God;*&nbsp;or, O God, thou art my Mighty One. The last Psalm left the echo of&nbsp;*power*&nbsp;ringing in the ear, and it is here remembered. Strong affiance bids the fugitive poet confess his allegiance to the only living God; and firm faith enables him to claim him as his own. He has no doubts about his possession of his God; and why should other believers have any? The straightforward, clear language of this opening sentence would be far more becoming in Christians than the timorous and doubtful expressions so usual among professors. How sweet is such language! Is there any other word comparable to it for delights?&nbsp;*Meus Deus.*&nbsp;Can angels say more? Early will I seek thee. Possession breeds desire. Full assurance is no hindrance to diligence, but is the mainspring of it. How can I seek another man's God? but it is with ardent desire that I seek after him whom I know to be my own. Observe the eagerness implied in the time mentioned; he will not wait for noon or the cool eventide; he is up at cockcrowing to meet his God. Communion with God is so sweet that the chill of the morning is forgotten, and the luxury of the couch is despised. The morning is the time for dew and freshness, and the psalmist consecrates it to prayer and devout fellowship. The best of men have been betimes on their knees. The word&nbsp;*early*&nbsp;has not only the sense of early in the morning, but that of eagerness, immediateness. He who truly longs for God longs for him now. Holy desires are among the most powerful influences that stir our inner nature; hence the next sentence,
 
@@ -34,7 +34,7 @@ My soul thirsteth for thee. Thirst is an insatiable longing after that which is 
 
 **Verse 11.**&nbsp;&nbsp;*But the king shall rejoice in God.*&nbsp;Usurpers shall fade, but he shall flourish; and his prosperity shall be publicly acknowledged as the gift of God. The Lord's anointed shall not fail to offer his joyful thanksgiving: his well established throne shall own the superior lordship of the King of kings; his rejoicing shall be alone in God. When his subjects sing,&nbsp;*"Io triumphe, "*&nbsp;he will bid them chant,&nbsp;*"Te Deum."*&nbsp;Every one that sweareth by him shall glory. His faithful followers shall have occasion for triumph; they shall never need to blush for the oath of their allegiance. Or, "swearing by&nbsp;*him, "*&nbsp;may signify adherence to&nbsp;*God,*&nbsp;and worship paid to him. The heathen swore by their gods, and the Israelite called Jehovah to witness to his asseveration; those, therefore, who owned the Lord as their God should have reason to glory when he proved himself the defender of the king's righteous cause, and the destroyer of traitors. But the mouth of them that speak lies shall be stopped. And the sooner the better. If shame will not do it, nor fear, nor reason, then let them be stopped with the sexton's shovelful of earth; for a liar is a human devil, he is the curse of men, and accursed of God, who has comprehensively said, "all liars shall have their part in the lake which burneth with fire and brimstone." See the difference between the mouth that praises God, and the mouth that forges lies: the first shall never be stopped, but shall sing on for ever; the second shall be made speechless at the bar of God. O Lord, we seek thee and thy truth; deliver us from all malice and slander, and reveal to us thine own self, for Jesus' sake. Amen.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;&nbsp;*When he was in the wilderness of Judah.*&nbsp;Even in Canaan, though a fruitful land, and the people numerous, yet there were wildernesses... It will be so in the world, in the church, but not in heaven... All the straits and difficulties of a wilderness must not put us out of tune for sacred songs; but even then it is our duty and interest to keep up a cheerful communion with God. There are Psalms proper for a wilderness; and we have reason to thank God it is the wilderness of Judah we are in, not the wilderness of Sin.&nbsp;*Matthew Henry.*&nbsp;
 
@@ -178,7 +178,7 @@ I shall consider what is implied in the soul's following hard after God, and the
 
 **Verse 11.**&nbsp;&nbsp;*Every one that sweareth by him, i.e.,*&nbsp;to David, that comes into his interest, and takes an oath of allegiance to him, shall glory in his success. Or,&nbsp;*that swears by him, i.e.,*&nbsp;by the blessed name of God, and not by any idol. De 6:15. And then it means all good people that make a sincere and open profession of God's name: they shall glory in God; they shall glory in David's advancement: "They that fear thee will be glad when they see me." They that heartily espouse the cause of Christ, shall glory in its victory at last. "If we suffer with him, we shall reign with him."&nbsp;*Matthew Henry.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;(&nbsp;*first clause*&nbsp;). While the Atheist says, "No God, "and the heathen worship "gods many, "the true believer says, "O God, thou art my God." He is so,
 
@@ -292,7 +292,7 @@ Let this be the resolution of both saved and unsaved.&nbsp;*G. J. K.*&nbsp;
 
 3\.Evil speaking.
 
-## WORKS UPON THE SIXTY-THIRD PSALM
+## Works Upon The Sixty-Third Psalm
 
 CHANDLER'S&nbsp;*"Life of David"*&nbsp;contains an Exposition of this Psalm. Vol. 1, pp. 130-4.
 

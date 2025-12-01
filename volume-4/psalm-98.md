@@ -8,7 +8,7 @@ weight: 98
 
 **DIVISION.**&nbsp;We have here three stanzas of three verses each. In the first, Ps 98:1-3, the subject of praise is announced, in the second, Ps 98:4-6, the manner of that praise is prescribed; and in the third, Ps 98:7-9, the universal extent of it is proclaimed.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*O sing unto the LORD a new song; for he hath done marvellous things.*&nbsp;We had a new song before (Ps 96:1-13) because the Lord was coming, but now we have another new song because he has come, and seen and conquered. Jesus, our King, has lived a marvellous life, died a marvellous death, risen by a marvellous resurrection, and ascended marvellously into heaven. By his divine power he has sent forth the Holy Spirit doing marvels, and by that sacred energy his disciples have also wrought marvellous things and astonished all the earth. Idols have fallen, superstitions have withered, systems of error have fled, and empires of cruelty have perished. For all this he deserves the highest praise. His acts have proved his Deity, Jesus is Jehovah, and therefore we sing unto him as the LORD. His right hand, and his holy arm, hath gotten him the victory; not by the aid of others, but by his own unweaponed hand his marvellous conquests have been achieved. Sin, death, and hell fell beneath his solitary prowess, and the idols and the errors of mankind have been overthrown and smitten by his hand alone. The victories of Jesus among men are all the more wonderful because they are accomplished by means to all appearance most inadequate; they are due not to physical but to moral power—the energy of goodness, justice, truth; in a word, to the power of his&nbsp;*holy*&nbsp;arm. His holy influence has been the sole cause of success. Jesus never stoops to use policy, or brute force; his unsullied perfections secure to him a real and lasting victory over all the powers of evil, and that victory will lie gained as dexterously and easily as when a warrior strikes his adversary with his&nbsp;*right hand*&nbsp;and stretches him prone upon the earth. Glory be unto the Conqueror, let new songs be chanted to his praise. Stirred by contemplating his triumphs, our pen could not forbear to praise him in the following hymn:
 
@@ -202,7 +202,7 @@ To judge the world in equity,
 
 Do right to realm and throne."
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;The inscription of the psalm in Hebrew is only the single word rwmzm&nbsp;*Mizmor*&nbsp;, "Psalm" (whence probably the title "orphan Mizmor" in the Talmudic treatise Avodah Zara).&nbsp;*J.J.S. Perowne.*&nbsp;
 
@@ -334,7 +334,7 @@ And joyful ages, from behind, in crowding ranks appear.
 
 **Verse 9.**&nbsp;The Psalter is much occupied in celebrating&nbsp;*the benign fruits which Christ's reign is to yield*&nbsp;in all the earth. It will be a reign of HOLINESS. This is its proper and distinctive nature. Under it, the ends of the earth will fear God, and rejoice in his salvation. It will be a reign of JUSTICE. Under it, the wars and oppressions and cruelties, the unequal laws and iniquitous institutions that have so long vexed and cursed the world, shall find a place no more. This happy reformation is usually foretold in the form of a proclamation that the Lord is coming&nbsp;*"to judge the earth."*&nbsp;It is important, therefore, to keep in mind the true sense and intention of that oft repeated proclamation. It does not refer, as an unwary reader might suppose, to the Judgment of the Great Day. There is no terror in it. The Psalms that have it for their principal burden are jubilant in the highest degree. The design of the proclamation is to announce Christ in the character of a Peaceful Prince coming to administer equal laws with an impartial hand, and so to cause wrong and contention to cease in the earth. This is Christ's manner of judging the earth. What he has already done in this direction enables us to form a clear conception of what he will yet set himself to do. When he designs to accomplish great and salutary reforms in the political and social institutions of a people, he begins by dislodging bad principles from men's minds and planting Scriptural principles in their stead; by purging evil passions from men's hearts, and baptising them with the Spirit of truth and justice, godliness and lovingkindness. A sure foundation having been thus laid for a better order of things, he will by some storm of controversy or of revolution sweep away the institutions in which injustice has entrenched itself, and will thus make it possible for righteousness to have free course. Oh what a store of comfort for the down trodden, the enslaved, the needy, is laid up in the announcement that the Lord is coming to be the avenger of all such! Well may all the creatures be invited to clap their hands for joy at the thought that he has taken this work in hand; that he sitteth upon the floods; and that the storms that agitate the nations are the chariot in which he rides to take possession of the earth, and make it an abode of righteousness and peace.&nbsp;*William Binnie.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;&nbsp;*A new song.*&nbsp;The duty, beauty, and benefit of maintaining freshness in piety, service, and worship.
 
@@ -444,7 +444,7 @@ And joyful ages, from behind, in crowding ranks appear.
 
 **Verse 9.**&nbsp;&nbsp;*Before the Lord.*&nbsp;Where we are, where our joy should be, where all our actions should be felt to be, where we shall be—&nbsp;*"before the Lord."*&nbsp;Enquire—What are we before the Lord? What shall we be when he cometh?
 
-## WORK UPON THE NINETY-EIGHTH PSALM
+## Works Upon The Ninety-Eighth Psalm
 
 In "The Works of John Boys, "1626, folio, pp. 34-6, there is a short exposition of this psalm.
 

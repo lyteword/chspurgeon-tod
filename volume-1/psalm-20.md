@@ -8,7 +8,7 @@ SUBJECT. *We have before us a* National Anthem, *fitted to be sung at the*  outb
 
 DIVISION. *The first four verses are a prayer for the success of the king.* Verses 5, 6, and 7 express unwavering confidence in God and his Anointed; verse 8 declares the defeat of the foe, and verse 9 is a concluding appeal to Jehovah. 
 
-## EXPOSITION
+## Exposition
 
 Verse 1. *"The Lord hear thee in the day of trouble."* All loyal subjects pray for their king, and most certainly citizens of Zion have good cause to pray for the Prince of Peace. In times of conflict loving subjects redouble their pleas, and surely in the sorrows of our Lord his church could not but be in earnest. All the Saviour's days were days of trouble, and he also made them days of prayer; the church joins her intercession with her Lord's, and pleads that he may be heard in his cries and tears. The agony in the garden was especially a gloomy hour, but he was heard in that he feared. He knew that his Father heard him always, yet in that troublous hour no reply came until thrice he had fallen on his face in the garden; then sufficient strength was given in answer to prayer, and he rose a victor from the conflict. On the cross also his prayer was not unheard, for in the twenty-second Psalm he tells us, "thou hast heard me from the horns of the unicorns." The church in this verse implies that her Lord would be himself much given to prayer; in this he is our example, teaching us that if we are to receive any advantage from the prayers of others, we must first pray for ourselves. What a mercy that we *may* pray in the day of trouble, and what a still more blessed privilege that no trouble can prevent the Lord from hearing us! Troubles roar like thunder, but the believer's voice will be heard above the storm. O Jesus, when thou pleadest for us in our hour of trouble, the Lord Jehovah will hear thee. This is a most refreshing confidence, and it may be indulged in without fear.  *"The name of the God of Jacob defend thee;"* or, as some read it, "set thee in a high place." By *"the name"* is meant the revealed character and Word of God; we are not to worship "the unknown God," but we should seek to know the covenant God of Jacob, who has been pleased to reveal his name and attributes to his people. There may be much in a royal name, or a learned name, or a venerable name, but it will be a theme for heavenly scholarship to discover all that is contained in the divine name. The glorious power of God defended and preserved the Lord Jesus through the battle of his life and death, and exalted him above all his enemies. His warfare is now accomplished in his own proper person, but in his mystical body, the church, he is still beset with dangers, and only the eternal arm of our God in covenant can defend the soldiers of the cross, and set them on high out of the reach of their foes. The day of trouble is not over, the pleading Saviour is not silent, and the name of the God of Israel is still the defence of the faithful. The name, *"God of Jacob,"* is suggestive; Jacob had his day of trouble, he wrestled, was heard, was defended, and in due time was set on high, and his God is our God still, the same God to all his wrestling Jacobs. The whole verse is a very fitting benediction to be pronounced by a gracious heart over a child, a friend, or a minister, in prospect of trial; it includes both temporal and spiritual protection, and directs the mind to the great source of all good. How delightful to believe that our heavenly Father has pronounced it upon our favoured heads!
 
@@ -28,7 +28,7 @@ Verse 8. How different the end of those whose trusts are different! The enemies 
 
 Verse 9. The Psalm is here recapitulated. That Jesus might himself be delivered, and might then, as our King, hear us, is the two-fold desire of the Psalm. The first request is granted, and the second is sure to all the seed; and therefore we may close the Psalm with the hearty shout, "God save the King." "God save King Jesus, and may he soon come to reign." 
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 *Whole Psalm.* This Psalm is the prayer which the church might be supposed offering up, had all the redeemed stood by the cross, or in Gethsemane, in full consciousness of what was doing there. Messiah, in reading these words, would know that he had elsewhere the sympathy he longed for, when he said to the three disciples, "Tarry ye here, and watch with me." Matthew 26:38. It is thus a pleasant song, of the sacred singer of Israel, to set forth the feelings of the redeemed in their Head, whether in his sufferings or in the glory that was to follow.— *Andrew A. Bonar.*  
 
@@ -114,7 +114,11 @@ Verse 9. The Psalm is here recapitulated. That Jesus might himself be delivered,
 
 *Verse* 8. *"They are brought down,"* from their horses and chariots in which they trusted. Hebrew: *they bowed down,* as being unable to stand longer because of their mortal wounds. Compare Judges 5:27. *"Stand*  upright."Standing firmly upon our legs, and keeping the field, as conquerors use to do.— *Matthew Poole.*  
 
-## HINTS TO THE VILLAGE PREACHER This Psalm has been much used for coronation, thanksgiving, and fast sermons, and no end of nonsense and sickening flattery has been tacked thereto by the trencher-chaplains of the world's church. If kings had been devils, some of these gentry would have praised their horns and hoofs; for although some of their royal highnesses have been very obedient servants of the prince of darkness, these false prophets have dubbed them "most gracious sovereigns," and have been as much dazzled in their presence as if they had beheld the beatific vision.— *C. H. S.*  *Whole Psalm.* A loyal song and prayer for subjects of King Jesus. 
+## Hints to the Village Preacher
+
+This Psalm has been much used for coronation, thanksgiving, and fast sermons, and no end of nonsense and sickening flattery has been tacked thereto by the trencher-chaplains of the world's church. If kings had been devils, some of these gentry would have praised their horns and hoofs; for although some of their royal highnesses have been very obedient servants of the prince of darkness, these false prophets have dubbed them "most gracious sovereigns," and have been as much dazzled in their presence as if they had beheld the beatific vision.— *C. H. S.*  
+
+*Whole Psalm.* A loyal song and prayer for subjects of King Jesus. 
 
 *Verse* 1. Two great mercies in great trouble—hearing at the throne, and defence from the throne. 
 
@@ -152,6 +156,6 @@ Verse 9. The Psalm is here recapitulated. That Jesus might himself be delivered,
 
 *Verse* 9. (*last clause*). I. To whom we come, and what then. *"To a king."*  II. How we come, and what it means. *"We call."*  III. What we want, and what it implies. *"Hear us."*  
 
-## WORK UPON THE TWENTIETH PSALM  
+## Works Upon The Twentieth Psalm
 
 *"Medicines for the plague;* that is, Godly and Fruitful Sermons upon part of the Twentieth Psalme, full of instructions and comfort; very fit generally for all times of affliction, but more particularly applied to this late visitation of the Plague. Preached at the same time at Norton in Suffolke, by NICHOLAS BOWND, Doctor of Divinite. . . . 1604." [Twenty-one Sermons on verses 1-6. 4to.] 

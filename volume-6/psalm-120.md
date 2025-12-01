@@ -10,7 +10,7 @@ Suddenly we have left the continent of the vast Hundred and Nineteenth Psalm for
 
 **SUBJECT.**&nbsp;A certain author supposes that this hymn was sung by an Israelite upon leaving his house to go up to Jerusalem. He thinks that the good man had suffered from the slander of his neighbours, and was glad to get away from their gossip, and spend his time in the happier engagements of the holy feasts. It may be so, but we hope that pious people were not so foolish as to sing about their bad neighbours when they were leaving them, for a few days. If they wished to leave their houses in safety, and to come home to kind surroundings, it would have been the height of folly to provoke those whom they were leaving behind by singing aloud a psalm of complaint against them. We do not know why this ode is placed first among the Psalms of Degrees, and we had rather hazard no conjecture of our own. We prefer the old summary of the translators—"David prayeth against Doeg"—to any far fetched supposition: and if this be the scope of the psalm, we see at once why it suggested itself to David at the station where the ark abode, and from which he had come to remove it. He came to fetch away the ark, and at the place where he found it he thought of Doeg, and poured out his complaint concerning him. The author had been grievously calumniated, and had been tortured into bitterness by the false charges of his persecutors, and here is his appeal to the great Arbiter of right and wrong before whose judgment seal no man shall suffer from slanderous tongues.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*In my distress.*&nbsp;Slander occasions distress of the most grievous kind. Those who have felt the edge of a cruel tongue know assuredly that it is sharper than the sword. Calumny rouses our indignation by a sense of injustice, and yet we find ourselves helpless to fight with the evil, or to act in our own defence. We could ward off the strokes of a cutlass, but we have no shield against a liar's tongue. We do not know who was the father of the falsehood, nor where it was born, nor where it has gone, nor how to follow it, nor how to stay its withering influence. We are perplexed, and know not which way to turn. Like the plague of flies in Egypt, it baffles opposition, and few can stand before it. Detraction touches us in the most tender point, cuts to the quick, and leaves a venom behind which it is difficult to extract. In all ways it is a sore distress to come under the power of "slander, the foulest whelp of sin." Even in such distress we need not hesitate to cry unto the Lord. Silence to man and prayer to God are the best cures for the evil of slander.
 
@@ -54,7 +54,7 @@ And troublers vex no more."
 
 **Verse 7.**&nbsp;&nbsp;*I am for peace.*&nbsp;Properly, "I am peace"; desirous of peace, peaceful, forbearing,—in fact, peace itself. But when I speak, they are for war. My kindest words appear to provoke them, and they are at daggers drawn at once. Nothing pleases them; if I am silent they count me morose, and if I open my mouth they cavil and controvert. Let those who dwell with such pugilistic company console themselves with the remembrance that both David and David's Lord endured the same trial. It is the lot of the saints to find foes even in their own households. Others besides David dwelt in the place of dragons. Others besides Daniel have been cast into a den of lions. Meanwhile, let those who are in quiet resting places and peaceful habitations be greatly grateful for such ease. "Deus nobis haec otia fecit": God has given us this tranquillity. Be it ours never to inflict upon others that from which we have been screened ourselves.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;"A Song of Degrees". A most excellent song, Tremellius rendereth it; and so indeed this and the fourteen following are, both for the matter, and for the form or manner of expression, which is wondrous short and sweet, as the very epigrams of the Holy Ghost himself, wherein each verse may well stand for an oracle. And in this sense, "adam hammahalah", or, a man of degrees, is put for an eminent or excellent man: 1Ch 17:17. Others understand it otherwise; wherein they have good leave to abound in their own sense; an error here is not dangerous.—&nbsp;*John Trapp.*&nbsp;
 
@@ -124,7 +124,7 @@ And troublers vex no more."
 
 **Verse 7.**&nbsp;&nbsp;*When l speak, they are for war.*&nbsp;He spoke with all respect and kindness that could be; proposed methods of accommodation; spoke reason, spoke love; but they would not so much as hear him patiently; but cried out, To arms! To arms! so fierce and implacable were they, and so bent on mischief. Such were Christ's enemies: for his love they were his adversaries; and for his good words and good works they stoned him; and if we meet with such enemies we must not think it strange, nor love peace the less for our seeking it in vain. "Be not overcome of evil", no, not of such evil as this; "but", even when thus tried, still try to "overcome evil with good".—&nbsp;*Matthew Henry.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;A reminiscence.
 

@@ -8,7 +8,7 @@ weight: 33
 
 **SUBJECT AND DIVISION.**&nbsp;The praise of Jehovah is the subject of this sacred song. The righteous are exhorted to praise him, Ps 33:1-3; because of the excellency of his character, Ps 33:4-5; and his majesty in creation, Ps 33:6-7. Men are bidden to fear before Jehovah because his purposes are accomplished in providence, Ps 33:8-11. His people are proclaimed blessed, Ps 33:12. The omniscience and omnipotence of God, and his care for his people are celebrated, in opposition to the weakness of an arm of flesh, Ps 33:13-19; and the Psalm concludes with a fervent expression of confidence, Ps 33:20-21, and an earnest prayer, Ps 33:22.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Rejoice in the Lord.*&nbsp;Joy is the soul of praise. To delight ourselves in God is most truly to extol him, even if we let no notes of song proceed from our lips. That God is, and that he is such a God, and our God, ours for ever and ever, should wake within us an unceasing and overflowing joy. To rejoice in temporal comforts is dangerous, to rejoice in self is foolish, to rejoice in sin is fatal, but to rejoice in God is heavenly. He who would have a double heaven must begin below to rejoice like those above.&nbsp;*O ye righteous.*&nbsp;This is peculiarly your duty, your obligations are greater, and your spiritual nature more adapted to the work, be ye then first in the glad service. Even the righteous are not always glad, and have need to be stirred up to enjoy their privileges.&nbsp;*For praise is comely for the upright.*&nbsp;God has an eye to things which are becoming. When saints wear their choral robes, they look fair in the Lord's sight. A harp suits a blood washed hand. No jewel more ornamental to a holy face than sacred praise. Praise is not comely from unpardoned professional singers; it is like a jewel of gold in a swine's snout. Crooked hearts make crooked music, but the upright are the Lord's delight. Praise is the dress of saints in heaven, it is meet that they should fit it on below.
 
@@ -64,7 +64,7 @@ God writes with a pen that never blots, speaks with a tongue that never slips, a
 
 **Verse 22.**&nbsp;Here is a large and comprehensive prayer to close with. It is an appeal for&nbsp;*mercy*&nbsp;, which even joyful believers need; and it is sought for in a proportion which the Lord has sanctioned. "According to your faith be it unto you, "is the Master's word, and he will not fall short of the scale which he has himself selected. Yet, Master, do more than this when hope is faint, and bless us far above what we ask or even think.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;A thanksgiving of the church triumphant in the latter ages, for her final deliverance, by the overthrow of Antichrist and his armies.&nbsp;*Samuel Horsley.*&nbsp;
 
@@ -236,7 +236,7 @@ Weak his force his lord to save.
 
 **Verse 22.**&nbsp;&nbsp;*According as we hope in thee;*&nbsp;not according to any merits of theirs, but according to the measure of grace, of the grace of hope which God had bestowed on them, and encouraged them to exercise on him, in expectation of finding grace and mercy with him.&nbsp;*John Gill.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Whole Psalm.**&nbsp;This Psalm is&nbsp;*eucharistic:*&nbsp;the contents are:
 

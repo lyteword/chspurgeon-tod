@@ -8,7 +8,7 @@ weight: 43
 
 **DIVISION.**&nbsp;The psalmist cried to God in prayer, Ps 43:1-3. Promises praise in the anticipation of an answer, Ps 43:4, and chides himself for his despondency, Ps 43:5.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Judge me, O God.*&nbsp;Others are unable to understand my motives, and unwilling to give me a just verdict. My heart is clear as to intent and therefore I bring my case before thee, content that thou wilt impartially weigh my character, and right my wrongs. If thou wilt judge, thy acceptance of my conduct will be enough for me; I can laugh at human misrepresentation if my conscience knows that thou art on my side; thou art the only one I care for; and besides, thy verdict will not sleep, but thou wilt see practical justice done to thy slandered servant.&nbsp;*And plead my cause against an ungodly nation.*&nbsp;One such advocate as the Lord will more than suffice to answer a nation of brawling accusers. When people are ungodly, no wonder that they are unjust; those who are not true to God himself cannot be expected to deal rightly with his people. Hating the King they will not love his subjects. Popular opinion weighs with many, but divine opinion is far more weighty with the gracious few. One good word from God outweighs ten thousand railing speeches of men. He bears a brazen shield before him whose reliance in all things is upon his God; the arrows of calumny fall harmlessly from such a buckler.&nbsp;*O deliver me from the deceitful and unjust man.*&nbsp;Deceit and injustice are boon companions: he who fawns will not fear to slander. From two such devils none can deliver us but God. His wisdom can outwit the craft of the vilest serpent, and his power can over match the most raging lion. Whether this was Doeg or Ahithophel is small matter, such double distilled villains are plentiful, and the only way of dealing with them is to refer the matter to the righteous Judge of all; if we try to fight them with their own weapons, we shall suffer more serious injury from ourselves than from them. O child of God, leave these thine enemies in better hands, remembering that vengeance belongeth not to thee, but to thy Lord. Turn to him in prayer, crying, "O deliver me, "and ere long you shall publish abroad the remembrance of his salvation.
 
@@ -30,7 +30,7 @@ Why go I mourning because of the oppression of the enemy? Why do I wander hither
 
 **Verse 5.**&nbsp;&nbsp;*Why art thou cast down, O my soul?*&nbsp;If God be thine, why this dejection? If he uplifts thee, why art thou so near the ground? The dew of love is falling, O withering heart, revive.&nbsp;*And why art thou disquieted within me?*&nbsp;What cause is there to break the repose of thy heart? Wherefore indulge unreasonable sorrows, which benefit no one, fret thyself, and dishonour thy God? Why overburden thyself with forebodings?&nbsp;*Hope in God,*&nbsp;or&nbsp;*wait for God.*&nbsp;There is need of patience, but there is ground for hope. The Lord cannot but avenge his own elect. The heavenly Father will not stand by and see his children trampled on for ever; as surely as the sun is in the heavens, light must arise for the people of God, though for awhile they may walk in darkness. Why, then, should we not be encouraged, and lift up our head with comfortable hope?&nbsp;*For I shall yet praise him.*&nbsp;Times of complaint will soon end, and seasons of praise will begin. Come, my heart, look out of the window, borrow the telescopic glass, forecast a little, and sweeten thy chamber with sprigs of the sweet herb of hope.&nbsp;*Who is the health of my countenance, and my God.*&nbsp;My God will clear the furrows from my brow, and the tear marks from my cheek; therefore will I lift up my head and smile in the face of the storm. The Psalm has a blessed ending, such as we would fain imitate when death puts an end to our mortal existence.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 Whole Psalm. This Psalm is evidently a continuation or supplement to the preceding. In some MSS of Kenicott and de Rossi's, they are united, and make one Psalm.&nbsp;*George Phillips, B.D.*&nbsp;
 
@@ -114,7 +114,7 @@ From&nbsp;*the word of the Spirit*&nbsp;, the word of God. Ps 119:50: "This is m
 
 **Verse 5.**&nbsp;The varied conflicts of the soul afford occasion for the exercise of the graces, and thus, through the divine wisdom and goodness, are made the means of eventual good.&nbsp;*Henry March.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;We apply to God—
 
@@ -188,7 +188,7 @@ From&nbsp;*the word of the Spirit*&nbsp;, the word of God. Ps 119:50: "This is m
 
 **Verse 5.**&nbsp;&nbsp;*Health of my countenance,*&nbsp;removing that which mars it—sin, shame, fear, care, sorrow, weakness, etc.
 
-## WORKS UPON THE FORTY-THIRD PSALM
+## Works Upon The Forty-Third Psalm
 
 "Soul cordials against Sore Discomforts: in a Commentary or&nbsp;*Explanations and Applications of the whole Forty-third Psalm, "*&nbsp;pp. 312-562 of&nbsp;*"The Works of Dr. Nathanael Homes, "*&nbsp;1652 (folio).
 

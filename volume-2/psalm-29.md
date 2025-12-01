@@ -10,7 +10,7 @@ weight: 29
 
 **DIVISION.**&nbsp;The first two verses are a call to adoration. From Ps 29:3-10 the path of the tempest is traced, the attributes of God's word are rehearsed, and God magnified in all the terrible grandeur of his power; and the last verse sweetly closes the scene with the assurance that the omnipotent Jehovah will give both strength and peace to his people. Let heaven and earth pass away, the Lord will surely bless his people.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Give,*&nbsp;i.e., ascribe. Neither men nor angels can confer anything upon Jehovah, but they should recognise his glory and might, and ascribe it to him in their songs and in their hearts.&nbsp;*Unto the Lord,*&nbsp;and unto him alone, must honour be given. Natural causes, as men call them, are God in action, and we must not ascribe power to them, but to the infinite Invisible who is the true source of all.&nbsp;*O ye mighty.*&nbsp;Ye great ones of earth and of heaven, kings and angels, join in rendering worship to the blessed and only Potentate; ye lords among men need thus to be reminded, for ye often fail where humbler men are ardent; but fail no longer, bow your heads at once, and loyally do homage to the King of kings. How frequently do grandees and potentates think it beneath them to fear the Lord; but, when they have been led to extol Jehovah, their piety has been the greatest jewel in their crowns.&nbsp;*Give unto the Lord glory and strength,*&nbsp;both of which men are too apt to claim for themselves, although they are the exclusive prerogatives of the self existent God. Let crowns and swords acknowledge their dependence upon God. Not to your arms, O kings, give ye the glory, nor look for strength to your hosts of warriors, for all your pomp is but as a fading flower, and your might is as a shadow which declineth. When shall the day arrive when kings and princes shall count it their delight to glorify their God? "All worship be to God only, "let this be emblazoned on every coat of arms.
 
@@ -84,7 +84,7 @@ Our first parents sought a refuge among the trees, but the voice of the Lord soo
 
 **Verse 11.**&nbsp;Power was displayed in the hurricane whose course this Psalm so grandly pictures; and now, in the cool calm after the storm, that power is promised to be the strength of the chosen. He who wings the unerring bolt, will give to his redeemed the wings of eagles; he who shakes the earth with his voice, will terrify the enemies of his saints, and give his children peace. Why are we weak when we have divine strength to flee to? Why are we troubled when the Lord's own peace is ours? Jesus the mighty God is our peace—what a blessing is this today! What a blessing it will be to us in that day of the Lord which will be in darkness and not light to the ungodly! Dear reader, is not this a noble Psalm to be sung in stormy weather? Can you sing amid the thunder? Will you be able to sing when the last thunders are let loose, and Jesus judges quick and dead? If you are a believer, the last verse is your heritage, and surely that will set you singing.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;In this Psalm, the strength of Jehovah is celebrated; and the exemplification of it is evidently taken from a thunderstorm in Lebanon. The Psalm seems to be addressed to the angels. See Ps 89:7. It thus begins:—
 
@@ -328,7 +328,7 @@ Robert Murray Macheyne.
 
 **Verse 11.**&nbsp;&nbsp;*Peace.*&nbsp;There is a threefold "peace, "&nbsp;*externa, interna, aeterna;*&nbsp;temporal, spiritual, celestial peace. There is outward peace, the&nbsp;*blessing;*&nbsp;inward peace, the&nbsp;*grace;*&nbsp;and everlasting peace, of&nbsp;*glory.*&nbsp;And as in a stately palace there is a lodge or court that leads into the inmost goodly rooms, so external peace is the entrance or introduction to the inward lodgings of the sweet peace of conscience and of that external rest in which our peace in heaven shall be happy, inasmuch as external peace affords us many accommodations and helps to the gaining and obtaining both the one and the other.&nbsp;*Ephraim Udall,*&nbsp;1642.
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;The duty of ascribing our strength and the honour of it to God; the penalty of neglecting to do so; the pleasure of so doing.
 

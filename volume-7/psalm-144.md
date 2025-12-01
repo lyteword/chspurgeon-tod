@@ -10,7 +10,7 @@ Albeit that this Psalm is in some measure very similar to Ps 18:1-50, yet it is 
 
 It is to God the devout warrior sings when he extols him as his strength and stay (Ps 144:1-2). Man he holds in small account, and wonders at the Lord's regard for him (Ps 144:3-4); but he turns in his hour of conflict to the Lord, who is declared to be "a man of war", whose triumphant interposition he implores (Ps 144:5-8). He again extols and entreats in Ps 144:9-11 and then closes with a delightful picture of the Lord's work for his chosen people, who are congratulated upon having such a God to be their God.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Blessed be the LORD my strength.*&nbsp;He cannot delay the utterance of his gratitude, he bursts at once into a loud note of praise. His best word is given to his best friend—"Blessed be Jehovah." When the heart is in a right state it must praise God, it cannot be restrained; its utterances leap forth as waters forcing their way from a living spring. With all his strength David blesses the God of his strength. We ought not to receive so great a boon as strength to resist evil, to defend truth, and to conquer error, without knowing who gave it to us, and rendering to him the glory of it. Not only does Jehovah give strength to his saints, but he is their strength. The strength is made theirs because God is theirs. God is full of power, and he becomes the power of those who trust him. In him our great strength lieth, and to him be blessings more than we are able to utter. It may be read,&nbsp;*"My Rock";*&nbsp;but this hardly so well consorts with the following words:
 
@@ -50,7 +50,7 @@ Who subdueth my people under me. He keeps my natural subjects subject, and my co
 
 **Verse 15.**&nbsp;&nbsp;*Happy is that people that is in such a case.*&nbsp;Such things are not to be overlooked. Temporal blessings are not trifles, for the miss of them would be a dire calamity. It is a great happiness to belong to a people so highly favoured. Yea, happy is that people, whose God is the LORD. This comes in as an explanation of their prosperity. Under the Old Testament Israel had present earthly rewards for obedience: when Jehovah was their God they were a nation enriched and flourishing. This sentence is also a sort of correction of all that had gone before; as if the poet would say—all these temporal gifts are a part of happiness, but still the heart and soul of happiness lies in the people being right with God, and having a full possession of him. Those who worship the happy God become a happy people. Then if we have not temporal mercies literally we have something better: if we have not the silver of earth we have the gold of heaven, which is better still. In this psalm David ascribes his own power over the people, and the prosperity which attended his reign, to the Lord himself. Happy was the nation which he ruled; happy in its king, in its families, in its prosperity, and in the possession of peace; but yet more in enjoying true religion and worshipping Jehovah, the only living and true God.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;The psalm, in its mingled tones of prayer and praise, is a fit connecting link between the supplicatory psalms which go before, and the strains of thanksgiving which follow it.—&nbsp;*Speaker's Commentary.*&nbsp;
 
@@ -268,7 +268,7 @@ To have God to be our&nbsp;*Jehovah*&nbsp;is the insurance of happiness to us. F
 
 With this prayer of Jehovah's anointed One end the prayers of the Book of Psalms. The remaining six psalms consist exclusively of praise and high Hallelujahs.—&nbsp;*Lord Congleton, in "The Psalms: a new Version, with Notes",*&nbsp;1875.
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;
 

@@ -8,7 +8,7 @@ TITLE. "Shiggaion of David, which he sang unto the Lord, concerning the word of 
 
 DIVISION. *In the first and second verses the danger is stated, and* prayer offered. Then the Psalmist most solemnly avows his innocence. (3, 4, 5). The Lord is pleaded with to arise to judgment (6, 7). The Lord, sitting upon his throne, hears the renewed appeal of the Slandered Supplicant (8, 9). The Lord clears his servant, and threatens the wicked (10, 11, 12, 13). The slanderer is seen in vision bringing a curse upon his own head, (14, 15, 16), while David retires from trial singing a hymn of praise to his righteous God. We have here a noble sermon upon that text: "No weapon that is formed against thee shall prosper, and every tongue that riseth against thee in judgment thou shalt condemn." 
 
-## EXPOSITION 
+## Exposition
 
 Verse 1. David appears before God to plead with him against the Accuser, who had charged him with treason and treachery. The case is here opened with an avowal of confidence in God. Whatever may be the emergency of our condition we shall never find it amiss to retain our reliance upon our God. *"O Lord my God,"* mine by a special covenant, sealed by Jesus' blood, and ratified in my own soul by a sense of union to thee; *"in thee,"* and in thee only, *"do I* put my trust,"even now in my sore distress. I shake, but my rock moves not. It is never right to distrust God, and never vain to trust him. And now, with both divine relationship and holy trust to strengthen him, David utters the burden of his desire— *"save me* from all them that persecute me."His pursuers were very many, and any one of them cruel enough to devour him; he cries, therefore, for salvation from them *all.* We should never think our prayers complete until we *ask* for preservation from *all* sin, and all enemies. *"And deliver me,"* extricate me from their snares, acquit me of their accusations, give a true and just deliverance in this trial of my injured character. See how clearly his case is stated; let us see to it, that we know what we would have when we are come to the throne of mercy. Pause a little while before you pray, that you may not offer the sacrifice of fools. Get a distinct idea of your need, and then you can pray with the more fluency of fervency. 
 
@@ -40,7 +40,7 @@ Verse 16. The rod which he lifted on high, has smitten his own back. He shot an 
 
 Verse 17. We conclude with the joyful contrast. In this all these Psalms are agreed; they all exhibit the blessedness of the righteous, and make its colours the more glowing by contrast with the miseries of the wicked. The bright jewel sparkles in a black foil. *Praise* is the occupation of the godly, their eternal work, and their present pleasure. *Singing* is the fitting embodiment for praise, and therefore do the saints make melody before the Lord Most High. The slandered one is now a singer: his harp was unstrung for a very little season, and now we leave him sweeping its harmonious chords, and flying on their music to the third heaven of adoring praise. 
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS 
+## Explanatory Notes & Quaint Sayings
 
 *Title.* "Shiggaion," though some have attempted to fix on it a reference to the moral aspect of the world as depicted in this Psalm, is in all probability to be taken as expressing the *nature of the* composition.It conveys the idea of something *erratic* ((Heb.), to wander) in the style; something not so calm as other Psalms; and hence *Ewald* suggests, that it might be rendered, "a confused ode," a Dithyramb. This characteristic of excitement in the style, and a kind of disorder in the sense, suits Habakkuk 3:1, the only other place where the word occurs. *Andrew A.* Bonar. 
 
@@ -118,7 +118,7 @@ Verse 17. We conclude with the joyful contrast. In this all these Psalms are agr
 
 *Verse* 17. To bless God for mercies is the way to increase them; to bless him for miseries is the way to remove them: no good lives so long as that which is thankfully improved; no evil dies so soon as that which is patiently endured. *William Dyer.* 
 
-## HINTS TO THE VILLAGE PREACHER 
+## Hints to the Village Preacher
 
 *Verse* 1. The necessity of faith when we address ourselves to God. Show the worthlessness of prayer without trust in the Lord. 
 

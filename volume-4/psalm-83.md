@@ -8,7 +8,7 @@ weight: 83
 
 **DIVISION.**&nbsp;An appeal to God in a general manner fills Ps 83:1-4; and then the psalmist enters into details of the league, Ps 83:5-8. This leads to an earnest entreaty for the overthrow of the enemy, Ps 83:9-15, with an expression of desire that God's glory may be promoted thereby.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Keep not thou silence, O God.*&nbsp;Man is clamorous, be not thou speechless. He rails and reviles, wilt not thou reply? On word of thine can deliver thy people; therefore, O Lord, break thy quiet and let thy voice be heard.&nbsp;*Hold not thy peace, and be not still, O God.*&nbsp;Here the appeal is to EL., the Mighty One. He is entreated to act and speak, because his nation suffers and is in great jeopardy. How entirely the psalmist looks to God; he asks not for "a leader bold and brave, "or for any form of human force, but casts his burden upon the Lord, being well assured that his eternal power and Godhead could meet every difficulty of the case.
 
@@ -94,7 +94,7 @@ And that thy church shall never bow
 
 Before the boastful gates of hell.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;&nbsp;*"A Song*&nbsp;or&nbsp;*Psalm."*&nbsp;When the two words (&nbsp;*Shir, Mizmor,*&nbsp;)occur together, the meaning seems to be, a lyric poem appointed to be sung. John Jebb.
 
@@ -188,7 +188,7 @@ that can sit nowhere, rest at nothing, but turn about from one uncertainty to an
 
 **Verse 18.**&nbsp;&nbsp;*The most high.*&nbsp;His being the High and lofty One, notes forth the transcendancy and super excellency of his divine being in himself, and that it is utterly of another kind from creatures, and indeed that it only is truly being. When the Psalmist says,&nbsp;*That men may know that thou, whose name alone in JEHOVAH art the MOST HIGH over all the earth,*&nbsp;he thereby argues his height from his name, that his name is alone Jehovah, and therefore he is most high, and in that very respect. Now Jehovah is the name of his essence, "I AM, " and he is MOST HIGH in respect of such a glorious being as is proper alone unto him.&nbsp;*Thomas Goodwin.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;The long silence of God, the reasons for it, and our reasons for desiring him to end it.
 
@@ -214,7 +214,7 @@ that can sit nowhere, rest at nothing, but turn about from one uncertainty to an
 
 **Verse 18.**&nbsp;The Golden Lesson: how taught, to whom, by whom, through whom?
 
-## WORK UPON THE EIGHTY-THIRD PSALM
+## Works Upon The Eighty-Third Psalm
 
 "Expositions and Observations on Psalm LXXXIII., "in "Divine Drops distilled from the Fountain of Holy Scriptures: delivered in several Exercises before Sermons, upon Twenty and Three Texts of Scripture. By that worthy Gospel Preacher, GUALTER CRADOCK, late Preacher at All Hallows Great in London... 1650."
 

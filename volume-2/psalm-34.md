@@ -8,7 +8,7 @@ weight: 34
 
 **DIVISION.**&nbsp;The Psalm is split into two great divisions at the close of Ps 34:10, when the Psalmist having expressed his praise to God turns in direct address to men. The first ten verses are A HYMN, and the last twelve A SERMON. For further assistance to the reader we may subdivide thus: In Ps 34:1-3, David vows to bless the Lord, and invites the praise of others; from Ps 34:4-7 he relates his experience, and in Ps 34:8-10 exhorts the godly to constancy of faith. In Ps 34:1-14, he gives direct exhortation, and follows it up by didactic teaching from Ps 34:15-22 to the close.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*I will bless the Lord at all times.*&nbsp;He is resolved and fixed,&nbsp;*I will*&nbsp;; he is personally and for himself determined, let others so as they may; he is intelligent in head and inflamed in heart—he knows to whom the praise is due, and what is due, and for what and when. To Jehovah, and not to second causes our gratitude is to be rendered. The Lord hath by right a monopoly in his creatures praise. Even when a mercy may remind us of our sin with regard to it, as in this case David's deliverance from the Philistine monarch was sure to do, we are not to rob God of his meed of honour because our conscience justly awards a censure to our share in the transaction. Though the hook was rusty, yet God sent the fish, and we thank him for it.&nbsp;*At all times*&nbsp;, in every situation, under every circumstance, before, in and after trials, in bright days of glee, and dark nights of fear. He would never have done praising, because never satisfied that he had done enough; always feeling that he fell short of the Lord's deservings. Happy is he whose fingers are wedded to his harp. He who praises God for mercies shall never want a mercy for which to praise. To bless the Lord is never unseasonable.&nbsp;*His praise shall continually be in my mouth,*&nbsp;not in my heart merely, but in my mouth too. Our thankfulness is not to be a dumb thing; it should be one of the daughters of music. Our tongue is our glory, and it ought to reveal the glory of God. What a blessed mouthful is God's praise! How sweet, how purifying, how perfuming! If men's mouths were always thus filled, there would be no repining against God, or slander of neighbours. If we continually rolled this dainty morsel under our tongue, the bitterness of daily affliction would be swallowed up in joy. God deserves blessing with the heart, and extolling with the mouth—good thoughts in the closet, and good words in the world.
 
@@ -54,7 +54,7 @@ weight: 34
 
 **Verse 22.**&nbsp;&nbsp;*The Lord redeemeth the soul of his servants*&nbsp;—with price and with power, with blood and with water. All providential helps are a part of the redemption by power, hence the Lord is said still to redeem. All thus ransomed belong to him who bought them—this is the law of justice and the verdict of gratitude. Joyfully will we serve him who so graciously purchases us with his blood, and delivers us by his power.&nbsp;*And none of them that trust in him shall be desolate.*&nbsp;Faith is the mark of the ransomed, and wherever it is seen, though in the least and meanest of the saints, it ensures eternal salvation. Believer, thou shalt never be deserted, forsaken, given up to ruin. God, even thy God, is thy guardian and friend, and bliss is thine.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Title.**&nbsp;&nbsp;*Abimelech*&nbsp;was king of Gath, the same with Achish, 1Sa 21:20: who either had two names, or this of Abimelech, as it should seem, was a common name to all the kings of the Philistines (see Ge 20:2 26:8); as Pharaoh was to the Egyptian kings and Caesar to the Roman emperors: the name signifies a&nbsp;*father king,*&nbsp;or&nbsp;*my father king,*&nbsp;or a&nbsp;*royal father;*&nbsp;as kings should be the fathers of their country: before him&nbsp;*David changed his behaviour,*&nbsp;his taste, sense, or reason; he imitated a madman.&nbsp;*John Gill.*&nbsp;
 
@@ -222,7 +222,7 @@ After foul weather comes fair; though it be ill with us now, it will not be alwa
 
 **Verse 22.**&nbsp;Satan cannot tempt longer than God shall give him leave; and he will never suffer thee to be tempted above measure, but will give a good issue unto the temptation. Thou art called to fight under the banner of Christ Jesus, and in the name of the Lord thou shalt be enabled to do valiantly and overcome. If Satan continue his assaults, "God's grace is sufficient for thee." 2Co 12:9. If thy strength be clean gone, God's power shall be magnified the more in thee, and he hath brought thee low that thou mayest not trust in thyself, but in the living Lord, and that the whole praise of the victory might be ascribed unto him. If thy strength did remain, it was not to be leaned unto; and now it is decayed and gone, there is no cause of fear, for the Lord will be thy stay. In the most difficult assaults and tedious encounters, we are exhorted to "be strong in the Lord, and in the power of his might." Be of good courage, and God will grant thee an easy, a joyful victory. Satan's drift in tempting is to turmoil, dishearten, and perplex with fears, and drive into despair; and if thou take heart to rest quietly upon God's grace, and fly unto his name, thou shalt put him to flight, thou hast already got the day. Wait but awhile, and these dark mists and terrible storms shall be dispersed. By these temptations the Lord hath taught thee to see by weakness, and the malice of Satan; to deny thine own wisdom and prize his favour, lightly to esteem all things here below, and highly to value mercy reaching to the pardon of sin, and heavenly communion and fellowship with God. And if this bitter potion hath wrought so kindly for thy spiritual good, why shouldest thou be dismayed? Trust in the Lord, be of good courage, and he shall strengthen thee.&nbsp;*The Lord redeemeth the soul of his servants: and none of them that trust in him shall be desolate, John Ball.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;Firm resolution, serious difficulties in carrying it out, helps for its performance, excellent consequences of so doing. Six questions.—&nbsp;*Who?*&nbsp;"I."&nbsp;*What?*&nbsp;"Will bless."&nbsp;*Whom?*&nbsp;"The Lord."&nbsp;*When?*&nbsp;"At all times."&nbsp;*How? Why?*&nbsp;
 
@@ -312,7 +312,7 @@ The position of prayer in the economy of grace, or the natural history of mercy 
 
 **Verse 22.**&nbsp;&nbsp;*Redemption*&nbsp;in its various meanings;&nbsp;*faith*&nbsp;in its universal preservation;&nbsp;*the Lord*&nbsp;in his unrivalled glory in the work of grace.
 
-## WORK UPON THE THIRTY-FOURTH PSALM
+## Works Upon The Thirty-Fourth Psalm
 
 Meditations upon the XXXIV. Psalme, in Sir RICHARD BAKER'S Works.
 

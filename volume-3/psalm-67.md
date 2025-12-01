@@ -6,7 +6,7 @@ weight: 67
 
 **TITLE.**&nbsp;&nbsp;*To the Chief Musician.*&nbsp;Who he was matters not, and who we may be is also of small consequence, so long as the Lord is glorified.&nbsp;*On Neginoth,*&nbsp;or upon stringed instruments. This is the fifth Psalm so entitled, and no doubt like the others was meant to be sung with the accompaniment of "harpers harping with their harps." No author's name is given, but he would be a bold man who should attempt to prove that David did not write it. We will be hard pushed before we will look for any other author upon whom to father these anonymous odes which lie side by side with those ascribed to David, and wear a family likeness to them.&nbsp;*A Psalm*&nbsp;or&nbsp;*Song*&nbsp;. Solemnity and vivacity are here united. A Psalm is a song, but all songs are not Psalms: this is both one and the other.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*God be merciful unto us, and bless us; and cause his face*&nbsp;to&nbsp;*shine upon us.*&nbsp;This is a fit refrain to the benediction of the High Priest in the name of the Lord, as recorded in Nu 6:24-25. "The Lord bless thee, and keep thee: the Lord make his face shine upon thee, and be gracious unto thee." It begins at the beginning with a cry for&nbsp;*mercy.*&nbsp;Forgiveness of sin is always the first link in the chain of mercies experienced by us. Mercy is a foundation attribute in our salvation. The best saints and the worst sinners may unite in this petition. It is addressed to the God of mercy, by those who feel their need of mercy, and it implies the death of all legal hopes or claims of merit. Next, the church begs for a blessing;&nbsp;*bless us*&nbsp;—a very comprehensive and far reaching prayer. When we bless God we do but little, for&nbsp;*our*&nbsp;blessings are but words, but when God blesses he enriches us indeed, for his blessings are gifts and deeds. But his blessing alone is not all his people crave, they desire a personal consciousness of his favour, and pray for a smile from his face. These three petitions include all that we need here or hereafter. This verse may be regarded as the prayer of Israel, and spiritually of the Christian church. The largest charity is shown in this Psalm, but it begins at home. The whole church, each church, and each little company, may rightly pray,&nbsp;*bless us.*&nbsp;It would, however, be very wrong to let our charity end where it begins, as some do; our love must make long marches, and our prayers must have a wide sweep, we must embrace the whole world in our intercessions. Selah. Lift up the heart, lift up the voice. A higher key, a sweeter note is called for.
 
@@ -32,7 +32,7 @@ Praise him, Praise him, evermore!"
 
 **Verse 7.**&nbsp;&nbsp;*God shall bless us.*&nbsp;The prayer of the first verse is the song of the last. We have the same phrase twice, and truly the Lord's blessing is manifold; he blesses and blesses and blesses again. How many are his beatitudes! How choice his benedictions! They are the peculiar heritage of his chosen. He is the Saviour of all men, but specially of them that believe. In this verse we find a song for all future time. God shall bless us is our assured confidence; he may smite us, or strip us, or even slay us, but he must bless us. He cannot turn away from doing good to his elect. And all the ends of the earth shall fear him. The far off shall fear. The ends of the earth shall end their idolatry, and adore their God. All tribes, without exception, shall feel a sacred awe of the God of Israel. Ignorance shall be removed, insolence subdued, injustice banished, idolatry abhorred, and the Lord's love, light, life, and liberty, shall be over all, the Lord himself being King of kings and Lord of lords.&nbsp;*Amen, and Amen.*&nbsp;
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;How admirably balanced are the parts of this missionary song! The people of God long to see all the nations participating in their privileges, "visited with God's salvation, and gladdened with the gladness of his nation" (Ps 106:5). They long to hear all the nationalities giving thanks to the Lord, and hallowing his name; to see the face of the whole earth, which sin has darkened so long, smiling with the brightness of a second Eden. This is not a vapid sentiment. The desire is so expressed as to connect with it the thought of duty and responsibility. For how do they expect that the happy times are to be reached? They trust, in the first instance, to the general diffusion of the knowledge of God's way, the spreading abroad of the truth regarding the way of salvation. With a view to that, they cry for a time of quickening from the presence of the Lord, and take encouragement in this prayer from the terms of the divinely appointed benediction. As if they had said, "Hast thou not commanded the sons of Aaron to put thy name upon us, and to say: The Lord bless thee and keep thee; the Lord cause his face to shine on thee and be gracious to thee? Remember that sure word of thine. God be gracious unto us and bless us, and cause his face to shine upon us. Let us be thus blessed, and we shall in our turn become a blessing. All the families of the earth shall, through us, become acquainted with thy salvation." Such is the church's expectation. And who shall say it is unreasonable? If the little company of a hundred and twenty disciples who met in the upper chamber at Jerusalem, all of them persons of humble station, and inconspicuous talents, were endued with such power by the baptism of the Holy Ghost, that within three hundred years the paganism of the empire was overthrown, one need not fear to affirm that, in order to the evangelisation of the world, nothing more is required than that the churches of Christendom be baptised with a fresh effusion of the same Spirit of power.&nbsp;*William Binnie.*&nbsp;
 
@@ -108,7 +108,7 @@ II. THE INCREASE ITSELF. This increase has many aspects. Let us view them in a c
 
 **Verse 7.**&nbsp;Note, how joy in God, and fear of God, are combined. By joy the sadness and anxiety of diffidence are excluded, but by fear contempt and false security are banished. So Psalm 2, "Serve the Lord with fear, and rejoice with trembling."&nbsp;*Wolfgang Musculus.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;
 
@@ -182,7 +182,7 @@ II. THE INCREASE ITSELF. This increase has many aspects. Let us view them in a c
 
 2\.Man to God:&nbsp;*shall fear him.*&nbsp;
 
-## WORK UPON THE SIXTY-SEVENTH PSALM
+## Works Upon The Sixty-Seventh Psalm
 
 In&nbsp;*"The Works of*&nbsp;JOHN BOYS, "1626, folio, pp. 42-45, there is an Exposition of this Psalm.
 

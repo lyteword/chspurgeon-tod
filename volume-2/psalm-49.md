@@ -8,7 +8,7 @@ weight: 49
 
 **DIVISION.**&nbsp;The poet musician sings, to the accompaniment of his harp, the despicable character of those who trust in their wealth, and so he consoles the oppressed believer. The first four verses are a preface; from Ps 49:5-12 all fear of great oppressors is removed by the remembrance of their end and their folly; Ps 49:13 contains an expression of wonder at the perpetuity of folly; Ps 49:14-15 contrast the ungodly and the righteous in their future; and from Ps 49:16-20 the lesson from the whole is given in an admonitory form. Note the chorus in Ps 49:2,20, and also the two Selahs.
 
-## EXPOSITION
+## Exposition
 
 **Verses 1-4.**&nbsp;In these four verses the poet prophet calls universal humanity to listen to his didactic hymn.
 
@@ -58,7 +58,7 @@ What room is there, then, for fear to the godly when such natural brute beasts a
 
 **Verse 20.**&nbsp;The song ends with the refrain,&nbsp;*Man that is in honour, and understandeth not, is like the beasts that perish.*&nbsp;Understanding differences men from animals, but if they will not follow the highest wisdom, and like beasts find their all in this life, then their end shall be as mean and dishonourable as that of beasts slain in the chase, or killed in the shambles. From the loftiest elevation of worldly honour to the uttermost depths of death is but a step. Saddest of all is the reflection, that though men are like beasts in all the degradation of perishing, yet not in the rest which animal perishing secures, for, alas! it is written, "These shall go away into everlasting punishment." So ends the minstrel's lay. Comforting as the theme is to the righteous, it is full of warning to the worldly. Hear ye it, O ye rich and poor. Give ear to it, ye nations of the earth.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;Strange it is that two Psalms so near together, as this and the forty-fifth should, and should alone imitate, or be the forerunners of, two works of David's son; this—Ecclesiastes, the former—the Canticles.&nbsp;*J. M. Neale.*&nbsp;
 
@@ -206,7 +206,7 @@ Death is their Shepherd now.&nbsp;**&nbsp;
 
 **Verse 20.**&nbsp;&nbsp;*Like the beasts.*&nbsp;Man is so much a beast, that he cannot know himself to be one till God teach him. And we never learn to be men till we have learned that we were beasts...It is not said he is like this or that beast, but&nbsp;*he is like the beasts that perish.*&nbsp;Take any beast, or all beasts, the worst of beasts, he is the picture of them all, and he daily exemplifies the vilest of their qualities in his own.&nbsp;*Joseph Caryl.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 2.**&nbsp;
 

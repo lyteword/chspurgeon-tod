@@ -8,7 +8,7 @@ weight: 132
 
 **DIVISION.**&nbsp;Our translators have rightly divided this Psalm. It contains a statement of David's anxious care to build a house for the Lord (Ps 132:1-7); a prayer at the removal of the Ark (Ps 132:8-10); and a pleading of the divine covenant and its promises (Ps 132:11-18).
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*LORD, remember David, and all his afflictions.*&nbsp;With David the covenant was made, and therefore his name is pleaded on behalf of his descendants, and the people who would be blessed by his dynasty. Jehovah, who changes not, will never forget one of his servants, or fail to keep his covenant; yet for this thing he is to be entreated. That which we are assured the Lord will do must, nevertheless, be made a matter of prayer. The request is that the Lord would&nbsp;*remember*&nbsp;, and this is a word full of meaning. We know that the Lord remembered Noah, and assuaged the flood; he remembered Abraham, and sent Lot out of Sodom; he remembered Rachel, and Hannah, and gave them children; he remembered his mercy to the house of Israel, and delivered his people. That is a choice song wherein we sing, "He&nbsp;*remembered us*&nbsp;in our low estate: for his mercy endureth for ever"; and this is a notable prayer, "Lord remember me." The plea is urged with God that he would bless the family of David for the sake of their progenitor; how much stronger is our master argument in prayer that God would deal well with us for Jesus' sake! David had no personal merit; the plea is based upon the covenant graciously made With him: but Jesus has deserts which are his own, and of boundless merits these we may urge without hesitation. When the Lord was angry with the reigning prince, the people cried, "Lord remember David"; and when they needed any special blessing, again they sang, "Lord, remember David." This was good pleading, but it was not so good as ours, which runs on this wise, "Lord, remember&nbsp;*Jesus*&nbsp;, and all his afflictions."
 
@@ -50,7 +50,7 @@ The kingdom of Judah might have stood to this day had its kings been faithful to
 
 Crowns become the victor's brow."
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;Lightfoot ascribes this Psalm to David, and supposes it to have been composed on the second removal of the ark from the house of Obededom: 1Ch 15:4, etc. But the mention of David's name in the tenth verse in the third person, and the terms there employed, militate against his being the author. Others ascribe it to Solomon, who, they think, wrote it about the time of the removing of the ark into the Temple which he had built for it: 2Ch 5:2, etc. Others are of opinion, that it was composed by Solomon for the solemn services that were celebrated at the dedication of the Temple.—&nbsp;*James Anderson's note to Calvin in loc.*&nbsp;
 
@@ -232,7 +232,7 @@ about 1670.
 
 **Verse 18.**&nbsp;&nbsp;*Upon himself shall the crown flourish.*&nbsp;This idea seems to be taken from the nature of the ancient crowns bestowed upon conquerors. From the earliest periods of history, the laurel, olive, ivy, etc., furnished crowns to adorn the heads of heroes, who had conquered in the field of battle, gained the prize in the race, or performed some other important service to the public. These were the dear bought rewards of the most heroic exploits of antiquity. This sets the propriety of the phrase in full view. The idea of a crown of gold and jewels flourishing, is at least unnatural; whereas, flourishing is natural to laurels, oaks, etc. These were put upon the heads of the victors ill full verdure, and their merit seemed to make them flourish on their heads, in fresher green. The literal crown which Jesus wore was also of the vegetable kind, and the thorn of sorrow never flourished in such rigour as on his head. Now he has got the crown of life, which shall not fade away, like the perishing verdure of the crowns of other heroes. It shall flourish for ever, with all the rigour of immortality, and bring forth all the olive fruits of peace for his people. Its branches shall spread, and furnish crowns for all the victors in the spiritual warfare.—&nbsp;*Alexander Pirie,*&nbsp;—1804.
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;
 
@@ -524,7 +524,7 @@ b) Its flourishing. Glory extending. Subjects increasing. Wealth growing. Foes f
 
 **Verse 18.**&nbsp;(&nbsp;*last clause*&nbsp;). The Lord Jesus himself the source, sustenance, and centre of the prosperity of his kingdom.
 
-## WORK UPON THE HUNDRED AND THIRTY-SECOND PSALM
+## Works Upon The Hundred And Thirty-Second Psalm
 
 In "The Works of John Boys," 1626, folio, pp. 821-5, there is an Exposition of Psalm 132. This is a poor and lean performance.
 

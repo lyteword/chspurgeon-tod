@@ -8,7 +8,7 @@ weight: 57
 
 **DIVISION.**&nbsp;We have here prayer, Ps 57:1-6, and praise, Ps 57:7-11. The hunted one takes a long breath of prayer, and when he is fully inspired, he breathes out his soul in jubilant song.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Be merciful unto me, O God, be merciful unto me.*&nbsp;Urgent need suggests the repetition of the cry, for thus intense urgency of desire is expressed. If `he gives twice who gives quickly, 'so he who would receive quickly must ask twice. For mercy the psalmist pleads at first, and he feels he cannot improve upon his plea, and therefore returns to it. God is the God of mercy, and the Father of mercies, it is most fit therefore that in distress he should seek mercy from him in whom it dwells. For my soul trusteth in thee. Faith urges her suit right well. How can the Lord be unmerciful to a trustful soul? Our faith does not deserve mercy, but it always wins it from the sovereign grace of God when it is sincere, as in this case where&nbsp;*the soul*&nbsp;of the man believed. "With the heart man believeth unto righteousness." Yea, in the shadow of thy wings will I make my refuge. Not in the cave alone would he hide, but in the cleft of the Rock of ages. As the little birds find ample shelter beneath the parental wing, even so would the fugitive place himself beneath the secure protection of the divine power. The emblem is delightfully familiar and suggestive. May we all experimentally know its meaning. When we cannot see the sunshine of God's face, it is blessed to cower down beneath the shadow of his wings. Until these calamities be overpast. Evil will pass away, and the eternal wings will abide over us till then. Blessed be God, our calamities are matters of time, but our safety is a matter of eternity. When we are under the divine shadow, the passing over of trouble cannot harm us; the hawk flies across the sky, but this is no evil to the chicks when they are safely nestling beneath the hen.
 
@@ -40,7 +40,7 @@ For a saint to hold his tongue."
 
 **Verse 11.**&nbsp;&nbsp;*Be thou exalted, O God, above the heavens.*&nbsp;A grand chorus. Take it up, ye angels and ye spirits made perfect, and join in it, ye sons of men below, as ye say, Let thy glory be above all the earth. The prophet in the previous verse spoke of mercy "unto the heavens, "but here his song flies "above the heavens; "praise rises higher, and knows no bound
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;This Psalm was composed, as the title notes, by David prayer wise, when he hid himself from Saul in the cave, and is inscribed with a double title,&nbsp;*Altaschith, Michtam of David. Altaschith*&nbsp;refers to the scope, and&nbsp;*Michtam*&nbsp;to the dignity of the subject matter. The former signifies&nbsp;*destroy not,*&nbsp;or, let there be no slaughter; and may either refer to Saul, concerning whom he gave charge to his servants not to destroy him; or rather it hath reference to God, to whom in this great exigence he poured out his soul in this pathetic ejaculation;&nbsp;*Altaschith,*&nbsp;destroy not. The latter title,&nbsp;*Michtam,*&nbsp;signifies a golden ornament, and so is suited to the choice and excellent matter of the Psalm, which much more deserves such a title than Pythagoras' golden verses did.&nbsp;*John Flavel (1627-1692), in "Divine Conduct, or the Mystery of Providence."*&nbsp;
 
@@ -130,7 +130,7 @@ Benjamin Grosvenor, D.D. (1675-1758), in "An Exhortation to the&nbsp;*Duty of Si
 
 **Verse 11.**&nbsp;&nbsp;*Be thou exalted, O God, above the heavens,*&nbsp;etc. Greater words of prayer than these never came from human lips. Heaven and earth have as they imply, a mutually interwoven history, and the blessed, glorious end of this is in the sunrise of the Divine glory over both.&nbsp;*Franz Delitzsch,*&nbsp;1869.
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;(&nbsp;*first clause*&nbsp;).&nbsp;*Repetition in prayer.*&nbsp;
 
@@ -270,7 +270,7 @@ Benjamin Grosvenor, D.D. (1675-1758), in "An Exhortation to the&nbsp;*Duty of Si
 
 3\.It is&nbsp;*deep.*&nbsp;Everything of God is proportionate; this, therefore, is deep in abiding foundation, and infinite wisdom.
 
-## WORKS UPON THE FIFTY-SEVENTH PSALM
+## Works Upon The Fifty-Seventh Psalm
 
 The Works of JOHN BOYS, D.D., "Deane of Canterburie, "1629, folio, pp. 834-40, contains an Exposition of Psalm 57.
 

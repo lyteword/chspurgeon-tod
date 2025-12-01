@@ -8,7 +8,7 @@ weight: 56
 
 **DIVISION.**&nbsp;In Ps 56:1-2, he pours out his complaint; in Ps 56:3-4 he declares his confidence in God; in Ps 56:5-6 he returns to his complaining, but pleads in earnest hope in Ps 56:7-9, and sings a grateful song from Ps 56:10 to the close.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Be merciful unto me, O God.*&nbsp;In my deep distress my soul turns to thee, my God. Man has no mercy on me, therefore double thy mercy to me. If thy justice has let loose my enemies, let thy mercy shorten their chain. It is sweet to see how the tender dove like spirit of the psalmist flies to the most tender attribute for succour in the hour of peril. For man would swallow me up. He is but thy creature, a mere man, yet like a monster he is eager for blood, he pants, he gapes for me; he would not merely wound me, or feed on my substance, but he would fain swallow me altogether, and so make an end of me. The open mouths of sinners when they rage against us should open our mouths in prayer. We may plead the cruelty of men as a reason for the divine interposition—a father is soon aroused when his children are shamefully entreated. He fighting daily oppresseth me. He gives me no interval—he fights daily. He is successful in his unrighteous war—he oppresses me, he crushes me, he presses me sore. David has his eye on the leader of his foes, and lays his complaint against him in the right place. If we may thus plead against man, much more against that great enemy of souls, the devil. We ask the Lord to forgive us our trespasses, which is another way of saying, "Be merciful to me, O God, "and then we may say, "Lead us not into temptation, but deliver us from the evil one." The more violent the attack of Satan the stronger our plea for deliverance.
 
@@ -42,7 +42,7 @@ The machinery of prayer is not always visible, but it is most efficient. God inc
 
 **Verse 13.**&nbsp;&nbsp;*For thou hast delivered my soul from death.*&nbsp;His enemies were defeated in their attempts upon his life, and therefore he vowed to devote his life to God. Wilt not thou deliver my feet from falling? One mercy is a plea for another, for indeed it may happen that the second is the necessary complement of the first. It little boots that we live, if we are made to fall in character by the thrusts of our enemies. As lief not be, as live to be bereft of honour, and fallen prostrate before my enemies. That I may walk before God in the light of the living, enjoying the favour and presence of God, and finding the joy and brightness of life therein. Walking at liberty, in holy service, in sacred communion, in constant progress in holiness, enjoying the smile of heaven—this I seek after. Here is the loftiest reach of a good man's ambition, to dwell with God, to walk in righteousness before him, to rejoice in his presence, and in the light and glory which it yields. Thus in this short Psalm, we have climbed from the ravenous jaws of the enemy into the light of Jehovah's presence, a path which only faith can tread.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;The words&nbsp;*Jonathelemrechokim*&nbsp;may be rendered,&nbsp;*concerning the mute dove among them that are afar off,*&nbsp;or&nbsp;*in far places. John Gill.*&nbsp;
 
@@ -136,7 +136,7 @@ The machinery of prayer is not always visible, but it is most efficient. God inc
 
 **Verse 13**&nbsp;(&nbsp;*last clause*&nbsp;). We cannot restrict this phrase to the light of mortal life; David's vows bound him to walk in the&nbsp;*light of spiritual life,*&nbsp;and also in the&nbsp;*light of eternal life,*&nbsp;of which by faith he was a partaker. And most commentators have applied this verse to the&nbsp;*light of glory*&nbsp;in the world to come, as the real and final object of the believer's conversation here on earth.&nbsp;*W. Wilson, D.D.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verses 2-3.**&nbsp;
 
@@ -244,7 +244,7 @@ Or—
 
 3\.Of Hope—&nbsp;*That I may walk,*&nbsp;etc.&nbsp;*G. R.*&nbsp;
 
-## WORK UPON THE FIFTY-SIXTH PSALM
+## Works Upon The Fifty-Sixth Psalm
 
 In CHANDLER'S&nbsp;*"Life of David, "*&nbsp;Vol. 1., pp. 104-7, there is an Exposition of this Psalm.
 

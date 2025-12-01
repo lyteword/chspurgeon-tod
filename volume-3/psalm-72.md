@@ -8,7 +8,7 @@ weight: 72
 
 **DIVISION.**&nbsp;We shall follow the division suggested by Alexander. "A glowing description of the reign of Messiah as righteous, Ps 72:1-7; universal, Ps 72:8-11; beneficent, Ps 72:12-14; and perpetual, Ps 72:15-17; to which are added a doxology, Ps 72:18-19; and a postscript, Ps 72:20."
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Give the king thy judgments, O God.*&nbsp;The right to reign was transmitted by descent from David to Solomon, but not by that means alone: Israel was a theocracy, and the kings were but the viceroys of the greater King; hence the prayer that the new king might be enthroned by divine right, and then endowed with divine wisdom. Our glorious King in Zion hath all judgment committed unto him. He rules in the name of God over all lands. He is king "Dei Gratia" as well as by right of inheritance. And thy righteousness unto the king's son. Solomon was both king and king's son; so also is our Lord. He has power and authority in himself, and also royal dignity given of his Father. He is the righteous king; in a word, he is "the Lord our righteousness." We are waiting till he shall be manifested among men as the ever righteous Judge. May the Lord hasten on his own time the long looked for day. Now wars and fightings are even in Israel itself, but soon the dispensation will change, and David, the type of Jesus warring with our enemies, shall be displaced by Solomon the prince of peace.
 
@@ -80,7 +80,7 @@ God's church is no mean thing; its beginnings are small, but its increase is of 
 
 **Verse 20.**&nbsp;&nbsp;*The prayers of David the son of Jesse are ended.*&nbsp;What more could he ask? He has climbed the summit of the mount of God; he desires nothing more. With this upon his lip, he is content to die. He strips himself of his own royalty and becomes only the "son of Jesse, "thrice happy to subside into nothing before the crowned Messiah. Before his believing eye the reign of Jesus, like the sun, filled all around with light, and the holy soul of the man after God's own heart exulted in it, and sung his "Nunc dimittis:" "Lord, now lettest thou thy servant depart in peace, for mine eyes have seen thy salvation!" We, too, will cease from all petitioning if it be granted to us to see the day of the Lord. Our blissful spirits will then have nothing further to do but for ever to praise the Lord our God.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;&nbsp;*For Solomon.*&nbsp;I shall but mention a threefold analogy between Christ and Solomon.
 
@@ -290,7 +290,7 @@ Finished are the prayers of David, the son of Jesse.
 
 &nbsp;*—Samuel Horsley.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Whole Psalm.**&nbsp;
 
@@ -448,7 +448,7 @@ Finished are the prayers of David, the son of Jesse.
 
 **HERE ENDETH THE SECOND BOOK OF THE PSALMS.**&nbsp;
 
-## WORK UPON THE SEVENTY-SECOND PSALM
+## Works Upon The Seventy-Second Psalm
 
 In CHANDLER'S&nbsp;*Life of David,*&nbsp;Vol. 2, pp. 440-44, there is an Exposition of this Psalm.
 

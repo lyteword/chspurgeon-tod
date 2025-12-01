@@ -8,7 +8,7 @@ weight: 51
 
 **DIVISION.**&nbsp;It will be simplest to note in the first twelve verses the penitent's confessions and plea for pardon, and then in the last seven his anticipatory gratitude, and the way in which he resolves to display it.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Have mercy upon me, O God.*&nbsp;He appeals at once to the mercy of God, even before he mentions his sin. The sight of mercy is good for eyes that are sore with penitential weeping. Pardon of sin must ever be an act of pure mercy, and therefore to that attribute the awakened sinner flies.&nbsp;*"According to thy lovingkindness."*&nbsp;Act, O Lord, like thyself; give mercy like thy mercy. Show mercy such as is congruous with thy grace.
 
@@ -54,7 +54,7 @@ What a choice word is that of our English version, a rare compound of precious t
 
 **Verse 19.**&nbsp;In those days of joyful prosperity thy saints shall present in great abundance the richest and holiest thank offerings to thee, and thou shalt be pleased to accept them. A saved soul expects to see its prayers answered in a revived church, and then is assured that God will be greatly glorified. Though we bring no more sacrifices for sin, yet as priests unto God our solemn praises and votive gifts are thank offerings acceptable to God by Jesus Christ. We bring not the Lord our least things—our doves and pigeons; but we present him with our best possessions—our bullocks. We are glad that in this present time we are able to fulfil in person the declaration of this verse: we also, forecasting the future, wait for days of the divine presence, when the church of God, with unspeakable joy, shall offer gifts upon the altar of God, which will far eclipse anything beheld in these less enthusiastic days. Hasten it, O Lord.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;&nbsp;*"After he had gone in to Bathsheba."*&nbsp;This was the devil's nest egg that caused many sins to be laid, one to, and upon another. See the woeful chain of David's lust, 2Sa 11:1-27 12:1-31.&nbsp;*John Trapp.*&nbsp;
 
@@ -250,7 +250,7 @@ What a choice word is that of our English version, a rare compound of precious t
 
 The prayer, then, in the 18th verse might have a particular reference to the completion of these buildings, and especially to the rearing of the temple, in which sacrifices of unprecedented magnitude were to be offered. David's fears might easily suggest to him that his crimes might prevent the building of the temple, which God had promised should be erected. 2Sa 7:13. "The king forgets not, " observes Bishop Horne, "to ask mercy for his people as well as for himself; that so neither his own nor their sins might prevent either the building and flourishing of the earthly Jerusalem, or, what was of infinitely greater importance, the promised blessing of Messiah, who was to descend from him, and to rear the walls of the New Jerusalem."&nbsp;*James Anderson's Note to Calvin, in loc.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 The Psalm is upon its surface so full of suggestions for sermons that I have not attempted to offer any of my own, but have merely inserted a selection from Mr. G. Rogers and others.
 
@@ -402,7 +402,7 @@ So let thy pardoning love be found."
 
 2\.Because given in the name of the Redeemer. With such sacrifices God is well pleased.
 
-## WORKS UPON THE FIFTY-FIRST PSALM
+## Works Upon The Fifty-First Psalm
 
 Exposition of the Fifty-first Psalm, by MARTIN LUTHER, in "Select works of Martin Luther, translated by REV. HENRY COLE." Vol. I., pp. 51-197.
 

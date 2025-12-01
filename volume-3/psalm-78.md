@@ -8,7 +8,7 @@ weight: 78
 
 **DIVISION.**&nbsp;The unity is well maintained throughout, but for the sake of the reader's convenience, we may note that Ps 78:1-8 may be viewed as a preface, setting forth the psalmist's object in the epic which he is composing. From Ps 78:9-41 the theme is Israel in the wilderness; then intervenes an account of the Lord's preceding goodness towards his people in bringing them out of Egypt by plagues and wonders, Ps 78:42-52. The history of the tribes is resumed at Ps 78:53, and continued to Ps 78:66, where we reach the time of the removal of the ark to Zion and the transference of the leadership of Israel from Ephraim to Judah, which is rehearsed in song from Ps 78:67-72.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Give ear, O my people, to my law.*&nbsp;The inspired bard calls on his countrymen to give heed to his patriotic teaching. We naturally expect God's chosen nation to be first in hearkening to his voice. When God gives his truth a tongue, and sends forth his messengers trained to declare his word with power, it is the least we can do to give them our ears and the earnest obedience of our hearts. Shall God speak, and his children refuse to hear? His teaching has the force of law, let us yield both ear and heart to it. Incline your ears to the words of my mouth. Give earnest attention, bow your stiff necks, lean forward to catch every syllable. We are at this day, as readers of the sacred records, bound to study them deeply, exploring their meaning, and labouring to practice their teaching. As the officer of an army commences his drill by calling for "Attention, "even so every trained soldier of Christ is called upon to give ear to his words. Men lend their ears to music, how much more then should they listen to the harmonies of the gospel; they sit enthralled in the presence of an orator, how much rather should they yield to the eloquence of heaven.
 
@@ -168,7 +168,7 @@ It will be our wisdom to eat to the full of it, for God has so sent it that we a
 
 **Verse 72.**&nbsp;&nbsp;*So he fed them according to the integrity of his heart.*&nbsp;David was upright before God, and never swerved in heart from the obedient worship of Jehovah. Whatever faults he had, he was unfeignedly sincere in his allegiance to Israel's superior king; he shepherded for God with honest heart. And guided them by the skilfulness of his hands. He was a sagacious ruler, and the psalmist magnifies the Lord for having appointed him. Under David, the Jewish kingdom rose to an honourable position among the nations, and exercised an influence over its neighbours. In closing the Psalm which has described the varying conditions of the chosen nation, we are glad to end so peacefully; with all noise of tumult or of sinful rites hushed into silence. After a long voyage over a stormy sea, the ark of the Jewish state rested on its Ararat, beneath a wise and gentle reign, to be wafted no more hither and thither by floods and gales. The psalmist had all along intended to make this his last stanza, and we too may be content to finish all our songs of love with the reign of the Lord's anointed. Only we may eagerly enquire, when will it come? When shall we end these desert roamings, these rebellions, and chastenings, and enter into the rest of a settled kingdom, with the Lord Jesus reigning as "the Prince of the house of David?" Thus have we ended this lengthy parable, may we in our life parable have less of sin, and as much of grace as are displayed in Israel's history, and may we close it under the safe guidance of "that great Shepherd of the sheep." AMEN.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;This Psalm appears to have been occasioned by the removal of the sanctuary from Shiloh in the tribe of Ephraim to Judah, and the coincident transfer of preeminence in Israel from the former to the latter tribe, as clearly evinced by David's settlement as the head of the church and nation. Though this was the execution of God's purpose, the writer here shows that it also proceeded from the divine judgment on Ephraim, under whose leadership the people had manifested the same sinful and rebellious character which had distinguished their ancestors in Egypt.&nbsp;*B. M. Smith, in "The Critical and Explanatory Pocket Bible."*&nbsp;1867.
 
@@ -526,7 +526,7 @@ Though at the first, and for a long time, both were alike his people, yet at las
 
 **Verse 71.**&nbsp;&nbsp;*To feed Jacob his people.*&nbsp;(This is a curious specimen of medieval spiritualising, and is here inserted as such. It is amusing to note that a Tractarian expositor quotes the passage with evidently intense admiration. C. H. S.) Observe, a good shepherd must be humble and faithful, he ought to have bread in a wallet, a dog by a string, a staff with a rod, and a tuneful horn. The bread is the word of God, the wallet is the memory of the word; the dog is zeal, wherewith the shepherd glows for the house of God, casts out the wolves with pious barking, following preaching and unwearied prayer: the string by which the dog is held is the moderation of zeal, and discretion, whereby the zeal of the shepherd is tempered by the spirit of piety and knowledge. The staff is the consolation of pious exhortation by which the too timid are sustained and refreshed, lest they fail in the time of tribulation; but the rod is the authority and power by which the turbulent are restrained. The tuneful horn, which sounds so sweetly, signifies the sweetness of eternal blessedness, which the faithful shepherd gently and often instils into the ears of his flock.&nbsp;*Johannes Paulus Palanterius.*&nbsp;1600.
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;The duty of attending to God's word. Modes of neglecting the duty; ways of fulfilment; reasons for obedience; evils of inattention.
 
@@ -716,7 +716,7 @@ I. Their source.
 
 **Verses 72.**&nbsp;In spite of his transgressions, which he always bitterly repented of and which were therefore blotted out of the Book of God, he remains to all princes and rulers of the earth as the noblest pattern. In perfect inward truth he knew and felt himself to be&nbsp;*"King by the grace of God."*&nbsp;The crown and sceptre he bore merely in trust from the King of all kings; and to his latest breath he endeavoured with all his earnestness to be found as a genuine theocratic king, who in everything must conduct his earthly government according to the ordinances and directions of God. Therefore the Lord made all that he took in hand prosper, and nothing was clearer to the people than that the Lord was&nbsp;*truly with the king. Frederick William Krummacher, in "David, the King of Israel."*&nbsp;1867.
 
-## WORKS UPON THE SEVENTY-EIGHTH PSALM
+## Works Upon The Seventy-Eighth Psalm
 
 Valuable information upon THE PLAGUES OF EGYPT will be found in the following works:—
 

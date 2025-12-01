@@ -12,7 +12,7 @@ Pilgrimages to the tabernacle were a great feature of Jewish life. In our own co
 
 **DIVISION.**&nbsp;We will make our pauses where the poet or the musician placed them, namely, of the Selahs.
 
-## EXPOSITION
+## Exposition
 
 &nbsp;*"How amiable,"*&nbsp;or, How&nbsp;*lovely!*&nbsp;He does not tell us how lovely they were, because he could not. His expressions show us that his feelings were inexpressible. Lovely to the memory, to the mind, to the heart, to the eye, to the whole soul, are the assemblies of the saints. Earth contains no sight so refreshing to us as the gathering of believers for worship. Those are sorry saints who see nothing amiable in the services of the Lord's house.&nbsp;*"Are thy tabernacles."*&nbsp;The tabernacle had been pitched in several places, and, moreover, was divided into several courts and portions; hence, probably, the plural number is here used. It was all and altogether lovely to David. Outer court, or inner court, he loved every portion of it. Every cord and curtain was dear to him. Even when at a distance, he rejoiced to remember the sacred tent where Jehovah revealed himself, and he cried out with exultation while he pictured in fond imagination its sacred services, and solemn rites, as he had seen them in bygone times. Because they are&nbsp;*thy*&nbsp;tabernacles,&nbsp;*"O Lord of hosts,"*&nbsp;therefore are they so dear to thy people. Thy pavilion is the centre of the camp, around which all thy creatures gather, and towards which their eyes are turned, as armies look to the tent of the king. Thou rulest all the companies of creatures with such goodness, that all their hosts rejoice in thy dwelling-place, and the bands of thy saints especially hail thee with Joyful loyalty as Jehovah of hosts.
 
@@ -40,7 +40,7 @@ Pilgrimages to the tabernacle were a great feature of Jewish life. In our own co
 
 **Verse 12.**&nbsp;&nbsp;*O Lord of hosts, blessed is the man that trusteth in thee.*&nbsp;Here is the key of the Psalm. The worship is that of faith, and the blessedness is peculiar to believers. No formal worshipper can enter into this secret. A man must know the Lord by the life of real faith, or he can have no true rejoicing in the Lord's worship, his house, his Son, or his ways. Dear reader, how fares it with thy soul?
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;Here note, that the sons, that is, the posterity of wicked and rebellious Korah, have an honourable place in God's sacred and solemn service: for to them sundry of David's psalms are commended. . . . Here see the verifying of God's word, for the comfort of all godly children, that the son shall not bear the iniquity of the father, Eze 18:14,17,20, if he see his father's sins and turn from them.&nbsp;*Thomas Pierson (1570-1633), in "David's Heart's Desire."*&nbsp;
 
@@ -280,7 +280,7 @@ Not only does their faith bring forth water out of the sand and rocks of the des
 
 **Verse 11.**&nbsp;This is an immense fountain; the Lord fill all the buckets of our hearts at the spring, and give us capacious souls, as he hath a liberal hand.&nbsp;*Thomas Adams.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;
 
@@ -490,7 +490,7 @@ Not only does their faith bring forth water out of the sand and rocks of the des
 
 **Verse 12.**&nbsp;The blessedness of the life of faith over that of carnal enjoyment, religious feeling, self confidence, living upon marks and evidences, trusting in man, etc.
 
-## WORKS UPON THE EIGHTY-FOURTH PSALM
+## Works Upon The Eighty-Fourth Psalm
 
 The Faith of the Church Militant, made moste effectualie described in this exposition of the 84. Psalme, by that reverend Pastor, and publike Professor of God's word, in the famous universitie of Haffine in Denmarke, NICHOLAS HEMMINGIVS. A treatise written as to the instruction of the ignorant in the groundes of religion, so to the confutation of the Jews, the Turkes, Atheists, Papists, Heretiks, and all other adversaries of the trueth whatsoever. Translated out of Latin into English, &c. by THOMAS ROGERS. At London, printed by H. Middleton for Andrew Maunsel. Anno. 1581.
 

@@ -8,7 +8,7 @@ weight: 111
 
 **DIVISION.**&nbsp;The psalmist begins with an invitation to praise, Ps 111:1; and then proceeds to furnish us with matter for adoration in God's works and his dealings with his people, Ps 111:2-9. He closes his song with a commendation of the worship of the Lord, and of the men who practice it.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Praise ye the LORD,*&nbsp;or,&nbsp;*Hallelujah!*&nbsp;All ye his saints unite in adoring Jehovah, who worketh so gloriously. Do it now, do it always: do it heartily, do it unanimously, do it eternally. Even if others refuse, take care that ye have always a song for your God. Put away all doubt, question, murmuring, and rebellion, and give yourselves up to the praising of Jehovah, both with your lips and in your lives. I will praise the Lord with my whole heart. The sweet singer commences the song, for his heart is all on flame: whether others will follow him or not, he will at once begin and long continue. What we preach we should practise. The best way to enforce an exhortation is to set an example; but we must let that example be of the best kind, or we may lead others to do the work in a limping manner. David brought nothing less than his whole heart to the duty; all his love went out towards God, and all his zeal, his skill, and his ardour went with it. Jehovah the one and undivided God cannot be acceptably praised with a divided heart, neither should we attempt so to dishonour him; for our whole heart is little enough for his glory, and there can be no reason why it should not all be lifted up in his praise. All his works are praiseworthy, and therefore all our nature should adore him. In the assembly of the upright, and in the congregation;—whether with few or with many he would pour forth his whole heart and soul in praise, and whether the company was made up of select spirits or of the general mass of the people he would continue in the same exercise. For the choicest society there can be no better engagement than praise, and for the general assembly nothing can be more fitting. For the church and for the congregation, for the family or the community, for the private chamber of pious friendship, or the great hall of popular meeting, the praise of the Lord is suitable; and at the very least the true heart should sing hallelujah in any and every place. Why should we fear the presence of men? The best of men will join us in our song, and if the common sort, will not do so, our example will be a needed rebuke to them. In any case let us praise God, whether the hearers be a little band of saints or a mixed multitude. Come, dear reader, he who pens this comment is in his heart magnifying the Lord: will you not pause for a moment and join in the delightful exercise?
 
@@ -38,7 +38,7 @@ To ages shall endure.
 
 **Verse 10.**&nbsp;&nbsp;*The fear of the LORD is the beginning of wisdom.*&nbsp;It is its first principle, but it is also its head and chief attainment. The word "beginning" in Scripture sometimes means the chief; and true religion is at once the first element of wisdom, and its chief fruit. To know God so as to walk aright before him is the greatest of all the applied sciences. Holy reverence of God leads us to praise him, and this is the point which the psalm drives at, for it is a wise act on the part of a creature towards his Creator. A good understanding have all they that do his commandments. Obedience to God proves that our judgment is sound. Why should he not be obeyed? Does not reason itself claim obedience for the Lord of all? Only a man void of understanding will ever justify rebellion against the holy God. Practical godliness is the test of wisdom. Men may know and be very orthodox, they may talk and be very eloquent, they may speculate and be very profound; but the best proof of their intelligence must be found in their actually doing the will of the Lord. The former part of the psalm taught us the doctrine of God's nature and character, by describing his works: the second part supplies the practical lesson by drawing the inference that to worship and obey him is the dictate of true wisdom. We joyfully own that it is so. His praise endureth for ever. The praises of God will never cease, because his works will always excite adoration, and it will always be the wisdom of men to extol their glorious Lord. Some regard this sentence as referring to those who fear the Lord—their praise shall endure for ever: and, indeed, it is true that those who lead obedient lives shall obtain honour of the Lord, and commendations which will abide for ever. A word of approbation from the mouth of God will be a mede of honour which will outshine all the decorations which kings and emperors can bestow. Lord, help us to study thy works, and henceforth to breathe out hallelujahs as long as we live.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;This is the first alphabetical psalm which is regular throughout. The four former alphabetical psalms, namely, 9 and 10, 34 and 37, are irregular and defective in many particulars, for the rectification of which neither Hebrew MS editions nor ancient versions afford sanction and authority. It is singular that not only are Psalms 111 and 112 perfectly regular, but, furthermore, that not one various reading of note or importance occurs in either of these psalms.—John Noble Coleman.
 
@@ -196,7 +196,7 @@ Had in remembrance always with delight.
 
 2\.It is the way to understand better.&nbsp;*"A good understanding are they to all that do them"; i.e.,*&nbsp;the fear of the Lord, and the laws of God give men a good understanding, and are able to make them wise unto salvation.—&nbsp;*Condensed from Matthew Henry.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;&nbsp;*Praise ye the Lord;*&nbsp;there is an exhortation.&nbsp;*"I will praise the Lord; "*&nbsp;there is a vow. It shall be&nbsp;*"with my whole heart";*&nbsp;there is experimental godliness. It shall be&nbsp;*"in the assembly of the upright";*&nbsp;there is a relative position occupied along with the family of God.—&nbsp;*Joseph Irons.*&nbsp;
 
@@ -320,7 +320,7 @@ d. To arouse our praise: "Praise ye the Lord."
 
 3\.Its end, praising God for ever: "his praise, "etc.—&nbsp;*G. R.*&nbsp;
 
-## WORKS UPON THE HUNDRED AND ELEVENTH PSALM
+## Works Upon The Hundred And Eleventh Psalm
 
 In the Works of John Boys, 1626, folio, pp. 841-845, there is a short exposition of this psalm.
 

@@ -14,7 +14,7 @@ This psalm refers to Judas, for so Peter quoted it; but to ascribe its bitter de
 
 **DIVISION.**&nbsp;In the first five verses (Ps 109:1-5) David humbly pleads with God that he may be delivered from his remorseless and false hearted enemies. From Ps 109:6-20, filled with a prophetic fervour, which carries him entirely beyond himself, he denounces judgment upon his foes, and then from Ps 109:21-31 he returns to his communion with God in prayer and praise. The central portion of the Psalm in which the difficulty lies must be regarded not as the personal wish of the psalmist in cool blood, but as his prophetic denunciation of such persons as he describes, and emphatically of one special "son of perdition" whom he sees with prescient eye. We would all pray for the conversion of our worst enemy, and David would have done the same; but viewing the adversaries of the Lord, and doers of iniquity,&nbsp;*As Such, and as incorrigible*&nbsp;we cannot wish them well; on the contrary, we desire their overthrow, and destruction. The gentlest hearts burn with indignation when they hear of barbarities to women and children, of crafty plots for ruining the innocent, of cruel oppression of helpless orphans, and gratuitous ingratitude to the good and gentle. A curse upon the perpetrators of the atrocities in Turkey may not be less virtuous than a blessing upon the righteous. We wish well to all mankind, and for that very reason we sometimes blaze with indignation against the inhuman wretches by whom every law which protects our fellow creatures is trampled down, and every dictate of humanity is set at nought.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Hold not thy peace.*&nbsp;Mine enemies speak, be thou pleased to speak too. Break thy solemn silence, and silence those who slander me. It is the cry of a man whose confidence in God is deep, and whose communion with him is very close and bold. Note, that he only asks the Lord to speak: a word from God is all a believer needs. O God of my praise. Thou whom my whole soul praises, be pleased to protect my honour and guard my praise. "My heart is fixed", said he in the former psalm, "I will sing and give praise", and now he appeals to the God whom he had praised. If we take care of God's honour he will take care of ours. We may look to him as the guardian of our character if we truly seek his glory. If we live to God's praise, he will in the long run give us praise among men.
 
@@ -84,7 +84,7 @@ Out venoms all the worms of Nile"?
 
 **Verse 31.**&nbsp;&nbsp;*For he shall stand at the right hand of the poor.*&nbsp;God will not be absent when his people are on their trial; he will hold a brief for them and stand in court as their advocate, prepared to plead on their behalf. How different is this from the doom of the ungodly who has Satan at his right hand (Ps 109:6). To save him from those that condemn his soul. The court only met as a matter of form, the malicious had made up their minds to the verdict, they judged him guilty, for their hate condemned him, yea, they pronounced sentence of damnation upon the very soul of their victim: but what mattered it? The great King was in court, and their sentence was turned against themselves. Nothing can more sweetly sustain the heart of a slandered believer than the firm conviction that God is near to all who are wronged, and is sure to work out their salvation. O Lord, save us from the severe trial of slander: deal in thy righteousness with all those who spitefully assail the characters of holy men, and cause all who are smarting under calumny and reproach to come forth unsullied from the affliction, even as did thine only begotten Son. Amen.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;Mysterious was the one word written opposite this psalm in the pocket Bible of a late devout and popular writer. It represents the utter perplexity with which it is very generally regarded.—&nbsp;*Joseph Hammond.*&nbsp;
 
@@ -362,7 +362,7 @@ Waiting the coming of the Son of Man!
 
 **Verse 31.**&nbsp;&nbsp;*He shall stand at the right hand of the poor.*&nbsp;One of the oldest Rabbinical commentaries has a very beautiful gloss on this passage. "Whenever a poor man stands at thy door, the Holy One, blessed be His Name, stands at his right hand. If thou givest him alms, know that thou shalt receive a reward from Him who standeth at his right hand."—&nbsp;*Alfred Edersheim, in "Sketches of the Jewish Social Life in the Days of Christ,"*&nbsp;1876.
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;The silence of God. What it may mean: what it involves: how we may endeavour to break it.
 
@@ -462,7 +462,7 @@ Waiting the coming of the Son of Man!
 
 3\.The deliverance which is promised to him—divine, opportune, efficient, complete, everlasting.
 
-## WORKS UPON THE HUNDRED AND NINTH PSALM
+## Works Upon The Hundred And Ninth Psalm
 
 In "The Expositor", vol. 2. (1875), edited by the Rev. Samuel Cox, there is "An Apology for the Vindictive Psalm" (Ps 109:1-31), by Joseph Hammond, L.L.B. In volume 3 of the same magazine are four articles from the pen of the same writer, on "The Vindictive Psalms vindicated." "The Imprecatory Psalms." Six Lectures. By the Rev. R.A. Bertram. 1867. (12 mo.)
 

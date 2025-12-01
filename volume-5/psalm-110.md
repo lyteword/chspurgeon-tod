@@ -8,7 +8,7 @@ weight: 110
 
 **SUBJECT AND DIVISION.**&nbsp;The subject is THE PRIEST KING. None of the kings of Israel united these two offices, though some endeavoured to do so. Although David performed some acts which appeared to verge upon the priestly, yet he was no priest, but of the tribe of Judah, "of which tribe Moses spake nothing concerning the priesthood"; and he was far too devout a man to thrust himself into that office uncalled. The Priest King here spoken of is David's Lord, a mysterious personage typified by Melchizedek, and looked for by the Jews as the Messiah. He is none other than the apostle and high priest of our profession, Jesus of Nazareth, the King of the Jews. The Psalm describes the appointment of the kingly priest, his followers, his battles, and his victory. Its centre is verse 4, and so it may be divided, as Alexander suggests, into the introduction, verses Ps 106:1-3; the central thought, verse 4; and the supplementary verses, Ps 106:5-7.
 
-## EXPOSITION
+## Exposition
 
 **Verse 2.**&nbsp;&nbsp;*The LORD shall send the rod of thy strength out of Zion.*&nbsp;It is in and through the church that for the present the power of the Messiah is known. Jehovah has given to Jesus all authority in the midst of his people, whom he rules with his royal sceptre, and this power goes forth with divine energy from the church for the ingathering of the elect, and the subduing of all evil. We have need to pray for the sending out of the rod of divine strength. It was by his rod that Moses smote the Egyptians, and wrought wonders for Israel, and even so whenever the Lord Jesus sends forth the rod of his strength, our spiritual enemies are overcome. There may be an allusion here to Aaron's rod which budded and so proved his power; this was laid up in the ark, but our Lord's rod is sent forth to subdue his foes. This promise began to be fulfilled at Pentecost, and it continues even to this day, and shall yet have a grander fulfilment. O God of eternal might, let the strength of our Lord Jesus be more clearly seen, and let the nations see it as coming forth out of the midst of thy feeble people, even from Zion, the place of thine abode. Rule thou in the midst of thine enemies as he does whenever his mighty sceptre of grace is stretched forth to renew and save them. Moses' rod brought water out of the flinty rock, and the gospel of Jesus soon causes repentance to flow in rivers from the once hardened heart of man. Or the text may mean that though the church is situated in the midst of a hostile world, yet it exerts a great influence, it continues to manifest an inward majesty, and is after all the ruling power among the nations because the shout of a king is in her midst. Jesus, however hated by men, is still the King of kings. His rule is over even the most unwilling, so as to overrule their fiercest opposition to the advancement of Iris cause. Jesus, it appears from this text, is not inactive during his session at Jehovah's right hand, but in his own way proves the abiding nature of his kingdom both in Zion and from Zion, both among his friends and his foes. We look for the clearer manifestation of his almighty power in the latter days; but even in these waiting times we rejoice that to the Lord all power is given in heaven and in earth.
 
@@ -34,7 +34,7 @@ The last verses of this psalm we understand to refer to the future victories of 
 
 **Verse 7.**&nbsp;&nbsp;*He shall drink of the brook in the way.*&nbsp;So swiftly shall he march to conquest that he shall not stay for refreshment, but drink as he hastens on. Like Gideon's men that lapped, he shall throw his heart into the fray and cut it short in righteousness, because a short work will the Lord make in the earth. "Therefore shall he lift up the head." His own head shall be lifted high in victory, and his people, in him, shall be upraised also. When he passed this way before, he was burdened and had stern work laid upon him; but in his second advent he will win an easy victory; aforetime he was the man of sorrows, but when he comes a second time his head will be lifted in triumph. Let his saints rejoice with him. "Lift up your heads, for your redemption draweth nigh." In the latter days we look for terrible conflicts and for a final victory. Long has Jesus borne with our rebellious race, but at length he wilt rise to end the warfare of longsuffering, by the blows of justice. God has fought with men's sins for their good, but he will not always by his Spirit strive with men; he will cease from that struggle of long suffering love, and begin another which shall soon end in the final destruction of his adversaries. O King priest, we who are, in a minor degree, king priests too, are full of gladness because thou reignest even now, and wilt come ere long to vindicate thy cause and establish thine empire for ever. Even so, come quickly. Amen.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;The preceding Psalm is a Passion Psalm, and it is now followed by a Psalm of Christ's Resurrection, Ascension, and Session in glory. We have seen the same connection in Ps. 22-24, and in Ps. 45-47. The present psalm grows up from the former Psalm, as the Hill of Olivet, the Hill of Ascension, rises up from the Vale of Gethsemane below it.&nbsp;*Christopher Wordsworth.*&nbsp;
 
@@ -292,7 +292,7 @@ And then in triumph raise his head.&nbsp;**&nbsp;
 
 **Verse 7.**&nbsp;Christ shall "lift up the head" by way of triumphing and rejoicing, when he shall have taken full vengeance of his adversaries, and freed, not himself only, but the whole body of his church from the assaults and dangers of all enemies. We see now that oftentimes, though not in himself, yet in his members, he is fain to hang down the head, and to wear the badges of reproach and shame, whilst the ungodly vaunt themselves (Job 31:2-6) and in their hearts despise the righteous, accounting more vilely of them than of the dust of their feet.&nbsp;*Robert Abbot.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;Here the Holy Ghost begins with the kingdom of Christ, which he describeth and magnifieth,—
 
@@ -410,7 +410,7 @@ And then in triumph raise his head.&nbsp;**&nbsp;
 
 **Verse 7.**&nbsp;Christ's humiliation and exaltation.
 
-## WORKS UPON THE HUNDRED AND TENTH PSALM
+## Works Upon The Hundred And Tenth Psalm
 
 The Exaltation of the Kingdom and Priesthood of Christ. In certaine Sermons upon the 110 Psalme: Preached in the Cathedrall Church and city of Worcester, in the time of Christmasse: anno Domini: 1590. By Rob. Abbot, doctor of Diuinitie, sometime felow of Baliol Coiledge in Oxford. Londini, Impensis G. Bishop. 1601.&nbsp;*4to.*&nbsp;
 

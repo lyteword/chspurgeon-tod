@@ -8,7 +8,7 @@ weight: 103
 
 **DIVISION.**&nbsp;First the Psalmist sings of personal mercies which he had himself received Ps 103:1-5; then he magnifies the attributes of Jehovah as displayed in his dealings with his people, Ps 103:6-19; and he closes by calling upon all the creatures in the universe to adore the Lord and join with himself in blessing Jehovah, the ever gracious.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Bless the Lord O my soul.*&nbsp;Soul music is the very soul of music. The Psalmist strikes the best keymote when he begins with stirring up his inmost self to magnify the Lord. He soliloquizes, holds self-communion and exhorts himself, as though he felt that dulness would all too soon steal over his faculties, as, indeed, it will over us all, unless we are diligently on the watch. Jehovah is worthy to be praised by us in that highest style of adoration which is intended by the term&nbsp;*bless*&nbsp;—"All thy works praise thee, O God, but thy saints shall bless thee." Our very life and essential self should be engrossed with this delightful service, and each one of us should arouse his own heart to the engagement. Let others forbear if they can: "Bless the Lord, O MY soul." Let others murmur, but do thou&nbsp;*bless.*&nbsp;Let others bless themselves and their idols, but do thou bless&nbsp;*the LORD*&nbsp;. Let others use only their tongues, but as for me I will cry, "Bless the Lord, O my&nbsp;*soul*&nbsp;." And all that is within me, bless his holy name. Many are our faculties, emotions, and capacities, but God has given them all to us, and they ought all to join in chorus to his praise. Half-hearted, ill-conceived, unintelligent praises are not such as we should render to our loving Lord. If the law of justice demanded all our heart and soul and mind for the Creator, much more may the law of gratitude put in a comprehensive claim for the homage of our whole being to the God of grace. It is instructive to note how the Psalmist dwells upon the&nbsp;*holy*&nbsp;name of God, as if his holiness were dearest to him; or, perhaps, because the holiness or wholeness of God was to his mind the grandest motive for rendering to him the homage of his nature in its wholeness. Babes may praise the divine goodness, but fathers in grace magnify his holiness. By&nbsp;*the name*&nbsp;we understand the revealed character of God, and assuredly those songs which are suggested, not by our fallible reasoning and imperfect observation, but by unerring inspiration, should more than any others arouse all our consecrated powers.
 
@@ -114,7 +114,7 @@ Our glad heart anticipates the hour when we shall hear them "harping in loud and
 
 **Verse 22.**&nbsp;&nbsp;*Bless the Lord, all his works in all places of his dominion.*&nbsp;Here is a trinity of blessing for the thrice blessed God, and each one of the three blessings is an enlargement upon that which went before. This is the most comprehensive of all, for what can be a wider call than to all in all places? See how finite man can awaken unbounded praise! Man is but little, yet, placing his hands upon the keys of the great organ of the universe, he wakes it to thunders of adoration! Redeemed man is the voice of nature, the priest in the temple of creation, the precentor in the worship of the universe. O that all the Lord's works on earth were delivered from the vanity to which they were made subject, and brought into the glorious liberty of the children of God: the time is hastening on and will most surely come; then will all the Lord's works bless him indeed. The immutable promise is ripening, the sure mercy is on its way. Hasten, ye winged hours! Bless the Lord, O my soul. He closes on his key-note. He cannot be content to call on others without taking his own part; nor because others sing more loudly and perfectly, will he be content to be set aside. O my soul, come home to thyself and to thy God, and let the little world within thee keep time and tune to the spheres which are ringing out Jehovah's praise. O infinitely blessed Lord, favour us with this highest blessing of being for ever and ever wholly engrossed in blessing Thee.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;A Psalm of David, which he wrote when carried out of himself as far as heaven, saith Beza.&nbsp;*John Trapp.*&nbsp;
 
@@ -384,7 +384,7 @@ Thirdly, over all&nbsp;*creatures*&nbsp;;binding the influences of Pleiades, and
 
 **Verses 1-2, 22.**&nbsp;&nbsp;*Bless the Lord, O my soul... Bless the Lord, O my soul,*&nbsp;with the&nbsp;*Bless the Lord all his works in all places of his dominion: bless the Lord, O my soul,*&nbsp;Ps 103:22; these two form the thrice-repeated blessing from the Lord to the soul in the Mosaic formula, Nu 6:24-26.&nbsp;*A. R. Fausset.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;"The Saints blessing the Lord." See "Spurgeon's Sermons, " No. 1,078.
 
@@ -590,7 +590,7 @@ Or
 
 2\.The Echo.&nbsp;*W.D.*&nbsp;
 
-## WORKS UPON THE HUNDRED AND THIRD PSALM
+## Works Upon The Hundred And Third Psalm
 
 &nbsp;*Meditations and Disquisitions, upon Seven Consolatarie Psalmes of David*&nbsp;. . . by Sir RICHARD BAKER, Knight, 1640.&nbsp;*pg 143-172.*&nbsp;
 

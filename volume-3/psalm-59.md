@@ -8,7 +8,7 @@ To the Chief Musician. Strange that the painful events in David's life should en
 
 **DIVISION.**&nbsp;In Ps 59:1-2 he prays, in Ps 59:3-4 he complains of his woes, and again in Ps 59:5 he prays. Here he inserts a Selah, and ends one portion of his song. In Ps 59:6-7 he renews his complaint, in Ps 59:8-10 declares his confidence in God, and in Ps 59:11-13 lifts up his heart in prayer; closing another part of his Psalm with Selah. Then he prays again in Ps 59:14-15, and afterwards betakes himself to singing.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Deliver me from mine enemies, O my God.*&nbsp;They were all round the house with the warrant of authority, and a force equal to the carrying of it out. He was to be taken dead or alive, well or ill, and carried to the slaughter. No prowess could avail him to break the cordon of armed men, neither could any eloquence stay the hand of his bloody persecutor. He was taken like a bird in a net, and no friend was near to set him free. Unlike the famous starling, he did not cry, "I cannot get out, "but his faith uttered quite another note. Unbelief would have suggested that prayer was a waste of breath, but not so thought the good man, for he makes it his sole resort. He cries for deliverance and leaves ways and means with his God. Defend me from them that rise up against me. Saul was a king, and therefore sat in high places, and used all his authority to crush David; the persecuted one therefore beseeches the Lord to set him on high also, only in another sense. He asks to be lifted up, as into a lofty tower, beyond the reach of his adversary. Note how he sets the title,&nbsp;*My God,*&nbsp;over against the word,&nbsp;*mine enemies.*&nbsp;This is the right method of effectually catching and quenching the fiery darts of the enemy upon the shield of faith. God is our God, and therefore deliverance and defence are ours.
 
@@ -58,7 +58,7 @@ For God is my defence, my high place, my fortress, the place of my resort in the
 
 Whom he designs to keep."
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 This Psalm has in its stern contents something no doubt strange to our ears. But never let us omit to distinguish from each other the times and diverse economies, and to place ourselves as far as possible, in sympathy with the experience of a heart which burned for nothing more than for the glorifying of God in this world. Everything that tended to obscure the theocratic relation of God to his people, called up in the soul of David the most vehement passion. The scornful oppression with which Saul and his venal satellites visited him, the man of God, could not but have, upon the eyes of all, the appearance as if Jehovah were no longer Lord in his own land, who inexorably adhered to his laws and rights. Treason, falsehood, and every kind of evil then prevailed unchecked. What wonder, that as formerly Moses in the wilderness was provoked against the stiff necked people, so also David, whom the awful holiness of God had already made to tremble, should feel his spirit stirred against the ungodly who surrounded him, and should say, with Job, "My bowels boiled within me."&nbsp;*Frederick William Krummacher, D.D., in "David, the King of Israel, "*&nbsp;1867.
 
@@ -228,7 +228,7 @@ You smiling, smooth, detested parasites."
 
 **Verse 17.**&nbsp;&nbsp;*Strength—Mercy.*&nbsp;He joins these two attributes,&nbsp;*"strength"*&nbsp;and&nbsp;*"mercy"*&nbsp;, very well; for take away&nbsp;*strength*&nbsp;from him, and he cannot; remove mercy, and he will not, protect; both must go together in any one that will defend;&nbsp;*power,*&nbsp;that he can,&nbsp;*mercy,*&nbsp;that he will; otherwise it is but in vain to hope for help from him David found God to be both, and for both he extols him.&nbsp;*William Nicholson.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;(&nbsp;*first clause*&nbsp;). Deliver me from temptation, uphold me in temptation, cleanse me from the result of temptation. The world, the flesh, the devil, and chiefly sin, these are our enemies. We cannot escape them of ourselves, but the Lord by providence and grace can rescue us.
 
@@ -278,7 +278,7 @@ You smiling, smooth, detested parasites."
 
 3\.&nbsp;*A resolution.*&nbsp;The song of gratitude for the past, faith for the present, hope for the future, of bliss for eternity.
 
-## WORKS UPON THE FIFTY-NINTH PSALM
+## Works Upon The Fifty-Ninth Psalm
 
 In CHANDLER'S&nbsp;*"Life of David,"*&nbsp;Vol. 1., pp. 85-89, there is an Exposition of this Psalm.
 

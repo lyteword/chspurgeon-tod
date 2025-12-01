@@ -8,7 +8,7 @@ weight: 64
 
 **DIVISION.**&nbsp;From Ps 64:1-6 he describes the cruelty and craftiness of his foes, and from Ps 64:7-10 he prophesies their overthrow.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Hear my voice, O God, in my prayer.*&nbsp;It often helps devotion if we are able to use the voice and speak audibly; but even mental prayer has a voice with God which he will hear. We do not read that Moses had spoken with his lips at the Red Sea, and yet the Lord said to him, "Why criest thou unto me?" Prayers which are unheard on earth may be among the best heard in heaven. It is our duty to note how constantly David turns to prayer; it is his battle axe and weapon of war; he uses it under every pressure, whether of inward sin or outward wrath, foreign invasion or domestic rebellion. We shall act wisely if we make prayer to God our first and best trusted resource in every hour of need. Preserve my life from fear of the enemy. From harm and dread of harm protect me; or it may be read as an expression of his assurance that it would be so; "from fear of the foe thou wilt preserve me." With all our sacrifices of prayer we should offer the salt of faith.
 
@@ -28,7 +28,7 @@ weight: 64
 
 **Verse 10.**&nbsp;&nbsp;*The righteous shall be glad in the Lord.*&nbsp;Admiring his justice and fully acquiescing in its displays, they shall also rejoice at the rescue of injured innocence yet, their joy shall not be selfish or sensual, but altogether in reference to the Lord. And shall trust in him. Their observation of providence shall increase their faith; since he who fulfils his threatenings will not forget his promises. And all the upright in heart shall glory. The victory of the oppressed shall be the victory of all upright men; the whole host of the elect shall rejoice in the triumph of virtue. While strangers fear, the children are glad in view of their Father's power and justice. That which alarms the evil, cheers the good. Lord God of mercy, grant to us to be preserved from all our enemies, and saved in thy Son with an everlasting salvation.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;This Psalm is applied by R. Obadiah to Haman and Mordecai. The enemy is Haman, the perfect man shot at is Mordecai; about whom Haman communed with his friends to lay snares for him, and search diligently for occasions against him and his people, which issued in his own destruction. The ancient Midrash of the Jews applies it to Daniel, when cast into the den of lions; and Jarchi supposes that David, by a spirit of prophecy, foresaw it, and prayed for him who was of his seed; and that everything in the Psalm beautifully falls in with that account. Daniel is the perfect man aimed at; the enemy are the princes of Darius's court, who consulted against him, communed of laying snares for him, and gained their point, which proved their own ruin. But the Psalm literally belongs to David, by whom it was composed.&nbsp;*John Gill.*&nbsp;
 
@@ -74,7 +74,7 @@ To our own lips.&nbsp;*William Shakespeare.*&nbsp;
 
 **Verse 10.**&nbsp;&nbsp;*Shall glory.*&nbsp;This retribution is expressed in the original in the word&nbsp;*halal;*&nbsp;and&nbsp;*halal,*&nbsp;to those translators that made our Book of Common Prayer, presented the signification of gladness, for so it is there:&nbsp;*They shall be glad.*&nbsp;So it did to the translators that came after, for there it is,&nbsp;*They shall rejoice;*&nbsp;and to our last translators it seemed to signify glory,&nbsp;*They shall glory,*&nbsp;say they. But the first translation of all into our language (which was long before any of these three), calls it&nbsp;*praise,*&nbsp;and puts it into the passive:&nbsp;*All men of rightful heart shall be praised.*&nbsp;And so truly&nbsp;*jithhalelu,*&nbsp;in the original, bears it, nay, requires it; which is not of praise which they shall give to God, but of a praise that they shall receive for having served God with an upright heart; not that they shall praise God in doing so, but that godly men shall praise them for having done so. All this shall grow naturally out of the root; for the root of this word is&nbsp;*lucere, splendere,*&nbsp;to shine out in the eyes of men, and to create in them a holy and a reverential admiration; as it was John Baptist's praise, that he was&nbsp;*"A burning and a shining lamp."*&nbsp;Properly it is, by a good and a holy exemplary life, to occasion others to set a right value upon holiness, and to give a due respect for holy men...&nbsp;*Shall glory.*&nbsp;It is so far from diminishing this glory, as that it exalts our consolation that God places this retribution in the future; if they do not yet, certainly they&nbsp;*shall*&nbsp;glory, and if they do now, that glory shall not go out, still they shall, they shall for ever glory.&nbsp;*John Donne.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;
 

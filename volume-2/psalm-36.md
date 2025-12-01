@@ -8,7 +8,7 @@ weight: 36
 
 **DIVISION.**&nbsp;From Ps 36:1-4 David describes the rebellious: in Ps 36:5-9 he extols the various attributes of the Lord; in Ps 36:10-11 he addresses the Lord in prayer, and in the last verse his faith sees in vision the overthrow of all the workers of iniquity.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*The transgression of the wicked.*&nbsp;His daring and wanton sin; his breaking the bounds of law and justice.&nbsp;*Saith within my heart, that there is no fear of God before his eyes.*&nbsp;Men's sins have a voice to godly ears. They are the outer index of an inner evil. It is clear that men who dare to sin constantly and presumptuously cannot respect the great Judge of all. Despite the professions of unrighteous men, when we see their unhallowed actions our heart is driven to the conclusion that they have no religion whatever. Unholiness is clear evidence of ungodliness. Wickedness is the fruit of an atheistic root. This may be made clear to the candid head by cogent reasoning, but it is clear already and intuitively to the pious heart. If God be everywhere, and I fear him, how can I dare to break his laws in his very presence? He must be a desperate traitor who will rebel in the monarch's own halls. Whatever theoretical opinions bad men may avow, they can only be classed with atheists, since they are such practically. Those eyes which have no fear of God before them now, shall have the terrors of hell before them for ever.
 
@@ -48,7 +48,7 @@ Yet as the deep mirrors the sky, so the mercy of the Lord is to be seen reflecte
 
 **Verse 12.**&nbsp;&nbsp;*There are the workers of iniquity fallen.*&nbsp;Faith sees them scattered on the plain. There! before our very eyes sin, death, and hell, lie prostrate. Behold the vanquished foes!&nbsp;*They are cast down.*&nbsp;Providence and grace have dashed them from their vantage ground. Jesus has already thrown all the foes of his people upon their faces, and in due time all sinners shall find it so.&nbsp;*And shall not be able to rise.*&nbsp;The defeat of the ungodly and of the powers of evil is final, total, irretrievable. Glory be to God, however high the powers of darkness may carry it at this present, the time hastens on when God shall defend the right, and give to evil such a fall as shall for ever crush the hopes of hell; while those who trust in the Lord shall eternally praise him and rejoice in his holy name.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;To the Chief Musician, has given rise to many conjectures. In the Septuagint the Hebrew word is translated, eiz to telos, to the end; a meaning so utterly vague as to defy all reasonable conjecture. ...The meaning of the term appears to be this: the Psalms in which it occurs were given in charge by their inspired authors to the Chief Musician overseeing some specific band of music, whether harps, psalteries, or wind instruments.&nbsp;*John Jebb, A.M., in "A Literal Translation of the Book of Psalms,"*&nbsp;1846.
 
@@ -194,7 +194,7 @@ In a letter of Jeronius Segerson, written in the prison at Antwerp to his wife, 
 
 **Verse 12.**&nbsp;&nbsp;*There are the workers of iniquity fallen.*&nbsp;This is said as if the psalmist pointed, when he said it, to a particular place with his finger; and the same mode of expression occurs in Ps 14:5; or, it may be rendered,&nbsp;*then (i.e.,*&nbsp;when the just are satisfied with the plenteousness of thy house, being rewarded for sincerely worshipping thee in it),&nbsp;*shall they fall, all that work wickedness; they shall be cast down, and shall not be able to rise,*&nbsp;as is the case with persons who have been thrown with violence upon the hard ground.&nbsp;*Daniel Cresswell.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;What is the fear of God? How does it operate? What is the effect of its absence? What should we learn from seeing such evil results? Or the atheism underlying transgression.
 

@@ -8,7 +8,7 @@ weight: 62
 
 **DIVISION.**&nbsp;The Psalmist has marked his own pauses, by inserting&nbsp;*SELAH*&nbsp;at the end of Ps 62:4,8. His true and sole confidence in God laughs to scorn all its enemies. When this Psalm was composed it was not necessary for us to know, since true faith is always in season, and is usually under trial. Moreover, the sentiments here uttered are suitable to occasions which are very frequent in a believer's life, and therefore no one historic incident is needful for their explanation.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Truly,*&nbsp;or verily, or only. The last is probably the most prominent sense here. That faith alone is true which rests on God alone, that confidence which relies but partly on the Lord is vain confidence. If we Anglicized the word by our word&nbsp;*verily,*&nbsp;as some do, we should have here a striking reminder of our blessed Lord's frequent use of that adverb. My soul waiteth upon God. My inmost self draws near in reverent obedience to God. I am no hypocrite or mere posture maker. To wait upon God, and for God, is the habitual position of faith; to wait on him truly is sincerity; to wait on him only is spiritual chastity. The original is, "only to God is my soul silence." The presence of God alone could awe his heart into quietude, submission, rest, and acquiescence; but when that was felt, not a rebellious word or thought broke the peaceful silence. The proverb that speech is silver but silence is gold, is more than true in this case. No eloquence in the world is half so full of meaning as the patient silence of a child of God. It is an eminent work of grace to bring down the will and subdue the affections to such a degree, that the whole mind lies before the Lord like the sea beneath the wind, ready to be moved by every breath of his mouth, but free from all inward and self caused emotion, as also from all power to be moved by anything other than the divine will. We should be wax to the Lord, but adamant to every other force. From him cometh my salvation. The good man will, therefore, in patience possess his soul till deliverance comes: faith can hear the footsteps of coming salvation, because she has learned to be silent. Our salvation in no measure or degree comes to us from any inferior source; let us, therefore, look alone to the true fountain, and avoid the detestable crime of ascribing to the creature what belongs alone to the Creator. If to wait on God be worship, to wait on the creature is idolatry; if to wait on God alone be true faith, to associate an arm of the flesh with him is audacious unbelief.
 
@@ -36,7 +36,7 @@ As a bowing wall shall ye be, and as a tottering fence. Boastful persecutors bul
 
 **Verse 12.**&nbsp;&nbsp;*Also unto thee, O Lord, belongeth mercy.*&nbsp;This tender attribute sweetens the grand thought of his power: the divine strength will not crush us, but will be used for our good. God is so full of mercy that it belongs to him, as if all the mercy in the universe came from God, and still was claimed by him as his possession. His mercy, like his power, endureth for ever, and is ever present in him, ready to be revealed, For thou renderest to every man according to his work. This looks rather like justice than mercy; but if we understand it to mean that God graciously rewards the poor, imperfect works of his people, we see in it a clear display of mercy. May it not also mean that according to the work he allots us is the strength which he renders to us? he is not a hard master; he does not bid us make bricks without straw, but he metes out to us strength equal to our day. In either meaning we have power and mercy blended, and have a double reason for waiting only upon God. Man neither helps us nor rewards us; God will do both. In him power and grace are eternally resident; our faith should therefore patiently hope and quietly wait, for we shall surely see the salvation of God.&nbsp;*Deo soli gloria.*&nbsp;All glory be to God only.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 Psalms 62, and 63 compared. ONLY AND EARLY. There is a sweet and profitable lesson taught us in Psalms 62 and 63. The heart is ever prone to divide its confidence between God and the creature. This will never do. We must "wait&nbsp;*only*&nbsp;upon God." "He&nbsp;*only*&nbsp;"must be our "rock, "our "salvation, "and our "defence." Then we are frequently tempted to look to an arm of flesh&nbsp;*first,*&nbsp;and when that fails us, we look to God. This will never do either. He must be our&nbsp;*first*&nbsp;as well as our&nbsp;*only*&nbsp;resource. "O God, thou art my God,&nbsp;*early*&nbsp;will I seek thee." This is the way in which the heart should ever treat the blessed God. This is the lesson of Psalm 63. When we have learnt the blessedness of seeking God&nbsp;*"only, "*&nbsp;we shall be sure to seek him&nbsp;*"early." Charles Mackintosh, in "Things New and Old, "*&nbsp;1858.
 
@@ -168,7 +168,7 @@ The rich poor man's emphatically poor."
 
 **Verse 12.**&nbsp;&nbsp;*Thou renderest to every man according to his work.*&nbsp;Learn to admire the grace of God in rewarding your works. It is much that he accepts them; and what is it, then, that he rewards them? It is much that he doth not damn you for them, seeing they are all defiled, and have something of sin cleaving to them; and what is it, then, that he crowns them? You would admire the bounty and munificence of a man that should give you a kingdom for taking up a straw at his foot, or give you a hundred thousand pounds for paying him a penny rent you owed him: how, then, should you adore the rich grace and transcendent bounty of God in so largely recompensing such mean services, in setting a crown of glory upon your heads, as the reward of those works which you can scarcely find in your hearts to call good ones! You will even blush one day to see yourselves so much honoured for what you are ashamed of, and are conscious to yourselves that you have deserved nothing by. You will wonder then to see God recompensing you for doing what was your duty to do, and what was his work in you; giving you grace, and crowning that grace; enabling you to do things acceptable to him, and then rewarding you as having done them.&nbsp;*Edward Veal (1708), in "The Morning Exercises."*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;
 
@@ -208,7 +208,7 @@ The rich poor man's emphatically poor."
 
 **Verses 11-12.**&nbsp;The constant union of power and mercy in the language of Scripture.
 
-## WORKS UPON THE SIXTY-SECOND PSALM
+## Works Upon The Sixty-Second Psalm
 
 An Exposition upon some Select Psalmes of David. Containing&nbsp;*great store of most excellent and comfortable doctrine and instruction for all those that (under the burden of sinne), thirst for comfort in Christ Jesus.*&nbsp;Written by that faithful servant of God, M. ROBERT ROLLOK, sometime pastor in the Church of Edinburgh: and translated out of Latin into English, by CHARLES LUMISDEN. Minister of the Gospel of Christ at Dudingstoun... 1600. (Contains an Exposition of Psalm 62.)
 

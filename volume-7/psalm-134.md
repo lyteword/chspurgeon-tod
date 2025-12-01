@@ -8,7 +8,7 @@ weight: 134
 
 The Psalm teaches us to pray for those who are continually ministering before the Lord, and it invites all ministers to pronounce benedictions upon their loving and prayerful people.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Behold.*&nbsp;By this call the pilgrims bespeak the attention of the night watch. They shout to them—Behold! The retiring pilgrims stir up the holy brotherhood of those who are appointed to keep the watch of the house of the Lord. Let them look around them upon the holy place, and everywhere "behold" reasons for sacred praise. Let them look above them at night and magnify him that made heaven and earth, and lighted the one with stars and the other with his love. Let them see to it that their hallelujahs never come to an end. Their departing brethren arouse them with the shrill cry of "Behold!" Behold!—see, take care, be on the watch, diligently mind your work, and incessantly adore and bless Jehovah's name. Bless ye the LORD. Think well of Jehovah, and speak well of him. Adore him with reverence, draw near to him with love, delight in him with exultation. Be not content with praise, such as all his works render to him; but, as his saints, see that ye "bless" him. He blesses you; therefore, be zealous to bless him. The word "bless" is the characteristic word of the Psalm. The first two verses stir us up to bless Jehovah, and in the last verse Jehovah's blessing is invoked upon the people. Oh to abound in blessing! May&nbsp;*blessed*&nbsp;and&nbsp;*blessing*&nbsp;be the two words which describe our lives. Let others flatter their fellows, or bless their stars, or praise themselves; as for us, we will bless Jehovah, from whom all blessings flow.
 
@@ -18,7 +18,7 @@ All ye servants of the LORD. It is your office to bless him; take care that you 
 
 **Verse 3.**&nbsp;This last verse is the answer from the temple to the pilgrims preparing to depart as the day breaks. It is the ancient blessing of the high priest condensed, and poured forth upon each individual pilgrim. The LORD that made heaven and earth bless thee out of Zion. Ye are scattering and going to your homes one by one; may the benediction come upon you one by one. You have been up to Jehovah's city and temple at his bidding; return each one with such a benediction as only he can give—divine, infinite, effectual, eternal. You are not going away from Jehovah's works or glories, for he made the heaven above you and the earth on which you dwell. He is your Creator, and he can bless you with untold mercies; he can create joy and peace in your hearts, and make for you a new heaven and a new earth. May the Maker of all things make you to abound in blessings. The benediction comes from the City of the Great King, from his appointed ministers, by virtue of his covenant, and so it is said to be "out of Zion." To this day the Lord blesses each one of his people through his church, his gospel, and the ordinances of his house. It is in communion with the saints that we receive untold benisons. May each one of us obtain yet more of the blessing which cometh from the Lord alone. Zion cannot bless us; the holiest ministers can only wish us a blessing; but Jehovah can and will bless each one of his waiting people. So may it be at this good hour. Do we desire it? Let us then bless the Lord ourselves. Let us do it a second time. Then we may confidently hope that the third time we think of blessing we shall find ourselves conscious receivers of it from the Ever blessed One. Amen.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;It is a beautiful little ode, equally full of sublimity and simplicity. It is commonly supposed to be the work of David. With what admiration should we contemplate the man whose zeal in the cause of religion thus urged him to embrace every opportunity that could occur to him, among the lowest as well as the highest ranks of life, of promoting the praise and glory of his Creator; now composing penitential hymns for his own closet; now leading the temple service in national eulogies of the most sublime pitch to which human language can reach; and now descending to the class of the watchmen and patrol of the temple and the city, and tuning their lips to a reverential utterance of the name and the service of God!—&nbsp;*John Mason Good*&nbsp;(1764-1827),&nbsp;*in "An Historical Outline of the Book of Psalms."*&nbsp;
 
@@ -62,7 +62,7 @@ All ye servants of the LORD. It is your office to bless him; take care that you 
 
 **Verse 3.**&nbsp;&nbsp;*Bless thee.*&nbsp;It is addressed to the church as one person, and to each individual in this united, unit like church.—&nbsp;*Franz Delitzsch.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Whole Psalm.**&nbsp;There are two things in this Psalm.
 

@@ -6,7 +6,7 @@ weight: 76
 
 **TITLE.**&nbsp;&nbsp;*To the Chief Musician on Neginoth.*&nbsp;The Precentor is here instructed to perform this song to the music of stringed instruments. The master of the harpers was called for his most skilful minstrelsy, and truly the song is worthy of the sweetest sounds that strings can yield.&nbsp;*A Psalm or Song of Asaph.*&nbsp;The style and matter indicate the same hand as that which wrote the preceding; and it is an admirable arrangement which placed the two in juxtaposition. Faith in the 75th Psalm sung of victories to come, and here it sings of triumphs achieved. The present Psalm is a most jubilant war song, a paean to the King of kings, the hymn of a theocratic nation to its divine ruler. We have no need to mark divisions in a song where the unity is so well preserved.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*In Judah is God known.*&nbsp;If unknown in all the world beside, he has so revealed himself to his people by his deeds of grace, that he is no unknown God to them. His name is great in Israel. To be known, in the Lord's case, is to be honoured: those who know his name admire the greatness of it. Although Judah and Israel were unhappily divided politically, yet the godly of both nations were agreed concerning Jehovah their God; and truly whatever schisms may mar the visible church, the saints always "appear as one" in magnifying the Lord their God. Dark is the outer world, but within the favoured circle Jehovah is revealed, and is the adoration of all who behold him. The world knows him not, and therefore blasphemes him, but his church is full of ardour to proclaim his fame unto the ends of the earth.
 
@@ -38,7 +38,7 @@ The fear of man is a snare, but the fear of God is a great virtue, and has great
 
 **Verse 12.**&nbsp;&nbsp;*He shall cut off the spirit of princes.*&nbsp;Their courage, skill, and life are in his hands, and he can remove them as a gardener cuts off a slip from a plant. None are great in his hand. Caesars and Napoleons fall under his power as the boughs of the tree beneath the woodman's axe. He is terrible to the kings of the earth. While they are terrible to others, he is terrible to them. If they oppose themselves to his people, he will make short work of them; they shall perish before the terror of his arm, "for the Lord is a man of war, the Lord is his name." Rejoice before him all ye who adore the God of Jacob.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;No Psalm has a greater right to follow Psalm 75 than this, which is inscribed&nbsp;*To the Precentor, with accompaniment of stringed instruments (vid.) iv. 1*&nbsp;,&nbsp;*a Psalm by Asaph, a song.*&nbsp;Similar expressions (&nbsp;*God of Jacob,*&nbsp;Ps 75:10 77:7;&nbsp;*saints, wicked of the earth,*&nbsp;Ps 75:9 76:10), and the same impress throughout speak in favour of unity of authorship. In other respects too, they form a pair: Psalm 75 prepares the way for the divine deed of judgments as imminent, which Psalm 76 celebrates as having taken place.&nbsp;*Franz Delitzsch.*&nbsp;
 
@@ -160,7 +160,7 @@ Thou girdest thyself with the remnant of wrath."
 
 **Verse 12.**&nbsp;The Lord&nbsp;*cuts off the spirit of princes;*&nbsp;the word is,&nbsp;*he slips off,*&nbsp;as one should slip off a flower between one's fingers, or as one should slip off a bunch of grapes from a vine, so soon is it done. How great uncertainty have many great ones, by their miserable experience, found in their outward glory and worldly felicity! What a change hath a little time made in all their honours, riches, and delights! That victorious emperor Henry the Fourth, who had fought fifty-two pitched battles, fell to that poverty before he died, that he was forced to petition to be a prebend in the church of Spier, to maintain him in his old age. And Procopius reports of King Gillimer, who was a potent king of the Vandals, who was so low brought, as to intreat his friends to send him a sponge, a loaf of bread, and a harp; a sponge to dry up his tears, a loaf of bread to maintain his life, and a harp to solace himself in his misery. Philip de Comines reports of a Duke of Exeter, who though he had married Edward the Fourth's sister, yet he saw him in the Low Countries begging barefoot. Bellisarius, the chief man living in his time, having his eyes put out, was led at last in a string, crying, "give a halfpenny to Bellisarius."&nbsp;*Jeremiah Burroughs.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;Reverence for God's name proportionate to true knowledge of it.
 

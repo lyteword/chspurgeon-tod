@@ -8,7 +8,7 @@ weight: 90
 
 **SUBJECT AND DIVISION.**&nbsp;—Moses sings of the frailty of man, and the shortness of life, contrasting therewith the eternity of God, and founding thereon earnest appeals for compassion. The only division which will be useful separates the contemplation Ps 90:1-11 from the Ps 90:12-17 there is indeed no need to make even this break, for the unity is well preserved throughout.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Lord, thou hast been our dwelling place in all generations.*&nbsp;We must consider the whole Psalm as written for the tribes in the desert, and then we shall see the primary meaning of each verse. Moses, in effect, says—wanderers though we be in the howling wilderness, yet we find a home in thee, even as our forefathers did when they came out of Ur of the Chaldees and dwelt in tents among the Canaanites. To the saints the Lord Jehovah, the self existent God, stands instead of mansion and rooftree; he shelters, comforts, protects, preserves, and cherishes all his own. Foxes have holes and the birds of the air have nests, but the saints dwell in their God, and have always done so in all ages. Not in the tabernacle or the temple do we dwell, but in God himself; and this we have always done since there was a church in the world. We have not shifted our abode. Kings' palaces have vanished beneath the crumbling hand of time—they have been burned with fire and buried beneath mountains of ruins, but the imperial race of heaven has never lost its regal habitation. Go to the Palatine and see how the Caesars are forgotten of the halls which echoed to their despotic mandates, and resounded with the plaudits of the nations over which they ruled, and then look upward and see in the ever living Jehovah the divine home of the faithful, untouched by so much as the finger of decay. Where dwelt our fathers a hundred generations since, there dwell we still. It is of New Testament saints that the Holy Ghost has said, "He that keepeth his commandments dwelleth in God and God in him!" It was a divine mouth which said, "Abide in me", and then added, "he that abideth in me and I in him the same bringeth forth much fruit." It is most sweet to speak with the Lord as Moses did, saying, "Lord, thou art our dwelling place", and it is wise to draw from the Lord's eternal condescension reasons for expecting present and future mercies, as the Psalmist did in the next Psalm wherein he describes the safety of those who dwell in God.
 
@@ -58,7 +58,7 @@ Who wishes it to be otherwise? Wherefore should we linger here? What has this po
 
 **Verse 17.**&nbsp;&nbsp;*And let the beauty of the Lord our God be upon us.*&nbsp;Even upon us who must not see thy glory in the land of Canaan; it shall suffice us if in our characters the holiness of God is reflected, and if over all our camp the lovely excellences of our God shall cast a sacred beauty. Sanctification should be the daily object of our petitions. And establish thou the work of our hands upon us; yea, the work of&nbsp;*our hands establish thou it.*&nbsp;Let what we do be done in truth, and last when we are in the grave; may the work of the present generation minister permanently to the building tip of the nation. Good men are anxious not to work in vain. They know that without the Lord they can do nothing, and therefore they cry to him for help in the work, for acceptance of their efforts, and for the establishment of their designs. The church as a whole earnestly desires that the hand of the Lord may so work with the hand of his people, that a substantial, yea, an eternal edifice to the praise and glory of God may be the result. We come and go, but the Lord's work abides. We are content to die so long as Jesus lives and his kingdom grows. Since the Lord abides for ever the same, we trust our work in his hands, and feel that since it is far more his work than ours he will secure it immortality. When we have withered like grass our holy service, like gold, silver, and precious stones, will survive the fire.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;The correctness of the title which ascribes the Psalm to Moses is confirmed by its unique simplicity and grandeur; its appropriateness to his times and circumstances; its resemblance to the Law in urging the connection between sin and death; its similarity of diction to the poetical portions of the Pentateuch, without the slightest trace of imitation or quotation; its marked unlikeness to the Psalms of David, and still more to those of later date; and finally, the proved impossibility of plausibly assigning it to any other age or author.—&nbsp;*J.A. Alexander.*&nbsp;
 
@@ -380,7 +380,7 @@ For all Time is no time, when the Time is past."
 
 **Verse 17.**&nbsp;&nbsp;*The work of our hands.*&nbsp;Jarchi interprets this of the work of the Tabernacle, in which the hands of the Israelites were employed in the wilderness; so Arama of the Tabernacle of Bezaleel.—&nbsp;*John Gill.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;The near and dear relation between God and his people, so that they mutually dwell in each other.
 
@@ -542,7 +542,7 @@ For all Time is no time, when the Time is past."
 
 **Verse 17.**&nbsp;The Right Establishment, or the work which will endure—why it will endure and should endure. Why we wish our work to be of such a nature, and whether there are enduring elements in it.
 
-## WORKS UPON THE NINETIETH PSALM
+## Works Upon The Ninetieth Psalm
 
 Enarratio Psalmi 90. Per D. Doctorem Martinum Luth. In Schola Vuittembergensi, Anno, 1534, publice absoluta, edita vers Anno MD.
 

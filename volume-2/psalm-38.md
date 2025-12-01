@@ -8,7 +8,7 @@ weight: 38
 
 **DIVISION.**&nbsp;The Psalm opens with a prayer, Ps 38:1; continues in a long complaint, Ps 38:2-8; pauses to dart an eye to heaven, Ps 38:9; proceeds with a second tale of sorrow, Ps 38:10-14; interjects another word of hopeful address to God, Ps 38:15; a third time pours out a flood of griefs, Ps 38:16-20; and then closes as it opened, with renewed petitioning, Ps 38:21-22.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*O Lord, rebuke me not in thy wrath.*&nbsp;Rebuked I must be, for I am an erring child and thou a careful Father, but throw not too much anger into the tones of thy voice; deal gently although I have sinned grievously. The anger of others I can bear, but not thine. As thy love is most sweet to my heart, so thy displeasure is most cutting to my conscience.&nbsp;*Neither chasten me in thy hot displeasure.*&nbsp;Chasten me if thou wilt, it is a Father's prerogative, and to endure it obediently is a child's duty; but, O turn not the rod into a sword, smite not so as to kill. True, my sins might well inflame thee, but let thy mercy and longsuffering quench the glowing coals of thy wrath. O let me not be treated as an enemy or dealt with as a rebel. Bring to remembrance thy covenant, thy fatherhood, and my feebleness, and spare the servant.
 
@@ -60,7 +60,7 @@ Sorrow and anguish hide themselves from the observation of man, but God spies th
 
 **Verse 22.**&nbsp;&nbsp;*Make haste to help me.*&nbsp;Delay would prove destruction. The poor pleader was far gone and ready to expire, only speedy help would serve his turn. See how sorrow quickens the importunity of prayer! Here is one of the sweet results of affliction, it gives new life to our pleading, and drives us with eagerness to our God.&nbsp;*O Lord my salvation.*&nbsp;Not my Saviour only, but my salvation. He who has the Lord on his side has salvation in present possession. Faith foresees the blessed issue of all her pleas, and in this verse begins to ascribe to God the glory of the expected mercy. We shall not be left of the Lord. His grace will succour us most opportunely, and in heaven we shall see that we had not one trial too many, or one pang too severe. A sense of sin shall melt into the joy of salvation; grief shall lead on to gratitude, and gratitude to joy unspeakable and full of glory.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;The first word, MIZMOR, or Psalm, is the designation of forty-four sacred poems, thirty-two of which are ascribed to David. The English reader must observe, that this word is not the same in the original Hebrew as that which forms the general title of the book of Psalms; the latter expressing a Hymn of Praise. The word&nbsp;*Psalm,*&nbsp;however, as used both in the context and in the titles of the individual compositions, is uniformly&nbsp;*Mizmor*&nbsp;in the original; a term which accurately defines their poetical character. To explain its proper meaning I must have recourse to the beautiful and accurate definition of Bishop Lowth. "The word&nbsp;*Mizmor*&nbsp;signifies a composition, which in a peculiar manner is cut up into sentences, short, frequent, and measured by regular intervals." ...He adds that&nbsp;*Zamar*&nbsp;means to cut or prune, as applied to the removing superfluous branches from trees; and, after mentioning the secondary sense of the word, "to sing with a voice or instrument, "gives it as his opinion, that&nbsp;*Mizmar*&nbsp;may be more properly referred to the primary sense of the root, so as to mean a poem cut up into short sentences, and pruned from all superfluity of words, which is the peculiar characteristic of the Hebrew poetry.&nbsp;*John Jebb.*&nbsp;
 
@@ -152,7 +152,7 @@ Sorrow and anguish hide themselves from the observation of man, but God spies th
 
 **Verse 22.**&nbsp;&nbsp;*O Lord my salvation.*&nbsp;Faith the suppliant is now made faith triumphant.&nbsp;*Franz Delitzsch.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **TITLE.**&nbsp;The art of memory. Holy memorabilia. The usefulness of sacred remembrance.
 
@@ -230,7 +230,7 @@ Sorrow and anguish hide themselves from the observation of man, but God spies th
 
 **Verse 19.**&nbsp;The terrible energy and industry of the powers of evil.
 
-## WORKS UPON THE THIRTY-EIGHTH PSALM
+## Works Upon The Thirty-Eighth Psalm
 
 "A Sacred Septenarie, "etc., by ARCHIBALD SYMSON, 1638, contains an Exposition of this Psalm. See Vol. I, p. 74.
 

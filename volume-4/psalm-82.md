@@ -10,7 +10,7 @@ Asaph's sermon before the judges is now before us. He speaks very plainly, and h
 
 **DIVISION.**&nbsp;The Psalm is a whole and needs no formal division.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*God standeth in the congregation of the mighty.*&nbsp;He is the overlooker, who, from his own point of view, sees all that is done by the great ones of the earth. When they sit in state he stands over them, ready to deal with them if they pervert judgment. Judges shall be judged, and to justices justice shall be meted out. Our village squires and country magistrates would do well to remember this. Some of them had need go to school to Asaph till they have mastered this psalm. Their harsh decisions and strange judgments are made in the presence of him who will surely visit them for every unseemly act, for he has no respect unto the person of any, and is the champion of the poor and needy. A higher authority will criticise the decision of petty sessions, and even the judgments of our most impartial judges will be revised by the High Court of heaven. He judgeth among the gods. They are gods to other men, but he is GOD to them. He lends them his name, and this is their authority for acting as judges, but they must take care that they do not misuse the power entrusted to them, for the Judge of judges is in session among them. Our puisne judges are but puny judges, and their brethren who administer common law will one day be tried by the common law. This great truth is, upon the whole, well regarded among us in these times, but it was not so in the earlier days of English history, when Jeffries, and such as he, were an insult to the name of justice. Oriental judges, even now, are frequently, if not generally, amenable to bribes, and in past ages it was very hard to find a ruler who had any notion of justice apart from his own arbitrary will. Such plain teaching as this psalm contains was needful indeed, and he was a bold good man who, in such courtly phrases, delivered his own soul.
 
@@ -28,7 +28,7 @@ Asaph's sermon before the judges is now before us. He speaks very plainly, and h
 
 **Verse 8.**&nbsp;&nbsp;*Arise, O God, and judge the earth.*&nbsp;Come thou Judge of all mankind, put the bad judges to thy bar and end their corruption and baseness. Here is the world's true hope of rescue from the fangs of tyranny. For thou shalt inherit all nations. The time will come when all races of men shall own their God, and accept him as their king. There is one who is "King by right divine, "and he is even now on his way. The last days shall see him enthroned, and all unrighteous potentates broken like potter's vessels by his potent sceptre. The second advent is still earth's brightest hope. Come quickly, even so, come, Lord Jesus.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;Asaph, who has written so much in the previous Psalms of the coming of Christ in the flesh, now speaks of his second coming to judgment.&nbsp;*Josephus Maria Thomasius.*&nbsp;1649-1713.
 
@@ -82,7 +82,7 @@ Asaph's sermon before the judges is now before us. He speaks very plainly, and h
 
 **Verse 8.**&nbsp;&nbsp;*Arise, O God.*&nbsp;A metaphor taken from the common gesture of judges, whose usual manner is to sit while they are hearing of cases; to arise and stand up when they come to give sentence.&nbsp;*Thomas Gataker.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;The sovereignty of God over the most powerful and exalted. How that sovereignty reveals itself, and what we may expect from it.
 
@@ -124,7 +124,7 @@ Asaph's sermon before the judges is now before us. He speaks very plainly, and h
 
 2\.The prediction:&nbsp;*For thou shalt,*&nbsp;etc.—G. R.
 
-## WORK UPON THE EIGHTY-SECOND PSALM
+## Works Upon The Eighty-Second Psalm
 
 "The Beauty of Magistracy. An Exposition of Psalm 82." By THOMAS HALL, B.D. 1659-60. (In SWINNOCK'S WORKS. Vol. 4. Nichol's Edition.)
 

@@ -8,7 +8,7 @@ weight: 112
 
 **DIVISION.**&nbsp;The subject is stated in the first verse, and enlarged upon under several heads from 2 to 9. The blessedness of the righteousness is set forth by contrast with the fate of the ungodly in verse 10.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Praise ye the LORD.*&nbsp;This exhortation is never given too often; the Lord always deserves praise, we ought always to render it, we are frequently forgetful of it, and it is always well to be stirred up to it. The exhortation is addressed to all thoughtful persons who observe the way and manner of life of men that fear the Lord. If there be any virtue, if there be any praise, the Lord should have all the glory of it, for we are his workmanship. Blessed is the man that feareth the Lord. According to the last verse of Psalm 111,&nbsp;*the fear of the Lord is the beginning of wisdom*&nbsp;; this man, therefore, has begun to be wise, and wisdom has brought him present happiness, and secured him eternal felicity. Jehovah is so great that he is to be feared and had in reverence of all them that are round about him, and he is at the same time so infinitely good that the fear is sweetened into filial love, and becomes a delightful emotion, by no means engendering bondage. There is a slavish fear which is accursed; but that godly fear which leads to delight in the service of God is infinitely blessed. Jehovah is to be praised both for inspiring men with godly fear and for the blessedness which they enjoy in consequence thereof. We ought to bless God for blessing any man, and especially for setting the seal of his approbation upon the godly. His favour towards the God fearing displays his character and encourages gracious feelings in others, therefore let him be praised. That delighteth greatly in his commandments. The man not only studies the divine precepts and endeavours to observe them, but rejoices to do so: holiness is his happiness, devotion is his delight, truth is his treasure. He rejoices in the precepts of godliness, yea, and delights greatly in them. We have known hypocrites rejoice in the doctrines, but never in the commandments. Ungodly men may in some measure obey the commandments out of fear, but only a gracious man will observe them with delight. Cheerful obedience is the only acceptable obedience; he who obeys reluctantly is disobedient at heart, but he who takes pleasure in the command is truly loyal. If through divine grace we find ourselves described in these two sentences, let us give all the praise to God, for he hath wrought all our works in us, and the dispositions out of which they spring. Let self righteous men praise themselves, but he who has been made righteous by grace renders all the praise to the Lord.
 
@@ -32,7 +32,7 @@ weight: 112
 
 And melt away. The heat of his passion shall melt him like wax, and the sun of God's providence shall dissolve him like snow, and at the last the fire of divine vengeance shall consume him as the fat of rams. How horrible must that life be which like the snail melts as it proceeds, leaving a slimy trail behind. Those who are grieved at goodness deserve to be worn away by such an abominable sorrow. The desire of the wicked shall perish. He shall not achieve his purpose, he shall die a disappointed man. By wickedness he hoped to accomplish his purpose—that very wickedness shall be his defeat. While the righteous shall endure for ever, and their memory shall be always green; the ungodly man and his name shall rot from off the face of the earth. He desired to be the founder of a family, and to be remembered as some great one: he shall pass away and his name shall die with him. How wide is the gulf which separates the righteous from the wicked, and how different are the portions which the Lord deals out to them. O for grace to be blessed of the Lord! This will make us praise him with our whole heart.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;The hundred and eleventh and the hundred and twelfth psalms, two very short poems, dating apparently from the latest age of inspired psalmody, present such features of resemblance as to leave no doubt that they came from the same pen. In structure they are identical; and this superficial resemblance is designed to call attention to something deeper and more important. The subject of the one is the exact counterpart of the subject of the other. The first celebrates the character and works of God; the second, the character and felicity of the godly man.—&nbsp;*William Binnie.*&nbsp;
 
@@ -164,7 +164,7 @@ Truth will intrude.
 
 **Verse 10.**&nbsp;&nbsp;*He shall gnash with his teeth, and melt away.*&nbsp;The effect of envy, which consumes the envious. Thus the poet: "Envy is most hateful, but has some good in it, for it makes the eyes and the heart of the envious to pine away."—&nbsp;*John Le Clerc,*&nbsp;1657-1736.
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;"Praise ye the LORD."
 
@@ -296,7 +296,7 @@ c. Perpetual.
 
 2\.What they shall never see (their desire), and the result of their disappointment.
 
-## WORK UPON THE HUNDRED AND TWELFTH PSALM
+## Works Upon The Hundred And Twelfth Psalm
 
 An Exposition upon the 112 Psalme. The high way to everlasting&nbsp;*blessednesse. Written for the benefit of God's Church.*&nbsp;By T. S. . . . London, 1621. (8vo. This exposition is upon the first two verses of the Psalm only.)
 

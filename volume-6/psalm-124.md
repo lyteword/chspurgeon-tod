@@ -8,7 +8,7 @@ weight: 124
 
 **DIVISION.**&nbsp;This short Psalm contains an acknowledgement of favour received by way of special deliverance (1-5), then a grateful act of worship in blessing Jehovah (6, 7), and, lastly, a declaration of confidence in the Lord for all future time of trial. May our experience lead us to the same conclusion as the saints of David's time. From all confidence in man may we be rescued by a holy reliance upon our God.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*If it had not been the Lord who was on our side, now may Israel say.*&nbsp;The opening sentence is abrupt, and remains a fragment. By such a commencement attention was aroused as well as feeling expressed: and this is ever the way of poetic fire—to break forth in uncontrollable flame. The many words in italics in our authorized version will show the reader that the translators did their best to patch up the passage, which, perhaps, had better have been left in its broken grandeur, and it would then have run thus:—"Had it not been Jehovah! He was for us, oh let Israel say! Had it not been Jehovah! He who was for us when men rose against us." The glorious Lord became our ally; he took our part, and entered into treaty with us. If Jehovah were not our protector where should we be Nothing but his power and wisdom could have guarded us from the cunning and malice of our adversaries; therefore, let all his people say so, and openly give him the honour of his preserving goodness. Here are two "ifs, "and yet there is no "if" in the matter. The Lord was on our side, and is still our defender, and will be so from henceforth, even for ever. Let us with holy confidence exult in this joyful fact: We are far too slow in declaring our gratitude, hence the exclamation which should be rendered, "O let Israel say." We murmur without being stirred up to it, but our thanksgiving needs a spur, and it is well when some warm hearted friend bids us say what we feel. Imagine what would have happened if the Lord had left us, and then see what has happened because he has been faithful to us. Are not all the materials of a song spread before us? Let us sing unto the Lord.
 
@@ -68,7 +68,7 @@ To him her song in heaven she'll raise,
 
 To him that made both heaven and earth.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;The title informs us that this sacred march was composed by king David; and we learn very clearly from the subject, that the progression referred to was the triumphant return of the king and his loyal army to Jerusalem, upon the overthrow of the dangerous rebellion to which the great mass of the people had been excited by Absalom and his powerful band of confederates.—&nbsp;*John Mason Good.*&nbsp;
 
@@ -184,7 +184,7 @@ To bark or bite without thee?"
 
 **Verse 8.**&nbsp;&nbsp;*Our help is in the name of the Lord,*&nbsp;etc. These are the words of a triumphing and victorious faith, "Our help standeth in the name of the Lord, which made heaven and earth": as if he said, the Maker of heaven and earth is my God, and my helper. We see whither he flieth in his great distress. He despairs not, but cries unto the Lord, as one yet hoping assuredly to find relief and comfort. Rest thou also in this hope, and do as he did. David was not tempted to the end he Should despair; think not thou, therefore, that thy temptations are sent unto thee that thou shouldest be swallowed up with sorrow and desperation: if thou be brought down to the very gates of hell, believe that the Lord will surely raise thee up again. If so thou be bruised and broken, know it is the Lord that will help thee again. If thy heart be full of sorrow and heaviness, look for comfort from him, who said, that a troubled spirit is a sacrifice unto him: (Ps 51:17) Thus he setteth the eternal God, the Maker of heaven and earth, against all troubles and dangers, against the floods and overflowings of all temptations, and swalloweth up, as it were with one breath all the raging furies of the whole world, and of hell itself, even as a little drop of water is swallowed up by a mighty flaming fire: and what is the world with all its force and power, in respect of him that made heaven and earth!—&nbsp;*Thomas Stint.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;&nbsp;*The LORD who was on our side.*&nbsp;Who is he? Why on our side? How does he prove it? What are we bound to do?
 
@@ -296,7 +296,7 @@ To bark or bite without thee?"
 
 3\.Therefore we exert ourselves.—&nbsp;*W.J.*&nbsp;
 
-## WORKS UPON THE HUNDRED TWENTY FOURTH PSALM
+## Works Upon The Hundred Twenty Fourth Psalm
 
 &nbsp;*Comfortable sermons upon the 124 psalme*&nbsp;. Being thankfull Remembrances for God's wonderfull deliverance of us from the late gunpowder treason. Preached before the Lady Elizabeth Her Grace, at Combe. By Daniel, Dike, Bachelor in Divinity... London; ...1635&nbsp;*also 1617. Quarto.*&nbsp;Of no value whatever.
 

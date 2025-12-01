@@ -8,7 +8,7 @@ weight: 65
 
 **SUBJECT AND DIVISION.**&nbsp;David sings of the glory of God in his church, and in the fields of nature: here is the song both of grace and providence. It may be that he intended hereby to commemorate a remarkably plentiful harvest, or to compose a harvest hymn for all ages. It appears to have been written after a violent rebellion had been quelled, Ps 65:7, and foreign enemies had been subdued by signal victory, Ps 65:8. It is one of the most delightful hymns in any language. We shall view in Ps 65:1-4 the way of approach to God, then from Ps 65:5-8 we shall see the Lord in answer to prayer performing wonders for which he is praised, and then from Ps 65:9-13 we shall sing the special harvest song.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Praise waiteth for thee, O God, in Sion.*&nbsp;Though Babylon adores Antichrist, Zion remains faithful to her King; to him, and to him only, she brings her perpetual oblation of worship. Those who have seen in Zion the blood of sprinkling, and know themselves to belong to the church of the firstborn, can never think of her without presenting humble praise to Zion's God; his mercies are too numerous and precious to be forgotten. The praises of the saints wait for a signal from the divine Lord, and when he shows his face they burst forth at once. Like a company of musicians gathered to welcome and honour a prince, who wait till he makes his appearance, so do we reserve our best praises till the Lord reveals himself in the assembly of his saints; and, indeed, till he shall descend from heaven in the day of his appearing. Praise also waits like a servant or courtier in the royal halls—gratitude is humble and obedient. Praise attends the Lord's pleasure, and continues to bless him, whether he shows tokens of present favour or no; she is not soon wearied, but all through the night she sings on in sure hope that the morning cometh. We shall continue to wait on, tuning our harps, amid the tears of earth; but O what harmonies will those be which we will pour forth, when the home bringing is come, and the King shall appear in his glory. The passage may be rendered "praise is silent for thee; "it is calm, peaceful, and ready to adore thee in quietness. Or, it may mean, our praise is but silence compared with thy deservings, O God. Or, in solemn silence we worship thee, because our praise cannot be uttered; accept, therefore, our silence as praise. Or, we are so engrossed in thy praise, that to all other things we are dumb; we have no tongue for anything but thee. Perhaps the poet best expressed the thought of the psalmist when he said—
 
@@ -78,7 +78,7 @@ And his&nbsp;*unsuffering*&nbsp;kingdom yet will come."
 
 They also sing. The voice of nature is articulate to God; it is not only a shout, but a song. Well ordered are the sounds of animate creation as they combine with the equally well tuned ripple of the waters, and sighings of the wind. Nature has no discords. Her airs are melodious, her chorus is full of harmony. All, all is for the Lord; the world is a hymn to the Eternal, blessed is he who, hearing, joins in it, and makes one singer in the mighty chorus.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 From Psalm 65 onwards we find ourselves in the midst of a series of Psalms which, with a varying arrangement of the words, are inscribed both kwmzm and wyv (65-68.) The two words signify a&nbsp;*Psalm song.*&nbsp;This series, as is universally the case, is arranged according to the community of prominent watch words. In Ps 65:2 we read:&nbsp;*To thee is the vow paid;*&nbsp;and in Ps 66:13:&nbsp;*I will pay thee my vows;*&nbsp;in Ps 66:20:&nbsp;*Blessed be Elohim;*&nbsp;and in Ps 67:8:&nbsp;*Elohim shall bless us.*&nbsp;Besides Psalm 66 and 67 have this feature in common, that tugml, which occurs fifty-five times in the Psalter, is accompanied by the name of the poet in every instance, with the exception of these two anonymous Psalms. The frequently occurring&nbsp;*Sela*&nbsp;of both Psalms also indicates that they were intended to have a musical accompaniment.&nbsp;*Franz Delitzsch.*&nbsp;
 
@@ -218,7 +218,7 @@ Sixthly. The experiences which the saints of all ages have had of the answer of 
 
 **Verse 13.**&nbsp;&nbsp;*They also sing. They ardently sing:*&nbsp;such is the real meaning of pa; primarily "heat" or "warmth, "thence "ardour, passion, anger, "and thence again "the nostrils, "as the supposed seat of this feeling.&nbsp;*John Mason Good.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;The fitness, place, use, and power of silence in worship.
 

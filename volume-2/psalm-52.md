@@ -8,7 +8,7 @@ weight: 52
 
 **DIVISION.**&nbsp;We shall follow the sacred pauses marked by the Selahs of the poet.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Why boasteth thyself in mischief, O mighty man?*&nbsp;Doeg had small matter for boasting in having procured the slaughter of a band of defenceless priests. A mighty man indeed to kill men who never touched a sword! He ought to have been ashamed of his cowardice. He had no room for exultation! Honourable titles are but irony where the wearer is mean and cruel. If David alluded to Saul, he meant by these words pityingly to say, "How can one by nature fitted for nobler deeds, descend to so low a level as to find a theme for boasting in a slaughter so heartless and mischievous?"&nbsp;*The goodness of God endureth continually.*&nbsp;A beautiful contrast. The tyrant's fury cannot dry up the perennial stream of divine mercy. If priests be slain their Master lives. If Doeg for awhile triumphs the Lord will outlive him, and right the wrongs which he has done. This ought to modify the proud exultations of the wicked, for after all, while the Lord liveth, iniquity has little cause to exalt itself.
 
@@ -28,7 +28,7 @@ weight: 52
 
 **Verse 9.**&nbsp;&nbsp;*I will praise thee for ever.*&nbsp;Like thy mercy shall my thankfulness be. While others boast in their riches I will boast in my God; and when their glorying is silenced for ever in the tomb, my song shall continue to proclaim the lovingkindness of Jehovah.&nbsp;*Because thou hast done it.*&nbsp;Thou hast vindicated the righteous, and punished the wicked. God's memorable acts of providence, both to saints and sinners, deserve, and must have our gratitude. David views his prayer as already answered, the promise of God as already fulfilled, and therefore at once lifts up the sacred Psalm.&nbsp;*And I will wait on thy name.*&nbsp;God shall still be the psalmist's hope; he will not in future look elsewhere. He whose name has been so gloriously made known in truth and righteousness, is justly chosen as our expectation for years to come.&nbsp;*For it is good before thy saints.*&nbsp;Before or among the saints David intended to wait, feeling it to be good both for him and them to look to the Lord alone, and wait for the manifestation of his character in due season. Men must not too much fluster us; our strength is to sit still. Let the mighty ones boast, we will wait on the Lord; and if their haste brings them present honour, our patience will have its turn by and by, and bring us the honour which excelleth.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;That&nbsp;*Maschil*&nbsp;means a sacred composition, is evident from Ps 47:7, where the passage which we render, "Sing ye praises with understanding, "is literally, "Sing ye a&nbsp;*Maschil, "*&nbsp;or song of instruction. This word occurs as a title in thirteen places; and six times is prefixed to compositions of David's. In several instances it occurs in consecutive Psalms;&nbsp;*i.e.,*&nbsp;in the 42nd (of which the 43rd is the sequel), the 44th and 45th, the 52nd, 53rd, 54th, and 55th, the 88th and 89th. A circumstance which favours the notion that the term was one peculiarly used by some particular editor or collector of a certain portion of the Psalter.&nbsp;*John Jebb.*&nbsp;
 
@@ -94,7 +94,7 @@ This appears to express of the Hebrew words, which our translators render,&nbsp;
 
 (d) That he, like a son of God, should rejoice in familiarity with him, and should become heir to his possessions and promises.&nbsp;*Hermann Venema.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;The confidence of faith.
 
@@ -138,7 +138,7 @@ This appears to express of the Hebrew words, which our translators render,&nbsp;
 
 **Verse 9.**&nbsp;What God has done, what we will do, and why.
 
-## WORK UPON THE FIFTY-SECOND PSALM
+## Works Upon The Fifty-Second Psalm
 
 CHANDLER'S&nbsp;*"Life of David, "*&nbsp;contains an Exposition of this Psalm. Vol. 1., pp. 140-143.
 

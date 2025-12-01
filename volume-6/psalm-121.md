@@ -6,7 +6,7 @@ weight: 121
 
 **TITLE, ETC.**&nbsp;This bears no other title than "A Song of degrees". It is several steps in advance of its predecessor, for it tells of the peace of God's house, and the guardian care of the Lord, while Psalm 120 bemoans the departure of peace from the good man's abode, and his exposure to the venomous assaults of slanderous tongues. In the first instance his eyes looked around with anguish, but here they look up with hope. From the constant recurrence of the word keep, we are led to name this song "a Psalm to the keeper of Israel". Were it not placed among the Pilgrim Psalms we should regard it as a martial hymn, fitted for the evensong of one who slept upon the tented field. It is a soldier's song as well as a traveller's hymn. There is an ascent in the psalm itself which rises to the greatest elevation of restful confidence.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*I will lift up mine eyes unto the hills, from whence cometh my help.*&nbsp;It is wise to look to the strong for strength. Dwellers in valleys are subject to many disorders for which there is no cure but a sojourn in the uplands, and it is well when they shake off their lethargy and resolve upon a climb. Down below they are the prey of marauders, and to escape from them the surest method is to fly to the strongholds upon the mountains. Often before the actual ascent the sick and plundered people looked towards the hills and longed to be upon their summits. The holy man who here sings a choice sonnet looked away from the slanderers by whom he was tormented to the Lord who saw all from his high places, and was ready to pour down succour for his injured servant. Help comes to saints only from above, they look elsewhere in vain: let us lift up our eyes with hope, expectance, desire, and confidence. Satan will endeavour to keep our eyes upon our sorrows that we may be disquieted and discouraged; be it ours firmly to resolve that we will look out and look up, for there is good cheer for the eyes, and they that lift up their eyes to the eternal hills shall soon have their hearts lifted up also. The purposes of God; the divine attributes; the immutable promises; the covenant, ordered in all things and sure; the providence, predestination, and proved faithfulness of the Lord—these are the hills to which we must lift up our eyes, for from these our help must come. It is our resolve that we will not be bandaged and blindfolded, but will lift up our eyes. Or is the text in the interrogative? Does he ask, "Shall I lift up mine eyes to the hills?" Does he feel that the highest places of the earth can afford him no shelter? Or does he renounce the idea of recruits hastening to his standard from the hardy mountaineers? and hence does he again enquire, "Whence cometh my help?" If so, the next verse answers the question, and shows whence all help must come.
 
@@ -32,7 +32,7 @@ Thy going out, thy coming in,
 
 From this time, evermore."
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;"A Song of Degrees." It has been ingeniously pointed out that these "degrees" or "steps" consist in the reiteration of a word or thought occurring in one clause, verse, or stanza, which in the next verse or stanza is used, as it were, as a step (or degree) by which to ascend to another and higher truth. Thus in our psalm, the idea of "my help", expressed in Ps 121:1, is repeated in Ps 121:2. This has now become a step by which in Ps 121:3 we reach the higher truth or explanation of "nay help", as: "He that keepeth thee will not slumber, "the same idea being with slight modification reembodied in Ps 121:4. Another "degree" is then reached in Ps 121:5, when "He who slumbers not" is designated as Jehovah, the same idea once more enlarged upon being (the word occurring twice in Ps 121:5) in Ps 121:6. The last and highest degree of this song is attained in Ps 121:7, when the truth implied in the word Jehovah unfolds itself in its application to our preservation, which, with further enlargement, is once more repeated in Ps 121:8. Perhaps some internal connexion might be traced between all the fifteen Psalms of Degrees. At any rate, it will not be difficult to trace the same structure if each of the psalms "of Degrees", making allowance for occasional devotions and modifications.—&nbsp;*Alfred Edersheim*&nbsp;, in&nbsp;*"The Golden Diary,"*&nbsp;1877.
 
@@ -250,7 +250,7 @@ That rheumatic diseases do abound.
 
 **Verse 8.**&nbsp;&nbsp;*From this time forth, and even for evermore.*&nbsp;He has not led me so tenderly thus far to forsake me at the very gate of heaven.—&nbsp;*Adoniram Judson.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;The window opened towards Jerusalem.
 
@@ -378,7 +378,7 @@ That rheumatic diseases do abound.
 
 2\.Unchanging—"The Lord shall preserve," etc.
 
-## WORKS UPON THE HUNDRED AND TWENTY-FIRST PSALM
+## Works Upon The Hundred And Twenty-First Psalm
 
 In "Letters on Spiritual Subjects . . ." by SAMUEL EYLES PIERCE... London: 1862, Vol. I., pp. 359-370, there are "Some Observations on the Hundred and Twenty first Psalm."
 

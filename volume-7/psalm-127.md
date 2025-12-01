@@ -8,7 +8,7 @@ weight: 127
 
 **SUBJECT.**&nbsp;God's blessing on his people as their one great necessity and privilege is here spoken of. We are here taught that builders of houses and cities, systems and fortunes, empires and churches all labour in vain without the Lord; but under the divine favour they enjoy perfect rest. Sons, who are in the Hebrew called "builders", are set forth as building up families under the same divine blessing, to the great honour and happiness of their parents. It is THE BUILDER'S PSALM. "Every house is builded by some man, but he that built all things is God", and unto God be praise.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Except the LORD build the house, they labour in vain that build it.*&nbsp;The word vain is the keynote here, and we hear it ring out clearly three times. Men desiring to build know that they must labour, and accordingly they put forth all their skill and strength; but let them remember that if Jehovah is not with them their designs will prove failures. So was it with the Babel builders; they said, "Go to, let us build us a city and a tower"; and the Lord returned their words into their own bosoms, saying, "Go to, let us go down and there confound their language." In vain they toiled, for the Lord's face was against them. When Solomon resolved to build a house for the Lord, matters were very different, for all things united under God to aid him in his great undertaking: even the heathen were at his beck and call that he might erect a temple for the Lord his God. In the same manner God blessed him in the erection of his own palace; for this verse evidently refers to all sorts of house building. Without God we are nothing. Great houses have been erected by ambitious men; but like the baseless fabric of a vision they have passed away, and scarce a stone remains to tell where once they stood. The wealthy builder of a Non such Palace, could he revisit the glimpses of the moon, would be perplexed to find a relic of his former pride: he laboured in vain, for the place of his travail knows not a trace of his handiwork. The like may be said of the builders of castles and abbeys: when the mode of life indicated by these piles ceased to be endurable by the Lord, the massive walls of ancient architects crumbled into ruins, and their toil melted like the froth of vanity. Not only do we now spend our strength for nought without Jehovah, but all who have ever laboured apart from him come under the same sentence. Trowel and hammer, saw and plane are instruments of vanity unless the Lord be the Master builder.
 
@@ -26,7 +26,7 @@ Except the LORD keep the city, the watchman waketh but in&nbsp;*vain.*&nbsp;Arou
 
 They shall not be ashamed, but they shall speak with the&nbsp;*enemies in the gate.*&nbsp;They can meet foes both in law and in fight. Nobody cares to meddle with a man who can gather a clan of brave sons about him. He speaks to purpose whose own sons make his words emphatic by the resolve to carry out their father's wishes. This is the blessing of Abraham, the old covenant benediction, "Thy seed shall possess the gate of his enemies"; and it is sure to all the beloved of the Lord in some sense or other. Doth not the Lord Jesus thus triumph in his seed? Looked at literally, this favour cometh of the Lord: without his will there would be no children to build up the house, and without his grace there would be no good children to be their parent's strength. If this must be left with the Lord, let us leave every other thing in the same hands. He will undertake for us and prosper our trustful endeavours, and we shall enjoy a tranquil life, and prove ourselves to be our Lord's beloved by the calm and quiet of our spirit. We need not doubt that if God gives us children as a reward he will also send us the food and raiment which he knows they need. He who is the father of a host of spiritual children is unquestionably happy. He can answer all opponents by pointing to souls who have been saved by his means. Converts are emphatically the heritage of the Lord, and the reward of the preacher's soul travail. By these, under the power of the Holy Ghost, the city of the church is both built up and watched, and the Lord has the glory of it.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;&nbsp;*"A Song of Degrees for Solomon."*&nbsp;This Psalm has Solomon's name prefixed to the title, for the purpose that the very builder of the Temple may teach us that he availed nothing to build it without the help of the Lord.—&nbsp;*The Venerable Bede*&nbsp;(672-3-735),&nbsp;*in Neale and Littledale.*&nbsp;
 
@@ -202,7 +202,7 @@ To hold his friends.
 
 —&nbsp;*Sophocles' "Antigone." R. Potter's Translation.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;
 

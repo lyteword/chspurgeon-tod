@@ -8,7 +8,7 @@ weight: 53
 
 **SUBJECT.**&nbsp;The evil nature of man is here brought before our view a second time, in almost the same inspired words. All repetitions are not vain repetitions. We are slow to learn, and need line upon line. David after a long life, found men no better than they were in his youth. Holy Writ never repeats itself needlessly, there is good cause for the second copy of this Psalm; let us read it with more profound attention than before. If our age has advanced from fourteen to fifty-three, we shall find the doctrine of this Psalm more evident than in our youth. The reader is requested to peruse Psalm 14, "Treasury of David, "Vol. 1.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*The fool hath said in his heart, There is no God.*&nbsp;And this he does because he is a fool. Being a fool he speaks according to his nature; being a great fool he meddles with a great subject, and comes to a wild conclusion. The atheist is, morally as well as mentally, a fool, a fool in the heart as well as in the head; a fool in morals as well as in philosophy. With the denial of God as a starting point, we may well conclude that the fool's progress is a rapid, riotous, raving, ruinous one. He who begins at impiety is ready for anything.
 
@@ -72,7 +72,7 @@ Then Judah's harps should music learn,
 
 And Israel be glad.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;Probably the two Psalms&nbsp;*refer to different periods;*&nbsp;the fourteenth to the earlier portion of the world, or of Jewish history; the fifty-third to a later, perhaps a still future time. Jehovah, through Christ, is frequently said to turn to the world to see what its condition is, and always with the same result. "All flesh had corrupted its way" in the days of Noah, and, "when the Son of Man cometh" again, it is intimated that he will scarcely "find faith on the earth." The two Psalms also&nbsp;*apply to different persons.*&nbsp;The former refers to the enemies of God, who tremble when his presence is made known;&nbsp;*they are in great fear,*&nbsp;because vengeance is about to be inflicted on them for their sins. Here the Supreme Being is called Jehovah. In the fifty-third Psalm the interests of God's people are principally kept in view. The ungodly are regarded as plotting against the righteous, and it is in this relation their case is considered. The fear that was just and reasonable in the fourteenth Psalm, because it concerned the unrighteous under a sense of impending judgment, is said to be unfounded in the fifty-third, because God was in the midst of his people,&nbsp;*scattering the bones of their enemies,*&nbsp;and showing himself, not as Jehovah, but as the Elohim of his redeemed children. The fourteenth Psalm contemplates judgment; the fifty-third deliverance; and thus, though seemingly alike, a different lesson is conveyed in each. The Psalm, then, descriptive of the universal and continuous corruption of man's nature, very properly occupies an introductory place in a series intended to represent the enemies of Messiah, who oppose his church during his absence, and who are to attempt to resist his power when he comes again. Before entering upon an examination of the character of these opponents, this Psalm teaches that, until changed by grace, all are gone astray; "there is none righteous, no, not one, "and that for all there is but one remedy,&nbsp;*the Deliverer coming out of Zion, who shall turn away ungodliness from Jacob. R. H. Ryland, M.A., in "The Psalms restored to Messiah,"*&nbsp;1853.
 
@@ -128,7 +128,7 @@ And Israel be glad.
 
 **Verse 5.**&nbsp;&nbsp;*There were they in great fear, where no fear was.*&nbsp;Behold how fearful a hell a wounded conscience is! For why is Cain afraid to be killed, seeing there is none living to perform it, but his father and mother, and perhaps some women children, which the Scripture nameth not? It is God's just judgment, that they that will not fear the Lord who is only to be feared, should stand in fear of them who are justly no cause of fear. He that lately feared not to kill his brother, is now made a terror to himself. Hereby also we may consider what is the repentance of the wicked; they see perhaps the fault together with the punishment, but they admit the fault and lament the punishment.&nbsp;*Nicholas Gibbens,*&nbsp;1602.
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 See the hints on Psalm 14.
 

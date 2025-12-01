@@ -12,7 +12,7 @@ A Song upon Alamoth. Which may denote that the music was to be pitched high for 
 
 **DIVISION.**&nbsp;It is divided by inspired authority into three parts, each of which ends with Selah.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*God is our refuge and strength.*&nbsp;Not our armies, or our fortresses. Israel's boast is in Jehovah, the only living and true God. Others vaunt their impregnable castles, placed on inaccessible rocks, and secured with gates of iron, but God is a far better refuge from distress than all these: and when the time comes to carry the war into the enemy's territories, the Lord stands his people in better stead than all the valour of legions or the boasted strength of chariot and horse. Soldiers of the cross, remember this, and count yourselves safe, and make yourselves strong in God. Forget not the personal possessive word&nbsp;*our;*&nbsp;make sure each one of your portion in God, that you may say, "He is&nbsp;*my*&nbsp;refuge and strength." Neither forget the fact that God is our refuge just now, in the immediate present, as truly as when David penned the word. God alone is our all in all. All other refuges are refuges of lies, all other strength is weakness, for power belongeth unto God: but as God is all sufficient, our defence and might are equal to all emergencies.&nbsp;*A very present help in trouble,*&nbsp;or&nbsp;*in distress he has so been found,*&nbsp;he has been tried and proved by his people. He never withdraws himself from his afflicted. He is their help, truly, effectually, constantly; he is present or near them, close at their side and ready for their succour, and this is emphasized by the word&nbsp;*very*&nbsp;in our version, he is more present than friend or relative can be, yea, more nearly present than even the trouble itself. To all this comfortable truth is added the consideration that his assistance comes at the needed time. He is not as the swallows that leave us in the winter; he is a friend in need and a friend indeed. When it is very dark with us, let brave spirits say, "Come, let us sing the forty-sixth Psalm."
 
@@ -66,7 +66,7 @@ SELAH ends the vocal praise,
 
 Still your hearts to God upraise.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;The LXX referring to the notion of the theme (Mlu),&nbsp;*occultavit,*&nbsp;render it&nbsp;*uper twn krufiwn, for the hidden;*&nbsp;and the Latin,&nbsp;*pro arcanis;*&nbsp;and the rest of the ancient interpreters take the same course; the Chaldee referring it to&nbsp;*Coreh,*&nbsp;and those that were&nbsp;*hidden, i.e., swallowed up,*&nbsp;by the earth with him, whilst these&nbsp;*sons of Coreh*&nbsp;escaped; as if the mention of the&nbsp;*sons of Coreh*&nbsp;in the title, by whom this song was to be sung, referred the whole Psalm to that story. Accordingly, verse 2, when the Hebrew reads,&nbsp;*"Though the earth be removed, "*&nbsp;the paraphrase is,&nbsp;*"When our fathers were changed from the earth." Henry Hammond.*&nbsp;
 
@@ -166,7 +166,7 @@ On the rock of heavenly love.
 
 **Verse 11.**&nbsp;&nbsp;*The Lord of hosts is with us.*&nbsp;On Tuesday Mr. Wesley could with difficulty be understood, though he often attempted to speak. At last, with all the strength he had, he cried out, "The best of all is, God is with us." Again, raising his hand, and waving it in triumph, he exclaimed with thrilling effect, "The best of all is, God is with us." These words seem to express the leading feature of his whole life, God had been with him from early childhood; his providence had guided him through all the devious wanderings of human life; and now, when he was entering the "valley of the shadow of death, "the same hand sustained him.&nbsp;*From "Wesley and his Coadjutors. By Rev. W. C. Larrabee, A.M. Edited by Rev. B. F. Tefft, D.D. Cincinnati. 1851."*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;The song of faith in troublous times.
 

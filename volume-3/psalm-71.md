@@ -8,7 +8,7 @@ weight: 71
 
 **DIVISION.**&nbsp;The first four verses are faith's cry for help; the next four are a testimony of experience. From Ps 71:9-13, the aged saint pleads against his foes, and then rejoices in hope, Ps 71:14-16. He returns to prayer again in Ps 71:17-18, repeats the confident hopes which cheered his soul, Ps 71:19-21; and then he closes with the promise of abounding in thanksgiving. Throughout, this Psalm may be regarded as the utterance of struggling, but unstaggering, faith.
 
-## EXPOSITION
+## Exposition
 
 **Verse 2.**&nbsp;&nbsp;*Deliver me in thy righteousness, and cause me to escape.*&nbsp;Be true, O God, to thy word. It is a righteous thing in thee to keep the promises which thou hast made unto thy servants. I have trusted thee, and thou wilt not be unrighteous to forget my faith. I am taken as in a net, but do thou liberate me from the malice of my persecutors. Incline thine ear unto me, and save me. Stoop to my feebleness, and hear my faint whispers; be gracious to my infirmities, and smile upon me: I ask salvation; listen thou to my petitions, and save me. Like one wounded and left for dead by mine enemies, I need that thou bend over me and bind up my wounds. These mercies are asked on the plea of faith, and they cannot, therefore, be denied.
 
@@ -74,7 +74,7 @@ March in the triumph of his grace,
 
 Right onward to our rest."
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;This Psalm, which has no title in the Hebrew, in the LXX has the title,&nbsp;*By David, of the sons of Jonadab, and of those who were first made prisoners.*&nbsp;If any authority be allowed to this title, we must suppose that this was a Psalm written by David, which was used, as particularly adapted to the circumstances of their condition, by the Rechabites, who were descended from Jonadab (Jeremiah 35), and the Jews, who were taken by the Chaldeans as captives to Babylon. However this may be, it seems probable that David was the author of this Psalm, and that he wrote it in his extreme age, and but a little while before he died. The line which follows the next Psalm, and closes the second book, perhaps has a reference to this fact. Some of the Fathers interpret the Psalm mystically of the church in her old age, and her trials at the end of the world.&nbsp;*"Plain Commentary."*&nbsp;
 
@@ -288,7 +288,7 @@ Into a seraph's song.
 
 **Verse 23.**&nbsp;&nbsp;*Greatly.*&nbsp;See how the word great is repeated. Great things done, Ps 71:19; great troubles shown, Ps 71:20; greatness increased, Ps 71:21; and great rejoicing consequent thereon, in Ps 71:23. In a great God, doing great things, it is meet greatly to rejoice.&nbsp;*C. H. S.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 Arguments used to induce to Lord to hear, drawn,
 
@@ -480,7 +480,7 @@ Arguments used to induce to Lord to hear, drawn,
 
 **Verse 24.**&nbsp;How to make familiar talk edifying and useful.
 
-## WORK UPON THE SEVENTY-FIRST PSALM
+## Works Upon The Seventy-First Psalm
 
 Hieronymi Savonarolae Ferrariensis Meditationes in Psalmos—&nbsp;*Miserere—In Te Domine Speravi, et Qui Regis Israel (12mo. Leyden: 1633).*&nbsp;
 

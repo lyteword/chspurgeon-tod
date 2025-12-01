@@ -8,7 +8,7 @@ We know not by whom this Psalm was written, but we do know that it was sung in S
 
 It commences with a threefold praise to the&nbsp;*Triune Lord*&nbsp;(Ps 136:1-3), then it gives us six notes of praise to&nbsp;*the Creator*&nbsp;(Ps 136:4-9), six more upon&nbsp;*deliverance from Egypt*&nbsp;(Ps 134:10-15), and seven upon&nbsp;*the journey through the wilderness*&nbsp;and&nbsp;*the entrance into Canaan.*&nbsp;Then we have two happy verses of&nbsp;*personal gratitude for present mercy*&nbsp;(Ps 134:23-24), one (Ps 134:25) to tell of the Lord's universal providence, and a closing verse to excite to&nbsp;*never ending praise.>*&nbsp;
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*O give thanks unto the LORD.*&nbsp;The exhortation is intensely earnest: the Psalmist pleads with the Lord's people with an "O", three times repeated. Thanks are the least that we can offer, and these we ought freely to give. The inspired writer calls us to praise Jehovah for all his goodness to us, and all the greatness of his power in blessing his chosen. We thank our parents, let us praise our heavenly Father; we are grateful to our benefactors, let us give thanks unto the Giver of all good. For he is good. Essentially he is goodness itself, practically all that he does is good, relatively he is good to his creatures. Let us thank him that we have seen, proved, and tasted that he is good. He is good beyond all others: indeed, he alone is good in the highest sense; he is the source of good, the good of all good, the sustainer of good, the perfecter of good, and the rewarder of good. For this he deserves the constant gratitude of his people. For his mercy endureth for ever. We shall have this repeated in every verse of this song, but not once too often. It is the sweetest stanza that a man can sing. What joy that there is mercy, mercy with Jehovah, enduring mercy, mercy enduring for ever. We are ever needing it, trying it, praying for it, receiving it: therefore let us for ever sing of it.
 
@@ -192,7 +192,7 @@ Ever faithful, ever sure."
 
 O thou who changest not, abide with me."
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;This Psalm was very probably composed by David, and given to the Levites to sing every day: 1Ch 16:41. Solomon his son followed his example, and made use of it in singing at the dedication of the Temple (2Ch 7:3-6); as Jehoshaphat seems to have done when he went out to war against his enemies (2Ch 20:21).—&nbsp;*John Gill.*&nbsp;
 
@@ -494,7 +494,7 @@ I might draw considerations (for thanksgiving) from the&nbsp;*Author*&nbsp;of th
 
 **Verse 26.**&nbsp;&nbsp;*O give thanks unto the God of heaven.*&nbsp;His mercy in providing heaven for his people is more than all the rest.—&nbsp;*John Trapp.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;
 

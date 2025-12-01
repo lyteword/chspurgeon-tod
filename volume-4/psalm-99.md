@@ -6,7 +6,7 @@ weight: 99
 
 This may be called THE SANCTUS, or, THE HOLY, HOLY, HOLY PSALM, for the word "holy" is the conclusion and the refrain of its three main divisions. Its subject is the holiness of the divine government, the sanctity of the mediatorial reign. It seems to us to declare the holiness of Jehovah himself in Ps 99:1-3; it mentions the equity of the king whom the Lord had appointed, as an illustration of the Lord's love of holiness, or more probably it describes the Lord as himself the king, in Ps 99:4-5, and it then sets forth the severely righteous character of God's dealings with those favoured persons whom in former times he had selected to approach him on behalf of the people, Ps 99:6-9. It is a hymn fitted for the cherubim who surround the throne, who are mentioned in Ps 99:1; it is a Psalm most fitting for saints who dwell in Zion, the holy city, and especially worthy to be reverently sung by all who, like David the king, Moses the lawgiver, Aaron the priest, or Samuel the seer, are honoured to lead the church of God, and plead for her with her Lord.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*The Lord reigneth.*&nbsp;One of the most joyous utterances which ever leaped from mortal lip. The overthrow of the reign of evil and the setting up of Jehovah's kingdom of goodness, justice, and truth, is worthy to be hymned again and again, as we have it here for the third time in the psalms. Let the people tremble. Let the chosen people feel a solemn yet joyful awe, which shall thrill their whole manhood. Saints quiver with devout emotion, and sinners quiver with terror when the rule of Jehovah is fully perceived and felt. It is not a light or trifling matter, it is a truth which, above all others, should stir the depths of our nature. He sitteth between the cherubims. In grandeur of sublime glory, yet in nearness of mediatorial condescension, Jehovah revealed himself above the mercyseat, whereon stood the likeness of those flaming ones who gaze upon his glory, and for ever cry, "Holy, Holy, Holy, Lord God of hosts." The Lord reigning on that throne of grace which is sprinkled with atoning blood, and veiled with the covering wings of mediatorial love, is above all other revelations wonderful, and fitted to excite emotion among all mankind, hence it is added, Let the earth be moved. Not merely "the people, "but the whole earth should feel a movement of adoring awe when it is known that on the mercyseat God sits as universal monarch. The pomp of heaven surrounds him, and is symbolised by the outstretched wings of waiting cherubs; let not the earth be less moved to adoration, rather let all her tribes bow before his infinite majesty, yea, let the solid earth itself with reverent tremor acknowledge his presence.
 
@@ -26,7 +26,7 @@ This may be called THE SANCTUS, or, THE HOLY, HOLY, HOLY PSALM, for the word "ho
 
 **Verse 9.**&nbsp;&nbsp;*Exalt the LORD our God.*&nbsp;A second time the delightful title of Jehovah our God is used, and it is quickly followed by a third. The Psalm is Trinitarian in its whole structure. In each of his sacred persons the Lord is the God of his people; the Father is ours, the Son is ours, and the Holy Spirit is ours: let us exalt him with all our ransomed powers. And worship at his holy hill. Where he appoints his temple let us resort. No spot of ground is now fenced about as peculiarly holy, or to be regarded as more sacred than another; yet his visible church is his chosen hill, and there would we be found, numbered with his people, and unite with them in worship. For the LORD our God is holy. Again this devout description is repeated, and made the climax of the song. Oh for hearts made pure within, so that we may rightly perceive and worthily praise the infinite perfection of the Triune Lord.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;This psalm has three parts, in which the Lord is celebrated as He who is to come, as He who is, and as he who was.&nbsp;*John Albert Bengel,*&nbsp;1687-1752.
 
@@ -120,7 +120,7 @@ Thus he connects "hory" with Jehovah's footstool, mentioned in the preceding cla
 
 **Verse 8.**&nbsp;&nbsp;*Vengeance of their inventions.*&nbsp;It is remarkable, that in the preceding verses mention is made of Moses, and Aaron, and Samuel in a way which seems to imply that they were upon the psalmist's mind when he uttered the declaration of the text. These three persons, all eminent for their piety, were also conspicuous for having suffered the Divine displeasure on account of their failings. Moses angered the Lord at the waters of strife, and he is not suffered to enter the promised land; Aaron provoked the Divine anger by making the golden calf, and would have been destroyed, had not Moses by fervent intercession turned away the anger of the Lord lest he should destroy him; so Samuel placed his sons over Israel, who walked not in his ways, and therefore God gave Israel a king, whose crimes caused the prophet to go down with sorrow to the grave.&nbsp;*Stephen Bridge,*&nbsp;1852.
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;
 
@@ -214,7 +214,7 @@ Thus he connects "hory" with Jehovah's footstool, mentioned in the preceding cla
 
 **Verse 9.**&nbsp;&nbsp;*The Lord our God.*&nbsp;A very sweet topic will be found in the consideration of the questions, "In what respect is Jehovah ours? and in what relations does he stand to his people?"
 
-## WORK UPON THE NINETY-NINTH PSALM
+## Works Upon The Ninety-Ninth Psalm
 
 In "The Golden Diary of Heart Converse with Jesus in the Book of Psalms." By the Rev. Dr. EDERSHEIM, Tarquay. Arranged for every Sunday in the year. Re-issue. 1873. There are expositions of Psalms 99, 101, and 102.
 

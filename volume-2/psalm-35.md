@@ -8,7 +8,7 @@ weight: 35
 
 **DIVISIONS.**&nbsp;The most natural mode of dividing this Psalm is to note its triple character. Its complaint, prayer, and promise of praise are repeated with remarkable parallelism three times, even as our Lord in the Garden prayed three times using the same words. The first portion occupies verse 1 to 10, the second from 11-18, and the last from 19 to the close; each section ending with a note of grateful song.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*"Plead my cause, O Lord, with them that strive with me."*&nbsp;Plead against those who plead against me; strive with my strivers; contend with my contenders. If they urge their suit in the law-court, Lord, meet them there, and beat them at their own weapons. Every saint of God shall have this privilege: the accuser of the brethren shall be met by the Advocate of the saints.&nbsp;*"Fight against them that fight against me."*&nbsp;If my adversaries try force as well as fraud, be a match for them; oppose thy strength to their strength. Jesus does this for all his beloved—for them he is both intercessor and champion; whatever aid they need they shall receive from him, and in whatever manner they are assaulted they shall be effectually defended. Let us not fail to leave our case into the Lord's hand. Vain is the help of man, but ever effectual is the interposition of heaven. What is here asked for as a boon, may be regarded as a promise, to all the saints; in judgment they shall have a divine advocate, in warfare a divine protection.
 
@@ -72,7 +72,7 @@ That what he does is always best."
 
 **Verse 28.**&nbsp;Unceasing praise is here vowed to the just and gracious God. From morning till evening the grateful tongue would talk and sing, and glorify the Lord. O for such a resolve carried out by us all!
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;Bonar entitles this Psalm,&nbsp;*"The awful utterance of the Righteous One regarding those that hate him without cause;"*&nbsp;and he makes the following remarks thereupon:—"Throughout the endless day of eternity the Lord Jesus shall himself speak the Father's 'praise,' and shall put marked emphasis on his '&nbsp;*righteousness*&nbsp;'—that righteousness which shall have been exhibited, both in the doom of those who hated the offered Redeemer, and in the salvation of those who received him. There is nothing in all this wherein his own may not fully join, especially on that day when their views of justice shall be far clearer and fuller than now. On that day we shall be able to understand how Samuel could hew Agag in pieces, and the godly hosts of Israel slay utterly in Canaan man and woman and child, at God's command. We shall be able, not only fully to agree in the doom, 'Let them be confounded,' etc., but even to sing, 'Amen, Hallelujah,' over the smoke of torment. Rev. 19:1, 2. We should in some measure now be able to use every verse of this Psalm in the spirit in which&nbsp;*the Judge*&nbsp;speaks it, we feeling ourselves his assessors in judging the world. 1Cor. 6:2. We shall, at all events, be able to use it on that day when what is written here shall be all accomplished."—&nbsp;*Andrew A. Bonar.*&nbsp;
 
@@ -224,7 +224,7 @@ Then bee not silent soe, nor farr from mee.
 
 **Verse 28.**&nbsp;&nbsp;*"My tongue shall speak of thy righteousness and of thy praise all the day long."*&nbsp;See now I have made a discourse something longer; ye are wearied. Who endureth to praise God all the day long? I will suggest a remedy whereby thou mayest praise God all the day long if thou wilt. Whatever thou dost, do well, and thou hast praised God. When thou singest a hymn, thou praisest God, but what doth thy tongue, unless thy heart also praise him? Hast thou ceased from singing hymns, and departed that thou mayest refresh thyself? Be not drunken, and thou hast praised God. Dost thou go away to sleep? Rise not to do evil, and thou hast praised God. Dost thou transact business? Do no wrong, and thou hast praised God. Dost thou till thy field? Raise not strife, and thou hast praised God. In the innocency of thy works prepare thyself to praise God all the day long.—&nbsp;*Augustine.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;Jesus our Advocate and Champion; our friend in the courts of heaven and the battles of earth.
 

@@ -8,7 +8,7 @@ weight: 66
 
 **SUBJECT AND DIVISION.**&nbsp;Praise is the topic, and the subjects for song are the Lord's great works, his gracious benefits, his faithful deliverances, and all his dealings with his people, brought to a close by a personal testimony to special kindness received by the prophet bard himself. Ps 66:1-4 are a kind of introductory hymn, calling upon all nations to praise God, and dictating to them the words of a suitable song. Ps 66:5-7 invite the beholder to&nbsp;*"Come and see"*&nbsp;the works of the Lord, pointing attention to the Red Sea, and perhaps the passage of Jordan. This suggests the similar position of the afflicted people which is described, and its joyful issue predicted, Ps 66:8-12. The singer then becomes personal, and confesses his own obligations to the Lord (Ps 66:13-15); and, bursting forth with a vehement&nbsp;*"Come and hear, "*&nbsp;declares with thanksgiving the special favour of the Lord to himself, Ps 66:16-20.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Make a joyful noise unto God.*&nbsp;"In Zion, "where the more instructed saints were accustomed to profound meditation, the song was silent unto God, and was accepted of him; but in the great popular assemblies a joyful noise was more appropriate and natural, and it would be equally acceptable. If praise is to be wide spread, it must be vocal; exulting sounds stir the soul and cause a sacred contagion of thanksgiving. Composers of tunes for the congregation should see to it that their airs are cheerful; we need not so much noise, as&nbsp;*joyful*&nbsp;noise. God is to be praised with the voice, and the heart should go therewith in holy exultation. All praise from all nations should be rendered unto the Lord. Happy the day when no shouts shall be presented to Juggernaut or Boodh, but all the earth shall adore the Creator thereof. All ye lands. Ye heathen nations, ye who have not known Jehovah hitherto, with one consent let the whole earth rejoice before God. The languages of the lands are many, but their praises should be one, addressed to one only God.
 
@@ -72,7 +72,7 @@ How wealthy is the place of every believer, and how doubly does he feel it to be
 
 **Verse 20.**&nbsp;&nbsp;*Blessed be God.*&nbsp;Be his name honoured and loved.&nbsp;*Which hath not turned away my prayer, nor his mercy from me.*&nbsp;He has neither withdrawn his love nor my liberty to pray. He has neither cast out my prayer nor me. His mercy and my cries still meet each other. The psalm ends on its key note. Praise all through is its spirit and design. Lord enable us to enter into it. Amen.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;This Psalm is said to be recited on Easter day, by the Greek church: it is described in the Greek Bible as&nbsp;*A Psalm of the Resurrection,*&nbsp;and may be understood to refer, in a prophetic sense, to the regeneration of the world, through the conversion of the Gentiles.&nbsp;*Daniel Cresswell.*&nbsp;
 
@@ -250,7 +250,7 @@ So there is the deliverer,&nbsp;*aliquid celsitudinis, Thou; *&nbsp;in the deliv
 
 **Verses 18-20.**&nbsp;Lord, I find David making a syllogism, in mood and figure, two propositions he perfected.&nbsp;*If I regard iniquity in my heart, the Lord will not hear me; but verily God hath heard me; he hath attended to the voice of my prayer.*&nbsp;Now I expected that David should have concluded thus: "Therefore I regard not wickedness in my heart; but far otherwise he concludes":&nbsp;*Blessed be God, which hath not turned away my prayer, nor his mercy from me.*&nbsp;Thus David had deceived, but not wronged me. I looked that he should have clapped the crown on his own, and he puts it on God's head. I will learn this excellent logic; for I like David's better than Aristotle's syllogisms, that whatsoever the premise be, I make God's glory the conclusion.&nbsp;*Thomas Fuller.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 3.**&nbsp;The terrible in God's works of nature and providence.
 
@@ -456,7 +456,7 @@ Or
 
 3\.In hearing prayer.
 
-## WORK UPON THE SIXTY-SIXTH PSALM
+## Works Upon The Sixty-Sixth Psalm
 
 "A fourth Proceeding in the Harmony of King David's Harp. That is&nbsp;*to say; A Godly and learned Exposition of six Psalms more of the princely Prophet David, beginning with the 62, and ending with the 67, Psalm."*&nbsp;Done in Latin by the reverend Doctor VICTORINUS STRIGELIUS, Professor of Diunitie in the university of Lypsia in Germany, Anno 1562. Translated into English by Richard Robinson, Citizen of London. 1596... London... 1596.
 

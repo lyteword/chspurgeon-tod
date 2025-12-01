@@ -10,7 +10,7 @@ We do not assert that David wrote this Psalm, but we have as much ground for doi
 
 **DIVISION.**&nbsp;First we have a song of holy confidence (Ps 125:1-2); then a promise, Ps 125:3; followed by a prayer, Ps 125:4; and a note of warning.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*They that trust in the LORD shall be as mount Zion.*&nbsp;The emphasis lies upon the object of their trust, namely, Jehovah the Lord. What a privilege to be allowed to repose in God] How condescending is Jehovah to become the confidence of his people! To trust elsewhere is vanity; and the more implicit such misplaced trust becomes the more bitter will be the ensuing disappointment; but to trust in the living God is sanctified common sense which needs no excuse, its result shall be its best vindication. There is no conceivable reason why we should not trust in Jehovah, and there is every possible argument for so doing; but, apart from all argument, the end will prove the wisdom of the confidence. The result of faith is not occasional and accidental; its blessing comes, not to some who trust, but to all who trust in the Lord. Trusters in Jehovah shall be as fixed, firm, and stable as the mount where David dwelt, and where the ark abode. To move mount Zion was impossible: the mere supposition was absurd. Which cannot be removed, but abideth for ever. Zion was the image of eternal steadfastness,—this hill which, according to the Hebrew, "sits to eternity, "neither bowing down nor moving to and fro. Thus doth the trusting worshipper of Jehovah enjoy a restfulness which is the mirror of tranquillity; and this not without cause, for his hope is sure, and of his confidence he can never be ashamed. As the Lord sitteth King for ever, so do his people sit enthroned in perfect peace when their trust in him is firm. This is, and is to be our portion; we are, we have been, we shall be as steadfast as the hill of God. Zion cannot be removed, and does not remove; so the people of God can neither be moved passively nor actively, by force from without or fickleness from within. Faith in God is a settling and establishing virtue; he who by his strength setteth fast the mountains, by that same power stays the hearts of them that trust in him. This steadfastness will endure "for ever, "and we may be assured therefore that no believer shall perish either in life or in death, in time or in eternity. We trust in an eternal God, and our safety shall be eternal.
 
@@ -22,7 +22,7 @@ We do not assert that David wrote this Psalm, but we have as much ground for doi
 
 **Verse 5.**&nbsp;&nbsp;*As for such as turn aside unto their crooked ways, the LORD shall lead them forth with the workers of iniquity.*&nbsp;Two kinds of men are always to be found, the upright and the men of crooked ways. Alas, there are some who pass from one class to another, not by a happy conversion, turning from the twisting lanes of deceit into the highway of truth, but by an unhappy declension leaving the main road of honesty and holiness for the bypaths of wickedness. Such apostates have been seen in all ages, and David knew enough of them; he could never forget Saul, and Ahithophel, and others. How sad that men who once walked in the right way should turn aside from it! Observe the course of the false hearted: first, they look out for crooked ways; next, they choose them and make them "their crooked ways"; and then they turn aside into them. They never intend to go back unto perdition, but only to make a curve and drop into the right road again. The straight way becomes a little difficult, and so they make a circumbendibus, which all along aims at coming out right, though it may a little deviate from precision. These people are neither upright in heart, nor good, nor trusters in Jehovah, and therefore the Lord will deal otherwise with them than with his own people: when execution day comes these hypocrites and time servers shall be led out to the same gallows as the openly wicked. All sin will one day be expelled the universe, even as criminals condemned to die are led out of the city; then shall secret traitors find themselves ejected with open rebels. Divine truth will unveil their hidden pursuits, and lead them forth, and to the surprise of many they shall be set in the same rank with those who avowedly wrought iniquity. But peace shall be upon Israel. In fact the execution of the deceivers shall tend to give the true Israel peace. When God is smiting the unfaithful not a blow shall fall upon the faithful. The chosen of the Lord shall not only be like Salem, but they shall have salem, or peace. Like a prince, Israel has prevailed with God, and therefore he need not fear the face of man; his wrestlings are over, the blessing of peace has been pronounced upon him. He who has peace with God may enjoy peace concerning all things. Bind the first and last verses together: Israel trusts in the Lord Ps 125:1, and Israel has peace Ps 125:5.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;In the degrees of Christian virtue, this psalm represents the sixth step—the confidence which the Christian places in the Lord. "It teacheth us, while we ascend and raise our minds unto the Lord our God in loving charity and piety, not to fix our gaze upon men who are prosperous in the world with a false happiness." (Augustine.)—&nbsp;*H. T. Armfield, in "The Gradual Psalms,"*&nbsp;1874.
 
@@ -128,7 +128,7 @@ Here, then, consider how the lottery of Canaan may shadow out to us that blessed
 
 **Verse 5.**&nbsp;&nbsp;*Israel.*&nbsp;The Israelites derived their joint names from the two chief parts of religion: Israelites, from Israel, whose prayer was his "strength" (Ho 12:3), and Jews, from Judah, whose name means "praise."—&nbsp;*George Seaton Bowes, in "Illustrative Gatherings,"*&nbsp;1869.
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Whole Psalm.**&nbsp;
 
@@ -272,7 +272,7 @@ c) They walk in the way of peace.
 
 —&nbsp;*J. Field.*&nbsp;
 
-## WORK UPON THE HUNDRED AND TWENTY-FIFTH PSALM
+## Works Upon The Hundred And Twenty-Fifth Psalm
 
 For lists of Works upon the Psalms of Degrees, see note for .
 

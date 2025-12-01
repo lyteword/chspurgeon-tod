@@ -10,7 +10,7 @@ The first verses are full of joyful praise, and call upon the people to extol Je
 
 We are now among the long Psalms, as at other times we have been among the short ones. These varying lengths of the sacred poems should teach us not to lay down any law either of brevity or prolixity in either prayer or praise. Short petitions and single verses of hymns are often the best for public occasions, but there are seasons when a whole night of wrestling or an entire day of psalm slinging will be none too long. The Spirit is ever free in his operations, and is not to be confined with, the rules of conventional propriety. The wind bloweth as it listeth, and at one time rushes in short and rapid sweep, while at another it continues to refresh the earth hour after hour with its reviving breath.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;O give thanks unto the Lord. Jehovah is the author of all our benefits, therefore let him have all our gratitude. Call upon his name, or call him by his name; proclaim his titles and fill the world with his renown. Make known his deeds among the people, or among the nations. Let the heathen hear of our God, that they may forsake their idols and learn to worship him. The removal of the ark was a fit occasion for proclaiming aloud the glories of the Great King, and for publishing to all mankind the greatness of his doings, for it had a history in connection with the nations which it was well for them to remember with reverence. The rest of the psalm is a sermon, of which these first verses constitute the text.
 
@@ -120,7 +120,7 @@ So has the promise been fulfilled to us, "the sun shall not hurt thee by day, no
 
 **Verse 45.**&nbsp;&nbsp;*That they might observe his statutes, and keep his laws.*&nbsp;This was the practical design of it all. The chosen nation was to be the conservator of truth, the exemplar of morality, the pattern of devotion: everything was so ordered as to place them in advantageous circumstances for fulfilling this trust. Theirs was a high calling and a glorious election. It involved great responsibilities, but it was in itself a distinguished blessing, and one for which the nation was bound to give thanks. Most justly then did the music close with the jubilant but solemn shout of HALLELUJAH. Praise ye the Lord. If this history did trot make Israel praise God, what would?
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;This is the first of a series of&nbsp;*"Confitemini Domino"*&nbsp;Psalms, "O give thanks unto the Lord" (Ps 105:1 106:1 107:1 108:1 136:1)—&nbsp;*Christopher Wordsworth.*&nbsp;
 
@@ -406,7 +406,7 @@ From sacred word once to his Abraham given.
 
 **Verse 44.**&nbsp;&nbsp;*They inherited the labour of the people.*&nbsp;In like manner the heavenly Canaan is enjoyed by the saints without any labour of theirs; this inheritance is not of the law, nor of the works of it; it is the gift of God. Ro 4:14 6:23.&nbsp;*John Gill.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1. **&nbsp;
 

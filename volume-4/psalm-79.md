@@ -8,7 +8,7 @@ weight: 79
 
 **DIVISION.**&nbsp;&nbsp;*From Ps 79:1-4 the complaint is poured out, from Ps 79:5-12 prayer is presented, and, in the closing verse, praise is promised.*&nbsp;
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*O God, the heathen are come into thine inheritance.*&nbsp;It is the cry of amazement at sacrilegious intrusion; as if the poet were struck with horror. The stranger pollutes thine hallowed courts with his tread. All Canaan is thy land, but thy foes have ravaged it.&nbsp;*"Thy holy temple have they defiled."*&nbsp;Into the inmost sanctuary they have profanely forced their way, and there behaved themselves arrogantly. Thus, the holy land, the holy house, and the holy city, were all polluted by the uncircumcised. It is an awful thing when wicked men are found in the church and numbered with her ministry. Then are the tares sown with the wheat, and the poisoned gourds cast into the pot.&nbsp;*"They have laid Jerusalem on heaps."*&nbsp;After devouring and defiling, they have come to destroying, and have done their work with a cruel completeness. Jerusalem, the beloved city, the joy of the nation, the abode of her God, was totally wrecked. Alas! alas! for Israel! It is sad to see the foe in our own house, but worse to meet him in the house of God; they strike hardest who smite at our religion. The psalmist piles up the agony; he was a suppliant, and he knew how to bring out the strong points of his case. We ought to order our case before the Lord with as much care as if our success depended on our pleading. Men in earthly courts use all their powers to obtain their ends, and so also should we state our case with earnestness, and bring forth our strong arguments.
 
@@ -36,7 +36,7 @@ weight: 79
 
 **Verse 13.**&nbsp;&nbsp;*"So we thy people and sheep of thy pasture will give thee thanks far ever; we will shew forth thy praise to all generations."*&nbsp;The gratitude of the church is lasting as well as deep. On her tablets are memorials of great deliverances, and, as long as she shall exist, her sons will rehearse them with delight. We have a history which will survive all other records, and it is bright in every line with the glory of the Lord. From the direst calamities God's glory springs, and the dark days of his people become the prelude to unusual displays of the Lord's love and power.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;This Psalm is, in every respect, the pendant of Psalm 74. The points of contact are not merely matters of style (Ps 79:5, "how long for ever?" with Ps 74:1,10 79:10, edwy, with Ps 74:5 79:2, the giving over to the wild beasts, with Ps 74:19,14 79:13, the conception of Israel as of a flock, in which respect Psalm 79 is judiciously appended to Ps 78:70-72, with Ps 74:1 and also with Ps 74:19.) But the mutual relationships lie still deeper. Both Psalms have the same Asaphic stamp, both stand in the same relation to Jeremiah, and both send forth their complaints out of the same circumstances of the time, concerning a destruction of the Temple and of Jerusalem, such as only the age of the Seleucidae (1 Maccabees 1:31 3:45 2 Maccabees 8:3), together with the Chaldean period can exhibit, and in conjunction with a defiling of the Temple and a massacre of the servants of God, of the&nbsp;*Chasîdîm*&nbsp;(1 Maccabees 7:13 14:6), such as the age of the Seleucidae exclusively can exhibit. The work of the destruction of the Temple which was in progress in Ps 74:1-23, appears in Ps 79:1-13 as completed, and here, as in the former Psalm, one receives the impression of the outrages, not of some war, but of some persecution: it is straightway the religion of Israel for the sake of which the sanctuaries are destroyed and the faithful are massacred.—&nbsp;*Franz Delitzsch.*&nbsp;
 
@@ -130,7 +130,7 @@ Is even on him there.
 
 **Verse 12.**&nbsp;&nbsp;*"Into their bosom."*&nbsp;An expression which originally seems to have had reference to the practice of carrying and holding things in the lap, or the front fold of the flowing oriental dress, has in usage the accessory sense of retribution or retaliation.—&nbsp;*Joseph Addison Alexander*&nbsp;.
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 4.**&nbsp;Saints the subject of derision to sinners. When justly so. When unjustly. What do they see to excite ridicule; what shall we do under the trial; how will it end?
 
@@ -212,7 +212,7 @@ III. Resolution formed.
 
 2\.To transmit his praise to generations following.—&nbsp;*G. R*&nbsp;
 
-## WORK UPON THE SEVENTY-NINTH PSALM
+## Works Upon The Seventy-Ninth Psalm
 
 "Prodromus, or the Literal Destruction of Jerusalem as it is&nbsp;*described in the 79th Psalm...1613"*&nbsp;(By JOHN DUNSTER.)
 

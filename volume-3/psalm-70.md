@@ -6,7 +6,7 @@ weight: 70
 
 **TITLE.**&nbsp;&nbsp;*To the Chief Musician, A Psalm of David.*&nbsp;So far the title corresponds with Psalm 40, of which this is a copy with variations. David appears to have written the full length Psalm, and also to have made this excerpt from it, and altered it to suit the occasion. It is a fit pendant to Psalm 69, and a suitable preface to Psalm 71.&nbsp;*To bring to remembrance.*&nbsp;This is the poor man's memorial. David personally pleads with God that he may not be forgotten, but David's Lord may be heard here also. Even if the Lord seems to forget us, we must not forget him. This memorial Psalm acts as a connecting link between the two Psalms of supplicatory expostulation, and makes up with them a precious triad of song.
 
-## EXPOSITION
+## Exposition
 
 (The Reader is referred for full  to Ps 40:13-17, in&nbsp;*"Treasury of David, "Vol. 2, pp 267-268.*&nbsp;)
 
@@ -52,7 +52,7 @@ And those who thy salvation prize,
 
 I will magnify thy matchless grace.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Verse 2.**&nbsp;&nbsp;*Let them be confounded;*&nbsp;viz., among themselves, and in their own understandings:&nbsp;*and put to shame;*&nbsp;viz., in the sight and presence of men before whom they think to attain great glory, in banding themselves against me.&nbsp;*Thomas Wilcocks.*&nbsp;
 
@@ -70,7 +70,7 @@ I will magnify thy matchless grace.
 
 **Verse 5.**&nbsp;(&nbsp;*third clause*&nbsp;).&nbsp;*Helper,*&nbsp;in all good works;&nbsp;*Deliverer,*&nbsp;from all evil ones.&nbsp;*Make no long tarrying:*&nbsp;it is the cry of the individual sinner.&nbsp;*Dionysius the Carthusian (1471) quoted in Neale and Littledale's Commentary.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;
 

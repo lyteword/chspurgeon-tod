@@ -8,7 +8,7 @@ TITLE. *This Psalm is headed* "To the Chief Musician upon Sheminith, a Psalm of 
 
 DIVISION. *In the first and second verses David spreads his plaint* before the Lord concerning the treachery of his age; verses 3 and 4 denounce judgments upon proud traitors; in verse 5, Jehovah himself thunders out his wrath against oppressors; hearing this, the Chief Musician sings sweetly of the faithfulness of God and his care of his people, in verses 6 and 7; but closes on the old key of lament in verse 8, as he observes the abounding wickedness of his times. Those holy souls who dwell in Mesech, and sojourn in the tents of Kedar, may read and sing these sacred stanzas with hearts in full accord with their mingled melody of lowly mourning and lofty confidence. 
 
-## EXPOSITION 
+## Exposition
 
 *Verse* 1. *"Help, Lord."* A short but sweet, suggestive, seasonable, and serviceable prayer; a kind of angel's sword, to be turned every way, and to be used on all occasions. Ainsworth says the word rendered "help," is largely used for all manner of saving, helping, delivering, preserving, etc. Thus it seems that the prayer is very full and instructive. The Psalmist sees the extreme danger of his position, for a man had better be among lions than among liars; he feels his own inability to deal with such sons of Belial, for "he who shall touch them must be fenced with iron;" he therefore turns himself to his all-sufficient Helper, the Lord, whose help is never denied to his servants, and whose aid is enough for all their needs. *"Help, Lord,"* is a very useful ejaculation which we may dart up to heaven on occasions of emergency, whether in labour, learning, suffering, fighting, living, or dying. As small ships can sail into harbours which larger vessels, drawing more water, cannot enter, so our brief cries and short petitions may trade with heaven when our soul is wind-bound, and business-bound, as to longer exercises of devotion, and when the stream of grace seems at too low an ebb to float a more laborious supplication. *"For the godly man* ceaseth;"the death, departure, or decline of godly men should be a trumpet-call for more prayer. They say that fish smell first at the head, and when godly men decay, the whole commonwealth will soon go rotten. We must not, however, be rash in our judgment on this point, for Elijah erred in counting himself the only servant of God alive, when there were thousands whom the Lord held in reserve. The present times always appear to be peculiarly dangerous, because they are nearest to our anxious gaze, and whatever evils are rife are sure to be observed, while the faults of past ages are further off, and are more easily overlooked. Yet we expect that in the latter days, "because iniquity shall abound, the love of many shall wax cold," and then we must the more thoroughly turn from man, and address ourselves to the Churches' Lord, by whose help the gates of hell shall be kept from prevailing against us. *"The faithful fail from among the* children of men;"when godliness goes, faithfulness inevitably follows; without fear of God, men have no love of truth. Common honesty is no longer common, when common irreligion leads to universal godlessness. David had his eye on Doeg, and the men of Ziph and Keilah, and perhaps remembered the murdered priests of Nob, and the many banished ones who consorted with him in the cave of Adullam, and wondered where the state would drift without the anchors of its godly and faithful men. David, amid the general misrule, did not betake himself to seditious plottings, but to solemn petitionings; nor did he join with the multitude to do evil, but took up the arms of prayer to withstand their attacks upon virtue. 
 
@@ -24,7 +24,7 @@ Verse 7. To fall into the hands of an evil generation, so as to be baited by the
 
 Verse 8. Here we return to the fount of bitterness, which first made the psalmist run to the wells of salvation, namely, the prevalence of wickedness. When those in power are vile, their underlings will be no better. As a warm sun brings out noxious flies, so does a sinner in honour foster vice everywhere. Our turf would not so swarm with abominables if those who are styled honourables did not give their countenance to the craft. Would to God that the glory and triumph of our Lord Jesus would encourage us to walk and work on every side; as like acts upon like, since an exalted sinner encourages sinners, our exalted Redeemer must surely excite, cheer, and stimulate his saints. Nerved by a sight of his reigning power we shall meet the evils of the times in the spirit of holy resolution, and shall the more hopefully pray, "Help, Lord." 
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS 
+## Explanatory Notes & Quaint Sayings
 
 *Verse* 1. *"Help, Lord."* 'Twas high time to call to heaven for help, when Saul cried, "Go, kill me up the priests of Jehovah" (the occasion as it is thought of making this Psalm), and therein committed the sin against the Holy Ghost, as some grave divines are of opinion. 1 Samuel 22:17. David, after many sad thoughts about that slaughter, and the occasion of it, Doeg's malicious information, together with the paucity of his fast friends, and the multitude of his sworn enemies at court, breaks forth abruptly into these words, *"Help, Lord,"* help at a dead lift. The Arabic version hath it, *Deliver me by main force,* as with weapons of war, for "the Lord is a man of war." Exodus 15:3. *John* Trapp. 
 
@@ -92,7 +92,7 @@ Verse 8. Here we return to the fount of bitterness, which first made the psalmis
 
 *Verse* 8. Good thus translates this verse:— Should the wicked advance on every side; Should the dregs of the earth be uppermost? The original is given literally. (Heb.) means "foeces, foeculences, dregs. (Heb.) is here an adverb, and imports *uppermost* , rather than *exalted* . *J. Mason Good, in loc.* 
 
-## HINTS TO THE VILLAGE PREACHER 
+## Hints to the Village Preacher
 
 *Verse* 1. *"Help, Lord."* I. The Prayer itself, short, suggestive, seasonable, rightly directed, vehement. II. Occasions for its use. III. Modes of its answer. IV. Reasons for expecting gracious reply. 
 
@@ -122,6 +122,6 @@ Verse 8. Here we return to the fount of bitterness, which first made the psalmis
 
 *Verse* 8. *Sin in high places specially infectious.* Call to the rich and prominent to remember their responsibility. Thankfulness for honourable rulers. Discrimination to be used in choice of our representatives, or civic magistrates. 
 
-## WORK UPON THE TWELFTH PSALM 
+## Works Upon The Twelfth Psalm
 
 In *"A Godly Meditation upon XX select Psalms* By Sir ANTHONY COPE, Knight, 1547," a thin black letter 4to., is an Exposition, or rather Meditation, on this Psalm. Reprinted 1848. 

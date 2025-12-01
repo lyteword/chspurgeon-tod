@@ -10,7 +10,7 @@ weight: 31
 
 **DIVISION.**&nbsp;There are no great lines of demarcation; throughout the strain undulates, falling into valleys of mourning, and rising with hills of confidence. However, we may for convenience arrange it thus: David testifying his confidence in God pleads for help, Ps 31:1-6; expresses gratitude for mercies received, Ps 31:7-8; particularly describes his case, Ps 31:9-13; vehemently pleads for deliverance, Ps 31:14-18; confidently and thankfully expects a blessing, Ps 31:19-22; and closes by showing the bearing of his case upon all the people of God.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*In thee, O Lord, do I put my trust.*&nbsp;Nowhere else do I fly for shelter, let the tempest howl as it may. The psalmist has one refuge, and that the best one. He casts out the great sheet anchor of his faith in the time of storm. Let other things be doubtful, yet the fact that he relies on Jehovah, David lays down most positively; and he begins with it, lest by stress of trial he should afterwards forget it. This avowal of faith is the fulcrum by means of which he labours to uplift and remove his trouble; he dwells upon it as a comfort to himself and a plea with God. No mention is made of merit, but faith relies upon divine favour and faithfulness, and upon that alone.&nbsp;*Let me never be ashamed.*&nbsp;How can the Lord permit the man to be ultimately put to shame who depends alone upon him? This would not be dealing like a God of truth and grace. It would bring dishonour upon God himself if faith were not in the end rewarded. It will be an ill day indeed for religion when trust in God brings no consolation and no assistance.&nbsp;*Deliver me in thy righteousness.*&nbsp;Thou are not unjust to desert a trustful soul, or to break thy promises; thou wilt vindicate the righteousness of thy mysterious providence, and give me joyful deliverance. Faith dares to look even to the sword of justice for protection: while God is righteous, faith will not be left to be proved futile and fanatical. How sweetly the declaration of faith in this first verse sounds, if we read it at the foot of the cross, beholding the promise of the Father as yea and amen through the Son; viewing God with faith's eye as he stands revealed in Jesus crucified.
 
@@ -64,7 +64,7 @@ weight: 31
 
 **Verse 24.**&nbsp;&nbsp;*Be of good courage.*&nbsp;Keep up your spirit, let no craven thoughts blanch your cheek. Fear weakens, courage strengthens. Victory waits upon the banners of the brave.&nbsp;*And he shall strengthen your heart.*&nbsp;Power from on high shall be given in the most effectual manner by administering force to the fountain of vitality. So far from leaving us, the Lord will draw very near to us in our adversity, and put his own power into us.&nbsp;*All ye that hope in the Lord.*&nbsp;Every one of you, lift up your heads and sing for joy of heart. God is faithful, and does not fail even his little children who do but&nbsp;*hope,*&nbsp;wherefore then should we be afraid?
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Verse 1.**&nbsp;&nbsp;*In thee, O Lord, do I put my trust.*&nbsp;Let us therefore shun mistrust; doubt is death, trust alone is life. Let us make sure that we trust the Lord, and never take our trust on trust.&nbsp;*Let me never be ashamed.*&nbsp;If David prays against being ashamed, let us strive against it. Lovers of Jesus should be ashamed of being ashamed.&nbsp;*C. H. S.*&nbsp;
 
@@ -282,7 +282,7 @@ They say that he is a Vaudes, and worthy of punishment."
 
 **Verse 24.**&nbsp;&nbsp;*And he shall strengthen your heart.*&nbsp;Put thou thyself forth in a way of bold adventure for him, and his providence shall be sweetly exercised for thy good. A worthy commander, how careful he is of a brave blade, a man that will fight at a cannon's mouth! Doth he hear from him that a bone is broken? Send for the bone setter. Is he like to bleed to death? Call for the surgeon; let him post away to prevent that peril. Doth he grow weaker and weaker? Is there anything in the camp that may restore his spirit? withhold nothing; nothing is too good, too costly; would he eat gold he should have it. Thus it is with God. Oh, what letters of commendation doth he give in manifestation of his own love to them in Pergamos upon this very ground. "Thou, saith the Lord, thou hast held forth my name, and not denied it, even in those days wherein Antipas was my faithful martyr, who was slain among you, where Satan dwelleth!" thou didst fight for Christ in the cave where the devil commanded; thou didst stand and appear for him when other men did lose heart and courage. Here is a man that God will own; such a one shall have God's heart and hand to do him honour, to yield him comfort. And therefore I appeal to your consciences, is not this courage worth the having? worth the seeking?&nbsp;*Simeon Ash.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;Faith expressed, confusion deprecated, deliverance sought.
 

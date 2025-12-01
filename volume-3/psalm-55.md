@@ -10,7 +10,7 @@ weight: 55
 
 **DIVISION.**&nbsp;From Ps 55:1-8, the suppliant spreads his case in general before his God; in Ps 55:9-11, he portrays his enemies; in Ps 55:12-14, he mentions one special traitor, and cries for vengeance, or foretells it in Ps 55:15. From Ps 55:16-19 he consoles himself by prayer and faith; in Ps 55:20-21 he again mentions the deceitful covenant breaker, and closes with a cheering exhortation to the saints (Ps 55:22), and a denunciation of destruction upon the wicked and deceitful (Ps 55:22).
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Give ear to my prayer, O God.*&nbsp;The fact is so commonly before us, otherwise we should be surprised to observe how universally and constantly the saints resort to prayer in seasons of distress. From the Great Elder Brother down to the very least of the divine family, all of them delight in prayer. They run as naturally to the mercyseat in time of trouble as the little chickens to the hen in the hour of danger. But note well that it is never the bare act of prayer which satisfies the godly, they crave an audience with heaven, and an answer from the throne, and nothing less will content them. Hide not thyself from my supplication. Do not stop thine ear, or restrain thy hand. When a man saw his neighbour in distress, and deliberately passed him by, he was said to hide himself from him; and the psalmist begs that the Lord would not so treat him. In that dread hour when Jesus bore our sins upon the tree, his Father did hide himself, and this was the most dreadful part of all the Son of David's agony. Well may each of us deprecate such a calamity as that God should refuse to hear our cries.
 
@@ -80,7 +80,7 @@ Our Lord, while free from all idle wishes, found much strength in solitude, and 
 
 **Verse 23.**&nbsp;For the ungodly a sure, terrible, and fatal overthrow is appointed. Climb as they may,&nbsp;*the pit*&nbsp;yawns for them, God himself will cause them to descend into it, and&nbsp;*destruction*&nbsp;there shall be their portion. Bloody and deceitful men, with double iniquity of cruelty and craft upon them, shall not live out half their days; they shall be cut off in their quarrels, or being disappointed in their artifices, vexation shall end them. They were in heart murderers of others, and they became in reality self murderers. Doubt not that virtue lengthens life, and that vice tends to shorten it. But I will trust in thee. A very wise, practical conclusion. We can have no better ground of confidence. The Lord is all, and more than all that faith can need as the foundation of peaceful dependence. Lord, increase our faith evermore.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;Maschil. This is often prefixed to those Psalms in which David speaks of himself as being chastened by God, inasmuch as the end of chastisement is instruction.&nbsp;*Simon de Muis,*&nbsp;1587-1644.
 
@@ -344,7 +344,7 @@ And I see the good ship riding, all in a perilous road; The low reef booming on 
 
 **Verse 23.**&nbsp;(&nbsp;*second clause*&nbsp;). The more sins we do commit, the more we hasten our own death; because as the wise man saith, "The fear of the Lord prolongeth days, but the years of the wicked shall be shortened" (Pr 10:27); and the prophet David saith,&nbsp;*Bloody and deceitful men shall not live out half their days;*&nbsp;for sin is an epitomiser or shortener of everything: it consumes our wealth, it confines our liberty, it impeaches our health, and it abbreviates our life, and brings us speedily unto our grave.&nbsp;*Griffith Williams,*&nbsp;1636.
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;(&nbsp;*second clause*&nbsp;).
 
@@ -508,7 +508,7 @@ And I see the good ship riding, all in a perilous road; The low reef booming on 
 
 7\.In every condition, Ps 55:22.
 
-## WORK UPON THE FIFTY-FIFTH PSALM
+## Works Upon The Fifty-Fifth Psalm
 
 In CHANDLER'S&nbsp;*"Life of David,"*&nbsp;Vol. 2., pp. 305-315, there is an Exposition of this Psalm.
 

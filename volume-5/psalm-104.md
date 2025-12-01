@@ -10,7 +10,7 @@ We have no information as to the author, but the Septuagint assigns it to David,
 
 **DIVISION.**&nbsp;After ascribing blessedness to the Lord the devout psalmist sings of the light and the firmament, which were the work of the first and second days Ps 104:1-6. By an easy transition he describes the separation of the waters from the dry land, the formation of rain, brooks and rivers, and the uprising of green herbs, which were the produce of the third day Ps 104:7-18. Then the appointment of the sun and moon to be the guardians of day and night commands the poet's admiration Ps 104:19-23, and so he sings the work of the fourth day. Having already alluded to many varieties of living creatures, the psalmist proceeds from Ps 104:24-30 to sing of the life with which the Lord was pleased to fill the air, the sea, and the land; these forms of existence were the peculiar produce of the fifth and sixth days. We may regard the closing verses Ps 104:31-35 as a Sabbath meditation, hymn, and prayer. The whole lies before us as a panorama of the universe viewed by the eye of devotion. O for grace to render due praise unto the Lord while reading it.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Bless the LORD, O my soul.*&nbsp;This psalm begins and ends like the Hundred and Third, and it could not do better: when the model is perfect it deserves to exist in duplicate. True praise begins at home. It is idle to stir up others to praise if we are ungratefully silent ourselves. We should call upon our inmost hearts to awake and bestir themselves, for we are apt to be sluggish, and if we are so when called upon to bless God, we shall have great cause to be ashamed. When we magnify the Lord, let us do it heartily: our best is far beneath his worthiness, let us not dishonour him by rendering to him half hearted worship. O LORD my God, thou art very great. This ascription has in it a remarkable blending of the boldness of faith, and the awe of holy fear: for the psalmist calls the infinite Jehovah "my God, "and at the same time, prostrate in amazement at the divine greatness, he cries out in utter astonishment,&nbsp;*"Thou art very great."*&nbsp;God was great on Sinai, yet the opening words of his law were, "I am the Lord thy God; " his greatness is no reason why faith should not put in her claim, and call him all her own. The declaration of Jehovah's greatness here given would have been very much in place at the end of the psalm, for it is a natural inference and deduction from a survey of the universe: its position at the very commencement of the poem is an indication that the whole psalm was well considered and digested in the mind before it was actually put into words; only on this supposition can we account for the emotion preceding the contemplation. Observe also, that the wonder expressed does not refer to the creation and its greatness, but to Jehovah himself. It is not "the universe is very great!" but&nbsp;*"THOU art very great."*&nbsp;Many stay at the creature, and so become idolatrous in spirit; to pass onward to the Creator himself is true wisdom.
 
@@ -114,7 +114,7 @@ And only man is vile."
 
 In holy indignation the psalmist would fain rid the world of beings so base as not to love their gracious Creator, so blind as to rebel against their Benefactor. He does but ask for that which just men look forward to as the end of history: for the day is eminently to be desired when in all God's kingdom there shall not remain a single traitor or rebel. The Christian way of putting it will be to ask that grace may turn sinners into saints, and win the wicked to the ways of truth. Bless thou the LORD, O my soul. Here is the end of the matter—whatever sinners may do, do thou, my soul, stand to thy colours, and be true to thy calling. Their silence must not silence thee, but rather provoke thee to redoubled praise to make up for their failures. Nor canst thou alone accomplish the work; others must come to thy help. O ye saints, Praise ye the LORD. Let your hearts cry HALLELUJAH,—for that is the word in the Hebrew. Heavenly word! Let it close the Psalm: for what more remains to be said or written? HALLELUJAH.&nbsp;*Praise ye the Lord*&nbsp;.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;This psalm is an inspired "Oratorio of Creation."—&nbsp;*Christopher Wordsworth.*&nbsp;
 
@@ -614,7 +614,7 @@ Ill matched with grief and sin.&nbsp;**&nbsp;
 
 **Verse 35.**&nbsp;&nbsp;*Praise ye the Lord.*&nbsp;This is the first time that we meet with Hallelujah; and it comes in here upon occasion of the destruction of the wicked; and the last time we meet with it, it is upon the like occasion, when the New Testament Babylon is consumed, this is the burden of the song,—"Hallelujah, "Re 14:1,3,4,6.&nbsp;*Matthew Henry.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;&nbsp;*(first clause)*&nbsp;—An exhortation to one's own heart.
 

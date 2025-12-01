@@ -8,7 +8,7 @@ weight: 25
 
 **SUBJECT AND DIVISION.** The twenty-two verses of this Psalm begin in the original with the letters of the Hebrew alphabet in their proper order. It is the first instance we have of an inspired acrostic or alphabetical song. This method may have been adopted by the writer to assist the memory; and the Holy Spirit may have employed it to show us that the graces of style and the arts of poetry may lawfully be used in his service. Why should not all the wit and ingenuity of man be sanctified to noblest ends by being laid upon the altar of God? From the singularity of the structure of the Psalm, it is not easy to discover any marked divisions; there are great changes of thought, but there is no variation of subject; the moods of the writer's mind are twofold—prayer and meditation; and as these appear in turns, we should thus divide the verses. Prayer from Ps 25:1-7; meditation, Ps 25:8-10; prayer, Ps 25:11; meditation, Ps 25:12-15; prayer, Ps 25:16-22. 
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.** *Unto thee, O Lord.* See how the holy soul flies to its God like a dove to its cote. When the storm winds are out, the Lord's vessels put about and make for their well remembered harbour of refuge. What a mercy that the Lord will condescend to hear our cries in time of trouble, although we may have almost forgotten him in our hours of fancied prosperity. *Unto thee, O Jehovah, do I lift up my soul.* It is but a mockery to uplift the hands and the eyes unless we also bring our souls into our devotions. True prayer may be described as the soul rising from earth to have fellowship with heaven; it is taking a journey upon Jacob's ladder, leaving our cares and fears at the foot, and meeting with a covenant God at the top. Very often the soul cannot rise, she has lost her wings, and is heavy and earth bound; more like a burrowing mole than a soaring eagle. At such dull seasons we must not give over prayer, but must, by God's assistance, exert all our powers to lift up our hearts. Let faith be the lever and grace be the arm, and the dead lump will yet be stirred. But what a lift it has sometimes proved! With all our tugging and straining we have been utterly defeated, until the heavenly loadstone of our Saviour's love has displayed its omnipotent attractions, and then our hearts have gone up to our Beloved like mounting flames of fire. 
 
@@ -68,7 +68,7 @@ If the Lord will only do unto us in the future as in the past, we shall be well 
 
 **Verse 22.** *Redeem Israel, O God, out of all his troubles.* This is a very comprehensive prayer, including all the faithful and all their trials. Sorrow had taught the psalmist sympathy, and given him communion with the tried people of God; he therefore remembers them in his prayers. *Israel,* the tried, the wrestling, the conquering hero, fit representative of all the saints. Israel in Egypt, in the wilderness, in wars with Canaanites, in captivity, fit type of the church militant on earth. Jesus is the Redeemer from trouble as well as sin, he is a complete Redeemer, and from every evil he will rescue every saint. Redemption by blood is finished: O God, send us redemption by power. Amen and Amen. 
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.** This is the first of the seven alphabetical Psalms, the others being the 34th, 37th, 111th, 112th, 119th, and145th. They are specimens of that acrostic mode of writing which seems to have been once so fashionable among the Jews, as is testified by numerous instances of such composition, which are to be met with in their works. Other poetic artifices were likewise adopted. We find many instances of poems being so constructed, that a proper name, or some particular sentiment, would not infrequently be expressed by the initial letters of the verses. See Bartolocci's "Bibliotheca Rabbinica, "vol. 2 pg 260, where examples of such artifices are cited. *George Phillips, B. D. , in "The Psalms in Hebrew, with a Commentary. " 1846* 
 
@@ -244,7 +244,7 @@ If the Lord will only do unto us in the future as in the past, we shall be well 
 
 **Verse 22.** This most beautiful of "Psalms and hymns and spiritual songs" closes with a sweet petition—such an one, as every one of the true Israel of God would wish to depart with on his lips. *"Redeem Israel, O God, out of all his troubles. "* It breathes the same holy aspiration as the aged Simeon's "Lord! now lettest thy servant depart in peace, for mine eyes have seen thy salvation. " *Barton Bouchier.* 
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.** Heavenly machinery for uplifting an earthbound soul. 
 
@@ -332,7 +332,7 @@ Improvement:
 
 **Verse 22.** A prayer for the church militant. 
 
-## WORKS UPON THE TWENTY-FIFTH PSALM
+## Works Upon The Twenty-Fifth Psalm
 
  *A Godly and Fruitful Exposition on the Twenty-fifth Psalme, the second of the Penitentials; (in "A Sacred Septenarie. ")* By ARCHIBALD SYMSON. 1638. (See page 74. )
 

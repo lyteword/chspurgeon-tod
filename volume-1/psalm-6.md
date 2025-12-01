@@ -8,7 +8,7 @@ TITLE. *This Psalm is commonly known as the first of the* PENITENTIAL PSALMS, *(
 
 DIVISION. *You will observe that the Psalm is readily divided into* two parts. First, there is the Psalmist's plea in his great distress, reaching from the first to the end of the seventh verse. Then you have, from the eighth to the end, quite a different theme. The Psalmist has changed his note. He leaves the minor key, and betakes himself to sublimer strains. He tunes his note to the high key of confidence, and declares that God hath heard his prayer, and hath delivered him out of all his troubles. 
 
-## EXPOSITION 
+## Exposition
 
 Verse 1. Having read through the first division, in order to see it as a whole, we will now look at it verse by verse. *"O Lord, rebuke* me not in thine anger."The Psalmist is very conscious that he deserves to be rebuked, and he feels, moreover, that the rebuke in some form or other must come upon him, if not for condemnation, yet for conviction and sanctification. "Corn is cleaned with wind, and the soul with chastenings." It were folly to pray against the golden hand which enriches us by its blows. He does not ask that the rebuke may be totally withheld, for he might thus lose a blessing in disguise; but, "Lord, rebuke me not *in thine anger."* If thou remindest me of my sin, it is good; but, oh, remind me not of it as one incensed against me, lest thy servant's heart should sink in despair. Thus saith Jeremiah, "O Lord, correct me, but with judgment; not in thine anger, lest thou bring me to nothing." I know that I must be chastened, and though I shrink from the rod yet do I feel that it will be for my benefit; but, oh, my God, *"chasten me not* in thy hot displeasure,"lest the rod become a sword, and lest in smiting, thou shouldest also kill. So may we pray that the chastisements of our gracious God, if they may not be entirely removed, may at least be sweetened by the consciousness that they are "not in anger, but in his dear covenant love." 
 
@@ -30,7 +30,7 @@ Verse 9. *"The Lord hath heard my supplication."* The Holy Spirit had wrought in
 
 Verse 10. *"Let all mine enemies be ashamed and sore vexed."* This is rather a prophecy than an imprecation, it may be read in the future, "All my enemies shall be ashamed and sore vexed." *They* shall return and be ashamed instantaneously,—in a moment;—their doom shall come upon them suddenly. Death's day is doom's day, and both are sure and may be sudden. The Romans were wont to say, "The feet of the avenging Deity are shod with wool." With noiseless footsteps vengeance nears its victim, and sudden and overwhelming shall be its destroying stroke. If this were an imprecation, we must remember that the language of the old dispensation is not that of the new. We pray *for* our enemies, not *against* them. God have mercy on them, and bring them into the right way. Thus the Psalm, like those which preceed it, shews the different estates of the godly and the wicked. O Lord, let us be numbered *with* thy people, both now and forever! 
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS 
+## Explanatory Notes & Quaint Sayings
 
 *Whole Psalm.* David was a man that was often exercised with sickness and troubles from enemies, and in all the instances almost that we meet with in the Psalms of these his afflictions, we may observe the outward occasions of trouble brought him under the suspicion of God's wrath and his own iniquity; so that he was seldom sick, or persecuted, but this called on the disquiet of conscience, and brought his sin to remembrance; as in this Psalm, which was made on the occasion of his sickness, as appears from verse eight, wherein he expresseth the vexation of his soul under the apprehension of God's anger; all his other griefs running into this channel, as little brooks, losing themselves in a great river, change their name and nature. He that at first was only concerned for his sickness, is now wholly concerned with sorrow and smart under the fear and hazard of his soul's condition; the like we may see in Psalm 38, and many places more. *Richard Gilpin,* 1677. 
 
@@ -102,7 +102,7 @@ Verse 10. *"Let all mine enemies be ashamed and sore vexed."* This is rather a p
 
 *Verse* 10. *"Let all mine enemies* [or all mine enemies shall] *be ashamed, and sore vexed,"* etc. Many of the mournful Psalms end in this manner, to instruct the believer that he is continually to look forward, and solace himself with beholding that day, when his warfare shall be accomplished; when sin and sorrow shall be no more; when sudden and everlasting confusion shall cover the enemies of righteousness; when the sackcloth of the penitent shall be exchanged for a robe of glory, and every tear becomes a sparkling gem in his crown; when to sighs and groans shall succeed the songs of heaven, set to angels harps, and faith shall be resolved into the vision of the Almighty. *George Horne.* 
 
-## HINTS TO THE VILLAGE PREACHER 
+## Hints to the Village Preacher
 
 *Verse* 1. *A sermon for afflicted souls.* I. God's twofold dealings. (1) *Rebuke,* by a telling sermon, a judgment on another, a slight trial in our own person, or a solemn monition in our conscience by the Spirit. (2) *Chastening.* This follows the other when the first is disregarded. Pain, losses, bereavements, melancholy, and other trials. II. The evils in them to be most dreaded, anger and hot displeasure. III. The means to avert these ills. Humiliation, confession, amendment, faith in the Lord, etc. 
 
@@ -134,7 +134,7 @@ Verse 10. *"Let all mine enemies be ashamed and sore vexed."* This is rather a p
 
 *Verse* 10. The shame reserved for the wicked. 
 
-## WORKS UPON THE SIXTH PSALM
+## Works Upon The Sixth Psalm
 
 *A Godly and Fruitful Exposition on the Sixt Psalme, the First of the Penitentials; in a sacred Septenarie; or, a Godly and Fruitful Exposition on the Seven Psalmes of Repentance* by MR. ARCHIBALD SYMSON, late Pastor of the Church at Dalkeeth in Scotland. 1638. 
 

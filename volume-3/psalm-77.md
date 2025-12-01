@@ -8,7 +8,7 @@ weight: 77
 
 **DIVISION.**&nbsp;If we follow the poetical arrangement, and divide at the Selahs, we shall find the troubled man of God pleading in Ps 77:1-3, and then we shall hear him lamenting and arguing within himself, Ps 77:4-9. From Ps 77:10-15 his meditations run toward God, and in the close he seems as in a vision to behold the wonders of the Red Sea and the wilderness. At this point, as if lost in an ecstasy, he hurriedly closes the Psalm with an abruptness, the effect of which is quite startling. The Spirit of God knows when to cease speaking, which is more than those do who, for the sake of making a methodical conclusion, prolong their words even to weariness. Perhaps this Psalm was meant to be a prelude to the next, and, if so, its sudden close is accounted for. The hymn now before us is for experienced saints only, but to them it will be of rare value as a transcript of their own inner conflicts.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*I cried unto God with my voice.*&nbsp;This Psalm has much sadness in it, but we may be sure it will end well, for it begins with prayer, and prayer never has an ill issue. Asaph did not run to man but to the Lord, and to him he went, not with studied, stately, stilted words, but with a cry, the natural, unaffected, unfeigned expression of pain. He used his voice also, for though vocal utterance is not necessary to the life of prayer, it often seems forced upon us by the energy of our desires. Sometimes the soul feels compelled to use the voice, for thus it finds a freer vent for its agony. It is a comfort to hear the alarm bell ringing when the house is invaded by thieves. Even unto God with my voice. He returned to his pleading. If once sufficed not, he cried again. He needed an answer, he expected one, he was eager to have it soon, therefore he cried again and again, and with his voice too, for the sound helped his earnestness. And he gave ear unto me. Importunity prevailed. The gate opened to the steady knock. It shall be so with us in our hour of trial, the God of grace will hear us in due season.
 
@@ -50,7 +50,7 @@ weight: 77
 
 **Verse 20.**&nbsp;&nbsp;*Thou leddest thy people like a flock by the hand of Moses and Aaron.*&nbsp;What a transition from tempest to peace, from wrath to love. Quietly as a flock Israel was guided on, by human agency which veiled the excessive glory of the divine presence. The smiter of Egypt was the shepherd of Israel. He drove his foes before him, but went before his people. Heaven and earth fought on his side against the sons of Ham, but they were equally subservient to the interests of the sons of Jacob. Therefore, with devout joy and full of consolation, we close this Psalm; the song of one who forgot how to speak and yet learned to sing far more sweetly than his fellows.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;Whenever, and by whomsoever, the Psalm may have been written, it clearly is individual, not national. It utterly destroys all the beauty, all the tenderness and depth of feeling in the opening portion, if we suppose that the people are introduced speaking in the first person. The allusions to the national history may indeed show that the season was a season of national distress, and that the sweet singer was himself bowed down by the burden of the time, and oppressed by woes which he had no power to alleviate; but it is his own sorrow, not the sorrow of others under which he sighs, and of which he has left the pathetic record.&nbsp;*J. J. Stewart Perowne.*&nbsp;
 
@@ -196,7 +196,7 @@ And terrors of a God."&nbsp;*George Rogers.*&nbsp;
 
 **Verse 20.**&nbsp;The psalmist has reached the climax of his strain, he has found relief from his sorrow by forcing his thoughts into another channel, by dwelling on all God's mightiest wonders of old; but there he must end: in his present intensity of passion he cannot trust himself to draw forth in detail any mere&nbsp;*lessons*&nbsp;of comfort. There are seasons when even the holiest faith cannot bear to listen to words of reasoning; though it can still find a support whereon to rest, in the simple contemplation, in all their native grandeur, of the deeds that God hath wrought.&nbsp;*Joseph Francis Thrupp.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;The benefit of using the voice in private prayer.
 
@@ -350,7 +350,7 @@ And terrors of a God."&nbsp;*George Rogers.*&nbsp;
 
 3\.Instrumentality always used.
 
-## WORK UPON THE SEVENTY-SEVENTH PSALM
+## Works Upon The Seventy-Seventh Psalm
 
 "An Exposition upon the Seventy-seventh Psalm, made by the constant&nbsp;*Martyr of Christ, Master John Hooper, Bishop of Gloucester and Worcester."*&nbsp;In the "Later Writings of Bishop Hooper." (In Parker Society's Publications, and also in the "British Reformer's" series of the Religious Tract Society.)
 

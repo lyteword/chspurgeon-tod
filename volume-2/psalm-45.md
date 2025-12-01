@@ -10,7 +10,7 @@ weight: 45
 
 **DIVISION.**&nbsp;Ps 45:1 is an announcement of intention, a preface to the song; Ps 45:3 adores the matchless beauty of Messiah; and from Ps 45:3-9, he is addressed in admiring ascriptions of praise. Ps 45:10-12 are spoken to the bride. The church is further spoken of in Ps 45:13-15, and the Psalm closes with another address to the King, foretelling his eternal fame, Ps 45:16-17.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*My heart.*&nbsp;There is no writing like that dictated by the heart. Heartless hymns are insults to heaven.&nbsp;*Is inditing a good matter.*&nbsp;A good heart will only be content with good thoughts. Where the fountain is good good streams will flow forth. The learned tell us that the word may be read overflows, or as others, boils or bubbles up, denoting the warmth of the writer's love, the fulness of his heart, and the consequent richness and glow of his utterance, as though it were the ebullition of his inmost soul, when most full of affection. We have here no single cold expression; the writer is not one who frigidly studies the elegancies and proprieties of poetry, his stanzas are the natural outburst of his soul, comparable to the boiling jets of the geysers of Hecla. As the corn offered in sacrifice was parched in the pan, so is this tribute of love hot with sincere devotion. It is a sad thing when the heart is cold with a good matter, and worse when it is warm with a bad matter, but incomparably well when a warm heart and a good matter meet together. O that we may often offer to God an acceptable&nbsp;*minchah,*&nbsp;a sweet oblation fresh from the pan of hearts warmed with gratitude and admiration.&nbsp;*I speak of the things which I have made touching the King.*&nbsp;This song has "the King" for its only subject, and for the King's honour alone was it composed, well might its writer call it a good matter. The psalmist did not write carelessly; he calls his poem his works, or things which he had made. We are not to offer to the Lord that which costs us nothing. Good material deserves good workmanship. We should well digest in our heart's affections and our mind's meditations any discourse or poem in which we speak of one so great and glorious as our Royal Lord. As our version reads it, the psalmist wrote experimentally things which he had made his own, and personally tasted and handled concerning the King.&nbsp;*My tongue is the pen of a ready writer,*&nbsp;not so much for rapidity, for there the tongue always has the preference, but for exactness, elaboration, deliberation, and skilfulness of expression. Seldom are the excited utterances of the mouth equal in real weight and accuracy to the&nbsp;*verba scripta*&nbsp;of a thoughtful accomplished penman; but here the writer, though filled with enthusiasm, speaks as correctly as a practised writer; his utterances therefore are no ephemeral sentences, but such as fall from men who sit down calmly to write for eternity. It is not always that the best of men are in such a key, and when they are they should not restrain the gush of their hallowed feelings. Such a condition of heart in a gifted mind creates that auspicious hour in which poetry pours forth her tuneful numbers to enrich the service of song in the house of the Lord.
 
@@ -54,7 +54,7 @@ And be his honours sounded high
 
 By all things that have breath."
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;&nbsp;*"Upon Shoshannim, "*&nbsp;or upon&nbsp;*lilies.*&nbsp;It will be remembered that lilies were an emblem of purity and loveliness, and were introduced as such in the building of Solomon's temple (see 1Ki 7:19,22,26 2Ch 4:5); and the church is compared in the Canticles to a "lily among thorns." So 2:2. The Psalms which bear this title, "upon lilies, "are the present, the sixty-ninth, and the eightieth (compare Ps 60:1-12); and all these contain prophecies of Christ and his church. The sixtieth is a parallel to the forty-fourth, and represents her supplicating appeal to God, and Christ's victories. The sixty-ninth displays the victories gained by Christ through suffering. The eightieth is also parallel to the forty-fourth and sixtieth, a plaintive lament of the church in distress and a supplicating cry for deliverance. All these three Psalms are (if we may venture to use this expression) like the voice of the "lily among thorns." That there is, therefore, some reference here to the spiritual meaning of the word (Mynvs), or&nbsp;*lilies,*&nbsp;in this title, seems at least to be probable.&nbsp;*Christopher Wordsworth.*&nbsp;
 
@@ -286,7 +286,7 @@ May Jesus Christ be praised."
 
 &nbsp;*—Translated by Edward Caswall, in "Poems." 1861.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;In the preface, the prophet commends the subject he is to treat of, signifying,
 
@@ -394,7 +394,7 @@ May Jesus Christ be praised."
 
 3\.He is heaven's glory, "Shall praise thee, "etc.&nbsp;*G.R.*&nbsp;
 
-## WORKS UPON THE FORTY-FIFTH PSALM
+## Works Upon The Forty-Fifth Psalm
 
 Exposition of Psalm XLV, in the works of JOHN BOYS, Dean of Canterbury. 1638. Folio edition, pages 920-931.
 

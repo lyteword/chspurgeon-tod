@@ -8,7 +8,7 @@ weight: 75
 
 **DIVISION.**&nbsp;The people's song of gratitude and adoration begins the hymn in Ps 75:1. In the next four Ps 75:2-5, the Lord reveals himself as ruling the world in righteousness. Then follows a warning voice from the church to her enemies, Ps 75:6-8, and a closing song anticipatory of the glory due to God and the utter defeat of the foe.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Unto thee, O God, do we give thanks.*&nbsp;Not to ourselves, for we were helpless, but to Elohim who heard our cry, and replied to the taunt of our foes. Never let us neglect thanksgiving, or we may fear that another time our prayers will remain unanswered. As the smiling flowers gratefully reflect in their lovely colours the various constituents of the solar ray, so should gratitude spring up in our hearts after the smiles of God's providence. Unto thee do we give thanks. We should praise God again and again. Stinted gratitude is ingratitude. For infinite goodness there should be measureless thanks. Faith promises redoubled praise for greatly needed and signal deliverances. For that thy name is near thy wondrous works declare. God is at hand to answer and do wonders—adore we then the present Deity. We sing not of a hidden God, who sleeps and leaves the church to her fate, but of one who ever in our darkest days is most near, a very present help in trouble. "Near is his name." Baal is on a journey, but Jehovah dwells in his church. Glory be unto the Lord, whose perpetual deeds of grace and majesty are the sure tokens of his being with us always, even unto the ends of the world.
 
@@ -52,7 +52,7 @@ Ten thousand woes are burning in the depths of that fiery cup, which to the brim
 
 **Verse 10.**&nbsp;&nbsp;*All the horns of the wicked also will I cut off.*&nbsp;Power and liberty being restored to Israel, she begins again to execute justice, by abasing the godless who had gloried in the reign of oppression. Their power and pomp are to be smitten down. Men wore horns in those days as a part of their state, and these, both literally and figuratively, were to be lopped off; fir since God abhors the proud, his church will not tolerate them any longer. But the horns of the righteous shall be exalted. In a rightly ordered society, good men are counted great men, virtue confers true rank, and grace is more esteemed than gold. Being saved from unrighteous domination, the chief among the chosen people here promises to rectify the errors which had crept into the commonwealth, and after the example of the Lord himself, to abase the haughty and elevate the humble. This memorable ode may be sung in times of great depression, when prayer has performed her errand at the mercyseat, and when faith is watching for speedy deliverance. It is a song of the second advent, CONCERNING THE NEARNESS OF THE JUDGE WITH THE CUP OF WRATH.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;&nbsp;*Al-taschith. Destroy not.*&nbsp;This seems to have been used by David as a maxim during the violent persecutions of Saul, as if to remind himself to forebear revenge, though it was often in his power to inflict it, upon his unnatural enemy.&nbsp;*F. G. Hubbard, in "The Psalms Chronologically arranged, with Historical Introductions". New York.*&nbsp;1856.
 
@@ -96,7 +96,7 @@ Anon the following page he turns,
 
 And treads the monarch down."&nbsp;*—Isaac Watts.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;The unceasing thanksgiving of the church, her grand cause for adoration: the nearness of her God, and the evident proof thereof in the displays of his power.
 

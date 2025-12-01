@@ -16,7 +16,7 @@ And talk of all thy truth at night."
 
 The Sabbath was set apart for adoring the Lord in his finished work of creation, hence the suitableness of this Psalm; Christians may take even a higher flight, for they celebrate complete redemption. No one acquainted with David's style will hesitate to ascribe to him the authorship of this divine hymn; the ravings of the Rabbis who speak of its being composed by Adam, only need to be mentioned to be dismissed. Adam in Paradise had neither harps to play upon, nor wicked men to contend with.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*It is a good thing to give thanks unto the Lord*&nbsp;, or JEHOVAH. It is good ethically, for it is the Lord's right; it is good emotionally, for it is pleasant to the heart; it is good practically, for it leads others to render the same homage. When duty and pleasure combine, who will be backward? To give thanks to God is but a small return for the great benefits wherewith he daily loadeth us; yet as he by his Spirit calls it a good thing we must not despise it, or neglect it. We thank men when they oblige us, how much more ought we to bless the Lord when he benefits us. Devout praise is always good, it is never out of season, never superfluous, but it is especially suitable to the Sabbath; a Sabbath without thanksgiving is a Sabbath profaned. And to sing praises unto thy name, O most High. It is good to give thanks in the form of vocal song. Nature itself teaches us thus to express our gratitude to God; do not the birds sing, and the brooks warble as they flow? To give his gratitude a tongue is wise in man. Silent worship is sweet, but vocal worship is sweeter. To deny the tongue the privilege of uttering the praises of God involves an unnatural strain upon the most commendable prompting of our renewed manhood, and it is a problem to us how the members of the Society of Friends can deprive themselves of so noble, so natural, so inspiring a part of sacred worship. Good as they are, they miss one good thing when they decline to sing praises unto the name of the Lord. Our personal experience has confirmed us in the belief that it is good to sing unto the Lord; we have often felt like Luther when he said, "Come, let us sing a psalm, and drive away the devil."
 
@@ -64,7 +64,7 @@ It is, however, much to be feared that attention to the mere mechanism of music,
 
 **Verse 15.**&nbsp;This mercy to the aged proves the faithfulness of their God, and leads them to shew that the Lord is upright, by their cheerful testimony to his ceaseless goodness. We do not serve a Master who will run back from his promise. Whoever else may defraud us, he never will. Every aged Christian is a letter of commendation to the immutable fidelity of Jehovah. He is my rock, and there is no unrighteousness in him. Here is the psalmist's own seal and sign manual; still was he building upon his God, and still was the Lord a firm foundation for his trust. For shelter, for defence, for indwelling, for foundation, God is our rock; hitherto he has been to us all that he said he would be, and we may be doubly sure that he will abide the same even unto the end. He has tried us, but he has never allowed us to be tempted above what we are able to bear: he has delayed our reward, but he has never been unrighteous to forget our work of faith and labour of love. He is a friend without fault, a helper without fail. Whatever he may do with us, he is always in the right; his dispensations have no flaw in them, no, not the most minute. He is true and righteous altogether, and so we weave the end of the psalm with its beginning, and make a coronet of it, for the head of our Beloved. It is a good thing to sing praises unto the Lord, for&nbsp;*"he is my rock, and there is no unrighteousness in him."*&nbsp;
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;This is entitled&nbsp;*A Psalm to be sung on the day of the Sabbath.*&nbsp;It is known that the Jews appropriated certain Psalms to particular days. R. Selomo thinks that it refers to the future state of the blessed, which is a perpetual sabbath. Others pretend that it was composed by Adam, on the seventh day of the creation. It might, with more probability, have been supposed to be put, by a poetic fiction, into the mouth of Adam, beholding, with wonder and gratitude, the recent creation. But Ps 92:2 seems to refer to the morning and evening sacrifice, which the psalmist considers as most proper for prayer and praise.—&nbsp;*D. Cresswell.*&nbsp;
 
@@ -316,7 +316,7 @@ Even trees, when they grow old (the palm and the cedar), are apt to lose a part 
 
 **Verse 15.**&nbsp;&nbsp;*He is my rock, and there is no unrighteousness in, him.*&nbsp;Implying that God can no more be moved or removed from doing righteously, than a rock can be removed out of its place.—&nbsp;*Joseph Caryl.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;
 

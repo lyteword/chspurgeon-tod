@@ -10,7 +10,7 @@ This is one of the alphabetical psalms, composed with much art, and, doubtless, 
 
 **DIVISION.**&nbsp;The psalm does not fall into any marked divisions, but is one and indivisible. Our other translators have mapped out this song with considerable discernment. It is or a perfect arrangement, but it will suit our convenience in exposition. David praiseth God for his fame or glory (Ps 145:1-7), for his goodness (Ps 145:8-10), for his kingdom (Ps 145:11-13), for his providence (Ps 145:14-16), for his saving mercy (Ps 145:17-21).
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*I will extol thee, my God, O king.*&nbsp;David as God's king adores God as his king. It is well when the Lord's royalty arouses our loyalty, and our spirit is moved to magnify his majesty. The Psalmist has extolled his Lord many a time before, he is doing so still, and he will do so in the future: praise is for all tenses. When we cannot express all our praise just now, it is wise to register our resolution to continue in the blessed work, and write it down as a bond, "I will extol thee." See how David testifies his devotion and adherence to his God by the pronoun "my", how he owns his allegiance by the title "king", and how he goes on to declare his determination to make much of him in his song. And I will bless thy name for ever and ever. David determined that his praise should rise to blessing, should intelligently spend itself upon the name or character of God, and should be continued world without end. He uses the word "bless" not merely for variation of sound, but also for the deepening and sweetening of the sense. To bless God is to praise him with a personal affection for him, and a wishing well to him: this is a growingly easy exercise as we advance in experience and grow in grace. David declares that he will offer every form of praise, through every form of existence. His notion of duration is a full one—"for ever" has no end, but when he adds another" ever" to it he forbids all idea of a close. Our praise of God shall be as eternal as the God we praise.
 
@@ -64,7 +64,7 @@ These three verses are a reverent hymn concerning "the kingdom of God": they wil
 
 **Verse 21.**&nbsp;&nbsp;*My mouth shall speak the praise of the LORD.*&nbsp;Whatever others may do, I will not be silent in the praise of the Lord: whatever others may speak upon, my topic is fixed once for all: I will speak the praise of Jehovah. I am doing it, and I will do it as long as I breathe.&nbsp;*And let all flesh bless his holy name for ever and ever.*&nbsp;Praise is no monopoly for one, even though he be a David; others are debtors, let them also be songsters. All men of every race, condition, or generation should unite to glorify God. No man need think that he will be rejected when he comes with his personal note of praise; all are permitted, invited, and exhorted to magnify the Lord. Specially should his holiness be adored: this is the crown, and in a certain sense the sum, of all his attributes. Only holy hearts will praise the holy name, or character of the Lord; oh, that all flesh were sanctified, then would the sanctity of God be the delight of all. Once let the song begin and there will be no end to it. It shall go on for ever and a clay, as the old folks used to say. If there were two forevers, or twenty forevers, they ought all to be spent in the praises of the ever living, ever blessing, ever blessed JEHOVAH. Blessed be the Lord for ever for having revealed to us his name, and blessed be that name as he has revealed it; yea, blessed be he above all that we can know, or think, or say. Our hearts revel in the delight of praising him. Our mouth, our mind, our lip, our life shall be our Lord's throughout this mortal existence, and when time shall be no more.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 This has been happily characterized as the "new song" promised in Ps 144:9. In other words, it is the song of praise, corresponding to the didactic, penitential, and supplicatory psalms of this series.—&nbsp;*Joseph Addison Alexander.*&nbsp;
 
@@ -338,7 +338,7 @@ Consider next the term&nbsp;*"hand."*&nbsp;There is a difference between the&nbs
 
 **Verse 20.**&nbsp;&nbsp;*Preserveth...destroy.*&nbsp;Notice this recurrent the guardianship of the good implies the destruction of the wicked.—&nbsp;*A. S. Aglen.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verses 1-2.**&nbsp;Praise.
 

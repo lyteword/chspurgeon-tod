@@ -12,7 +12,7 @@ To God their cheerful voices raise."
 
 In this divine lyric we sing with gladness the creating power and goodness of the Lord, even as before with trembling we adored his holiness.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Make a joyful noise unto the LORD, all ye lands.*&nbsp;This is a repetition of Ps 98:4. The original word signifies a glad shout, such as loyal subjects give when their king appears among them. Our happy God should be worshipped by a happy people; a cheerful spirit is in keeping with his nature, his acts, and the gratitude which we should cherish for his mercies. In every land Jehovah's goodness is seen, therefore in every land should be be praised. Nearer will the world be in its proper condition till with one unanimous shout it adores the only God. O ye nations, how long will ye blindly reject him? Your golden age will never arrive till ye with all your hearts revere him.
 
@@ -38,7 +38,7 @@ As break his promise or forget."
 
 Resting on his sure word, we feel that joy which is here commanded, and in the strength of it we come into his presence even now, and speak good of his name.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;This is the only Psalm in the whole collection entitled&nbsp;*"A Psalm of Praise."*&nbsp;It is supposed to have received this appellation because peculiarly adapted, if not designed to be sung, when the&nbsp;*sacrifices of thanksgiving*&nbsp;were offered. See Le 7:12. The Greeks think it was written by David, who here invites all the world to join with the Israelites in the service of God, whose divine sovereignty he here recognises.&nbsp;*Samuel Burder.*&nbsp;
 
@@ -98,7 +98,7 @@ Resting on his sure word, we feel that joy which is here commanded, and in the s
 
 **Verse 5.**&nbsp;&nbsp;*His mercy is everlasting.*&nbsp;The everlasting unchangeable mercy of God, is the first motive of our turning to him, and of our continuing stedfast in his covenant, and it shall be the subject of unceasing praise in eternity. As the Lord is good, and his mercy everlasting, so the full perfection of these attributes in a perfect state will call forth praise unwearied from hearts that ever faint.&nbsp;*W. Wilson.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Whole Psalm.**&nbsp;This is a bunch of the grapes of Eshcol. It is a taste of what is still the promised land. The Jewish church came to its perfection in the reign of Solomon, but a greater than Solomon is here. The perfection of the New Testament church is here anticipated. This psalm teaches,
 

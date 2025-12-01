@@ -10,7 +10,7 @@ The Psalm, seems to us to describe either David or some other man of God who was
 
 **DIVISION.**&nbsp;We propose to divide this Psalm thus, from Ps 118:1-4 the faithful are called upon to magnify the everlasting mercy of the Lord; from Ps 118:5-18 the Psalmist gives forth a narrative of his experience, and an expression of his faith; in Ps 118:19-21 he asks admittance into the house of the Lord, and begins the acknowledgment of the divine salvation. In Ps 118:22-27 the priests and people recognize their ruler, magnify the Lord for him, declare him blessed, and bid him approach the altar with his sacrifice. In Ps 118:28-29 the grateful hero himself exalts God the ever merciful.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*O give thanks unto the LORD.*&nbsp;The grateful hero feels that he cannot himself alone sufficiently express his thankfulness, and therefore he calls in the aid of others. Grateful hearts are greedy of men's tongues, and would monopolize them all for God's glory. The whole nation was concerned in David's triumphant accession, and therefore it was right that they should unite in his adoring song of praise. The thanks were to be rendered unto Jehovah alone, and not to the patience or valour of the hero himself. It is always well to trace our mercies to him who bestows them, and if we cannot give him anything else, let us at any rate give him our thanks. We must not stop short at the second agent, but rise at once to the first cause, and render all our praises&nbsp;*unto the Lord*&nbsp;himself. Have we been of a forgetful or murmuring spirit? Let us hear the lively language of the text, and allow it to speak to our hearts: "Cease your complaining, cease from all self glorification, and give thanks unto the Lord."
 
@@ -142,7 +142,7 @@ The word rendered "cords" carries with it the idea of wreaths and boughs, so tha
 
 **Verse 29.**&nbsp;&nbsp;*O give thanks unto the LORD; for he is good: for his mercy endureth for ever.*&nbsp;The Psalm concludes as it began, making a complete circle of joyful adoration. We can well suppose that the notes at the close of the loud hallelujah were more swift, more sweet, more loud than at the beginning. To the sound of trumpet and harp, Israel, the house of Aaron, and all that feared the Lord, forgetting their distinctions, joined in one common hymn, testifying again to their deep gratitude to the Lord's goodness, and to the mercy which is unto eternity. What better close could there be to this right royal song? The Psalmist would have risen to something higher, so as to end with a climax, but nothing loftier remained. He had reached the height of his grandest argument, and there he paused. The music ceased, the song was suspended, the great hallel was all chanted, and the people went every one to his own home, quietly and happily musing upon the goodness of the Lord, whose mercy fills eternity.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;This is the last of those Psalms which form the great&nbsp;*Hallel*&nbsp;, which the Jews sang at the end of the passover.&nbsp;*Adam Clarke.*&nbsp;
 
@@ -374,7 +374,7 @@ Those things which the Spirit of God enables a man to do, are in Scripture somet
 
 **Verse 28.**&nbsp;This "extolling the Lord" will accomplish one of the great ends of praise, viz., his exaltation. It is true that God both can and will exalt himself, but it is at once the duty and the privilege of his people to exalt him. His name should be borne up and magnified by them; the glory of that name is now, as it were, committed to them: what use are we making of the opportunity and the privilege?&nbsp;*Philip Bennet Power.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verses 1-4.**&nbsp;
 
@@ -588,7 +588,7 @@ Those things which the Spirit of God enables a man to do, are in Scripture somet
 
 2\.The beginning and end of its requirements is thanksgiving.—&nbsp;*G.R.*&nbsp;
 
-## WORK UPON THE HUNDRED EIGHTEENTH PSALM
+## Works Upon The Hundred Eighteenth Psalm
 
 In "The Works of John Boys," 1626, folio, pp. 861-870, there is an exposition of this psalm.
 

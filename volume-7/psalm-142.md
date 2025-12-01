@@ -8,7 +8,7 @@ weight: 142
 
 A Prayer when he was in the cave. He was in one of his many lurking places, either Engedi, Adullam, or some other lone cavern wherein he could conceal himself from Saul and his blood hounds. Caves make good closets for prayer; their gloom and solitude are helpful to the exercise of devotion. Had David prayed as much in his palace as he did in his cave, he might never have fallen into the act which brought such misery upon his later days.**SUBJECT.**&nbsp;There can be little doubt that this song dates from the days when Saul was sorely persecuting David, and David himself was in soul trouble, probably produced by that weakness of faith which led him to associate with heathen princes. His fortunes were evidently at their lowest, and, what was worse, his repute had fearfully fallen; yet he displayed a true faith in God, to whom he made known his pressing sorrows. The gloom of the cave is over the psalm, and yet as if standing at the mouth of it the prophet poet sees a bright light a little beyond.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*I cried unto the LORD with my voice.*&nbsp;It was a cry of such anguish that he remembers it long after, and makes a record of it. In the loneliness of the cave he could use his voice as much as he pleased; and therefore he made its gloomy vaults echo with his appeals to heaven. When there was no soul in the cavern seeking his blood, David with all his soul was engaged in seeking his God. He felt it a relief to his heart to use his voice in his pleadings with Jehovah. There was a voice in his prayer when he used his voice for prayer: it was not&nbsp;*vox et praeterea nihil.*&nbsp;It was a prayer&nbsp;*vivo corde*&nbsp;as well as&nbsp;*vivâ voce.*&nbsp;With my voice unto the Lord did I make my supplication. He dwells upon the fact that he spoke aloud in prayer; it was evidently well impressed upon his memory, hence he doubles the word and says, "with my voice; with my voice." It is well when our supplications are such that we find pleasure in looking back upon them. He that is cheered by the memory of his prayers will pray again. See how the good man's appeal was to Jehovah only: he did not go round about to men, but he ran straight forward to Jehovah, his God. What true wisdom is here! Consider how the Psalmist's prayer grew into shape as he proceeded with it. Its first poured out his natural longings,—"I cried"; and then he gathered up all his wits and arranged his thoughts,—"I made supplication." True prayers may differ in their diction, but not in their direction: an impromptu cry and a preconceived supplication must alike ascend towards the one prayer hearing God, and he will accept each of them with equal readiness. The intense personality of the prayer is noteworthy: no doubt the Psalmist was glad of the prayers of others, but he was not content to be silent himself. See how everything is in the first person,—"&nbsp;*I*&nbsp;cried with&nbsp;*my*&nbsp;voice; with&nbsp;*my*&nbsp;voice did&nbsp;*I*&nbsp;make&nbsp;*my*&nbsp;supplication." It is good to pray in the plural—"Our Father", but in times of trouble we shall feel forced to change our note into "Let this cup pass from&nbsp;*me."*&nbsp;
 
@@ -26,7 +26,7 @@ Deliver me from my persecutors. If he did not get out of their hands, they would
 
 **Verse 7.**&nbsp;&nbsp;*Bring my soul out of prison, that I may praise thy name.*&nbsp;That God may be glorified is another notable plea for a suppliant. Escaped prisoners are sure to speak well of those who give them liberty; Soul emancipation is the noblest form of liberation, and calls for the loudest praise: he who is delivered from the dungeons of despair is sure to magnify the name of the Lord. We are in such a prison that only God himself can bring us out of it, and when he does so he will put a new song into our mouths. The cave was not half such a dungeon to David's body as persecution and temptation made for his soul. To be exiled from the godly is worse than imprisonment, hence David makes it one point of his release that he would be restored to church fellowship—The righteous shall compass me about. Saints gather around a child of God when his Father smiles upon him; they come to hear his joyful testimony, to rejoice with him, and to have their own faith encouraged. All the true believers in the twelve tribes were glad to rally to David's banner when the Lord enlarged his spirit; they glorified God for him and with him and through him. They congratulated him, consorted with him, crowned him, and championed him. This was a sweet experience for righteous David, who had for awhile come under the censure of the upright. He bore their smiting with patience, and now he welcomes their sanction with gratitude. For thou shalt deal bountifully with me. God's bountiful dealing is sure to bring with it the sympathy and alliance of all the favourites of the Great King. What a change from looking for a friend and finding none to this enthusiastic concourse of allies around the man after God's own heart! When we can begin a psalm with crying, we may hope to close it with singing. The voice of prayer soon awakens the voice of praise.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;He calls this prayer&nbsp;*Maschil,*&nbsp;"a psalm of instruction", because of the good lessons he had himself learned in the cave, learned on his knees, and so learned that he desired to teach others.—&nbsp;*Matthew Henry.*&nbsp;
 
@@ -200,7 +200,7 @@ He doth sit by us and moan.
 
 **Verse 7.**&nbsp;&nbsp;*For thou shalt deal bountifully with me.*&nbsp;Others' mercies ought to be the matter of our praises to God; and others' praises to God on our behalf ought to be both desired and rejoiced in by us.—&nbsp;*Matthew Henry.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;
 
@@ -410,7 +410,7 @@ c) A new life of bounty and blessing—when we get out.
 
 **Verse 7.**&nbsp;(&nbsp;*last clause*&nbsp;). Take this with Ps 116:7. "The Lord hath dealt bountifully with thee." Infer the future from the past.
 
-## WORK UPON THE HUNDRED AND FORTY-SECOND PSALM
+## Works Upon The Hundred And Forty-Second Psalm
 
 In Chandler's "Life of David," vol. 1, pp. 157-160, there is an Exposition of this Psalm.
 

@@ -8,7 +8,7 @@ weight: 135
 
 **DIVISION.**&nbsp;The first fourteen verses contain an exhortation to praise Jehovah for his goodness (Ps 135:3), for his electing love (Ps 135:4), his greatness (Ps 135:5-7) his judgments (Ps 135:8-12), his unchanging character (Ps 135:13), and his love towards his people. This is followed by a denunciation of idols (Ps 135:15-18), and a further exhortation to bless the name of the Lord. It is a song full of life, vigour, variety, and devotion.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Praise ye the LORD*&nbsp;, or,&nbsp;*Hallelujah*&nbsp;. Let those who are themselves full of holy praise labour to excite the like spirit in others. It is not enough for us to praise God ourselves, we are quite unequal to such a work; let us call in all our friends and neighbours, and if they have been slack in such service, let us stir them up to it with loving exhortations.&nbsp;*Praise ye the name of the LORD.*&nbsp;Let his character be extolled by you, and let all that he has revealed concerning himself be the subject of your song; for this is truly his&nbsp;*name*&nbsp;. Specially let his holy and incommunicable name of "Jehovah" be the object of your adoration. By that name he sets forth his self existence, and his immutability; let these arouse your praises of his Godhead. Think of hint with love, admire him with heartiness, and then extol him with ardour. Do not only magnify the Lord because he is God; but study his character and his doings, and thus render intelligent, appreciative praise.&nbsp;*Praise him, O ye servants of the Lord.*&nbsp;If others are silent, you must not be; you must be the first to celebrate his praises. You are "servants", and this is part of your service; his "name" is named upon you, therefore celebrate his name with praises; you know what a blessed Master he is, therefore speak well of him. Those who shun his service are sure to neglect his praise; but as grace has made you his own personal servants, let your hearts make you his court musicians. Here we see the servant of the Lord arousing his fellow servants by three times calling upon them to praise. Are we, then, so slow in such a sweet employ? Or is it that when we do our utmost it is all too little for such a Lord? Both are true. We do not praise enough; we cannot praise too much. We ought to be always at it; answering to the command here given—Praise, Praise, Praise. Let the Three-in-one have the praises of our spirit, soul, and body. For the past, the present, and the future, let us render threefold hallelujahs.
 
@@ -60,7 +60,7 @@ Many have thought to worship Jehovah, and other gods with him; but this holy man
 
 **Verse 20.**&nbsp;&nbsp;*Bless the LORD, O house of Levi.*&nbsp;These helped the priests in other things, let them aid them in this also. The house of Israel comprehends all the chosen seed; then we come down to the smaller but more central ring of the house of Aaron, and now we widen out to the whole tribe of Levi. Let reverence and adoration spread from man to man until the whole lump of humanity shall be leavened. The house of Levi had choice reasons for blessing God: read the Levite story and see. Remember that the whole of the Levites were set apart for holy service, and supported by tim tribes allotted to them; therefore they were in honour bound above all others to worship Jehovah with cheerfulness.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 Jehovah, infinitude, immensity itself, in all things, to all things, beyond all things, everywhere, wholly, essentially, continually present: as Jehovah, constancy, immutability, eternity itself, without any variableness, or shadow of change; yesterday, today, and for ever the same. In a word, when we think of the Most High God, Father, Son, and Holy Ghost, we should think of him as Jehovah, Unity in Trinity, Trinity in Unity, Three Persons, One Being, One Essence, One Lord, One Jehovah, blessed for ever. This is that glorious, that Almighty Being, which the Psalmist here means when he saith,&nbsp;*"Praise ye the name of the LORD."*&nbsp;—&nbsp;*William Beveridge,*&nbsp;1636-1708.
 
@@ -200,7 +200,7 @@ lase having gods that are both deaf and dumb.
 
 **Verse 21.**&nbsp;&nbsp;*Bless, Praise.*&nbsp;We are not only to bless God, but to praise him: "All thy works shall praise thee, O LORD; and thy saints shall bless thee." Blessing relateth to his benefits, praise to his excellencies. We bless him for what he is to us, we praise him for what he is in himself. Now, whether we bless him, or praise him; it is still to increase our love to him, and delight in him; for God is not affected with the flattery of empty praises; yet this is an especial duty, which is of use to you, as all other duties are. It doth you good to consider him as an infinite and eternal Being, and of glorious and incomprehensible majesty. It is pleasant and profitable to us.—&nbsp;*Thomas Manton.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verses 1-4.**&nbsp;
 

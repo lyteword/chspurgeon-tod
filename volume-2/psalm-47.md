@@ -10,7 +10,7 @@ weight: 47
 
 **DIVISION.**&nbsp;In so short a Psalm, there is no need of any other division than that indicated by the musical pause at the end of Ps 47:4.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*O clap your hands.*&nbsp;The most natural and most enthusiastic tokens of exultation are to be used in view of the victories of the Lord, and his universal reign. Our joy in God may be demonstrative, and yet he will not censure it.&nbsp;*All ye people.*&nbsp;The joy is to extend to all nations; Israel may lead the van, but all the Gentiles are to follow in the march of triumph, for they have an equal share in that kingdom where there is neither Greek nor Jew, but Christ is all and in all. Even now if they did but know it, it is the best hope of all nations that Jehovah ruleth over them. If they cannot all speak the same tongue, the symbolic language of the hands they can all use. All people will be ruled by the Lord in the latter days, and all will exult in that rule; were they wise they would submit to it now, and rejoice to do so; yea, they would clap their hands in rapture at the thought.&nbsp;*Shout,*&nbsp;let your voices keep tune with your hands.&nbsp;*Unto God,*&nbsp;let him have all the honours of the day, and let them be loud, joyous, universal, and undivided.&nbsp;*With the voice of triumph,*&nbsp;with happy sounds, consonant with such splendid victories, so great a King, so excellent a rule, and such happy subjects. Many are human languages, and yet the nations may triumph as with one voice. Faith's view of God's government is full of transport. The prospect of the universal reign of the Prince of Peace is enough to make the tongue of the dumb sing; what will the reality be? Well might the poet of the seasons bid mountains and valleys raise their joyous hymn—
 
@@ -64,7 +64,7 @@ He is thine and thou art his."
 
 For the shields of the earth belong unto God. The insignia of pomp, the emblems of rank, the weapons of war, all must pay loyal homage to the King of all. Right honourables must honour Jesus, and majesties must own him to be far more majestic. Those who are earth's protectors, the shields of the commonwealth, derive their might from him, and are his. All principalities and powers must be subject unto Jehovah and his Christ, for&nbsp;*He is greatly exalted.*&nbsp;In nature, in power, in character, in glory, there is none to compare with him. Oh, glorious vision of a coming era! Make haste, ye wheels of time! Meanwhile, ye saints, "Be ye steadfast, unmovable, always abounding in the work of the Lord, forasmuch as ye know that your labour is not in vain in the Lord."
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;Some have applied this Psalm to Christ's ascension; but it speaks of his Second Coming. The Mighty One is seated peacefully on his throne. We are referred back to Ps 45:1-17.&nbsp;*Andrew A. Bonar.*&nbsp;
 
@@ -126,7 +126,7 @@ For the shields of the earth belong unto God. The insignia of pomp, the emblems 
 
 **Verse 9.**&nbsp;&nbsp;*The shields of the earth.*&nbsp;Magistrates are said to&nbsp;*bear the sword,*&nbsp;not to be swords; and they are said&nbsp;*to be shields,*&nbsp;not to bear shields; and all this to show that protection and preservation are more essential and intrinsical to their office than destruction and punishment are.&nbsp;*Joseph Caryl.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;Unusual and enthusiastic expressions of joy when justifiable and even desirable.
 
@@ -198,7 +198,7 @@ For the shields of the earth belong unto God. The insignia of pomp, the emblems 
 
 5\.Remember, a shield must ever&nbsp;*have an eye to guide it*&nbsp;—you the shields, the law the eye.&nbsp;*Bishop Reynolds.*&nbsp;
 
-## WORK UPON THE FORTY-SEVENTH PSALM
+## Works Upon The Forty-Seventh Psalm
 
 In the Works of JOHN BOYS, 1626, folio, pp. 931-937, there is an Exposition of this Psalm.
 

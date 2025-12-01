@@ -8,7 +8,7 @@ To the Chief Musician. Although David had his own case in his mind's eye, yet he
 
 **DIVISION.**&nbsp;The ungodly enemy is accused, Ps 58:1-5; judgment is sought from the judge, Ps 58:6-8; and seen in prophetic vision as already executed, Ps 58:9-11.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Do ye indeed speak righteousness, O congregation?*&nbsp;The enemies of David were a numerous and united band, and because they so unanimously condemned the persecuted one, they were apt to take it for granted that their verdict was a right one. "What everybody says must be true, "is a lying proverb based upon the presumption which comes of large combinations. Have we not all agreed to hound the man to the death, and who dare hint that so many great ones can be mistaken? Yet the persecuted one lays the axe at the root by requiring his judges to answer the question whether or not they were acting according to justice. It were well if men would sometimes pause, and candidly consider this. Some of those who surrounded Saul were rather passive than active persecutors; they held their tongues when the object of royal hate was slandered; in the original, this first sentence appears to be addressed to them, and they are asked to justify their silence. Silence gives consent. He who refrains from defending the right is himself an accomplice in the wrong. Do ye judge uprightly, O ye sons of men? Ye too are only men though dressed in a little brief authority. Your office for men, and your relation to men both bind you to rectitude; but have ye remembered this? Have ye not put aside all truth when ye have condemned the godly, and united in seeking the overthrow of the innocent? Yet in doing this be not too sure of success, or ye are only the "sons of men, "and there is a God who can and will reverse your verdicts.
 
@@ -38,7 +38,7 @@ No, we call and call, and call in vain, till the arm of the Lord is revealed. Th
 
 **Verse 11.**&nbsp;&nbsp;*So that a man shall say.*&nbsp;Every man however ignorant shall be compelled to say, Verily, in very deed, assuredly, there is a reward for the righteous. If nothing else be true this is. The godly are not after all forsaken and given over to their enemies; the wicked are not to have the best of it, truth and goodness are recompensed in the long run. Verily he is a God that judgeth in the earth. All men shall be forced by the sight of the final judgment to see that there is a God, and that he is the righteous ruler of the universe. Two things will come out clearly after all—there is a God and there is a reward for the righteous. Time will remove doubts, solve difficulties, and reveal secrets; meanwhile faith's foreseeing eye discerns the truth even now, and is glad thereat.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;The proper meaning of the root of&nbsp;*Michtam*&nbsp;is&nbsp;*to engrave,*&nbsp;or&nbsp;*to stamp a metal.*&nbsp;It therefore, in strictness, means,&nbsp;*an engraving*&nbsp;or&nbsp;*sculpture.*&nbsp;Hence in the Septuagint, it is translated&nbsp;*sthlografia,*&nbsp;an inscription on a column. I would venture to offer a conjecture in perfect harmony with this view. It appears by the titles of four out of these six Psalms, that they were composed by David while flying and hiding from the persecutions of Saul. What, then, should hinder us from imagining that they were inscribed on the rocks and on the sides of the caves which so often formed his place of refuge? This view would accord with the strict etymological meaning of the word, and explain the rendering of the Septuagint.&nbsp;*John Jebb, in "A Literal Translation of the Book of Psalms,"*&nbsp;1846. (See also Explanatory Notes on Psalms 6 and 56. "Treasury of David", Vol. 1., pp. 222-23; Vol. 3, p. 40.)
 
@@ -124,7 +124,7 @@ No, we call and call, and call in vain, till the arm of the Lord is revealed. Th
 
 **Verse 11.**&nbsp;This judging here does not refer to the judgment to come, at the last day, when there shall be a general convention of quick and dead before the Lord's dreadful tribunal; though so, it is most true&nbsp;*affore tempus,*&nbsp;that there will be a time when God will ride his circuit here in a solemn manner,&nbsp;*so that a man shall say, Verily there is a reward for the righteous: verily he is a God that judgeth in the earth;*&nbsp;but that is not the scope of this place. It is in the present tense,&nbsp;*o krinwn, that now judgeth*&nbsp;, or&nbsp;*is now judging*&nbsp;the earth and the inhabitants thereof; and therefore it must be understood of a judgment on this side, the judgment of the great day; and so God judges the earth, or in the earth, three manner of ways. First, by a providential ordering and wise disposal of all the affairs of all creatures. Secondly, in relieving the oppressed, and pleading the cause of the innocent. Thirdly, in overthrowing and plaguing the wicked doers.&nbsp;*John Hinckley.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 3.**&nbsp;
 

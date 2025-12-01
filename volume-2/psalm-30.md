@@ -12,7 +12,7 @@ I have not tasted yet."
 
 Throughout this Psalm there are indications that David had been greatly afflicted, both personally and relatively, after having, in his presumption, fancied himself secure. When God's children prosper one way, they are generally tried another, for few of us can bear unmingled prosperity. Even the joys of hope need to be mixed with the pains of experience, and the more surely so when comfort breeds carnal security and self confidence. Nevertheless, pardon soon followed repentance, and God's mercy was glorified. The Psalm is a song, and not a complaint. Let it be read in the light of the last days of David, when he had numbered the people, and God had chastened him, and then in mercy had bidden the angel sheathe his sword. On the floor of Ornan, the poet received the inspiration which glows in this delightful ode. It is the Psalm of the numbering of the people, and of the dedication temple which commemorated the staying of the plague.**DIVISION.**&nbsp;In Ps 30:1-3, David extols the Lord for delivering him. Ps 30:4-5 he invites the saints to unite with him in celebrating divine compassion. In Ps 30:6-7 he confesses the fault for which he was chastened, Ps 30:8-10 repeats the supplication which he offered, and concludes with commemorating his deliverance and vowing eternal praise.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*I will extol thee.*&nbsp;I will have high and honourable conceptions of thee, and give them utterance in my best music. Others may forget thee, murmur at thee, despise thee, blaspheme thee, but "I will extol thee, "for I have been favoured above all others. I will extol thy name, thy character, thine attributes, thy mercy to me, thy great forbearance to my people; but, especially will I speak well of thyself; "I will extol thee, "O Jehovah; this shall be my cheerful and constant employ.&nbsp;*For thou hast lifted me up.*&nbsp;Here is an antithesis, "I will exalt thee, for thou hast exalted me." I would render according to the benefits received. The Psalmist's praise was reasonable. He had a reason to give for the praise that was in his heart. He had been drawn up like a prisoner from a dungeon, like Joseph out of the pit, and therefore he loved his deliverer. Grace has uplifted us from the pit of hell, from the ditch of sin, from the Slough of Despond, from the bed of sickness, from the bondage of doubts and fears: have we no song to offer for all this? How high has our Lord lifted us? Lifted us up into the children's place, to be adopted into the family; lifted us up into union with Christ, "to sit together with him in heavenly places." Lift high the name of our God, for he has lifted us up above the stars.&nbsp;*And hast not made my foes to rejoice over me.*&nbsp;This was the judgment which David most feared out of the three evils; he said, let me fall into the hand of the Lord, and not into the hand of man. Terrible indeed were our lot if we were delivered over to the will of our enemies. Blessed be the Lord, we have been preserved from so dire a fate. The devil and all our spiritual enemies have not been permitted to rejoice over us; for we have been saved from the fowler's snare. Our evil companions, who prophesied that we should go back to our old sins, are disappointed. Those who watched for our halting, and would fain say, "Aha! Aha! So would we have it!" have watched in vain until now. O happy they whom the Lord keeps so consistent in character that the lynx eyes of the world can see no real fault in them. Is this our case? let us ascribe all the glory to him who has sustained us in our integrity.
 
@@ -64,7 +64,7 @@ And say when the death dew lays cold on my brow,
 
 If ever I loved thee, my Jesus, it is now."
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Title.**&nbsp;&nbsp;*"A Psalm and Song, "*&nbsp;etc. It is thought that when these two words of&nbsp;*Psalm and Song*&nbsp;are both put in the title of a Psalm, it is meant that the sound of instruments was to be joined with the voice when they were sung in the Temple, and that the voice went&nbsp;*before*&nbsp;when it is said&nbsp;*Song and Psalm,*&nbsp;and did come&nbsp;*after*&nbsp;when it is said&nbsp;*Psalm and Song. John Diodati*&nbsp;.
 
@@ -206,7 +206,7 @@ Why we have wept before."
 
 **Verse 12.**&nbsp;&nbsp;*I will give thanks.*&nbsp;What is praise? The rent we owe to God; and the larger the farm the greater the rent should be.&nbsp;*G. S. Bowes,*&nbsp;1863.
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Title.**&nbsp;House dedication, and how to arrange it.
 
@@ -280,7 +280,7 @@ Why we have wept before."
 
 **Verse 12.**&nbsp;(&nbsp;*last clause*&nbsp;). The believer's vow and the time for making it. See the whole Psalm.
 
-## WORKS UPON THE THIRTIETH PSALM
+## Works Upon The Thirtieth Psalm
 
 &nbsp;*Meditations upon the XXX Psalme of David.*&nbsp;By Sir RICHARD BAKER. (See Page 10.)
 

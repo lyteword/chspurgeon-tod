@@ -12,7 +12,7 @@ That choice band of singers, the sons of Korah, are bidden to make this delightf
 
 **DIVISION.**&nbsp;The structure of the song directs us to consider it in two parts which end with the same refrain; Ps 42:1-5 and then Ps 42:6-11.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*As the hart panteth after the water brooks, so panteth my soul after the, O God.*&nbsp;As after a long drought the poor fainting hind longs for the streams, or rather as the hunted hart instinctively seeks after the river to lave its smoking flanks and to escape the dogs, even so my weary, persecuted soul pants after the Lord my God. Debarred from public worship, David was heartsick. Ease he did not seek, honour he did not covet, but the enjoyment of communion with God was an urgent need of his soul; he viewed it not merely as the sweetest of all luxuries, but as an absolute necessity, like water to a stag. Like the parched traveller in the wilderness, whose skin bottle is empty, and who finds the wells dry, he must drink or die—he must have his God or faint. His&nbsp;*soul,*&nbsp;his very self, his deepest life, was insatiable for a sense of the divine presence. As the hart brays so his soul prays. Give him his God and he is as content as the poor deer which at length slakes its thirst and is perfectly happy; but deny him his Lord, and his heart heaves, his bosom palpitates, his whole frame is convulsed, like one who gasps for breath, or pants with long running. Dear reader, dost thou know what this is, by personally having felt the same? It is a sweet bitterness. The next best thing to living in the light of the Lord's love is to be unhappy till we have it, and to pant hourly after it—hourly, did I say? thirst is a perpetual appetite, and not to be forgotten, and even thus continual is the heart's longing after God. When it is as natural for us to long for God as for an animal to thirst, it is well with our souls, however painful our feelings. We may learn from this verse that the eagerness of our desires may be pleaded with God, and the more so, because there are special promises for the importunate and fervent.
 
@@ -60,7 +60,7 @@ The health is of my countenance,
 
 Yea, mine own God is he."
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;&nbsp;*"Sons of Korah."*&nbsp;Who were&nbsp;*the sons of Korah?*&nbsp;These opinions have more or less prevailed. One is that they sprang from some one of that name in the days of David. Mudge and others think that the sons of Korah were a society of musicians, founded or presided over by Korah. Others think that the sons of Korah were the surviving descendants of that miserable man who, together with two hundred and fifty of his adherents, who were princes, perished when "the earth opened her mouth and swallowed them up, together with Korah." In Nu 26:11 we read: "Notwithstanding the children of Korah died not." They had taken the warning given, and had departed from the tents of these wicked men. Nu 16:24,26. It must be admitted that the name&nbsp;*Korah*&nbsp;and the patronymic&nbsp;*Korahite*&nbsp;are found in the Scriptures in a way that creates considerable doubt respecting the particular man from whom the Korahites are named. See 1Ch 1:35 2:43 6:22,54 9:19 26:1 2Ch 20:19. Yet the more common belief is that they descended from him who perished in his gainsaying. This view is taken by Ainsworth with entire confidence, by Gill, and others. Korah, who perished, was a Levite. Whatever may have been their origin, it is clear&nbsp;*the sons of Korah*&nbsp;were a Levitical family of singers. Nothing, then, could be more appropriate than the dedication of a sacred song to these very people.&nbsp;*William S. Plumer.*&nbsp;
 
@@ -288,7 +288,7 @@ Another lifts its boisterous head.
 
 **Verse 11.**&nbsp;The soul, when once greatly disturbed, is often not soon calmed, on account of infirmities and remaining corruptions.&nbsp;*Henry March.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;The longing heart and the panting hart compared.
 
@@ -450,7 +450,7 @@ Or, the cause, incentives, excellences, and privileges of spiritual thirst.
 
 2\.His&nbsp;*relation*&nbsp;to God, and&nbsp;*interest*&nbsp;in him—&nbsp;*And my God. T. Horton.*&nbsp;
 
-## WORKS UPON THE FORTY-SECOND PSALM
+## Works Upon The Forty-Second Psalm
 
 A Practical Exposition of the Forty-second Psalm, in ten Sermons, in&nbsp;*Choice and Practical Expositions on four select Psalms.*&nbsp;Psalms 4, 42, 51, 63. By THOMAS HORTON, D.D. 1675. Folio.
 

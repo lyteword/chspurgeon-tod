@@ -8,7 +8,7 @@ weight: 94
 
 **DIVISION.**&nbsp;In Ps 94:1-7 the psalmist utters his complaint against wicked oppressors. From Ps 94:8-11 he reasons against their sceptical notion that God did not notice the actions of men. He then shows that the Lord does bless his people and will deliver them, though for a while they may be chastened, Ps 94:12-15. He again pleads for help in Ps 94:16, and declares his entire dependence upon God for preservation, Ps 94:17-19; yet a third time urges his complaint, Ps 94:20-21; and then concludes with the confident assurance that his enemies, and all other wicked men, would certainly be made to reap the due reward of their deeds,—"yea, the Lord our God shall cut them off."
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*O LORD God, to whom vengeance belongeth; 0 God, to whom vengeance belongeth, shew thyself:*&nbsp;or,&nbsp;*God of retribution, Jehovah, God of retribution, shine forth!*&nbsp;A very natural prayer when innocence is trampled down, and wickedness exalted on high. If the execution of justice be a right thing,—and who can deny the fact?—then it must be a very proper thing to desire it; not out of private revenge, in which case a man would hardly dare to appeal to God, but out of sympathy with right, and pity for those who are made wrongfully to suffer, Who can see a nation enslaved, or even an individual downtrodden, without crying to the Lord to arise and vindicate the righteous cause? The toleration of injustice is here attributed to the Lord's being hidden, and it is implied that the bare sight of him will suffice to alarm the tyrants into ceasing their oppressions. God has but to show himself, and the good cause wins the day. He comes, he sees, he conquers! Truly in these evil days we need a manifest display of his power, for the ancient enemies of God and man are again struggling for the mastery, and if they gain it, woe unto the saints of God.
 
@@ -64,7 +64,7 @@ But he never can cease to love."
 
 **Verse 23.**&nbsp;The natural result of oppression is the destruction of the despot; his own iniquities crush him ere long. Providence arranges retaliations as remarkable as they are just. High crimes in the end bring on heavy judgments, to sweep away evil men from off the face of the earth; yea, God himself interposes in a special manner, and cuts short the career of tyrants while they are in the very midst of their crimes. Wicked men are often arrested by the pursuivants of divine justice red handed, with the evidences of their guilt upon them. He shall bring upon them their own iniquity, and shall cut them off&nbsp;*in their own wickedness.*&nbsp;While the stolen bread is in their mouths wrath slays them, while the ill gotten wedge of gold is yet in their tent judgment overtakes them. God himself conspicuously visits them, and reveals his own power in their overthrow, yea, the Lord our God shall cut them off. Here, then, the matter ends; faith reads the present in the light of the future, and ends her song without a trembling note.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Verse 1.**&nbsp;&nbsp;*0 LORD God, to whom vengeance belongeth.*&nbsp;It may perhaps seem to accord too little with a lover of piety, so strenuously to urge upon God to show himself an avenger against the wicked, and to rouse Him as if He were lingering and procrastinating. But this supplication must be regarded in its proper bearing; for David does not pray, neither should we pray, that God would take vengeance on the wicked in the same way that men, inflamed with anger and hatred, are wont often to avenge themselves of their enemies, but that He would punish them after his own divine manner and measure. The vengeance of God is for the most part a medicine for the evil; but ours is at times destruction even to the good. Therefore truly the Lord is alone the God of revenges. For we, when we think we have inflicted a penalty upon our enemy, are often much mistaken. What injury to us was the body of our enemy? in depriving him of which we nevertheless express all our bitterness. What wounded thee and wrought thee harm and shame, was the spirit of thine enemy, and that thou art not able to seize and hold, but God is able; and He alone has such power that in no way can the spirit escape his strength and force. Leave vengeance with Him, and He will repay. He admonishes us, that if we ourselves wish to be avengers of our own pains and injuries we may hurt ourselves more deeply than our enemy: for when we take vengeance on him, we indeed wound and do violence to his body, which in itself is vile and of little regard; but in our own best and most precious part, that is, in our spirit; we ourselves, by losing patience, receive a deep stain, because when virtue and humanity have been expelled thence, we meanwhile incur faults to be atoned for therein. Wherefore God is entreated to become Himself the avenger of our injuries, for He alone knows aright and is able to avenge; and to become such an avenger that only the very thing which injured us may be punished. Some greedy man has cheated thee in money, may He punish avarice in him. A proud man has treated thee with scorn, may He destroy his pride, etc... This is vengeance most worthy to be inflicted of God, and by us to be sought.&nbsp;*Jacopo Sadoleto. 1477-1547.*&nbsp;
 
@@ -258,7 +258,7 @@ Now what are these&nbsp;*"comforts"*&nbsp;of God which the psalmist does more es
 
 **Verse 23.**&nbsp;&nbsp;*He shall bring upon them their own iniquity,*&nbsp;etc. It is an ill work wicked ones are about, they make fetters for their own feet, and build houses for to fall upon their own heads; so mischievous is the nature of sin that it damnifies and destroys the parents of it.&nbsp;*William Greenhill.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;
 
@@ -468,7 +468,7 @@ Or
 
 2\.None need punish them but himself. (a) It will be complete,—"shall cut them off." (b) Certain. "Yea, "etc.&nbsp;*G.R.*&nbsp;
 
-## WORK UPON THE NINETY-FOURTH PSALM
+## Works Upon The Ninety-Fourth Psalm
 
 In the Works of Cardinal Sadoleto (1477-1547), pp. 895-972, there is an Exposition of this Psalm, 8 volume edition, Anno Domini 1607.
 

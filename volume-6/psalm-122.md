@@ -6,7 +6,7 @@ weight: 122
 
 **TITLE AND SUBJECT.**&nbsp;This brief but spirited Psalm is entitled&nbsp;*"A Song of Degrees of David",*&nbsp;and thus we are informed as go its author, and the occasion for which it was designed: David wrote it for the people to sing at the time of their goings up to the holy feasts at Jerusalem. It comes third in the series, and appears to be suitable to be sung when the people had entered the gates, and their feet stood within the city. It was most natural that they should sing of Jerusalem itself, and invoke peace and prosperity upon the Holy City, for it was the centre of their worship, and the place where the Lord revealed himself above the mercy seat. Possibly the city was not all built in David's day, but he wrote under the spirit of prophecy, and spoke of it as it would be in the age of Solomon; a poet has license to speak of things, not only as they are, but as they will be when they come to their perfection. Jerusalem, or the Habitation of Peace, is used as the key word of this Psalm, wherein we have in the original many happy allusions to the salem, or peace, which they implored upon Jerusalem. When they stood within the triple walls, all things around the pilgrims helped to explain the words which they sang within her ramparts of strength. One voice led the Psalm with its personal "I, " but ten thousand brethren and companions united with the first musician and swelled the chorus of the strain.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*I was glad when they said unto me, Let us go into the house of the LORD.*&nbsp;Good children are pleased to go home, and glad to hear their brothers and sisters call them thither. David's heart was in the worship of God, and he was delighted when he found others inviting him to go where his desires had already gone: it helps the ardour of the most ardent to hear others inviting them to a holy duty. The word was not "go, "but "let us go"; hence the ear of the Psalmist found a double joy in it. He was glad&nbsp;*for the sake of others*&nbsp;:glad that they wished to go themselves, glad that they had the courage and liberality to invite others. He knew that it would do them good; nothing better can happen to men and their friends than to love the place where God's honour dwelleth. What a glorious day shall that be when many people shall go and say, "Come ye, and let us go up to the mountain of the Lord, to the house of the God of Jacob, and he will teach us of his ways, and we will walk in his paths." But David was glad&nbsp;*for his own sake*&nbsp;:he loved the invitation to the holy place, he delighted in being called to go to worship in company, and, moreover, he rejoiced that good people thought enough of him to extend their invitation to him. Some men would have been offended, and would have said, "Mind your own business. Let my religion alone; "but not so King David, though he had mote dignity than any of us, and less need to be reminded of his duty. He was not teased but pleased by being pressed to attend holy services. He was glad to go into the house of the Lord, glad to go in holy company, glad to find good men and women willing to have him in their society. He may have been sad before, but this happy suggestion cheered him up: he pricked up his ears, as the proverb puts it, at the very mention of his Father's house. Is it so with us? Are we glad when others invite us to public worship, or to church fellowship? Then we shall be glad when the spirits above shall call us to the house of the Lord not made with hands, eternal in the heavens.
 
@@ -44,7 +44,7 @@ To a true saint the throne is never more amiable than in its judicial capacity; 
 
 **Verse 9.**&nbsp;&nbsp;*Because of the house of the LORD our God I will seek thy good.*&nbsp;He prays for Jerusalem because of Zion. How the church salts and savours all around it. The presence of Jehovah, our God, endears to us every place wherein he reveals his glory. Well may we seek her good within whose walls there dwells God who alone is good. We are to live for God's cause, and to be ready to die for it. First we love it (Ps 122:6) and then we labour for it, as in this passage: we see its good, and then seek its good. If we can do nothing else we can intercede for it. Our covenant relation to Jehovah as our God binds us to pray for his people,—they are "the house of the Lord our God." If we honour our God we desire the prosperity of the church which he has chosen for his indwelling. Thus is the poet glad of an invitation to join with others in the Lord's service. He goes with them and rejoices, and then he turns his delight into devotion, and intercedes for the city of the great King. O church of the living God, we hail thine assemblies, and on bended knee we pray that thou mayest have peace and felicity. May our Jehovah so send it. Amen.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;Foxe, in his "Acts and Monuments, "relates of Wolfgang Schuch, the martyr, of Lothareng in Germany, that upon hearing the sentence that he was to be burned pronounced upon him, he began to sing the hundred and twenty second Psalm,&nbsp;*Laetus sum in his quae dicta suni mihi.*&nbsp;etc.
 
@@ -138,7 +138,7 @@ Catch the glad sounds, and shout "Jerusalem, all hail."
 
 **Verse 9.**&nbsp;&nbsp;*I will seek thy good.*&nbsp;It is not a cold wish; it is not a careless, loose seeking after it, that is the phrase in my text—&nbsp;*"I will seek thy good."*&nbsp;It is not a careless, loose seeking after it, almost as indifferently as a woman seeks after a pin which she has dropped; no, no; effort is implied.&nbsp;*"I will seek"*&nbsp;; I will throw my energies into it; my powers, my faculties, my property, my time, my influence, my connections, my family, my house, all that I have under my command shall, as far as I have power to command, and as far as God gives me ability to turn them to such a use, be employed in an effort to promote the interests of Zion.&nbsp;*Joseph Irons,*&nbsp;1786-1852.
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Whole Psalm.**&nbsp;Observe,
 
@@ -388,7 +388,7 @@ b) In the church. These are the palaces of the Great King; "The ivory palaces wh
 
 5\.By living so as to commend religion.
 
-## WORKS UPON THE HUNDRED AND TWENTY-SECOND PSALM
+## Works Upon The Hundred And Twenty-Second Psalm
 
 In&nbsp;*"Chandler's Life of David, "*&nbsp;vol. 2. pp. 131-4, there is an Exposition of this Psalm.
 

@@ -8,7 +8,7 @@ weight: 48
 
 **SUBJECT AND DIVISION.**&nbsp;It would be idle dogmatically to attribute this song to any one event of Jewish history. Its author and date are unknown. It records the withdrawal of certain confederate kings from Jerusalem, their courage failing them before striking a blow. The mention of the ships of Tarshish may allow us to conjecture that the Psalm was written in connection with the overthrow of Ammon, Moab, and Edom in the reign of Jehoshaphat; and if the reader will turn to 2 Chronicles 20, and note especially 2Ch 20:19,25,36, he will probably accept the suggestion. Ps 48:1-3, are in honour of the Lord and the city dedicated to his worship. From Ps 48:4-8 the song records the confusion of Zion's foes, ascribing all the praise to God; Ps 48:9-11 extolling Zion, and avowing Jehovah to be her God for evermore.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Great is the Lord.*&nbsp;How great Jehovah is essentially none can conceive; but we can all see that he is great in the deliverance of his people, great in their esteem who are delivered, and great in the hearts of those enemies whom he scatters by their own fears. Instead of the mad cry of Ephesus, "Great is Diana, "we bear the reasonable, demonstrable, self evident testimony, "Great is Jehovah." There is none great in the church but the Lord. Jesus is "the&nbsp;*great*&nbsp;Shepherd, "he is "a Saviour, and a great one, "our great God and Saviour, our great High Priest; his Father has divided him a portion with the great, and his name shall be great unto the ends of the earth.&nbsp;*And greatly to be praised.*&nbsp;According to his nature should his worship be; it cannot be too constant, too laudatory, too earnest, too reverential, too sublime.&nbsp;*In the city of our God.*&nbsp;He is great there, and should be greatly praised there. If all the world beside renounced Jehovah's worship, the chosen people in his favoured city should continue to adore him, for in their midst and on their behalf his glorious power has been so manifestly revealed. In the church the Lord is to be extolled though all the nations rage against him. Jerusalem was the peculiar abode of the God of Israel, the seat of the theocratic government, and the centre of prescribed worship, and even thus is the church the place of divine manifestation.&nbsp;*In the mountain of his holiness.*&nbsp;Where his holy temple, his holy priests, and his holy sacrifices might continually be seen. Zion was a mount, and as it was the most renowned part of the city, it is mentioned as a synonym for the city itself. The church of God is a mount for elevation and for conspicuousness, and it should be adorned with holiness, her sons being partakers of the holiness of God. Only by holy men can the Lord be fittingly praised, and they should be incessantly occupied with his worship.
 
@@ -48,7 +48,7 @@ Secure from age to age."
 
 Farewell, fear. Come hither, gratitude and faith, and sing right joyously.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;A Song and Psalm. Wherein both voice and instrument were used; the voice began first and the instrument after: and where the inscription is a Psalm and Song, there likely the instrument began and the voice followed.&nbsp;*John Richardson.*&nbsp;
 
@@ -130,7 +130,7 @@ Of alabaster, topped with golden spires.
 
 **Verse 14.**&nbsp;(&nbsp;*last clause*&nbsp;). The last clause is much misunderstood. It is not, "Our guide&nbsp;*unto*&nbsp;death, "for the words are, (twm-le wnghny), "shall lead us&nbsp;*over*&nbsp;death." Surely it means, "It is he who leads over&nbsp;*death to resurrection"*&nbsp;—over Jordan to Canaan. The (Heb.) is used in Le 15:25, for&nbsp;*"beyond, "*&nbsp;in regard to time, and is not this the sense here? "&nbsp;*Beyond*&nbsp;the time of death"? Till death is to us over? Till we have&nbsp;*stood upon the grace of death?*&nbsp;Yes; he it is who leads us on to this last victory; he swallows up death in victory, and leads us to&nbsp;*trample on death*&nbsp;. And so viewed, we easily discern the beautiful link of thought that joins this Psalm to that which follows. Such is the celebration of&nbsp;*The Mighty One become the glory of Jerusalem. Andrew A. Bonar.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 All the suggestions under this Psalm except those otherwise designated, are by our beloved friend, Rev. George Rogers, Tutor of the Pastor's College.
 

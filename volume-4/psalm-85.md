@@ -10,7 +10,7 @@ weight: 85
 
 **DIVISION.**&nbsp;In Ps 85:1-4 the poet sings of the Lord's former mercies and begs him to remember his people; from Ps 85:5-7 he pleads the cause of afflicted Israel; and then, having listened to the sacred oracle in Ps 85:8, he publishes joyfully the tidings of future good, Ps 85:9-13.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*LORD, thou hast been favourable unto thy land.*&nbsp;The self existent, all sufficient JEHOVAH is addressed: by that name he revealed himself to Moses when his people were in bondage, by that name he is here pleaded with. It is wise to dwell upon that view of the divine character which arouses the sweetest memories of his love. Sweeter still is that dear name of "Our Father, "with which Christians have learned to commence their prayers. The psalmist speaks of Canaan as the Lord's land, for he chose it for his people, conveyed it to them by covenant, conquered it by his power, and dwelt in it in mercy; it was meet therefore that he should smile upon a land so peculiarly his own. It is most wise to plead the Lord's union of interest with ourselves, to lash our little boat as it were close to his great barque, and experience a sacred community in the tossings of the storm. It is&nbsp;*our*&nbsp;land that is devastated, but O Jehovah, it is also&nbsp;*thy*&nbsp;land. The psalmist dwells upon the Lord's favour to the chosen land, which he had shewed in a thousand ways. God's past doings are prophetic of what he will do; hence the encouraging argument—"Thou hast been favourable unto thy land, "therefore deal graciously with it again. Many a time had foes been baffled, pestilence stayed, famine averted, and deliverance vouchsafed, because of the Lord's favour; that same favourable regard is therefore again invoked. With an immutable God this is powerful reasoning; it is because he changes not that we are not consumed, and know we never shall be if he has once been favourable to us. From this example of prayer let us learn how to order our cause before God. It is clear that Israel was not in exile, or the prayer before us would not have referred to&nbsp;*the land*&nbsp;but to the nation. Thou hast brought back the captivity of Jacob. When down trodden and oppressed through their sins, the Ever merciful One had looked upon them, changed their sad condition, chased away the invaders, and given to his people rest: this he had done not once, nor twice, but times without number. Many a time have we also been brought into soul captivity by our backslidings, but we have not been left therein; the God who brought Jacob back from Padanaram to his father's house, has restored us to the enjoyment of holy fellowship;—will he not do the like again? Let us appeal to him with Jacob like wrestlings, beseeching him to be favourable, or sovereignly gracious to us notwithstanding all our provocations of his love. Let declining churches remember their former history, and with holy confidence plead with the Lord to turn their captivity yet again.
 
@@ -60,7 +60,7 @@ Whose pleasure is in unison with God's."
 
 **Verse 13.**&nbsp;&nbsp;*Righteousness shall go before him; and shall set us in the way of his steps.*&nbsp;God's march of right will leave a track wherein his people will joyfully follow. He who smote in justice will also bless in justice, and in both will make his righteousness manifest, so as to affect the hearts and lives of all his people. Such are the blessings of our Lord's first advent, and such shall be yet more conspicuously the result of his second coming. Even so, come Lord Jesus.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;This beautiful psalm, like some others, has come down to us without name or date; the production of some unknown poetic genius, touched, purified, and exalted by the fire of celestial inspiration; a precious relic of that golden age, when the Hebrew music was instinct with a spirit such as never breathed on Greece or Rome. It is interesting to reflect on the anonymous origin of some of the psalms; to remember how largely the church of God is indebted to some nameless worthies who wrote for us hymns and spiritual songs, full of richer strains than were ever poured forth by the most illustrious of pagan name. These holy men are passed away, they have left no record of their history; but they have bequeathed legacies of rich, varied, and inspired sentiments, which will render the church debtors to them to the end of time.&nbsp;*John Stoughton.*&nbsp;1852.
 
@@ -172,7 +172,7 @@ Whose pleasure is in unison with God's."
 
 **Verse 13.**&nbsp;(&nbsp;*last clause*&nbsp;). The sinner who feels his need of salvation, is&nbsp;*set—in the way of his steps;*&nbsp;as Bartimaeus sat by the way side begging, by which way Jesus walked; and when he came where he was, heard his prayer, and restored him his sight.&nbsp;*Adam Clarke.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;There is,
 
@@ -380,7 +380,7 @@ Whose pleasure is in unison with God's."
 
 3\.The righteousness of sanctification invariably follows that of justification.&nbsp;*G. R.*&nbsp;
 
-## WORK UPON THE EIGHTY-FIFTH PSALM
+## Works Upon The Eighty-Fifth Psalm
 
 In an old quarto volume of 788 pages, containing Expositions of several passages of Scripture, is a short Exposition of this Psalm (pp. 452-64) entitled&nbsp;*"A Taste of the Breathings, Pantings, Waitings, and Hopes of Israel after the true Saviour, and his effectual Redemption."*&nbsp;There is no Author's name, but some previous owner has written&nbsp;*"John Pennington"*&nbsp;on the title page: date 1656.
 

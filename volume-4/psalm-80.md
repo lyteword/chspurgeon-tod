@@ -8,7 +8,7 @@ weight: 80
 
 **DIVISION.**&nbsp;The Psalm divides itself naturally at the refrain which occurs three times: "Turn us again, O God, "etc. Ps 80:1-3 is an opening address to the Lord God of Israel; from Ps 80:4-7 is a lamentation over the national woe, and from Ps 80:8-19 the same complaint is repeated, the nation being represented in a beautiful allegory as a vine. It is a mournful Psalm, and its lilies are lilies of the valley.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*"Give ear, O Shepherd of Israel."*&nbsp;Hear thou the bleatings of thy suffering flock. The name is full of tenderness, and hence is selected by the troubled psalmist: broken hearts delight in names of grace. Good old Jacob delighted to think of God as the Shepherd of Israel, and this verse may refer to his dying expression: "From thence is the Shepherd, the stone of Israel." We may be quite sure that he who deigns to be a shepherd to his people will not turn a deaf ear to their complaints.&nbsp;*"Thou that leadest Joseph like a flock."*&nbsp;The people are called here by the name of that renowned son who became a second father to the tribes, and kept them alive in Egypt; possibly they were known to the Egyptians under the name of "the family of Joseph, "and if so, it seems most natural to call them by that name in this place. The term may, however, refer to the ten tribes of which Manasseh was the acknowledged head. The Lord had of old in the wilderness led, guided, shepherded all the tribes; and, therefore, the appeal is made to him. The Lord's doings in the past are strong grounds for appeal and expectation as to the present and the future.&nbsp;*"Thou that dwellest between the cherubims, shine forth."*&nbsp;The Lord's especial presence was revealed upon the mercyseat between the cherubim, and in all our pleadings we should come to the Lord by this way: only upon the mercyseat will God reveal his grace, and only there can we hope to commune with him. Let us ever plead the name of Jesus, who is our true mercyseat, to whom we may come boldly, and through whom we may look for a display of the glory of the Lord on our behalf. Our greatest dread is the withdrawal of the Lord's presence, and our brightest hope is the prospect of his return. In the darkest times of Israel, the light of her Shepherd's countenance is all she needs.
 
@@ -48,7 +48,7 @@ weight: 80
 
 **Verse 19.**&nbsp;&nbsp;*Turn us again, O Lord God of Hosts.*&nbsp;Here we have another advance in the title and the incommunicable name of Jehovah, the I AM is introduced. Faith's day grows brighter as the hours roll on; and her prayers grow more full and mighty. Cause thy face to shine; and we shall be saved. Even we who were so destroyed. No extremity is too great for the power of God. He is able to save at the last point, and that too by simply turning his smiling face upon his afflicted. Men can do little with their arm, but God can do all things with a glance. Oh, to live for ever in the light of Jehovah's countenance.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;It is an Asaph prayer again, full of pleas in Israel's behalf. It is as if they had before them Isa 63:1, "Then he remembered the days of old." They call to his mind the days of&nbsp;*Joseph,*&nbsp;when (Ge 49:24) the Lord miraculously fed them in Egypt. And then the&nbsp;*tabernacle days,*&nbsp;when (first, since the days of Eden), the Lord was known to dwell between the cherubim, on the mercyseat. They call to his mind&nbsp;*wilderness times*&nbsp;(verse 2), when their march was gladdened by his presence, "Ephraim, Benjamin, and Manasseh" looking on the Pillar of Glory as it rose before them, the guide and partner of their way (see Nu 10:32-34) "O God, bring us back again! Cause thy face to shine! and all shall be well again!"&nbsp;*Andrew A. Bonar.*&nbsp;
 
@@ -150,7 +150,7 @@ Now, can you watch such a scene, and not think of that Shepherd who leadeth Jose
 
 **Verse 19.**&nbsp;&nbsp;*Turn us again.*&nbsp;How well that we can look to God when our face is set wrong, that he may turn us, and so his face shine on us, as to bring blessing and present deliverance to his people.&nbsp;*J. N. Darby.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;In what respects the Lord acted as a Shepherd to Israel, as illustrative of his dealings with his Church.
 
@@ -188,7 +188,7 @@ Now, can you watch such a scene, and not think of that Shepherd who leadeth Jose
 
 **Verse 18**&nbsp;(&nbsp;*last clause*&nbsp;). The need of quickening in order to acceptable worship.
 
-## WORKS UPON THE EIGHTIETH PSALM
+## Works Upon The Eightieth Psalm
 
 Hieronymi Savonarolae Ferrariensis Meditationes in Psalmos—&nbsp;*Miserere—In Te Domine Speravi, et Qui Regis Israel*&nbsp;(12mo. Leyden: 1633).
 

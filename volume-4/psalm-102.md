@@ -10,7 +10,7 @@ weight: 102
 
 **DIVISION.**&nbsp;In the first part of the Psalm, Ps 102:1-11, the moaning monopolizes every verse, the lamentation is unceasing, sorrow rules the hour. The second portion, from Ps 102:12-28, has a vision of better things, a view of the gracious Lord, and his eternal existence, and care for his people, and therefore it is interspersed with sunlight as well as shaded by the cloud, and it ends up right gloriously with calm confidence for the future, and sweet restfulness in the Lord. The whole composition may be compared to a day which, opening with wind and rain, clears up at noon and is warm with the sun, continues fine, with intervening showers, and finally closes with a brilliant sunset.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Hear my prayer, O LORD.*&nbsp;Or O JEHOVAH. Sincere supplicants are not content with praying for praying's sake, they desire really to reach the ear and heart of the great God. It is a great relief in time of distress to acquaint others with our trouble, we are eased by their hearing our lamentation, but it is the sweetest solace of all to have God himself as a sympathizing listener to our plaint. That he is such is no dream or fiction, but an assured fact. It would be the direst of all our woes if we could be indisputably convinced that with God there is neither hearing nor answering; he who could argue us into so dreary a belief would do us no better service than if he had read us our death-warrants. Better die than be denied the mercy-seat. As well be atheists at once as believe in an unhearing, unfeeling God. And let my cry come unto thee. When sorrow rises to such a height that words become too weak a medium of expression, and prayer is intensified into a cry, then the heart is even more urgent to have audience with the Lord. If our cries do not enter within the veil, and reach to the living God, we may as well cease from prayer at once, for it is idle to cry to the winds; but, blessed be God, the philosophy which suggests such a hideous idea is disproved by the facts of every day experience, since thousands of the saints can declare, "Verily, God hath heard us."
 
@@ -76,7 +76,7 @@ And thy rememberance unto all generations. Men will forget me, but as for thee, 
 
 **Verse 28.**&nbsp;&nbsp;*The children of thy servants shall continue.*&nbsp;The Psalmist had early in the psalm looked forward to a future generation, and here he speaks with confidence that such a race would arise and be preserved and blessed of God. Some read it as a prayer, "let the sons of thy servants abide." Any way, it is full of good cheer to us; we may plead for the Lord's favour to our seed, and we may expect that the cause of God and truth will revive in future generations. Let us hope that those who are to succeed us will not be so stubborn, unbelieving and erring as we have been. If the church has been minished and brought low by the lukewarmness of the present race, let us entreat the Lord to raise up a better order of men, whose zeal and obedience shall win and hold a long prosperity. May our own dear ones be among the better generation who shall continue in the Lord's ways, obedient to the end. And their seed shall be established before thee. God does not neglect the children of his servants. It is the rule that Abraham's Isaac should be the Lord's, that Isaac's Jacob should be beloved of the Most High, and that Jacob's Joseph should find favour in the sight of God. Grace is not hereditary, yet God loves to be served by the same family time out of mind, even as many great landowners feel a pleasure in having the same families as tenants upon their estates from generation to generation. Here is Zion's hope, her sons will build her up, her offspring will restore her former glories. We may, therefore, not only for our own sakes, but also out of love to the church of God, daily pray that our sons and daughters may be saved, and kept by divine grace even unto the end,—established before the Lord. We have thus passed through the cloud, and in the next psalm we shall bask in the sunshine. Such is the chequered experience of the believer. Paul in the seventh of Romans cries and groans, and then in the eighth rejoices and leaps for joy; and so, from the moaning of the hundred and second psalm, we now advance to the songs and dancing of the hundred and third, blessing the Lord that, "though weeping may endure for a night, joy cometh in the morning."
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;&nbsp;*A prayer,*&nbsp;etc. The prayer following is longer than others. When Satan, the Law-Adversary, doth extend his pleas against us, it is meet that we should enlarge our counter pleas for our own souls; as the powers of darkness do lengthen aud multiply their wrestlings, so must we our counter wrestlings of prayer. Eph 6:12,18.&nbsp;*Thomas Cobbet,*&nbsp;1667.
 
@@ -254,7 +254,7 @@ But,&nbsp;*Ninthly*&nbsp;, If you would have his eternity yet more express, see 
 
 **Verse 28.**&nbsp;O the folly of the world, that seeks to make perpetuities to their houses by devises in the law, which may perhaps reach to continue their estates, but can it reach to continue their seed? It may entail lands to their heirs, but can it entail heirs to their lands? No, God knows! This is a perpetuity of only God's making, a privilege of only God's servants: for&nbsp;*The children of his servants shall continue, and theiv seed shall be established before him;*&nbsp;but that any others shall continue is no part of David's warrant.&nbsp;*Sir R. Baker.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **TITLE.**&nbsp;
 
@@ -478,7 +478,7 @@ Or,
 
 4\.We should order our efforts with an eye to the church's future.
 
-## WORKS UPON THE HUNDRED AND SECOND PSALM
+## Works Upon The Hundred And Second Psalm
 
 BISHOP FISHER'S&nbsp;*Treatise on the Penitential Psalms.*&nbsp;(See "Treasury of David, "Vol. II., pg 114.) There is an edition in 12mo., printed in the year MDCCXIV., besides those referred to as above.
 

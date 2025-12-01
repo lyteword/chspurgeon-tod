@@ -8,7 +8,7 @@ weight: 141
 
 **DIVISION.**&nbsp;The Psalmist cries for acceptance in prayer (Ps 141:1-2); Then he begs to be kept as to his speech, preserved in heart and deed, and delivered from every sort of fellowship with the ungodly. He prefers to be rebuked by the gracious rather than to be flattered by the wicked, and consoles himself with the confident assurance that be will one day be understood by the godly party, and made to be a comfort to them (Ps 141:3-6). In the last verses the slandered saint represents the condition of the persecuted church, looks away to God and pleads for rescue from his cruel enemies, and for the punishment of his oppressors.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Lord, I cry unto thee.*&nbsp;This is my last resort: prayer never fails me. My prayer is painful and feeble, and worthy only to be called a cry; but it is a cry unto Jehovah, and this ennobles it. I have cried unto thee, I still cry to thee, and I always mean to cry to thee. To whom else could I go? What else can I do? Others trust to themselves, but I cry unto thee. The weapon of all prayer is one which the believer may always carry with him, and use in every time of need.&nbsp;*Make haste unto me.*&nbsp;His case was urgent, and he pleaded that urgency. God's time is the best time, but when we are sorely pressed we may with holy importunity quicken the movements of mercy. In many cases, if help should come late, it would come too late; and we are permitted to pray against such a calamity.&nbsp;*Give ear unto my voice, when I cry unto thee.*&nbsp;See how a second time he talks of crying: prayer had become his frequent, yea, his constant exercise: twice in a few words he says, "I cry; I cry." How he longs to be heard, and to be heard at once! There is a voice to the great Father in every cry, and groan, and tear of his children: he can understand what they mean when they are quite unable to express it. It troubles the spirit of the saints when they fear that no favourable car is turned to their doleful cries: they cannot rest unless their "unto thee" is answered by an "unto me." When prayer is a man's only refuge, he is deeply distressed at the bare idea of his failing therein.
 
@@ -38,7 +38,7 @@ Supports me under every load."
 
 **Verse 10.**&nbsp;&nbsp;*Let the wicked fall into their own nets, whilst that I withal escape.*&nbsp;It may not be a Christian prayer, but it is a very just one, and it takes a great deal of grace to refrain from crying&nbsp;*Amen*&nbsp;to it; in fact, grace does not work towards making us wish otherwise concerning the enemies of holy men. Do we not all wish the innocent to be delivered, and the guilty to reap the result of their own malice? Of course we do, if we are just men. There can be no wrong in desiring that to happen in our own case which we wish for all good men. Yet is there a more excellent way.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;This psalm, like the one before it, is distinguished by a pregnant brevity and the use of rare expressions, while at the same time it is full of verbal and real coincidences with the other psalms of David. These indications are so clear and undeniable, that a sceptical critic of great eminence (De Wette) pronounces it one of the oldest psalms in the collection.—&nbsp;*Joseph Addison Alexander.*&nbsp;
 
@@ -222,7 +222,7 @@ I wait mine hour to pass victorious by.
 
 **Verse 10.**&nbsp;&nbsp;*Into their own nets.*&nbsp;The word rendered&nbsp;*"nets"*&nbsp;occurs only in this place, as the closely corresponding word in Ps 140:10, which is rendered&nbsp;*"deep pits"*&nbsp;, occurs there only.—&nbsp;*Speaker's Commentary.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;
 

@@ -8,7 +8,7 @@ weight: 143
 
 **DIVISION.**&nbsp;This psalm is divided by the Selah. We prefer to follow the natural cleavage, and therefore have made no other dissection of it. May the Holy Spirit lead us into its inner meaning.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Hear my prayer, O Lord, give ear to my supplications.*&nbsp;In the preceding psalm he began by declaring that he had cried unto the Lord; here he begs to be favourably regarded by Jehovah the living God, whose memorial is that he heareth prayer. He knew that Jehovah did hear prayer, and therefore he entreated him to hear his supplication, however feeble and broken it might be. In two forms he implores the one blessing of gracious audience:—"hear" and "give ear." Gracious men are so eager to be heard in prayer that they double their entreaties for that boon. The Psalmist desires to be heard and to be considered; hence he cries, "hear", and then "give ear." Our case is difficult, and we plead for special attention. Here it is probable that David wished his suit against his adversaries to be heard by the righteous Judge; confident that if he had a hearing in the matter whereof he was slanderously accused, he would be triumphantly acquitted. Yet while somewhat inclined thus to lay his case before the Court of King's Bench, he prefers rather to turn it all into a petition, and present it before the Court of Requests, hence he cries rather "hear my prayer" than "hear my suit." Indeed David is specially earnest that he himself, and the whole of his life, may not become the subject of trial, for in that event he could not hope for acquittal. Observe that he offered so much pleading that his life became one continual&nbsp;*prayer*&nbsp;;but that petitioning was so varied in form that it broke out in many&nbsp;*supplications*&nbsp;. In thy faithfulness answer me, and in thy righteousness. Saints desire to be answered as well as heard: they long to find the Lord faithful to his promise and righteous in defending the cause of justice. It is a happy thing when we dare appeal even to righteousness for our deliverance; and this we can do upon gospel principles, for "if we confess our sins he is faithful and just to forgive us our sins." Even the sterner attributes of God are upon the side of the man who humbly trusts, and turns his trust into prayer. It is a sign of our safety when our interests and those of righteousness are blended. With God's faithfulness and righteousness upon our side we are guarded on the right hand and on the left. These are active attributes, and fully equal to the answering of any prayer which it would be light to answer. Requests which do not appeal to either of these attributes it would not be for the glory of God to hear, for they must contain desires for things not promised, and unrighteous.
 
@@ -30,7 +30,7 @@ weight: 143
 
 **Verse 12.**&nbsp;&nbsp;*And of thy mercy cut off mine enemies, and destroy all them that afflict my soul*&nbsp;. He believes that it will be so, and thus prophesies the event; for the words may be read as a declaration, and it is better so to understand them. We could not&nbsp;*pray*&nbsp;just so with our Christian light; but under Old Testament arrangements the spirit of it was congruous to the law. It is a petition which justice sanctions, but the spirit of love is not at home in presenting it.&nbsp;*We*&nbsp;, as Christians, turn the petition to spiritual use only. Yet David was of so generous a mind, and dealt so tenderly with Saul, that he could hardly have meant all that his words are made in our version to say.&nbsp;*For I am lay servant*&nbsp;; and therefore I hope that my Master will protect me in his service, and grant me victory while I fight his battles. It is a warrior's prayer, and smells of the dust and smoke of battle. It was heard, and therefore it was not asking amiss. Still there is a more excellent way.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;This psalm of David most aptly answereth to that psalm which precedes it; for in Ps 142:1-7 he showeth that he prayed, repeating it twice (Ps 143:1); and here he twice saith, "Hear my prayer, give ear to my supplication." In Ps 142:3 he saith, "When my spirit was overwhelmed within me"; here (Ps 143:4), "My spirit is overwhelmed within me."—&nbsp;*John Mayer.*&nbsp;
 
@@ -234,7 +234,7 @@ Loves, and still delights to keep.
 
 **Verse 12.**&nbsp;&nbsp;*I am thy servant.*&nbsp;David the king professes himself one of God's pensioners. Paul, when he would blaze his coat of arms, and set forth his best heraldry, he doth not call himself Paul, an Hebrew of the Hebrews, or Paul of the tribe of Benjamin, but Paul "a servant of Christ": Ro 1:1. Theodosius thought it a greater dignity to be God's servant than to be an emperor. Christ Himself, who is equal with his Father, yet is not ashamed of the title&nbsp;*servant*&nbsp;: Isa 53:11. Every servant of God is a son, every subject a prince: it is more honour to serve God than to have kings to serve us: the angels in heaven are servants to the saints.—&nbsp;*Thomas Watson.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;Three threes.
 
@@ -412,7 +412,7 @@ c) What renders it pleasing to God when done. Great faith. "For in thee do I tru
 
 2\.For the servant: he seeks protection because he belongs to his master.
 
-## WORKS UPON THE HUNDRED AND FORTY-THIRD PSALM
+## Works Upon The Hundred And Forty-Third Psalm
 
 &nbsp;*Meditations And Disqvisitions Upon The Three last Psalms of David.*&nbsp;Pss. 102., 130., 143.. By Sr. Richard Baker, Knight, London, 1639. The above is scarce, but will be found in Mr. Higham's Reprint of Sir R. Baker on the Psalms.
 

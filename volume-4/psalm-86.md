@@ -8,7 +8,7 @@ weight: 86
 
 **DIVISION.**&nbsp;The psalm is irregular in its construction but may be divided into three portions, each ending with a note of gratitude or of confidence: we shall therefore read from Ps 86:1-7, and then, (after another pause at the end of Ps 86:13), we will continue to the end.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Bow down thine ear, O Lord, hear me.*&nbsp;In condescension to my littleness, and in pity to my weakness, "bow down thine ear, O Lord." When our prayers are lowly by reason of our humility, or feeble by reason of our sickness, or without wing by reason of our despondency, the Lord will bow down to them, the infinitely exalted Jehovah will have respect unto them. Faith, when she has the loftiest name of God on her tongue, and calls him Jehovah, yet dares to ask from him the most tender and condescending acts of love. Great as he is he loves his children to be bold with him. For I am poor and needy—doubly a son of poverty, because, first, poor and without supply for my needs, and next needy, and so full of wants, though unable to supply them. Our distress is a forcible reason for our being heard by the Lord God, merciful, and gracious, for misery is ever the master argument with mercy. Such reasoning as this would never be adopted by a proud man, and when we hear it repeated in the public congregation by those great ones of the earth who count the peasantry to be little better than the earth they tread upon, it sounds like a mockery of the Most High. Of all despicable sinners those are the worst who use the language of spiritual poverty while they think themselves to be rich and increased in goods.
 
@@ -58,7 +58,7 @@ My comfort and my help in thee."
 
 What bodes good to me shall make them quail and blush. Disappointed and defeated, the foes of the good man would feel ashamed of what they had designed. "Because thou, LORD, hast holpen me, and comforted me." God doth nothing by halves, those whom he helps he also consoles, and so makes them not merely safe but joyful. This makes the foes of the righteous exceedingly displeased, but it brings to the Lord double honour. Lord, deal thou thus with us evermore, so will we glorify thee, world without end. Amen.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;—The prophet David has penned two psalms, which he has eminently appropriated to himself as his own: the one is styled&nbsp;*David's prayer,*&nbsp;though many other psalms are prayers—it is Ps 86:1-17; the other&nbsp;*David's praise,*&nbsp;Ps 145:1-21. The first his&nbsp;*tephilla,*&nbsp;the latter his&nbsp;*tehilla;*&nbsp;in each of these he makes a solemn rehearsal of the very words of Moses, in Ex 34:6-7. In Ps 86:1-17 he brings them in as they were a support unto his faith in his distresses from sins and miseries, to which use he puts them, Ps 86:3-4 6-7. And again, Ps 86:16-17, he makes a plea of these words by way of prayer. In Ps 145:1-21, he brings them in as they are an&nbsp;*elogium*&nbsp;or celebration of the glorious nature and excellencies of God, to excite the sons of men to love and praise him.—&nbsp;*Thomas Goodwin.*&nbsp;
 
@@ -238,7 +238,7 @@ Fearful love and loving feare.
 
 **Verse 17.**&nbsp;&nbsp;*Hast holpen me*&nbsp;, in struggle;&nbsp;*and comforted me*&nbsp;, in sorrow.—&nbsp;*Augustine.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;
 

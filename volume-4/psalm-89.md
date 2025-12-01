@@ -10,7 +10,7 @@ We have now reached the majestic&nbsp;*Covenant Psalm*&nbsp;, which, according t
 
 **DIVISION.**&nbsp;The sacred poet commences by affirming his belief in the faithfulness of the Lord to his covenant with the house of David, and makes his first pause at Ps 89:4. He then praises and magnifies the name of the Lord for his power, justice, and mercy, Ps 89:5-14. This leads him to sing of the happiness of the people who have such a God to be their glory and defence, Ps 89:15-18. He rehearses the terms if the covenant at full length with evident delight, Ps 89:19-37, and then mournfully pours out his complaint and petition, Ps 89:38-51, closing the whole with a hearty benediction and a double Amen. May the Holy Spirit greatly bless to us the reading of this most precious Psalm of instruction.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*I will sing of the mercies of the Lord for ever.*&nbsp;A devout resolve, and very commendable when a man is exercised with great trouble on account of an apparent departure of the Lord from his covenant and promise. Whatever we may observe abroad or experience in our own persons, we ought still to praise God for his mercies, since they most certainly remain the same, whether we can perceive them or not. Sense sings but now and then, but faith is an eternal songster. Whether others sing or not, believers must never give over; in them should be constancy of praise, since God's love to them cannot by any possibility have changed, however providence may seem to frown. We are not only to believe the Lord's goodness, but to rejoice in it evermore; it is the source of all our joy, and as it cannot be dried up, so the stream ought never to fail to flow, or cease to flash in sparkling crystal of song. We have not one, but many&nbsp;*mercies*&nbsp;to rejoice in, and should therefore multiply the expressions of our thankfulness. It is&nbsp;*Jehovah*&nbsp;who deigns to deal out to us our daily benefits, and he is the all sufficient and immutable God; therefore our rejoicing in him must never suffer diminution. By no means let his exchequer of glory be deprived of the continual revenue which we owe to it. Even time itself must not bound our praises—they must leap into eternity; he blesses us with eternal mercies—let us sing unto him&nbsp;*forever*&nbsp;.
 
@@ -136,7 +136,7 @@ Most Mighty Son of God."
 
 **Verse 52.**&nbsp;&nbsp;*Blessed be the Lord for evermore.*&nbsp;He ends where he began; he has sailed round the world and reached port again. Let us bless God before we pray, and while we pray, and when we have done praying, for he always deserves it of us. If we cannot understand him, we will not distrust him. When his ways are beyond our judgment we will not be so foolish as to judge; yet we shall do so if we consider his dealings to be unkind or unfaithful. He is, he must be, he shall be, for ever, our blessed God. Amen, and Amen. All our hearts say so. So be it, Lord, we wish it over and over again. Be thou blessed evermore.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;The present Psalm makes a pair with the preceding one. It is a spiritual Allegro to that Penseroso...That Psalm was a dirge of Passion Tide, this Psalm is a carol of Christmas.—&nbsp;*Christopher Wordsworth.*&nbsp;
 
@@ -448,7 +448,7 @@ Or Flattery soothe the dull cold ear of Death?—&nbsp;*Thomas Gray,*&nbsp;1716-
 
 **Verse 52.**&nbsp;As to the words&nbsp;*Amen and Amen,*&nbsp;I readily grant that they are here employed to mark the end of the third book of the Psalms.—&nbsp;*John Calvin.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;
 
@@ -776,7 +776,7 @@ There is,
 
 2\.The echo, "Amen and amen." Amen, says the church on earth—says the church in heaven—say the angels of God—says the whole holy and happy universe—says eternity past and eternity to come.
 
-## WORK UPON THE EIGHTY-NINTH PSALM
+## Works Upon The Eighty-Ninth Psalm
 
 In the Works of John Boys, folio, pp. 805-9, there is an Exposition of a portion of this Psalm.
 

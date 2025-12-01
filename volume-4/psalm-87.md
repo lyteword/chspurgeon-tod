@@ -8,7 +8,7 @@ weight: 87
 
 **SUBJECT AND DIVISION.**&nbsp;The song is in honour of Zion, or Jerusalem, and it treats of God's favour to that city among the mountains, the prophecies which made it illustrious, and the honour of being a native of it. Many conceive that it was written at the founding of David's city of Zion, but does not the mention of Babylon imply a later date? It would seem to have been written after Jerusalem and the Temple had been built, and had enjoyed a history, of which glorious things could be spoken. Among other marvels of God's love in its later history, it had been untouched by Sennacherib when other cities of Israel and Judah had fallen victims to his cruelty. It was in Hezekiah's reign that Babylon became prominent, when the ambassadors came to congratulate the king concerning his recovery, at that time also Tyre would be more famous than at any period in David's day. But as we have no information, and the point is not important, we may leave it, and proceed to meditate upon the Psalm itself. We have no need to divide so brief a song.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*His foundation is in the holy mountains.*&nbsp;The Psalm begins abruptly, the poet's heart was full, and it gained vent on a sudden.
 
@@ -56,7 +56,7 @@ The minstrels breathe the answering strain:
 
 The fountains of my bliss in thee.'"
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **TITLE.**&nbsp;&nbsp;*—A Psalm or Song for the Sons of Korah.*&nbsp;The title prefixed is "A Psalm to be sung by the sons of Korah", i.e. of fallen man. Korah signifies the state in which trees are during winter, when stript of their verdure and fruit. In the same sense it is used for the bald head, when age or sickness has deprived it of its glory and left it without hair. This is a lively description of fallen man. He has lost his pristine beauty and fruitfulness. When he left God and turned to his own ways, he became like the trees of the field in winter, from which the genial warmth of the sun is withdrawn, or like the head, which by the abating of the natural heat and rigour is left naked and bald. But being brought to a light sense of this, and finding himself stript of all the glory which the first Adam had in paradise, he has been led to seek the restoration of his nature, and has obtained of the second Adam, the Lord from heaven, a much better state than he had lost. Every such person is entitled to sing this sacred hymn, and he is called upon to do it. The name of the person whom he is to celebrate is not mentioned at first, but is soon discovered by the character given of him.—&nbsp;*William Romaine*&nbsp;.
 
@@ -186,7 +186,7 @@ Praise the mount—oh fix me on it,
 
 Mount of God's unchanging love."—&nbsp;*C.H.S.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verses 2-3.**&nbsp;
 
@@ -382,7 +382,7 @@ Here is a fruitful theme.
 
 **Verse 7.**&nbsp;(&nbsp;*last clause*&nbsp;).—All the springs within me, all the springs which flow for me, are in my God. There are "upper and nether springs", springs "shut up", "valley" springs (Ps 104:10), rock springs, & c.; but all these flow from the Lord.
 
-## WORKS UPON THE EIGHTY-SEVENTH PSALM
+## Works Upon The Eighty-Seventh Psalm
 
 In&nbsp;*"Sermons preached before the University of Oxford*&nbsp;...by John Eveleigh, D.D., 1815, "is&nbsp;*"Sermon, twelve, in which is proposed a New Interpretation of the Eighty-Seventh Psalm."*&nbsp;
 

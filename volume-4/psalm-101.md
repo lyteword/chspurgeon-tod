@@ -6,7 +6,7 @@ weight: 101
 
 **TITLE.**&nbsp;A Psalm of David. This is just such a psalm as the man after God's own heart would compose when he was about to become king in Israel. It is David all over, straight forward, resolute, devout; there is no trace of policy or vacillation, the Lord has appointed him to be king, and he knows it, therefore he purposes in all things to behave as becomes a monarch who me the Lord himself has chosen. If we call this THE PSALM or PIOUS RESOLUTIONS, we shall perhaps remember it all the more readily. After songs of praise a psalm of practice not only makes variety, but comes in most fittingly. We never praise the Lord better than when we do those things which are pleasing in his sight.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*I will sing of mercy and judgment.*&nbsp;He would extol both the love and the severity, the sweets and the bitters, which the Lord had mingled in Iris experience; he would admire the justice and the goodness of the Lord. Such a song would fitly lead up to godly resolutions as to his own conduct, for that which we admire in our superiors we naturally endeavour to imitate. Mercy and judgment would temper the administration of David, because he had adoringly perceived them in the dispensations of his God. Everything in God's dealings with us may fittingly become the theme of song, and we have not viewed it aright until we feel we can sing about it. We ought as much to bless the Lord for the judgment with which he chastens our sin, as for the mercy with which he forgives it; there is as much love in the blows of his hand as in the kisses of his mouth. Upon a retrospect of their lives instructed saints scarcely know which to be most grateful for—the comforts which have, or the afflictions which nave purged them. Unto thee, O LORD, will I sing. Jehovah shall have all our praise. The secondary agents of either the mercy or the judgment must hold a very subordinate place in oue memory, and the Lord alone must be hymned by our heart. Our soul's sole worship must be the lauding of the Lord. The psalmist forsakes the minor key, which was soon to rule him in the one hundred and second psalm, and resolves that, come what may, he will sing, and sing to the Lord too, whatever others might do.
 
@@ -30,7 +30,7 @@ weight: 101
 
 **Verse 8.**&nbsp;The holy vow "to destroy all the wicked of the lands": and to "cut off all wicked doers from the city of the Lord, "must begin at our own hearts as his sanctuary, the temple of the Holy Ghost.—&nbsp;*Alfred Edersheim.*&nbsp;
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;The contents of this psalm show that it was written at some remarkable period of David's life. Three different times have been fixed upon as respectively giving occasion for the solemn resolutions which are announced in it. The first is supposed to be when David, immediately after the death of Saul, succeeded to the government of a part of the kingdom; the second, when the whole kingdom was united under the dominion of David; and the third, when he removed the ark from the house of Obededom to Zion, and placed it in the vicinity of his own abode. It is certainly of little importance which of these periods we select, but the second verse of the psalm has some appearance of relating to the last mentioned. The psalmist here says, When wilt thou come to me? which seems to intimate that when he was to have the symbols of God's presence so near to him, he experienced a solemn sentiment respecting the holiness that was now more than ever incumbent upon him—a sentiment which induced him to form the sacred purposes and resolutions which he has specified. These purposes relate to the character of the persons whom he would select for his household, and those whom he would employ in carrying on his government, which appeared to be more firmly established by the divine condescension that was manifested to him, in having the earthly residence of God placed so near to himself. It was quite in agreement with David's character to form purposes of more fervent and steadfast obedience, in proportion to the advantages and favours which the divine goodness bestowed upon him.—&nbsp;*William Walford.*&nbsp;
 
@@ -96,7 +96,7 @@ As mercy is here set in the first place; so shall the sentence of mercy and abso
 
 **Verses 5-10.**&nbsp;Perfect, as prophetic of Christ, is the delineation of his associates and disciples. The perverse; the evil-doers; the slanderers, and the proud found no fellowship with him. There were no common principles; no bond of union between them. There was "a gulph" interposed, as in the parable, which they could not pass; and what they saw of Christ, they beheld only from a distance. Nor even now, as then, can "the deceitful" dwell in Christ's "house"—his holy temple; nor the man of "lies be established" by his love and favour. They must renounce their vices before they can be admitted to his covenant; or, however they may claim communion with&nbsp;*Him,*&nbsp;he in return can have no sympathy with them.—&nbsp;*William Hill Tucker.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Whole Psalm.**&nbsp;This is a psalm of wills and shalls. There are nine wills and five shalls. Resolutions should be made,
 
@@ -204,7 +204,7 @@ As mercy is here set in the first place; so shall the sentence of mercy and abso
 
 **Verse 8.**&nbsp;The work of the great King when he comes in judgment.
 
-## WORKS UPON THE HUNDRED AND FIRST PSALM
+## Works Upon The Hundred And First Psalm
 
 In CHANDLER's&nbsp;*"Life of David"*&nbsp;, Vol. II, pp. 16-20, there is an Exposition of this Psalm. "King David's Vow for Reformation of Himselfe, his Family, his Kingdome. Delivered in twelve sermons before the Prince his Highhesse vpon Psalme 101. By GEORGE HAKEWlLL, Dr. in Diuinity. London 1622."
 

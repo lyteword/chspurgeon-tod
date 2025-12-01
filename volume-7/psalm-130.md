@@ -8,7 +8,7 @@ weight: 130
 
 **DIVISION.**&nbsp;The first two verses (Ps 130:1-2) reveal an intense desire; and the next two are a humble confession of repentance and faith, Ps 130:3-4. In Ps 130:5-6 waiting watchfulness is declared and resolved upon; and in Ps 130:7-8 joyful expectation, both for himself and all Israel, finds expression.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*Out of the depths have I cried unto thee, O LORD.*&nbsp;This is the Psalmist's statement and plea: he had never ceased to pray even when brought into the lowest state. The depths usually silence all they engulf, but they could not close the mouth of this servant of the Lord; on the contrary, it was in the abyss itself that he cried unto Jehovah. Beneath the floods prayer lived and struggled; yea, above the roar of the billows rose the cry of faith. It little matters where we are if we can pray; but prayer is never more real and acceptable than when it rises out of the worst places. Deep places beget deep devotion. Depths of earnestness are stirred by depths of tribulation. Diamonds sparkle most amid the darkness. Prayer&nbsp;*de profundis*&nbsp;gives to God&nbsp;*gloria in excelsis*&nbsp;. The more distressed we are, the more excellent is the faith which trusts bravely in the Lord, and therefore appeals to him, and to him alone. Good men may be in the depths of temporal and spiritual trouble; but good men in such cases look only to their God, and they stir themselves up to be more instant and earnest in prayer than at other times. The depth of their distress moves the depths of their being; and from the bottom of their hearts an exceeding great and bitter cry rises unto the one living and true God. David had often been in the deep, and as often had he pleaded with Jehovah, his God, in whose hand are all deep places. He prayed, and remembered that he had prayed, and pleaded that he had prayed; hoping ere long to receive an answer. It would be dreadful to look back on trouble and feel forced to own that we did not cry unto the Lord in it; but it is most comforting to know that whatever we did not do, or could not do, yet we did pray, even in our worst times. He that prays in the depth will not sink out of his depth. He that cries out of the depths shall soon sing in the heights.
 
@@ -34,7 +34,7 @@ Each minute for a year."
 
 **Verse 8.**&nbsp;&nbsp;*And he shall redeem Israel from all his iniquities.*&nbsp;Our iniquities are our worst dangers: if saved from these, we are saved altogether; but there is no salvation from them except by redemption. What a blessing that this is here promised in terms which remove it out of the region of question: the Lord shall certainly redeem his believing people from all their sins. Well may the redemption be plenteous since it concerns all Israel and all iniquities! Truly, our Psalm has ascended to a great height in this verse: this is no cry out of the depths, but a chorale in the heights. Redemption is the top of covenant blessings. When it shall be experienced by all Israel, the latter day glory shall have come, and the Lord's people shall say, "Now, Lord, what wait we for?" Is not this a clear prophecy of the coming of our Lord Jesus the first time? and may we not now regard it as the promise of his second and more glorious coming for the redemption of the body? For this our soul doth wait: yea, our heart and our flesh cry out for it with joyful expectation.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;The Psalm is the eleventh in the order of the gradual Psalms, and treats of the eleventh step in the spiritual ascent, viz., penitential prayer.—&nbsp;*H. T. Armfield.*&nbsp;
 
@@ -206,7 +206,7 @@ It is the&nbsp;*posture of rest*&nbsp;. A soul waiting for the Lord is a soul re
 
 **Verse 8.**&nbsp;What a graceful and appropriate conclusion of this comprehensive and instructive Psalm! Like the sun, it dawns veiled in cloud, it sets bathed in splendour; it opens with soul depth, it closes with soul height. Redemption from all iniquity! It baffles the most descriptive language, and distances the highest measurement. The most vivid imagination faints in conceiving it, the most glowing image fails in portraying it, and faith droops her wing in the bold attempt to scale its summit.&nbsp;*"He shall redeem Israel from all his iniquities."*&nbsp;The verse is a word painting of man restored, and of Paradise regained.—&nbsp;*Octavius Winslow.*&nbsp;
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;The assertion of an experienced believer.
 
@@ -486,7 +486,7 @@ b) Because what he gives is worth waiting for.—&nbsp;*G. R.*&nbsp;
 
 3\.The Redeemed: "Israel."—&nbsp;*W. H. J. P.*&nbsp;
 
-## WORKS UPON THE HUNDRED AND THIRTIETH PSALM
+## Works Upon The Hundred And Thirtieth Psalm
 
 A Treatise concerning the fruitful Sayings of David, The King and Prophet, in The&nbsp;*Seven Penitential Psalms. . . .*&nbsp;By the Right Reverend Father in God Ions Fisher, DD. and Bp. of&nbsp;*Rochester*&nbsp;. Printed in the Year 1714. This is a reprint in 12mo. of the Black Letter 4to. described on page 114 of Vol. 2. of "The Treasury of David." The work is more curious than useful.
 

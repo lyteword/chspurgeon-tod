@@ -8,7 +8,7 @@ weight: 27
 
 **DIVISION.**&nbsp;The poet first sounds forth his sure confidence in his God, Ps 27:1-3, and his love of communion with him, Ps 27:4-6. He then betakes himself to prayer, Ps 27:7-12, and concludes with an acknowledgment of the sustaining power of faith in his own case, and an exhortation to others to follow his example.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;&nbsp;*The Lord is my light and my salvation.*&nbsp;Here is personal interest,&nbsp;*"my light, ""my salvation; "*&nbsp;the soul is assured of it, and therefore, declaring it boldly.&nbsp;*"My light; "*&nbsp;—into the soul at the new birth divine light is poured as the precursor of salvation; where there is not enough light to see our own darkness and to long for the Lord Jesus, there is no evidence of salvation. Salvation finds us in the dark, but it does not leave us there; it gives light to those who sit in the valley of the shadow of death. After conversion our God is our joy, comfort, guide, teacher, and in every sense our light; he is light within, light around, light reflected from us, and light to be revealed to us. Note, it is not said merely that the Lord gives light, but that he&nbsp;*"is"*&nbsp;light; nor that he gives salvation, but that he is salvation; he, then, who by faith has laid hold upon God has all covenant blessings in his possession. Every light is not the sun, but the sun is the father of all lights. This being made sure as a fact, the argument drawn from it is put in the form of a question,&nbsp;*Whom shall I fear?*&nbsp;A question which is its own answer. The powers of darkness are not to be feared, for the Lord, our light, destroys them; and the damnation of hell is not to be dreaded by us, for the Lord is our salvation. This is a very different challenge from that of boastful Goliath, for it is based upon a very different foundation; it rests not upon the conceited vigour of an arm of flesh, but upon the real power of the omnipotent I AM.&nbsp;*The Lord is the strength of my life.*&nbsp;Here is a third glowing epithet, to show that the writer's hope was fastened with a threefold cord which could not be broken. We may well accumulate terms of praise where the Lord lavishes deeds of grace. Our life derives all its strength from him who is the author if it; and if he deigns to make us strong we cannot be weakened by all the machinations of the adversary.&nbsp;*Of whom shall I be afraid?*&nbsp;The bold question looks into the future as well as the present. "If God be for us, "who can be against us, either now or in time to come?
 
@@ -38,7 +38,7 @@ weight: 27
 
 **Verse 14.**&nbsp;&nbsp;*Wait on the Lord.*&nbsp;Wait at his door with prayer; wait at his foot with humility; wait at his table with service; wait at his window with expectancy. Suitors often win nothing but the cold shoulder from earthly patrons after long and obsequious waiting; he speeds best whose patron is in the skies.&nbsp;*Be of good courage.*&nbsp;A soldier's motto. Be it mine. Courage we shall need, and for the exercise of it we have as much reason as necessity, if we are soldiers of King Jesus.&nbsp;*And he shall strengthen thine heart.*&nbsp;He can lay the plaister right upon the weak place. Let the heart be strengthened, and the whole machine of humanity is filled with power; a strong heart makes a strong arm. What strength is this which God himself gives to the heart? Read the "Book of Martyrs, "and see its glorious deeds of prowess; go to God rather, and get such power thyself.&nbsp;*Wait, I say, on the Lord.*&nbsp;David, in the words&nbsp;*"I say, "*&nbsp;sets his own private seal to the word which, as an inspired man, he had been moved to write. It is&nbsp;*his*&nbsp;testimony as well as the command of God, and indeed he who writes these scanty notes has himself found it so sweet, so reviving, so profitable to draw near to God, that on his own account he also feels bound to write,&nbsp;*"Wait,*&nbsp;I SAY,&nbsp;*on the Lord."*&nbsp;
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Verse 1.**&nbsp;&nbsp;*The Lord is my light and my salvation; whom shall I fear?*&nbsp;Alice Driver, martyr, at her examination, put all the doctors to silence, so that they had not a word to say, but one looked upon another; then she said, "Have you no more to say? God be honoured, you be not able to resist the Spirit of God, in me, a poor woman. I was an honest poor man's daughter, never brought up at the University as you have seen; but I have driven the plough many a time before my father, I thank God; yet, notwithstanding, in the defence of God's truth, and in the cause of my Master, Christ, by his grace I will set my foot against the foot of any of you all, in the maintenance and defence of the same; and if I had a thousand lives they should go for the payment thereof." So the Chancellor condemned her, and she returned to the prison joyful.&nbsp;*Charles Bradbury.*&nbsp;
 
@@ -210,7 +210,7 @@ Love Jesus! and of conquest rest secure.
 
 **Verse 14.**&nbsp;Think not the government is out of Christ's hand, when men are doing many sad things, and giving many heavy blows to the work of God. No, no; men are but his hand; and it is the hand of God that justly and righteously is lying heavy upon his people. Look above men, then; you have not to do with them: there is a turn of matters, just as he is pleased to turn his hand.&nbsp;*Ralph Erskine,*&nbsp;1685-1752.
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;(&nbsp;*first clause*&nbsp;). The relation of illumination to salvation, or the need of light if men would be saved.
 
@@ -276,7 +276,7 @@ Love Jesus! and of conquest rest secure.
 
 **Verse 14.**&nbsp;The believer's position,&nbsp;*" wait;"*&nbsp;his condition,&nbsp;*"good courage;"*&nbsp;his support,&nbsp;*" he shall,"*&nbsp;etc.; his perseverance,&nbsp;*"wait"*&nbsp;repeated a second time; his reward.
 
-## WORKS UPON THE TWENTY-SEVENTH PSALM
+## Works Upon The Twenty-Seventh Psalm
 
 &nbsp;*Excellent Encouragements against Afflictions, containing David's Triumph over Distress; or an Exposition of Psalm 27*&nbsp;. By THOMAS PIERSON, M.A. (Reprinted in Nichol's Series of Puritan Commentaries.)
 

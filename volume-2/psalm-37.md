@@ -10,7 +10,7 @@ weight: 37
 
 **DIVISION.**&nbsp;The Psalm can scarcely be divided into considerable sections. It resembles a chapter of the book of Proverbs, most of the verses being complete in themselves. It is an alphabetical Psalm: in somewhat broken order, the first letters of the verses follow the Hebrew alphabet. This may have been not only a poetical invention, but a help to memory. The reader is requested to read the Psalm through without comment before he turns to our exposition.
 
-## EXPOSITION
+## Exposition
 
 **Verse 1.**&nbsp;The Psalm opens with the first precept. It is alas! too common for believers in their hours of adversity to think themselves harshly dealt with when they see persons utterly destitute of religion and honesty, rejoicing in abundant prosperity. Much needed is the command,&nbsp;*Fret not thyself because of evildoers.*&nbsp;To fret is to worry, to have the heartburn, to fume, to become vexed. Nature is very apt to kindle a fire of jealousy when it sees lawbreakers riding on horses, and obedient subjects walking in the mire: it is a lesson learned only in the school of grace, when one comes to view the most paradoxical providences with the devout complacency of one who is sure that the Lord is righteous in all his acts. It seems hard to carnal judgments that the best meat should go to the dogs, while loving children pine for want of it.&nbsp;*Neither be thou envious against the workers of iniquity.*&nbsp;The same advice under another shape. When one is poor, despised, and in deep trial, our old Adam naturally becomes envious of the rich and great; and when we are conscious that we have been more righteous than they, the devil is sure to be at hand with blasphemous reasonings. Stormy weather may curdle even the cream of humanity. Evil men instead of being envied, are to be viewed with horror and aversion; yet their loaded tables, and gilded trappings, are too apt to fascinate our poor half opened eyes. Who envies the fat bullock the ribbons and garlands which decorate him as he is led to the shambles? Yet the case is a parallel one; for ungodly rich men are but as beasts fattened for the slaughter.
 
@@ -130,7 +130,7 @@ The ploughman sows and harrows, and then leaves the harvest to God. What can he 
 
 **Verse 40.**&nbsp;&nbsp;*And the Lord shall help them.*&nbsp;In all future time Jehovah will stand up for his chosen. Our Great Ally will bring up his forces in the heat of the battle.&nbsp;*He shall deliver them from the wicked.*&nbsp;As he rescued Daniel from the lions, so will he preserve his beloved from their enemies; they need not therefore fret, nor be discouraged.&nbsp;*And save them, because they trust in him.*&nbsp;Faith shall ensure they safety of the elect. It is the mark of the sheep by which they shall be separated from the goats. Not their merit, but their believing, shall distinguish them. Who would not try the walk of faith? Whoever truly believes in God will be no longer fretful against the apparent irregularities of this present life, but will rest assured that what is mysterious is nevertheless just, and what seems hard, is, beyond a doubt, ordered in mercy. So the Psalm ends with a note which is the death knell of the unhallowed disquietude with which the Psalm commenced. Happy they who can thus sing themselves out of ill frames into gracious conditions.
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 **Whole Psalm.**&nbsp;The righteous are preserved in Christ with a special preservation, and in a peculiar safety. In the thirty-seventh Psalm this point is excellently and largely handled, both by direct proof, and by answer to all the usual objections against their safety. That they shall be preserved is affirmed, Ps 37:3,17,23,25,32. The objections answered are many.
 
@@ -492,7 +492,7 @@ Intrinsical perfection, so called because by inhesion, is no less rationally tha
 
 Luther closes his Exposition of the Psalm with the words, Oh, shame on our faithlessness, mistrust, and vile unbelief, that we do not believe such rich, powerful, consolatory, declarations of God, and take up so readily with little grounds of offence, whenever we but hear the wicked speeches of the ungodly. Help. O God, that we may once attain to right faith. Amen.
 
-## HINTS TO THE VILLAGE PREACHER
+## Hints to the Village Preacher
 
 **Verse 1.**&nbsp;The art of tranquillity.&nbsp;*W. Jones.*&nbsp;
 

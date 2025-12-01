@@ -10,7 +10,7 @@ ORDER. *Bonar remarks, "The position of the Psalms in their* relation to each ot
 
 DIVISION. *The strain so continually changes, that it is difficult* to give an outline of it methodically arranged: we give the best we can make. From verses 1 to 6 is a song of jubilant thanksgiving; from 7 to 12, there is a continued declaration of faith as to the future. Prayer closes the first great division of the Psalm in verses 13 and 14\.The second portion of this triumphal ode, although much shorter, is parallel in all its parts to the first portion, and is a sort of rehearsal of it. Observe the song for past judgments, verses 15, 16; the declaration of trust in future justice, 17, 18; and the closing prayer, 19, 20. Let us celebrate the conquests of the Redeemer as we read this Psalm, and it cannot but be a delightful task if the Holy Ghost be with us. 
 
-## EXPOSITION 
+## Exposition
 
 Verse 1. With a holy resolution the songster begins his hymn; *I* will praise thee, O Lord.It sometimes needs all our determination to face the foe, and bless the Lord in the teeth of his enemies; vowing that whoever else may be silent *we* will bless his name; here, however, the overthrow of the foe is viewed as complete, and the song flows with sacred fulness of delight. It is our duty to praise the Lord; let us perform it as a privilege. Observe that David's praise is all given to the Lord. Praise is to be offered to God alone; we may be grateful to the intermediate agent, but our thanks must have long wings and mount aloft to heaven. *With my whole heart.* Half heart is no heart. *I will show* forth.There is true praise to the thankful telling forth to others of our heavenly Father's dealings with us; this is one of the themes upon which the godly should speak often to one another, and it will not be casting pearls before swine if we make even the ungodly hear of the loving-kindness of the Lord to us. *All thy marvellous* works.Gratitude for one mercy refreshes the memory as to thousands of others. One silver link in the chain draws up a long series of tender remembrances. Here is eternal work for us, for there can be no end to the showing forth of *all* his deeds of love. If we consider our own sinfulness and nothingness, we must feel that every work of preservation, forgiveness, conversion, deliverance, sanctification, etc., which the Lord has wrought for us, or in us is a *marvellous* work. Even in heaven, divine loving-kindness will doubtless be as much a theme of surprise as of rapture. 
 
@@ -52,7 +52,7 @@ Verse 19. Prayers are the believer's weapons of war. When the battle is too hard
 
 Verse 20. One would think that men would not grow so vain as to deny themselves to be but men, but it appears to be a lesson which only a divine schoolmaster can teach to some proud spirits. Crowns leave their wearers *but men,* degrees of eminent learning make their owners not more than *men,* valour and conquest cannot elevate beyond the dead level of *"but men;"* and all the wealth of Croesus, the wisdom of Solon, the power of Alexander, the eloquence of Demosthenes, if added together, would leave the possessor but a man. May we ever remember this lest like those in the text, we should be *put in fear.* Before leaving this Psalm, it will be very profitable if the student will peruse it again as the triumphal hymn of the Redeemer, as he devoutly brings the glory of his victories and lays it down at his Father's feet. Let us joy in his joy, and our joy shall be full. 
 
-## EXPLANATORY NOTES AND QUAINT SAYINGS
+## Explanatory Notes & Quaint Sayings
 
 *Whole Psalm.* We are to consider this song of praise, as I conceive, to be the language of our great Advocate and Mediator, "in the midst of the church giving thanks unto God," and teaching us to anticipate by faith his great and final victory over all the adversaries of our peace temporal and spiritual, with especial reference to his assertion of his royal dignity on Zion, his holy mountain. The victory over the enemy, we find by the fourth verse, is again ascribed to the decision of divine justice, and the award of a righteous judge, who has at length resumed his tribunal. This renders it certain, that the claim preferred to the throne of the Almighty, could proceed from the lips of none but our MELCHIZEDEC. *John Fry,* B.A.,1842. 
 
@@ -134,7 +134,7 @@ Verse 20. One would think that men would not grow so vain as to deny themselves 
 
 *Verse* 20. *"That the nations may know themselves to be but* men."The original word is (Heb.), *enosh;* and therefore it is a prayer that they may know themselves to be but miserable, frail, and dying men. The word is in the singular number, but it is used collectively. *John Calvin.* 
 
-## HINTS TO THE VILLAGE PREACHER 
+## Hints to the Village Preacher
 
 I. The only object of our praise—"thee, O Lord." II. The abundant themes of praise—"all thy marvellous works." III. The proper nature of praise—"with my whole heart." *B. Davies.* 
 
