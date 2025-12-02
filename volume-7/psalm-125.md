@@ -194,7 +194,7 @@ c) That the righteousness of God's retribution may be seen.
 
 d) That the consolations of the righteous may abound. 2Co 1:5.
 
-2\. The Permanency denied: "The rod...shall *not rest* ", etc. Illustrate by history of Job, Joseph, David, Daniel, Christ, martyrs, etc.
+2\. The Permanency denied: "The rod&mdash;shall *not rest* ", etc. Illustrate by history of Job, Joseph, David, Daniel, Christ, martyrs, etc.
 
 3\. The Probity tried and preserved: "Lest the righteous put forth", etc., by rebelling, sinful compromise, etc.
 

@@ -70,7 +70,7 @@ May the Lord cleanse our hearts and our ways, that we may escape the doom of the
 
 **Verse 1 &mdash;** The seat of the drunkard is the seat of the scornful. &mdash; *Matthew Henry, 1662-1714*
 
-**Verse 1 &mdash;** *Walketh* NOT.... NOR *standeth*.... NOR *sitteth,* etc. Negative precepts are in some cases more absolute and peremptory than affirmatives; for to say, "that hath walketh in the counsel of the godly," might not be sufficient; for, he might walk in the counsel of the godly, and yet walk in the counsel of the ungodly too; not both indeed at once, but both at several times; where now, this negative clears him at all times. &mdash; *Sir Richard Baker.* 
+**Verse 1 &mdash;** *Walketh* NOT&mdash;NOR *standeth*&mdash;NOR *sitteth,* etc. Negative precepts are in some cases more absolute and peremptory than affirmatives; for to say, "that hath walketh in the counsel of the godly," might not be sufficient; for, he might walk in the counsel of the godly, and yet walk in the counsel of the ungodly too; not both indeed at once, but both at several times; where now, this negative clears him at all times. &mdash; *Sir Richard Baker.* 
 
 **Verse 1 &mdash;** The word (Heb) *haish* is emphatic, *that man;* that one among a *thousand* who lives for the accomplishment of the end for which God created him. &mdash; *Adam Clarke, 1844*
 

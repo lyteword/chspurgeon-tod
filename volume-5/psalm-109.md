@@ -508,7 +508,7 @@ Waiting the coming of the Son of Man!
 
 **Verses 30-31.** 
 
-1\. David's *will* with respect to himself: "I will... yea, I will" etc. (Ps 109:30).
+1\. David's *will* with respect to himself: "I will&mdash;yea, I will" etc. (Ps 109:30).
 
 2\. His *shall* with respect to God: "he shall", etc. (Ps 109:31).— *G. R.* 
 
@@ -526,7 +526,7 @@ Waiting the coming of the Son of Man!
 
 In "The Expositor", vol. 2. (1875), edited by the Rev. Samuel Cox, there is "An Apology for the Vindictive Psalm" (Ps 109:1-31), by Joseph Hammond, L. L. B. In volume 3 of the same magazine are four articles from the pen of the same writer, on "The Vindictive Psalms vindicated." "The Imprecatory Psalms." Six Lectures. By the Rev. R. A. Bertram. 1867. (12 mo.)
 
-In Dr. Thomas Randolph's Works, entitled "A View of our Blessed Saviour's Ministry...together with a Charge, Dissertations, Sermons, and Theological Lectures," 2 vols., 8vo., Oxford, 1784, there is a comment on Ps 109:1-31, vol. 2, p. 315.
+In Dr. Thomas Randolph's Works, entitled "A View of our Blessed Saviour's Ministry&mdash;together with a Charge, Dissertations, Sermons, and Theological Lectures," 2 vols., 8vo., Oxford, 1784, there is a comment on Ps 109:1-31, vol. 2, p. 315.
 
 The Sermons of Charles Peters, A. M., 8vo., London, 1776, contain "The Curses of Psalm the 109th explained, with practical instructions," pp. 348-378.
 

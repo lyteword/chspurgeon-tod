@@ -214,7 +214,7 @@ On the rock of heavenly love.
 
 **Verse 4.** Glad tidings in sad times; or, the city of God in the times of trouble and confusion, watered with the river of consolation. *Ralph Erskine.* 
 
-**Verse 4.** What can this *river* be but that blessed covenant to which David himself repaired in the time of trouble?... And what are *the streams* of this river, but the outgoings and effects of this divine constitution?
+**Verse 4.** What can this *river* be but that blessed covenant to which David himself repaired in the time of trouble?&mdash;And what are *the streams* of this river, but the outgoings and effects of this divine constitution?
 
 1\. The blood of Jesus.
 
