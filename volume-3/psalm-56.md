@@ -122,7 +122,7 @@ The machinery of prayer is not always visible, but it is most efficient. God inc
 
 **Verse 5.** *Every day they wrest my words,* etc. Mr. Jewel, the Bishop of Salisbury, who, according to his life, died most godly and patiently, at the point of death used the versicle of the Hymn, "Te Deum, ""O Lord, in thee have I trusted, let me never be confounded, " whereupon, suppressing the rest, they published that the principle champion of the heretics, in his very last words, cried he was confounded. *Lord Bacon's "Bible Thoughts."* 
 
-**Verse 5.** *They wrest my words.* Whatever Christ said in justification of himself was twisted to a meaning injurious to him. So it is still in the world, self justification by words answers but little purpose with ungodly men. *W. Wilson, D.D.,* 1860.
+**Verse 5.** *They wrest my words.* Whatever Christ said in justification of himself was twisted to a meaning injurious to him. So it is still in the world, self justification by words answers but little purpose with ungodly men. *W. Wilson, D. D.,* 1860.
 
 **Verse 6.** *They mark my steps.* Go whither I will, they are at my heels. *William Nicholson(-1671), in "David's Harp Strung and Tuned."* 
 
@@ -160,7 +160,7 @@ The machinery of prayer is not always visible, but it is most efficient. God inc
 
 **Verse 13** (*last clause* ). *To walk in the presence of God* is partly under his eyes, his guidance and care, partly in particular, where God is wont to be *present,* where he is *worshipped* by his people and scatters his blessings, opposed to his present state by which he was removed from the place of his worship and presence. Conf. 1Sa 26:19, etc. Lastly, *to walk in the light of the living* denotes in general to live amongst *those who live in the light,* or who enjoy the *light,* as it is said elsewhere, *in the land of the living* —Ps 27:13 Isa 38:11 53:8; Eze 32:32; Ps 142:6—opposed to the *dead* or *the region of the dead,* who dwell *in darkness.* But in particular it signifies to live in a *safe* and *prosperous* state, whose well known emblem is *light. Hermann Venema.* 
 
-**Verse 13** (*last clause* ). We cannot restrict this phrase to the light of mortal life; David's vows bound him to walk in the *light of spiritual life,* and also in the *light of eternal life,* of which by faith he was a partaker. And most commentators have applied this verse to the *light of glory* in the world to come, as the real and final object of the believer's conversation here on earth. *W. Wilson, D.D.* 
+**Verse 13** (*last clause* ). We cannot restrict this phrase to the light of mortal life; David's vows bound him to walk in the *light of spiritual life,* and also in the *light of eternal life,* of which by faith he was a partaker. And most commentators have applied this verse to the *light of glory* in the world to come, as the real and final object of the believer's conversation here on earth. *W. Wilson, D. D.* 
 
 ## Hints to the Village Preacher
 
@@ -170,13 +170,13 @@ The machinery of prayer is not always visible, but it is most efficient. God inc
 
 2\. *Improper and inefficacious means* of removing fear are often resorted to.
 
-3\.There is here suggested *a true and effectual* method of removing fear.
+3\. There is here suggested *a true and effectual* method of removing fear.
 
  *—Robert Morrison (1782-1834), in "A Parting Memorial."* 
 
 **Verse 3.** *What time I am afraid, I will trust in thee.* Whensoever we are afraid of any evil, we are still to put our trust in God.
 
-1\.What is it to put our trust in God?
+1\. What is it to put our trust in God?
 
 (a) To keep our hearts from desponding or sinking down under any fears.
 
@@ -184,13 +184,13 @@ The machinery of prayer is not always visible, but it is most efficient. God inc
 
 (c) To expect deliverance from him.
 
-2\.What is there in God we ought to put our trust in?
+2\. What is there in God we ought to put our trust in?
 
 (a) In his promises.
 
 (b) In his properties. His power, wisdom, justice, mercy, all sufficiency.
 
-3\.Why should we in all our fears put our trust in God?
+3\. Why should we in all our fears put our trust in God?
 
 (a) Because there is none else can secure us from our fears. Whereas,
 
@@ -198,45 +198,45 @@ The machinery of prayer is not always visible, but it is most efficient. God inc
 
 **Verse 3.** 
 
-1\.There is fear without trust.
+1\. There is fear without trust.
 
-2\.There is trust without fear.
+2\. There is trust without fear.
 
-3\.There is fear and trust united. *G. R.* 
+3\. There is fear and trust united. *G. R.* 
 
 **Verse 7.** 
 
-1\.From iniquity there is an escape.
+1\. From iniquity there is an escape.
 
-2\.By iniquity there is no escape. The mercy of God secures the one. The justice of God prevents the other. *G. R.* 
+2\. By iniquity there is no escape. The mercy of God secures the one. The justice of God prevents the other. *G. R.* 
 
 **Verse 8.** Here are—
 
-1\.Manifold mercies, to reclaim from wanderings.
+1\. Manifold mercies, to reclaim from wanderings.
 
-2\.Tender mercies, putting tears in a bottle.
+2\. Tender mercies, putting tears in a bottle.
 
-3\.Covenant mercies, "Are they not, "etc. *G. R.* 
+3\. Covenant mercies, "Are they not, "etc. *G. R.* 
 
 **Verse 9.** 
 
-1\.God is on the side of his people.
+1\. God is on the side of his people.
 
-2\.He is known to be on their side.
+2\. He is known to be on their side.
 
-3\.In answer to prayer he appears on their side.
+3\. In answer to prayer he appears on their side.
 
-4\.When he appears enemies flee.
+4\. When he appears enemies flee.
 
 Or—
 
-1\.The fact, God is for me.
+1\. The fact, God is for me.
 
-2\.The knowledge of that fact— *This I know.* 
+2\. The knowledge of that fact— *This I know.* 
 
-3\.The use of that knowledge— *When I cry,* etc.
+3\. The use of that knowledge— *When I cry,* etc.
 
-4\.The consequence of that use— *Mine enemies turn back. G. R.* 
+4\. The consequence of that use— *Mine enemies turn back. G. R.* 
 
 **Verse 10.** 
 
@@ -248,27 +248,27 @@ Or—
 
 **Verse 12.** Here is—
 
-1\.Past dedication.
+1\. Past dedication.
 
-2\.Present consecration.
+2\. Present consecration.
 
-3\.Future glorification. *G. R.* 
+3\. Future glorification. *G. R.* 
 
 **Verses 12-13.** You have here—
 
-1\.The commemoration of former mercies: *Thou hast delivered.* 
+1\. The commemoration of former mercies: *Thou hast delivered.* 
 
-2\.The confidence of future: *Wilt not thou.* 
+2\. The confidence of future: *Wilt not thou.* 
 
-3\.The end of all: *To walk before God in the light of the living. Stephen Charnock.* 
+3\. The end of all: *To walk before God in the light of the living. Stephen Charnock.* 
 
 **Verse 13.** 
 
-1\.The language of Gratitude— *Thou hast,* etc.
+1\. The language of Gratitude— *Thou hast,* etc.
 
-2\.Of Faith— *Wilt not thou,* etc.
+2\. Of Faith— *Wilt not thou,* etc.
 
-3\.Of Hope— *That I may walk,* etc. *G. R.* 
+3\. Of Hope— *That I may walk,* etc. *G. R.* 
 
 ## Works Upon The Fifty-Sixth Psalm
 

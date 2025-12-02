@@ -64,11 +64,11 @@ And melt away. The heat of his passion shall melt him like wax, and the sun of G
 
 **Verse 1.** This psalm is a praising of God for blessing the believer, and the whole Psalm doth prove that the believer is blessed: which proposition is set down in verse 1, and confirmed with as many reasons as there are verses following. Whence learn,
 
-1\.Albeit, in singing of certain psalms, or parts thereof, there be nothing directly spoken of the Lord, or to the Lord, yet he is praised when his truth is our song, or when his works and doctrine are our song; as here it is said, *Praise ye the Lord,* and then in the following verses the blessedness of the believer taketh up all the psalm.
+1\. Albeit, in singing of certain psalms, or parts thereof, there be nothing directly spoken of the Lord, or to the Lord, yet he is praised when his truth is our song, or when his works and doctrine are our song; as here it is said, *Praise ye the Lord,* and then in the following verses the blessedness of the believer taketh up all the psalm.
 
-2\.It is the Lord's praise that his servants are the only blessed people in the world. *Praise ye the Lord.* Why? because *Blessed is the man that feareth the Lord.* 
+2\. It is the Lord's praise that his servants are the only blessed people in the world. *Praise ye the Lord.* Why? because *Blessed is the man that feareth the Lord.* 
 
-3\.He is not the blessed man who is most observant to catch opportunities to have pleasure, profit, and worldly preferment, and careth not how he cometh by them: but he is the blessed man who is most observant of God's will, and careful to follow it.— *David Dickson.* 
+3\. He is not the blessed man who is most observant to catch opportunities to have pleasure, profit, and worldly preferment, and careth not how he cometh by them: but he is the blessed man who is most observant of God's will, and careful to follow it.— *David Dickson.* 
 
 **Verse 1.** *Blessed is the man that feareth the Lord.* It is not said simply, "Blessed is the man who fears": for there is a fear which of itself produces misery and wretchedness rather than happiness. It has to do, therefore, chiefly with what is feared. To fear when it is not becoming, and not to fear when fear is proper, these are not blessedness for a man, but misery and wretchedness. The prophet, therefore, says rightly, "Blessed is the man that feareth *the Lord* ":and in the 7th and 8th verses he says of this blessed one that he shall not be afraid of evil tidings. Therefore, he who fears God and, according to the exhortation of Christ, does not fear those who can kill the body, he truly may be numbered among the blessed.— *Wolfgang Musculus.* 
 
@@ -96,7 +96,7 @@ And melt away. The heat of his passion shall melt him like wax, and the sun of G
 
 **Verse 3.** *His righteousness endureth for ever.* We are justified before God by faith only: Ro 3:4: but they are righteous before men, who live honestly, piously, humbly, as the law of God requires. Concerning this righteousness the Psalmist says that it endureth for ever, while the feigned and simulated uprightness of hypocrites is abominable before God, and with men speedily passes away.— *Solomon Gesner.* 
 
-**Verse 4.** *Unto the upright there ariseth light in the darkness.* The arising of light out of darkness, although one of the most common, is one of the most beautiful, as it is one of the most beneficent natural phenomena. The sunrise is a daily victory of light over darkness. Every morning the darkness flees away. Heavy sleepers in the city are not apt to be very well acquainted with the rising sun. They know the tender beauties of the dawning, and the glories of sunrise by poetical description, or by the word of others. The light has fully come, and the day has long begun its work, especially if it be summer time, before ordinary citizens are awake; and, unless on some rare occasions, the millions of men who, every day, see more or less the fading of the light into the dark, never see the rising of the light out of the dark again; and, perhaps, seldom or never think with what thankfulness and joy it is hailed by those who need it—by the sailor, tempest tossed all night, and driven too near the sandbank or the shore; by the benighted traveller lost in the wood, or in the wild, who knows not south from north until the sun shall rise; by the night watcher in the sick room, who hears, and weeps to hear, through the weary night, the moaning of that old refrain of sorrow, "Would God it were morning!" What intensity of sorrow, fear, hope, there may be in that expression, "more than they that watch for the morning; I say, more than they that watch for the morning"! Now I make no doubt that there is at least somewhat of that more intense meaning carried up into the higher region of spiritual experience, and expressed by the text, "Unto the upright there ariseth light in the darkness."...Sincerity: an honest desire to know the truth: readiness to make any sacrifice in order to the knowledge: obedience to the truth so far as it is known already—these will bring the light when nothing else will bring it.— *Alexander Raleigh, in "The Little Sanctuary and other Meditations,"* 1872.
+**Verse 4.** *Unto the upright there ariseth light in the darkness.* The arising of light out of darkness, although one of the most common, is one of the most beautiful, as it is one of the most beneficent natural phenomena. The sunrise is a daily victory of light over darkness. Every morning the darkness flees away. Heavy sleepers in the city are not apt to be very well acquainted with the rising sun. They know the tender beauties of the dawning, and the glories of sunrise by poetical description, or by the word of others. The light has fully come, and the day has long begun its work, especially if it be summer time, before ordinary citizens are awake; and, unless on some rare occasions, the millions of men who, every day, see more or less the fading of the light into the dark, never see the rising of the light out of the dark again; and, perhaps, seldom or never think with what thankfulness and joy it is hailed by those who need it—by the sailor, tempest tossed all night, and driven too near the sandbank or the shore; by the benighted traveller lost in the wood, or in the wild, who knows not south from north until the sun shall rise; by the night watcher in the sick room, who hears, and weeps to hear, through the weary night, the moaning of that old refrain of sorrow, "Would God it were morning!" What intensity of sorrow, fear, hope, there may be in that expression, "more than they that watch for the morning; I say, more than they that watch for the morning"! Now I make no doubt that there is at least somewhat of that more intense meaning carried up into the higher region of spiritual experience, and expressed by the text, "Unto the upright there ariseth light in the darkness."... Sincerity: an honest desire to know the truth: readiness to make any sacrifice in order to the knowledge: obedience to the truth so far as it is known already—these will bring the light when nothing else will bring it.— *Alexander Raleigh, in "The Little Sanctuary and other Meditations,"* 1872.
 
 **Verse 4.** *Unto the upright there ariseth light in the darkness.* The great lesson taught by this simile is the connection which obtains between integrity of purpose and clearness of perception, insomuch that a duteous conformity to what is right, is generally followed up by a ready and luminous discernment of what is true. It tells us that if we have but grace to do as we ought, we shall be made to see as we ought. It is a lesson repeatedly affirmed in Scripture, and that in various places both of the Old and New Testament: "The path of the just is as the shining light, that shineth more and more unto the perfect day"; "The righteousness of the upright shall deliver them"; "Light is sown for the righteous, and gladness for the upright in heart"; or still more specifically, "To him that ordereth his conversation aright will I shew the salvation of God."— *Thomas Chalmers,* 1780-1847.
 
@@ -148,13 +148,13 @@ And melt away. The heat of his passion shall melt him like wax, and the sun of G
 
 **Verse 10.** *The wicked shall see it and be grieved,* etc. The sight of Christ in glory with his saints, will, in an inexpressible manner torment the crucifiers of the one, and the persecutors of the other; as it will show them the hopes and wishes of their adversaries all granted to the full, and all their own "desires" and designs for ever at an end; it will excite envy which must prey upon itself, produce a grief which can admit of no comfort, give birth to a worm which can never die, and blow up those fires which nothing can quench.— *George Horne.* 
 
-**Verse 10.** *The wicked shall see it, and be grieved,* etc. It is the property of the Devil, not to mistake the nature of virtue, and esteem it criminal, but to hate it for this reason, because it is good, and therefore most opposite to his designs. The wicked, as his proper emissaries, resemble him in this, and grieve to have the foulness of their vices made conspicuous by being placed near the light of virtuous example...They may, like the giants of ancient fable, attempt a romantic war with heaven; but all their preparations for that purpose must recoil with double force upon themselves, and cover them with shame and confusion...If such be the effect of their malice in the present life, that, instead of injuring those they rage against, it usually turns to their own vexation, how much more, when the scene shall open in the life to come... They shall continue then to gnash their teeth (the wretched amusement of that cursed state) as well in grief and anguish for their own torments, as in rage and envy at the abundant honour which is done the saints.— *William Berriman.* 
+**Verse 10.** *The wicked shall see it, and be grieved,* etc. It is the property of the Devil, not to mistake the nature of virtue, and esteem it criminal, but to hate it for this reason, because it is good, and therefore most opposite to his designs. The wicked, as his proper emissaries, resemble him in this, and grieve to have the foulness of their vices made conspicuous by being placed near the light of virtuous example... They may, like the giants of ancient fable, attempt a romantic war with heaven; but all their preparations for that purpose must recoil with double force upon themselves, and cover them with shame and confusion... If such be the effect of their malice in the present life, that, instead of injuring those they rage against, it usually turns to their own vexation, how much more, when the scene shall open in the life to come... They shall continue then to gnash their teeth (the wretched amusement of that cursed state) as well in grief and anguish for their own torments, as in rage and envy at the abundant honour which is done the saints.— *William Berriman.* 
 
 **Verse 10.** *The wicked shall see it, and be grieved;* that is, he shall have secret indignation in himself to see matters go so; he shall gnash with his teeth, and melt away. Gnashing of teeth is caused by vexing the heart; and therefore it follows, he melts away; which notes (melting is from the heart) an extreme heat within. The sense is very suitable to that of Eliphaz (Job 5:2) "wrath slayeth the foolish, "or wrath makes him melt away, it melts his grease with chafing, as we say of a man furiously vexed. Hence that deplorable condition of the damned, who are cast out of the presence of God for ever, is described by "weeping, and wailing, and gnashing of teeth"; which imports not only pain, but extreme vexing at, or in themselves. These finally impenitent ones shall be slain for ever with their own wrath, as well as with the wrath of God.— *Joseph Caryl.* 
 
 **Verse 10.** *The wicked shall see it.* The psalm which speaks of the blessedness of the saints also bears solemn testimony to the doom of the wicked. Cowper sings as if this verse was before his eyes.
 
-...The same word, that like the polished share
+... The same word, that like the polished share
 
 Ploughs up the roots of a believer's care,
 
@@ -188,21 +188,21 @@ Truth will intrude.
 
 **Verse 1.** "Praise ye the LORD."
 
-1\.Who should be praised? Not man, self, wealth, etc., but God only.
+1\. Who should be praised? Not man, self, wealth, etc., but God only.
 
-2\.Who should praise him? All men, but specially his people, the blessed ones described in this psalm.
+2\. Who should praise him? All men, but specially his people, the blessed ones described in this psalm.
 
-3\.Why should they do it? For all the reasons mentioned in succeeding verses.
+3\. Why should they do it? For all the reasons mentioned in succeeding verses.
 
-4\.How should they do it? Chiefly by leading such a life as is here described.
+4\. How should they do it? Chiefly by leading such a life as is here described.
 
 **Verse 1** (second clause).
 
-1\.Fear of the Lord; what it is.
+1\. Fear of the Lord; what it is.
 
-2\.Its connection with the delight mentioned.
+2\. Its connection with the delight mentioned.
 
-3\.The qualities in the commandments which excite delight in God fearing minds.
+3\. The qualities in the commandments which excite delight in God fearing minds.
 
 **Verse 2.** The real might of the holy seed and their true blessedness.
 
@@ -210,29 +210,29 @@ Truth will intrude.
 
 **Verse 3.** The enduring character of true righteousness.
 
-1\.Based on eternal principles.
+1\. Based on eternal principles.
 
-2\.Growing out of an incorruptible seed.
+2\. Growing out of an incorruptible seed.
 
-3\.Sustained by a faithful God.
+3\. Sustained by a faithful God.
 
-4\.United to the ever living Christ.
+4\. United to the ever living Christ.
 
 **Verse 3.** Connection of the two clauses—How to be wealthy and righteous. Note the following verses, and show how liberality is needful if rich men would be righteous men.
 
 **Verse 4** (whole verse).
 
-1\.The upright have their dark times.
+1\. The upright have their dark times.
 
-2\.They shall receive comfort.
+2\. They shall receive comfort.
 
-3\.Their own character will secure this.
+3\. Their own character will secure this.
 
 **Verse 4** (first clause).
 
-1\.The character of the righteous: "upright, " "gracious, "etc.
+1\. The character of the righteous: "upright, " "gracious, "etc.
 
-2\.His privilege.
+2\. His privilege.
 
 (a) Light as well as darkness.
 
@@ -244,21 +244,21 @@ Truth will intrude.
 
 **Verse 5.** 
 
-1\.A good man is benevolent, but a benevolent man is not always good.
+1\. A good man is benevolent, but a benevolent man is not always good.
 
-2\.A good man is prudent, but a prudent man is not always a good man. There must first be goodness and then its fruits. "Make the tree good, "etc.— *G.R.* 
+2\. A good man is prudent, but a prudent man is not always a good man. There must first be goodness and then its fruits. "Make the tree good, "etc.— *G. R.* 
 
 **Verse 5.** "Lending."
 
-1\.It is to be done.
+1\. It is to be done.
 
-2\.It is to be done as a favour; borrowing is seeking alms.
+2\. It is to be done as a favour; borrowing is seeking alms.
 
-3\.It should be done very discreetly. Add to this a homily on borrowing and repaying.
+3\. It should be done very discreetly. Add to this a homily on borrowing and repaying.
 
 **Verse 6.** 
 
-1\.In this life the Christian is,
+1\. In this life the Christian is,
 
 a. Steadfast;
 
@@ -266,7 +266,7 @@ b. Calm;
 
 c. Unconquerable: and
 
-2\.When this life is over his memory is,
+2\. When this life is over his memory is,
 
 a. Beloved;
 
@@ -276,9 +276,9 @@ c. Perpetual.
 
 **Verse 6.** 
 
-1\.The character of the righteous is eternal: "surely," etc.
+1\. The character of the righteous is eternal: "surely," etc.
 
-2\.His influence upon others is eternal: "shall be had," etc.— *G.R.* 
+2\. His influence upon others is eternal: "shall be had," etc.— *G. R.* 
 
 **Verse 7.** 
 
@@ -290,31 +290,31 @@ c. Perpetual.
 
 **Verse 7.** 
 
-1\.The waves: "evil tidings."
+1\. The waves: "evil tidings."
 
-2\.The steady ship: "he shall not be afraid."
+2\. The steady ship: "he shall not be afraid."
 
-3\.The anchor: "his heart is fixed, trusting."
+3\. The anchor: "his heart is fixed, trusting."
 
-4\.The anchorage: "in the Lord."
+4\. The anchorage: "in the Lord."
 
 **Verse 8.** Heart establishment, the confidence which flows from it, the sight which shall be seen by him who possesses it.
 
 **Verse 8.** 
 
-1\.The security of the righteous: "his heart is established."
+1\. The security of the righteous: "his heart is established."
 
-2\.His tranquillity: "he shall not be afraid; "and,
+2\. His tranquillity: "he shall not be afraid; "and,
 
-3\.His expectancy: "until, "etc.— *G.R.* 
+3\. His expectancy: "until, "etc.— *G. R.* 
 
 **Verse 9.** Benevolence: its exercise in alms giving, its preserving influence upon character, and the honour which it wins.
 
 **Verse 10.** 
 
-1\.What the wicked must see, and its effect upon them.
+1\. What the wicked must see, and its effect upon them.
 
-2\.What they shall never see (their desire), and the result of their disappointment.
+2\. What they shall never see (their desire), and the result of their disappointment.
 
 ## Works Upon The Hundred And Twelfth Psalm
 

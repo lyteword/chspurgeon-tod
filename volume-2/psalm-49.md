@@ -108,7 +108,7 @@ The song ends with the refrain, *Man that is in honour, and understandeth not, i
 
 **Verse 4.** *I will incline mine ear to a parable,* i.e, I will diligently attend, that I may not sing anything ungracefully; a metaphor taken from musicians who bring their ear close to the harp, that they may ascertain the harmony of the sound. *Victorinus Bythner.* 
 
-**Verse 5.** *Wherefore should I fear in the days of evil, when the iniquity of my heels shall compass me about?* Those that are full of years are approaching the nearer to their happiness. They have finished their voyage, and now are in sight of the haven. Nature's provision is spent, her stock is exhausted, and now the good man doth not so much descend as fall into the grave, and from thence he rises to heaven and eternal bliss. And shall he be disturbed at this? shall he be afraid to be made happy? If I mistake not, this is the meaning of the psalmist's words. They are generally interpreted concerning *his ways* in general, but they seem to me to refer particularly to the calamity which his old age was incident to: for *the days of evil* are old age, and are so called by the wise man Ec 12:1; and as the *heel* is the extreme part of the body, so it is here applied to the last part of man's life, his declining age; and *iniquity* (as the word is sometimes used among the Hebrews) signifies here penal evil, and denotes the infirmities and decays of the concluding part of a man's life. So that the true meaning of the psalmist's words is this—I will not now in my last days be dejected with fear and trouble of mind, for I am coming towards my happiness, my declining years shall deliver me up to death, and that shall consign me to everlasting life. This certainly is matter of joy rather than of fear. For this reason I account my last days to be the most eligible part of my whole life. *John Edwards, D.D.* (1637-1716), *in "The Theologia Reformata."* 
+**Verse 5.** *Wherefore should I fear in the days of evil, when the iniquity of my heels shall compass me about?* Those that are full of years are approaching the nearer to their happiness. They have finished their voyage, and now are in sight of the haven. Nature's provision is spent, her stock is exhausted, and now the good man doth not so much descend as fall into the grave, and from thence he rises to heaven and eternal bliss. And shall he be disturbed at this? shall he be afraid to be made happy? If I mistake not, this is the meaning of the psalmist's words. They are generally interpreted concerning *his ways* in general, but they seem to me to refer particularly to the calamity which his old age was incident to: for *the days of evil* are old age, and are so called by the wise man Ec 12:1; and as the *heel* is the extreme part of the body, so it is here applied to the last part of man's life, his declining age; and *iniquity* (as the word is sometimes used among the Hebrews) signifies here penal evil, and denotes the infirmities and decays of the concluding part of a man's life. So that the true meaning of the psalmist's words is this—I will not now in my last days be dejected with fear and trouble of mind, for I am coming towards my happiness, my declining years shall deliver me up to death, and that shall consign me to everlasting life. This certainly is matter of joy rather than of fear. For this reason I account my last days to be the most eligible part of my whole life. *John Edwards, D. D.* (1637-1716), *in "The Theologia Reformata."* 
 
 **Verse 5.** *Wherefore should I fear in the days of evil, when the iniquity of my heels shall compass me about?* That is, when my sins or failings in what I have done, come to my remembrance, or are chastened upon me. Every man's heels hath some iniquity: as we shall have some dirt cleaving to our heels while we walk in a dirty world, so there is some dirt, some defilement, upon all our actions, which we may call, *the iniquity of our heel. Joseph Caryl.* 
 
@@ -142,7 +142,7 @@ What hand can wrest from death his prey,
 
 Its banquet from the rotten tomb?
 
-From "The Psalter, or Psalms of David, in English verse. By a *member of the University of Cambridge." (Benjamin Hall Kennedy, D.D.)* 1860.
+From "The Psalter, or Psalms of David, in English verse. By a *member of the University of Cambridge." (Benjamin Hall Kennedy, D. D.)* 1860.
 
 **Verse 6.** They that trust in their wealth, and boast themselves in the multitude of their riches. Here we have the rich man trusting and boasting; surely this is a very confident trusting which issues itself into boasting! That man is ascended to the highest step of faith in God, who makes his boast of God; such faith have they in fine gold who boast in it. *Joseph Caryl.* 
 
@@ -154,7 +154,7 @@ From "The Psalter, or Psalms of David, in English verse. By a *member of the Uni
 
 **Verses 6-10.** David speaks of some *that trust in their wealth, and boast themselves in the multitude of their riches.* Rich men can do great things, but here is a thing that they cannot do: *None of them can by any means redeem his brother, nor give to God a ransom for him.* From what cannot a rich man redeem his brother? It is true of spiritual redemption; yea, that is furthest out of the rich man's reach, money will not do it: "We are not redeemed with corrupt things, such as silver and gold, but with the precious blood of the Son of God." 1Pe 1:18-19. But the psalmist speaks of a lower redemption, to which all the riches of man cannot reach: *None of them can by any means redeem his brother, nor give to God a ransom for him: for the redemption of their soul* (that is, of their person from the grave), *is precious, and it ceaseth for ever.* And that he speaks of their redemption from the grave, is more clearly expressed in Ps 49:9: *That he should still live for ever, and not see corruption.* Jesus Christ did not redeem us that we should live for ever, and not see corruption. It was the privilege of Jesus Christ the Redeemer not to see corruption; but Jesus Christ hath not redeemed us that we should not see corruption. He hath redeemed us that we should live for ever in heaven, but he hath not redeemed us from corruption, that we should live for ever on earth, or not see corruption in the grave; for, as it is said in Ps 49:10 of the Psalm, we see *that wise men die, likewise the fool and the brutish person perish, and leave their wealth to others;* as if he had said, Neither the one nor the other sort of men could make this use or improvement of their wealth, to deliver themselves from going to the grave, for if they could they would have laid all out on that purchase; but they could not do it, therefore, *they leave their wealth to others. Joseph Caryl.* 
 
-**Verse 7.** *None of them can by any means redeem his brother,* etc. Some animals devoted to God could be redeemed at a price, but no price could be assigned to the ransom of a soul. That such a ransom was to be provided, the faith of the church had always anticipated: "He shall redeem Israel from all his iniquities." Ps 130:8. *W. Wilson, D.D.* 
+**Verse 7.** *None of them can by any means redeem his brother,* etc. Some animals devoted to God could be redeemed at a price, but no price could be assigned to the ransom of a soul. That such a ransom was to be provided, the faith of the church had always anticipated: "He shall redeem Israel from all his iniquities." Ps 130:8. *W. Wilson, D. D.* 
 
 **Verse 8.** *For the redemption of their soul is precious, and it ceaseth for ever.* In this judgment tears will not prevail, prayers will not be heard, promises will not be admitted, repentance will be too late, and as for riches, honourable titles, sceptres, and diadems, these will profit much less, and the inquisition shall be so curious and diligent, that not one light thought, not one idle word (not repented of in thy life past) shall be forgotten, for truth itself hath said, not in jest, but in earnest, of every idle word which men have spoken, they shall give an account in the day of judgment. Oh, how many which now sin with great delight, yea, even with greediness (as if we served a god of wood or of stone which seeth nothing nor can do nothing) will be then astonished, ashamed, and silent. Then shall the days of thy mirth be ended, and thou shalt be overwhelmed with everlasting darkness, and instead of thy pleasures thou shalt have everlasting torments. *Thomas Tymme.* 
 
@@ -246,37 +246,37 @@ Death is their Shepherd now. **
 
 **Verse 20.** *Like the beasts that perish.* Sin is both *formaliter* and *effective* vile. As it is so in itself, so it has made man vile. No creature so debased as man, being in this respect become viler than any creature. There is no such depravation in the nature of any creature, except in the diabolical nature. No creature ever razed God's image out of its nature, but only man. There is no aversions to the will of God, no inclination to what offends him, in any creature on earth but man. Man, then, who was once the glory of the creation, is become the vilest of all creatures, for that is vilest which is most contrary to the infinite glory, but so is our nature, "Man being in honour, abideth not, "is now *like the beast that perish;* nay, worse than they, if the greatest evil can make him worse. Man was made a little lower than the angels, crowned with glory, advanced to be lord and governor of all the works of his hands; and all creatures in this world were put under his feet. Ps 8:5-6. But by this natural corruption he that was but a little lower than the angels is now something below the beasts. He was to have dominion, but is made baser than those over whom he rules. They were put under his feet, but now he is as low as they. This is the sad issue of natural corruption. *David Clarkson.* 
 
-**Verse 20.** *Like the beasts.* Man is so much a beast, that he cannot know himself to be one till God teach him. And we never learn to be men till we have learned that we were beasts...It is not said he is like this or that beast, but *he is like the beasts that perish.* Take any beast, or all beasts, the worst of beasts, he is the picture of them all, and he daily exemplifies the vilest of their qualities in his own. *Joseph Caryl.* 
+**Verse 20.** *Like the beasts.* Man is so much a beast, that he cannot know himself to be one till God teach him. And we never learn to be men till we have learned that we were beasts... It is not said he is like this or that beast, but *he is like the beasts that perish.* Take any beast, or all beasts, the worst of beasts, he is the picture of them all, and he daily exemplifies the vilest of their qualities in his own. *Joseph Caryl.* 
 
 ## Hints to the Village Preacher
 
 **Verse 2.** 
 
-1\.The common needs of rich and poor men.
+1\. The common needs of rich and poor men.
 
-2\.The common privileges of rich and poor saints.
+2\. The common privileges of rich and poor saints.
 
-3\.Their common service.
+3\. Their common service.
 
-4\.Their common heaven.
+4\. Their common heaven.
 
 **Verse 3.** The deep things of God are intended,
 
-1\.To exercise our minds to understand them.
+1\. To exercise our minds to understand them.
 
-2\.To try our faith by believing them—"incline" implies a submissive mind.
+2\. To try our faith by believing them—"incline" implies a submissive mind.
 
-3\.To excite our joy as we grasp them—"upon the harp."
+3\. To excite our joy as we grasp them—"upon the harp."
 
-4\.To employ our faculties in explaining them to others.
+4\. To employ our faculties in explaining them to others.
 
 **Verse 5.** 
 
-1\.The effects of our sin remain—(a) In ourselves, (b) In others.
+1\. The effects of our sin remain—(a) In ourselves, (b) In others.
 
-2\.In a time of conviction they *compass us about:* better to do so in this life, than to haunt us as ghosts for ever.
+2\. In a time of conviction they *compass us about:* better to do so in this life, than to haunt us as ghosts for ever.
 
-3\.When they are pardoned we have nothing to fear. *G.R.* 
+3\. When they are pardoned we have nothing to fear. *G. R.* 
 
 **Verse 7.** 
 
@@ -292,25 +292,25 @@ Death is their Shepherd now. **
 
 **Verse 12.** Here is a twofold thwarting or crossing of the purposes of the ungodly worldling.
 
-1\.The first is, *he shall not be that which he ever wished to be:* he shall not continue in honour.
+1\. The first is, *he shall not be that which he ever wished to be:* he shall not continue in honour.
 
-2\.The other is this, *he shall be that which he never desired to be:* he shall be like the beasts that die. He shall miss of that which he sought for, and he shall have that which he looked not for. *—S. Hieron.* 
+2\. The other is this, *he shall be that which he never desired to be:* he shall be like the beasts that die. He shall miss of that which he sought for, and he shall have that which he looked not for. *—S. Hieron.* 
 
 **Verse 13.** 
 
-1\.In secular things men imitate the *wisdom* of others.
+1\. In secular things men imitate the *wisdom* of others.
 
-2\.In spiritual things they imitate *their folly. G. R.* 
+2\. In spiritual things they imitate *their folly. G. R.* 
 
 **Verse 14.** 
 
-1\.In proportion to the prosperity of the ungodly here, will be their misery hereafter: as sheep from the fat pasture led to the slaughterhouse.
+1\. In proportion to the prosperity of the ungodly here, will be their misery hereafter: as sheep from the fat pasture led to the slaughterhouse.
 
-2\.In proportion to the luxury here, will be their corruption hereafter— *Death shall feed on them:* they have become well fed for death to feed on them.
+2\. In proportion to the luxury here, will be their corruption hereafter— *Death shall feed on them:* they have become well fed for death to feed on them.
 
-3\.In proportion to their dignity here, will be their degradation hereafter— *The upright shall have,* etc. Oh, what a contrast between the rich man and Lazarus then!
+3\. In proportion to their dignity here, will be their degradation hereafter— *The upright shall have,* etc. Oh, what a contrast between the rich man and Lazarus then!
 
-4\.In proportion to their beauty here, will be their deformity hereafter. "Art thou become like one of us?" *G. R.* 
+4\. In proportion to their beauty here, will be their deformity hereafter. "Art thou become like one of us?" *G. R.* 
 
 **Verse 14.** Sheep, how far they image the wicked.
 
@@ -330,7 +330,7 @@ Death is their Shepherd now. **
 
 **Verse 20.** 
 
-1\.Men of spiritual understanding without worldly honour are higher than the angels of God in heaven.
+1\. Men of spiritual understanding without worldly honour are higher than the angels of God in heaven.
 
-2\.Men in worldly honour without the true wisdom are worse than the beasts that perish. *G. R.* 
+2\. Men in worldly honour without the true wisdom are worse than the beasts that perish. *G. R.* 
 

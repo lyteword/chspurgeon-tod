@@ -84,7 +84,7 @@ We are almost at the last Psalm, and still among the Hallelujahs. This is *"a ne
 
 (c) *In what respects* the Lord takes pleasure in his people. First: the Lord takes pleasure in them, inasmuch as he delights in *the exercise of their graces towards him.* They all believe in him, and have faith in his word and promises; they rely on his truth and power; they hope in his mercy; they fear his displeasure; they love his person and name. Secondly: the Lord hath pleasure in *the services* of his people. It is true, that they can do but little for him, and that little is nothing worth. At the best they can but render to him of his own again. But he regards their services, not with an eye to their intrinsic value in themselves, but for the sake of the willing mind from which they flow. He takes pleasure in their poor attempts to please him, because they are attempts. He weighs not the worth or merit of the action, but the principle and motive from which it springs. Thirdly: the Lord hath pleasure in the *prosperity* of his people. His name is love; his nature is goodness; and can we doubt but that he loves to see his people happy? Nay, we are expressly told that "he rejoiceth over them with joy"; that "he rejoiceth over them to do them good." Even in those dispensations which in themselves are grievous and painful he is seeking their good, and in the end promoting their happiness. What consolations do these reflections furnish to the *meek* and suffering servants of the Lord!
 
-2\.Let us now consider *the LORD'S gracious designs* concerning his people: *He will beautify them with salvation.* He designs not only to save, but to adorn and honour his people. Those "whom he justifies, them he also glorifies." He "will *beautify* them with salvation"; a promise relating both to the present life and to the future one.
+2\. Let us now consider *the LORD'S gracious designs* concerning his people: *He will beautify them with salvation.* He designs not only to save, but to adorn and honour his people. Those "whom he justifies, them he also glorifies." He "will *beautify* them with salvation"; a promise relating both to the present life and to the future one.
 
 (a) *To the present life.* It is the purpose of God to beautify his people with salvation in this world. There are many passages in the Scripture which intimate this purpose, and lead us to this view of the happy effects of religion, even in the present life. When the prodigal returned home to his father's house, contrite, penitent, and reformed, he was not only received with kindness, assured of forgiveness, and welcomed as a son, but he was adorned and beautified (Lu 15:22). So in the forty-fifth Psalm, the church, the bride of Christ, is thus described: "The king's daughter is all glorious within: her clothing is of wrought gold. She shall be brought unto the king in raiment of needlework." "So shall he greatly desire thy *beauty."* See also Eph 5:25-27. But what is the glory, the beauty, which is here meant in these passages, with which Christ will adorn and beautify his people? It is "the beauty of holiness." We have already seen that the meek and quiet spirit by which the Christian is distinguished is an "ornament" to him; and we read in another place that he is "adorned" with good works. It is the great object of the gospel to sanctify all who embrace it, to restore them to the image of God which they have lost through sin.
 
@@ -102,7 +102,7 @@ We are almost at the last Psalm, and still among the Hallelujahs. This is *"a ne
 
 **Verse 5.** *The saints in glory* shall rest from their labours, but not from their praises.— *Robert Bellarmine.* 
 
-**Verse 5.** *Upon their beds*, where before in the loneliness of night they consumed themselves with grief for their shame. Comp. Ho 7:14.— *E.W. Hengstenberg.* 
+**Verse 5.** *Upon their beds*, where before in the loneliness of night they consumed themselves with grief for their shame. Comp. Ho 7:14.— *E. W. Hengstenberg.* 
 
 **Verse 5.** The saints of God know most of domestic joy and peace. As the word of Jesus in Joh 14:1-31 records, they have sorrows in plenty, but the more of these, the greater will be their joy, because their sorrows are to be transmuted into joys. They are to sing aloud *on their beds*, or rather couches, for on these the Orientals not only sleep, but also dine, and feast. So this verse calls on the saints to hold a banquet, a feast of fat things. They are, as David sings in Ps 23:1-6, to sit at the table prepared by the Lord in the presence of their enemies.— *Johannes Paulus Palanterius.* 
 
@@ -118,17 +118,17 @@ The duty of praising God is a high duty, which must exalt and lift up the high G
 
 This truth I shall labour to demonstrate, 1. From the Object. 2. The Effect. 3. Their Price. 4. Their Performance; or, to use the School terms, they are *"high":* 1. Objective. 2. Effective. 3. Appreciative. 4. Perfective.
 
-1\.The praises of God are *"high"* in relation to their *Object,* which is none other but the Most High God, and that in the consideration of his transcendent height and sublimity over and above all other things or persons: so the Psalmist's resolution intimates (Ps 7:17), "I will praise the LORD according to his righteousness", which he expresses in the following words, "To sing praise to the name of the Lord most high"; and Ps 92:1: "It is a good thing to give thanks unto the Lord, and to sing praises unto thy name, O most High." In which places, and very many more in the Scriptures, it is evident that the Lord, considered in his highest sublimity, is the object of high praise, and that by most special and peculiar appropriation of it unto himself, and none other (Isa 42:8).
+1\. The praises of God are *"high"* in relation to their *Object,* which is none other but the Most High God, and that in the consideration of his transcendent height and sublimity over and above all other things or persons: so the Psalmist's resolution intimates (Ps 7:17), "I will praise the LORD according to his righteousness", which he expresses in the following words, "To sing praise to the name of the Lord most high"; and Ps 92:1: "It is a good thing to give thanks unto the Lord, and to sing praises unto thy name, O most High." In which places, and very many more in the Scriptures, it is evident that the Lord, considered in his highest sublimity, is the object of high praise, and that by most special and peculiar appropriation of it unto himself, and none other (Isa 42:8).
 
-2\.In the second place, the praises of God will appear to be of a high, sublime nature, from the high effect, the genuine and proper fruit they produce, viz., that although their object, to whom they are peculiarly appropriate (I mean the Lord himself) be in his own nature, and of himself, most infinitely high and transcendent, yet by the attribution and performance of praise unto him, doth he account his name, his power, his wisdom, and justice, and himself to be exalted thereby. What else do those expressions in Scripture imply wherein it is asserted, that by this high duty of praise the high Jehovah is exalted (Ps 108:32); His sublime perfections are extolled and lifted up (Ps 68:4); His great Name is magnified (Lu 1:64); His infinite majesty is glorified (Ps 50:23)? Oh how high must be that duty, that adds height to the high God, that magnifies the great God, and glorifies the God of glory, and makes him higher, greater, and more glorious than he was before!
+2\. In the second place, the praises of God will appear to be of a high, sublime nature, from the high effect, the genuine and proper fruit they produce, viz., that although their object, to whom they are peculiarly appropriate (I mean the Lord himself) be in his own nature, and of himself, most infinitely high and transcendent, yet by the attribution and performance of praise unto him, doth he account his name, his power, his wisdom, and justice, and himself to be exalted thereby. What else do those expressions in Scripture imply wherein it is asserted, that by this high duty of praise the high Jehovah is exalted (Ps 108:32); His sublime perfections are extolled and lifted up (Ps 68:4); His great Name is magnified (Lu 1:64); His infinite majesty is glorified (Ps 50:23)? Oh how high must be that duty, that adds height to the high God, that magnifies the great God, and glorifies the God of glory, and makes him higher, greater, and more glorious than he was before!
 
-3\.Thirdly, the praises of God are of a high nature, *appreciative,* in respect of *the high estimation the Lord himself hath of them,* which appears two ways: (1.) By the high price wherewith he purchases them; (2.) By the high delight he takes in them, after he hath procured them.
+3\. Thirdly, the praises of God are of a high nature, *appreciative,* in respect of *the high estimation the Lord himself hath of them,* which appears two ways: (1.) By the high price wherewith he purchases them; (2.) By the high delight he takes in them, after he hath procured them.
 
  *First.* The *price* wherewith God is willing to purchase them is very high, for not only the expense of all his wisdom, power, and goodness, put forth in creation, not only the laying out of all his counsel, care, love, and faithfulness in providence and preservation; but also the rich treasure of his promises, covenant, grace, yea, the precious blood of his own Son, in our redemption, is given freely, absolutely, intentionally, and ultimately, for no other thing but the purchase of high praises to God (Eph 1:5-6). All that God doth and giveth; all that Christ doth and suffereth, is for the praise of the glory of his grace. I confess, consider men's highest praises of God, as they are man's performance, they are poor and inconsiderable things; but consider them as they are the testimonies and expressions of a believing heart, declaring and making known the unspeakable wisdom, faithfulness, bounty, and excellencies of God, exercised in his works; in this notion the Scripture declares the heart of God to be so taken with the desire of them, that he is willing to give heaven, earth, Himself, and Son to poor men for the praises of their hearts, hands, and tongues; and accounts himself abundantly satisfied. Therefore, when his people will speak good of his name, they speak of him in the dialect of angels' notes, *"the high praises of God."* 
 
  *Secondly.* The high value that God hath of "high praises" will be evident by the *high delight and pleasure* God takes in them thus purchased; for skilful artists, and high principled, elevated understandings, never take pleasure or delight in any thing or work which is not answerable to their highest principles, and proportionable to their uttermost skill and desire. Now the Lord, who is of the most perfect understanding, and deepest skill and knowledge, declares himself to take infinite delight in his people's praises. It is his solace and pleasure to be attended with them, either in earth or in heaven, by men or angels; and his soul is ravished with the thoughts and contemplation of them.
 
-4\.In the fourth place, the praises of God are high, and of a high nature *perfective,* that is, in respect of the high measure of grace they are to be attended withal in their performance: the Lord requiring the duty of high praise to be performed with a great measure of Scripture light, with a high degree of effectual fifth, and with a more ample proportion of practical holiness than any other of the most solemn exercises of his public worship.— *Condensed from a Sermon by Samuel Fairclough, entitled "The Prisoner's Praise,"* 1650.
+4\. In the fourth place, the praises of God are high, and of a high nature *perfective,* that is, in respect of the high measure of grace they are to be attended withal in their performance: the Lord requiring the duty of high praise to be performed with a great measure of Scripture light, with a high degree of effectual fifth, and with a more ample proportion of practical holiness than any other of the most solemn exercises of his public worship.— *Condensed from a Sermon by Samuel Fairclough, entitled "The Prisoner's Praise,"* 1650.
 
 **Verse 8.** *To bind their kings with chains*, etc. Agrippa was captive to Paul. The word had him in bands like a prisoner, and made him confess against himself before Festus that he was "almost persuaded to be a Christian." Then it was verified which before was prophesied, *They shall bind kings in chains, and nobles in fetters of iron.* Oh, the majesty and force of the word!— *Henry Smith.* 
 
@@ -144,37 +144,37 @@ Many are made converts by the godly ends of good men; as the centurion himself, 
 
 **Verse 1.** *Praise ye the lord.* 
 
-1\.The one work of a life.
+1\. The one work of a life.
 
-2\.The work of the truly living of all degrees.
+2\. The work of the truly living of all degrees.
 
-3\.Their work in many and various forms.
+3\. Their work in many and various forms.
 
-4\.A work for which there is abundant cause, reason, and argument.
+4\. A work for which there is abundant cause, reason, and argument.
 
 **Verse 1.** 
 
-1\.A wonderful gift—to be a saint.
+1\. A wonderful gift—to be a saint.
 
-2\.A wonderful people—who are saints.
+2\. A wonderful people—who are saints.
 
-3\.A wonderful assembly—a congregation of saints.
+3\. A wonderful assembly—a congregation of saints.
 
-4\.A wonderful God—the object of their song.
+4\. A wonderful God—the object of their song.
 
 **Verses 1-2.** The new song of the saints.
 
-1\.The saints are God's children by the new birth.
+1\. The saints are God's children by the new birth.
 
-2\.The new birth has given them a new heart.
+2\. The new birth has given them a new heart.
 
-3\.The new heart utters itself in a new song.— *C.A.D.* 
+3\. The new heart utters itself in a new song.— *C. A. D.* 
 
 **Verses 1, 5.** 
 
-1\.We must praise God in public, "in the congregation of the saints": the more the better; it is like to heaven.
+1\. We must praise God in public, "in the congregation of the saints": the more the better; it is like to heaven.
 
-2\.We must praise him in private. "Let the saints" be so transported with their joy in God as to "sing aloud upon their beds", when they awake in the night, as David; Ps 119:62.— *Matthew Henry.* 
+2\. We must praise him in private. "Let the saints" be so transported with their joy in God as to "sing aloud upon their beds", when they awake in the night, as David; Ps 119:62.— *Matthew Henry.* 
 
 **Verse 2.** The duty, reasonableness, and benefit of holy joy.
 
@@ -182,27 +182,27 @@ Many are made converts by the godly ends of good men; as the centurion himself, 
 
 **Verse 2.** (*second clause* ). Christ's people may well rejoice:
 
-1\.In the majesty of his person.
+1\. In the majesty of his person.
 
-2\.In the righteousness of his rule.
+2\. In the righteousness of his rule.
 
-3\.In the extent of his conquests.
+3\. In the extent of his conquests.
 
-4\.In the protection they enjoy under him.
+4\. In the protection they enjoy under him.
 
-5\.In the glory to which he will raise them.
+5\. In the glory to which he will raise them.
 
 — *From "The Homiletical Library,"* 1882.
 
 **Verses 2, 4.** The cause given to God's Israel for Praise. Consider,
 
-1\.God's doings for them. They have reason to rejoice in God, and employ themselves in his service; for it is he that "made" them.
+1\. God's doings for them. They have reason to rejoice in God, and employ themselves in his service; for it is he that "made" them.
 
-2\.God's dominion over them. This follows upon the former: if he made them he is their King.
+2\. God's dominion over them. This follows upon the former: if he made them he is their King.
 
-3\.God's delight in them. He is a King that rules by love, and therefore to be praised.
+3\. God's delight in them. He is a King that rules by love, and therefore to be praised.
 
-4\.God's designs concerning them. Besides the present complacency he hath in them, he hath prepared for their future glory. "He will beautify the meek", etc.— *Matthew Henry.* 
+4\. God's designs concerning them. Besides the present complacency he hath in them, he hath prepared for their future glory. "He will beautify the meek", etc.— *Matthew Henry.* 
 
 **Verse 4.** The text bears other renderings. Read as in Authorized Version.
 
@@ -238,23 +238,23 @@ c) Heaven will be anticipated.
 
 **Verse 4.** (*first clause* ). The Lord's taking pleasure in his people is,
 
-1\.A wonderful evidence of his grace.
+1\. A wonderful evidence of his grace.
 
-2\.The highest honour they can desire.
+2\. The highest honour they can desire.
 
-3\.Their security for time and eternity.— *J.F.* 
+3\. Their security for time and eternity.— *J. F.* 
 
 **Verse 5.** *Saintly joy.* 
 
-1\.The state to which God has lifted the saints: "glory", in contrast with sin, reproach, affliction.
+1\. The state to which God has lifted the saints: "glory", in contrast with sin, reproach, affliction.
 
-2\.The emotion which accordingly befits the saints: "be joyful."
+2\. The emotion which accordingly befits the saints: "be joyful."
 
-3\.The utterance of that emotion incumbent on the saints: "sing aloud."— *C.A.D.* 
+3\. The utterance of that emotion incumbent on the saints: "sing aloud."— *C. A. D.* 
 
 **Verse 5.** (*second clause* ). Let them praise God—
 
-1\.Upon their beds of *rest,* upon their *nightly* couch.
+1\. Upon their beds of *rest,* upon their *nightly* couch.
 
 a) Because of what God has done for them during the day.
 
@@ -264,7 +264,7 @@ c) Because they have a bed to lie upon.
 
 d) Because the Lord is their keeper (Ps 4:5,8).
 
-2\.Upon their beds of *sickness.* 
+2\. Upon their beds of *sickness.* 
 
 a) Because it is God's will they should suffer.
 
@@ -274,7 +274,7 @@ c) Because, if sanctified, sickness is a great blessing.
 
 d) Because praise offered upon a bed of sickness is a testimony to the power of religion.
 
-3\.Upon their beds of *death.* 
+3\. Upon their beds of *death.* 
 
 a) Because the sting of death is removed.
 
@@ -284,15 +284,15 @@ c) Because Christ is with them while they suffer.
 
 d) Because of what awaits them.
 
-e) Because they have the glorious hope of resurrection.— *C.W. Townsend, of Inskip,* 1885.
+e) Because they have the glorious hope of resurrection.— *C. W. Townsend, of Inskip,* 1885.
 
 **Verse 6.** 
 
-1\.The Christian life a combination of adoration and conflict.
+1\. The Christian life a combination of adoration and conflict.
 
-2\.In each case it should be at its best: "high praises", "two edged sword."
+2\. In each case it should be at its best: "high praises", "two edged sword."
 
-3\.In each case holiness should be conspicuous: it is of saints that the text speaks.
+3\. In each case holiness should be conspicuous: it is of saints that the text speaks.
 
 **Verse 8.** The restraining and subduing power of the gospel.
 

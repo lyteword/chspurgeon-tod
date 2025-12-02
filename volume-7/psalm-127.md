@@ -48,7 +48,7 @@ The twice repeated *"in vain"* of Ps 127:1 may be regarded as the motto or "degr
 
 The next "degree" is that of success and prosperity (Ps 127:3-4), which is ascribed to the same Jehovah whose help and protection constituted the commencement and continuance, as now the completion of our well being. Hence also Ps 127:5 goes not beyond this, but contemplates the highest symbol of full security, influence, and power, in the figurative language of the Old Testament, which St. Augustine refers to "spiritual children, shot forth like arrows into all the world."— *Alfred Edersheim, in "The Golden Diary of Heart Converse with Jesus in the Book of Psalms,"* 1877.
 
-**Whole Psalm.** Solomon, the wisest and richest of kings, after having proved, both from experience and careful observation, that there was nothing but vanity in the life and labours of man, comes to this conclusion, that there is nothing better for a man in this life than that he should moderate his cares and labours, enjoy what he has, and fear God and keep his commandments: to this end he directs all that is debated in the Book of Ecclesiastes. Very similar are the argument and intention of the Psalm; the authorship of which is ascribed to Solomon in the Inscription, and which there is no reason to doubt. Nor would it be safe, either to call in doubt any inscription without an urgent reason, or to give any other sense to the letter l than that of *authorship*, unless it be meant that all the inscriptions are uncertain. Again, if the collectors of the Psalms added *titles* according to their own opinion and judgment, there would be no reason why they should have left so many Psalms without any **Title &mdash;** This Psalm, therefore, is *Solomon's*, with whose genius and condition it well agrees, as is clear from *Ecclesiastes*, with which it may be compared, and from many *proverbs* on the same subject...The design is, to draw men away from excessive labours and anxious cares; and to excite godliness and faith in Jehovah. To this the Psalm manifestly tends: for since men, desirous of the happiness and stability of their houses, are unable to secure this by their own endeavours, but need the blessing of God, who gives prosperity with even lighter labours to those that fear him; it is their duty to put a limit to their labours and cares, and to seek the favour of God, by conforming their life and conduct to his will, and confiding in him.— *Hermalt Venema,* 1697-1787.
+**Whole Psalm.** Solomon, the wisest and richest of kings, after having proved, both from experience and careful observation, that there was nothing but vanity in the life and labours of man, comes to this conclusion, that there is nothing better for a man in this life than that he should moderate his cares and labours, enjoy what he has, and fear God and keep his commandments: to this end he directs all that is debated in the Book of Ecclesiastes. Very similar are the argument and intention of the Psalm; the authorship of which is ascribed to Solomon in the Inscription, and which there is no reason to doubt. Nor would it be safe, either to call in doubt any inscription without an urgent reason, or to give any other sense to the letter l than that of *authorship*, unless it be meant that all the inscriptions are uncertain. Again, if the collectors of the Psalms added *titles* according to their own opinion and judgment, there would be no reason why they should have left so many Psalms without any **Title &mdash;** This Psalm, therefore, is *Solomon's*, with whose genius and condition it well agrees, as is clear from *Ecclesiastes*, with which it may be compared, and from many *proverbs* on the same subject... The design is, to draw men away from excessive labours and anxious cares; and to excite godliness and faith in Jehovah. To this the Psalm manifestly tends: for since men, desirous of the happiness and stability of their houses, are unable to secure this by their own endeavours, but need the blessing of God, who gives prosperity with even lighter labours to those that fear him; it is their duty to put a limit to their labours and cares, and to seek the favour of God, by conforming their life and conduct to his will, and confiding in him.— *Hermalt Venema,* 1697-1787.
 
 **Verse 1.** *Except the LORD build.* It is a fact that Nb, *ben, a son*, and tk, *bath, a daughter*, and tyb, *beith, a house*, come from the same root, tnk, *banah, to build*; because sons and daughters build up a household, or constitute a *family*, as much and as really as stones and timber constitute a building. Now it is true that unless the good hand of God be upon us we cannot prosperously build a place of worship for his name. Unless we have his blessing, a dwelling house cannot be comfortably erected. And if his blessing be not on our children, the house (the family) may be built up; but instead of its being the house of God, it will be the synagogue of Satan. All marriages that are not under God's blessing will be a private and public curse.— *Adam Clarke.* 
 
@@ -108,7 +108,7 @@ There is of God no getting,
 
 But prayer he will hear.
 
-— *From J.P. Lange's Commentary on James,* 1862.
+— *From J. P. Lange's Commentary on James,* 1862.
 
 **Verse 2.** *Eat the bread of sorrows.* Living a life of misery and labours, fretting at their own disappointments, eaten up with envy at the advancement of others, afflicted overmuch with losses and wrongs. There is no end of all their labours. Some have died of it, others been distracted and put out of their wits; so that you are never like to see good days as long as you cherish the love of the world, but will still lie under self tormenting care and trouble of mind, by which a man grates on his own flesh.— *Thomas Manton.* 
 
@@ -134,7 +134,7 @@ Is it not *God's promise* to vouchsafe sleep free from frights? "When thou liest
 
 Suppose, then, we take the *"sleep"* in our text as denoting death, and confine our discourse to an illustration of the passage under this one point of view. *"Surely he giveth his beloved sleep."* What an aspect will this confer on death—to regard it as God's gift—a gift which he vouchsafes to those whom he loves! It is not "he *sendeth* his beloved sleep", which might be true whilst God himself remained at a distance; it is "he *giveth* his beloved sleep"; as though God himself brought the sleep, and laid it on the eyes of the weary Christian warrior. And if God himself have to do with the dissolution, can we not trust him that he will loosen gently the silver cord, and use all kindness and tenderness in "taking down the earthly house of this tabernacle"? I know not more comforting words than those of our text, whether for the being uttered in the sickroom of the righteous, or breathed over their graves. They might almost take the pain from disease, as they certainly do the dishonour from death. What is bestowed by God as a "gift on his beloved" will assuredly occupy his care, his watchfulness, his solicitude; and I conclude, therefore, that he is present, in some special and extraordinary sense when the righteous lie dying; ay, and that he sets his seal, and plants his guardianship where the righteous lie dead. "O death, where is thy sting? O grave, where is thy victory?" Let the saint be but constant in the profession of godliness, and his last hours shall be those in which Deity himself shall stand almost visibly at his side, and his last resting place that which he shall shadow with his wings. Sickness may be protracted and distressing; "earth to earth, ashes to ashes, dust to dust, "may be plaintively breathed over the unconscious dead; but nothing in all this lengthened struggle, nothing in all this apparent defeat, can harm the righteous man—nay, nothing can be other than for his present good and his eternal glory, seeing that death with all its accompaniments is but joy—God's gift to his beloved. Dry your tears, ye that stand around the bed of the dying believer, the parting moment is almost at hand—a cold damp is on the forehead—the eye is fixed—the pulse too feeble to be felt—are you staggered at such a spectacle? Nay! let faith do its part! The chamber is crowded with glorious forms; angels are waiting there to take charge of the disembodied soul; a hand gentler than any human is closing those eyes; and a voice sweeter than any human is whispering— *"Surely the Lord giveth his beloved sleep."* — *Henry Melvill* (1798-1871), *in a Sermon entitled "Death the Gift of God."* 
 
-**Verse 2.** *For so he giveth his beloved sleep.* One night I could not rest, and in the wild wanderings of my thoughts I met this text, and communed with it: *"So he giveth his beloved sleep."* In my reverie, as I was on the border of the land of dreams, I thought I was in a castle. Around its massive walls there ran a deep moat. Watchmen paced the walls both day and night. It was a fine old fortress, bidding defiance to the foe; but I was not happy in it. I thought I lay upon a couch; but scarcely had I closed my eyes, ere a trumpet blew, "To arms! To arms!" and when the danger was overpast, I lay me down again. "To arms! To arms!" once more resounded, and again I started up. Never could I rest. I thought I had my armour on, and moved about perpetually clad in mail, rushing each hour to the castle top, aroused by some fresh alarm. At one time a foe was coming from the west; at another from the east. I thought I had a treasure somewhere down in some deep part of the castle, and all my care was to guard it. I dreaded, I feared, I trembled lest it should be taken from me. I awoke, and I thought I would not live in such a tower as that for all its grandeur. It was the castle of discontent, the castle of ambition, in which man never rests. It is ever, "To arms! To arms!" There is a foe here, or a foe there. His dear loved treasure must be guarded. Sleep never crossed the drawbridge of the castle of discontent. Then I thought I would supplement it by another reverie. I was in a cottage. It was in what poets call a beautiful and pleasant place, but I cared not for that. I had no treasure in the world; save one sparkling jewel on my breast: and I thought I put my hand on that and went to sleep, nor did I wake till morning light. That treasure was a quiet conscience and the love of God—"the peace that passeth all understanding." I slept, because I slept in the house of content, satisfied with what I had. Go, ye overreaching misers! Go, ye grasping, ambitious men! I envy not your life of inquietude. The sleep of statesmen is often broken; the dream of the miser is always evil; the sleep of the man who loves gain is never hearty; but God *"giveth",* by contentment, *"his beloved sleep."* — *C.H.S.* 
+**Verse 2.** *For so he giveth his beloved sleep.* One night I could not rest, and in the wild wanderings of my thoughts I met this text, and communed with it: *"So he giveth his beloved sleep."* In my reverie, as I was on the border of the land of dreams, I thought I was in a castle. Around its massive walls there ran a deep moat. Watchmen paced the walls both day and night. It was a fine old fortress, bidding defiance to the foe; but I was not happy in it. I thought I lay upon a couch; but scarcely had I closed my eyes, ere a trumpet blew, "To arms! To arms!" and when the danger was overpast, I lay me down again. "To arms! To arms!" once more resounded, and again I started up. Never could I rest. I thought I had my armour on, and moved about perpetually clad in mail, rushing each hour to the castle top, aroused by some fresh alarm. At one time a foe was coming from the west; at another from the east. I thought I had a treasure somewhere down in some deep part of the castle, and all my care was to guard it. I dreaded, I feared, I trembled lest it should be taken from me. I awoke, and I thought I would not live in such a tower as that for all its grandeur. It was the castle of discontent, the castle of ambition, in which man never rests. It is ever, "To arms! To arms!" There is a foe here, or a foe there. His dear loved treasure must be guarded. Sleep never crossed the drawbridge of the castle of discontent. Then I thought I would supplement it by another reverie. I was in a cottage. It was in what poets call a beautiful and pleasant place, but I cared not for that. I had no treasure in the world; save one sparkling jewel on my breast: and I thought I put my hand on that and went to sleep, nor did I wake till morning light. That treasure was a quiet conscience and the love of God—"the peace that passeth all understanding." I slept, because I slept in the house of content, satisfied with what I had. Go, ye overreaching misers! Go, ye grasping, ambitious men! I envy not your life of inquietude. The sleep of statesmen is often broken; the dream of the miser is always evil; the sleep of the man who loves gain is never hearty; but God *"giveth",* by contentment, *"his beloved sleep."* — *C. H. S.* 
 
 **Verse 2.** *He giveth his beloved sleep.* 
 
@@ -216,13 +216,13 @@ To hold his friends.
 
 **Verse 1.** 
 
-1\.The human hand without the hand of God is in vain.
+1\. The human hand without the hand of God is in vain.
 
-2\.The human eye without the eye of God is in vain.
+2\. The human eye without the eye of God is in vain.
 
 —Or—
 
-1\.God is to be acknowledged in all our works.
+1\. God is to be acknowledged in all our works.
 
 a) By seeking his direction before them.
 
@@ -230,7 +230,7 @@ b) By depending upon his help in them.
 
 c) By giving him the glory of them.
 
-2\.In all our cares.
+2\. In all our cares.
 
 a) By owning our short sight.
 
@@ -238,45 +238,45 @@ b) By trusting to his foresight.— *G. R.*
 
 **Verse 1.** (*first part* ).—Illustrate the principles:
 
-1\.In building up character.
+1\. In building up character.
 
-2\.In constructing plans of life and of work.
+2\. In constructing plans of life and of work.
 
-3\.In framing schemes of happiness.
+3\. In framing schemes of happiness.
 
-4\.In rearing a hope of eternal life.
+4\. In rearing a hope of eternal life.
 
-5\.In raising and enlarging the church.— *J. F.* 
+5\. In raising and enlarging the church.— *J. F.* 
 
 **Verses 1-2.** 
 
-1\.What we may not expect: namely, God to work without our building, watching, etc.
+1\. What we may not expect: namely, God to work without our building, watching, etc.
 
-2\.What we may expect: Failure if we are without God.
+2\. What we may expect: Failure if we are without God.
 
-3\.What we should not do: Fret, worry, etc.
+3\. What we should not do: Fret, worry, etc.
 
-4\.What we may do: So trust as to rest in peace.
+4\. What we may do: So trust as to rest in peace.
 
 **Verse 2.** (with Ps 126:2). The labour of the law contrasted with the laughter of the gospel.
 
 **Verse 2.** *The bread of sorrows.* 
 
-1\.When God sends it, it is good to eat it.
+1\. When God sends it, it is good to eat it.
 
-2\.When we bake it ourselves, it is vain to eat it.
+2\. When we bake it ourselves, it is vain to eat it.
 
-3\.When the devil brings it, it is deadly meat.
+3\. When the devil brings it, it is deadly meat.
 
 **Verse 2.** (*last clause* ).—Blessings that come to us in sleep.
 
-1\.Renewed health and vigour of body.
+1\. Renewed health and vigour of body.
 
-2\.Mental repose and refreshment.
+2\. Mental repose and refreshment.
 
-3\.Sweeter thoughts and holier purposes.
+3\. Sweeter thoughts and holier purposes.
 
-4\.Providential gifts. The rains fall, the fruits of the earth grow and ripen, the mill wheel goes round, the ship pursues her voyage, etc., while we slumber. Often when we are doing nothing for ourselves God is doing most.— *W. H. J.P.* 
+4\. Providential gifts. The rains fall, the fruits of the earth grow and ripen, the mill wheel goes round, the ship pursues her voyage, etc., while we slumber. Often when we are doing nothing for ourselves God is doing most.— *W. H. J. P.* 
 
 **Verse 2.** (*last clause* ). See "Spurgeon's Sermons," No. 12: "The Peculiar Sleep of the Beloved."
 
@@ -284,7 +284,7 @@ b) By trusting to his foresight.— *G. R.*
 
 **Verses 3-5.** Children. Consider:
 
-1\.The effects of receiving them as a heritage from the Lord.
+1\. The effects of receiving them as a heritage from the Lord.
 
 a) Parents will trust in the Lord for their provision and safety.
 
@@ -296,7 +296,7 @@ d) Will often consult God concerning them.
 
 e) Will render them up uncomplainingly when the Lord calls them to himself by death.
 
-2\.The effects of their right training.
+2\. The effects of their right training.
 
 a) They become the parents' joy.
 
@@ -308,17 +308,17 @@ d) The transmitters of their parents' virtues to another generation; for well tr
 
 **Verse 4.** The spiritual uses of children.
 
-1\.When they die in infancy, awakening parents.
+1\. When they die in infancy, awakening parents.
 
-2\.When they go home from Sunday school carrying holy influences.
+2\. When they go home from Sunday school carrying holy influences.
 
-3\.When they become converted.
+3\. When they become converted.
 
-4\.When they grow up and become useful men and women.
+4\. When they grow up and become useful men and women.
 
 **Verses 4-5.** 
 
-1\.The dependence of children upon parents.
+1\. The dependence of children upon parents.
 
 a) For safety. They are in their quiver.
 
@@ -326,7 +326,7 @@ b) For direction. They are sent forth by them.
 
 c) For support. They are in the hands of the mighty.
 
-2\.The dependence of parents upon children.
+2\. The dependence of parents upon children.
 
 a) For defence. Who will hear a parent spoken against?
 

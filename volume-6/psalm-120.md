@@ -74,27 +74,27 @@ And troublers vex no more."
 
 **Whole Psalm.** In the interpretation of these psalms, which sees in them the "degrees" of Christian virtues, this psalm aptly describes the first of such steps—the renunciation of the evil and vanity of the world. It thus divides itself into two parts.
 
-1\.The Psalmist, in the person of one beginning the grades of virtue, finds many opponents in the shape of slanderers and ill advisers.
+1\. The Psalmist, in the person of one beginning the grades of virtue, finds many opponents in the shape of slanderers and ill advisers.
 
-2\.He laments the admixture of evil—"Woe is me".— *H.T. Armfield*.
+2\. He laments the admixture of evil—"Woe is me".— *H. T. Armfield*.
 
 **Whole Psalm.** It is a painful but useful lesson which is taught by this first of the Pilgrim Psalms, that all who manifest a resolution to obey the commands and seek the favour of God, may expect to encounter opposition and reproach in such a course... This these worshippers of old found when preparing to seek the Lord in his Temple. They were watched in their preparation by malignant eyes; they were followed to the house of prayer by the contempt and insinuations of bitter tongues. But their refuge is in him they worship; and, firmly convinced that he never can forsake his servants, they look up through the cloud of obloquy to his throne, and implore the succour which they know that his children shall ever find there. "O Lord, in this my trouble deliver my soul".— *Robert Nisbet.* 
 
 **Whole Psalm.** The pilgrims were leaving home; and lying lips commonly attack the absent. They were about to join the pilgrim caravan; and in the excitements of social intercourse their own lips might easily deviate from truth. The psalm, moreover, breathes an intense longing for peace; and in this world of strife and confusion, when is that longing inappropriate? Is it any marvel that a Hebrew, with a deep spiritual longing for peace, should cry as he started for the Temple, "Let me get out of all that, at least for a time. Let me be quit of this fever and strain, free from the vain turbulence and conflicting noises of the world. Let me rest and recreate myself a while in the sacred asylum and sanctuary of the God of peace. God of peace, grant me thy peace as I worship in thy presence; and let me find a bettered world when I come back to it, or at least bring a bettered and more patient heart to its duties and strifes".— *Samuel Cox.* 
 
-**Verse 1.** *In my distress I cried unto the Lord,* etc. See the wondrous advantage of trouble,—that it makes us call upon God; and again see the wondrous readiness of mercy, that when we call he heareth us! Very blessed are they that mourn while they are travelling the long upward journey from the Galilee of the Gentiles of this lower world to the heavenly Jerusalem, the high and holy city of the saints of God.— *J.W. Burgon, in "A Plain Commentary.* "
+**Verse 1.** *In my distress I cried unto the Lord,* etc. See the wondrous advantage of trouble,—that it makes us call upon God; and again see the wondrous readiness of mercy, that when we call he heareth us! Very blessed are they that mourn while they are travelling the long upward journey from the Galilee of the Gentiles of this lower world to the heavenly Jerusalem, the high and holy city of the saints of God.— *J. W. Burgon, in "A Plain Commentary.* "
 
 **Verse 1.** *In my distress.* God's help is seasonable; it comes when we need it. Christ is a seasonable good... For the soul to be dark, and for Christ to enlighten it; for the soul to be dead, and Christ to enliven it; for the soul to be doubting, and for Christ to resolve it; and for the soul to be distressed, and for Christ to relieve it; is not this in season? For a soul to be hard, and for Christ to soften it; for a soul to be haughty, and for Christ to humble it; for a soul to be tempted, and for Christ to succour it; and for a soul to be wounded, and for Christ to heal it? Is not this in season?— *R. Mayhew*, 1679.
 
-**Verse 1.** *Cried. Heard.* The verbs are in the past tense, but do not refer merely to a past occasion. Past experience and present are here combined. From the past he draws encouragement for the present.— *J.J. Stewart Perowne.* 
+**Verse 1.** *Cried. Heard.* The verbs are in the past tense, but do not refer merely to a past occasion. Past experience and present are here combined. From the past he draws encouragement for the present.— *J. J. Stewart Perowne.* 
 
 **Verse 1.** *And he heard me.* The effectual fervent prayer of a righteous man availeth much: Jas 5:16; Zec 13:9. He that prayeth ardently, speeds assuredly (Ps 91:15); and the delayed return of prayer should be carefully observed and thankfully improved: Ps 66:20.— *John Trapp.* 
 
 **Verse 2.** *Deliver my soul, O Lord, from lying lips,* etc. An unbridled tongue is "vehiculum Diaboli", the chariot of the Devil, wherein he rides in triumph. Greenhorn doth describe the tongue prettily by contraries, or diversities: "It is a little piece of flesh, small in quantity, but mighty in quality; it is soft, but slippery; it goeth lightly, but falleth heavily; it striketh soft, but woundeth sore; it goeth out quickly, but burneth vehemently; it pierceth deep, and therefore not healed speedily; it hath liberty granted easily to go forth but it will find no means easily to return home; and being once inflamed with Satan's bellows, it is like the fire of hell." The course of an unruly tongue is to proceed from evil to worse, to begin with foolishness, and go on with bitterness, and to end in mischief and madness. See Ec 10:13. The Jew's conference with our Saviour began with arguments: "We be Abraham's seed, "said they, etc.; but proceeded to blasphemies: "Say we not well that thou art a Samaritan, and hast a devil?" and ended in cruelty: "Then took they up stones to cast at him." Joh 8:33,48,59. This also is the base disposition of a bad tongue to hate those whom it afflicts: Pr 26:28. The mischief of the tongue may further appear by the mercy of being delivered from it, for,
 
-1\.So God hath promised it (Joh 5:15,21). "God saveth the poor from the sword, from their mouth, and from the hand of the mighty, "and "thou shalt be hid from the scourge of the tongue, "or from being betongued, as some render it, that is, from being, as it were, caned or cudgelled with the tongues of others. "Thou shalt hide them in the secret of thy presence from the pride of man: thou shalt keep them secretly in a pavilion from the strife of tongues" (Ps 31:20); that is, from all calumnies, reproaches, evil speakings of all kinds. God will preserve the good names of his people from the blots and bespatterings of malicious men, as kings protect their favourites against slanders and clamours.
+1\. So God hath promised it (Joh 5:15,21). "God saveth the poor from the sword, from their mouth, and from the hand of the mighty, "and "thou shalt be hid from the scourge of the tongue, "or from being betongued, as some render it, that is, from being, as it were, caned or cudgelled with the tongues of others. "Thou shalt hide them in the secret of thy presence from the pride of man: thou shalt keep them secretly in a pavilion from the strife of tongues" (Ps 31:20); that is, from all calumnies, reproaches, evil speakings of all kinds. God will preserve the good names of his people from the blots and bespatterings of malicious men, as kings protect their favourites against slanders and clamours.
 
-2\.So the saints have prayed for it, as David: "Deliver my soul, O Lord, from lying lips, and from a deceitful tongue."— *Edward Reyner.* 
+2\. So the saints have prayed for it, as David: "Deliver my soul, O Lord, from lying lips, and from a deceitful tongue."— *Edward Reyner.* 
 
 **Verse 2.** *Deliver my soul, O Lord, from lying lips,* etc. In the drop of venom which distils from the sting of the smallest insect, or the spike of the nettle leaf, there is concentrated the quintessence of a poison so subtle that the microscope cannot distinguish it, and yet so virulent that it can inflame the blood, irritate the whole constitution, and convert day and night into restless misery; so it is sometimes with the words of the slanderer.— *Frederick William Robertson.* 
 
@@ -112,7 +112,7 @@ And troublers vex no more."
 
 **Verse 4.** *Sharp arrows of the mighty.* He compares wicked doctrine to an arrow which is not blunt, but sharp; and moreover which is cast, not of him that is weak and feeble, but that is strong and mighty; so that there is danger on both sides, as well of the arrow which is sharp and able to pierce, as also of him which with great violence hurleth the same.— *Martin Luther.* 
 
-**Verse 4.** *Arrows. Coals of juniper.* When the tongue is compared to "arrows", there is a reference (according to the Midrash), to the irrevocableness of the tongue's work. Even the lifted sword may be stayed, but the shot arrow may not. The special point to be drawn out in the mention of "coals of juniper", is the inextinguishableness of such fuel. There is a marvellous story in the Midrash which illustrates this very well. Two men in the desert sat down under a juniper tree, and gathered sticks of it where with they cooked their food. After a year they passed over the same spot where was the dust of what they had burned; and, remarking that it was now twelve months since they had the fire, they walked fearlessly upon the dust, and their feet were burned by the "coals" beneath it, which were still unextinguished.— *H.T. Armfield.* 
+**Verse 4.** *Arrows. Coals of juniper.* When the tongue is compared to "arrows", there is a reference (according to the Midrash), to the irrevocableness of the tongue's work. Even the lifted sword may be stayed, but the shot arrow may not. The special point to be drawn out in the mention of "coals of juniper", is the inextinguishableness of such fuel. There is a marvellous story in the Midrash which illustrates this very well. Two men in the desert sat down under a juniper tree, and gathered sticks of it where with they cooked their food. After a year they passed over the same spot where was the dust of what they had burned; and, remarking that it was now twelve months since they had the fire, they walked fearlessly upon the dust, and their feet were burned by the "coals" beneath it, which were still unextinguished.— *H. T. Armfield.* 
 
 **Verse 4.** *Coals of juniper.* The fire of the Retham burns for a very long time covered with its ashes; like malignant slander. But the secret malignity becomes its own terrible punishment.— *William Kay.* 
 
@@ -134,7 +134,7 @@ And troublers vex no more."
 
 **Verse 7.** *I am for peace,* etc. Jesus was a man of peace; he came into our world, and was worshipped at his nativity as the Prince of peace: there was universal peace throughout the world at the time of his birth; he lived to make peace "by the blood of his cross": he died to complete it. When he was going out of the world, he said to his disciples, "Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid": Joh 14:27. When he was risen from the dead, and made his first appearance to his disciples, he said unto them. "Peace be unto you": he is the peace maker: the Holy Ghost is the peace bringer: his gospel is the gospel of peace; it contains the peace of God which passeth all understanding. "I am for peace: but when I speak, they are for war". The bulk of the Jewish nation abhorred Christ, they were for putting him to death; to avenge which, the Lord brought the Roman army against them, and many of them were utterly destroyed. So David literally was for peace with Saul; yet, when opportunities made way for any negotiations, it was soon discovered Saul was for war, instead of peace, with him. May we see how this, which is the introductory psalm to those fourteen which follow, styled Songs of Degrees, hath a concern with our Lord Jesus Christ; and that David the son of Jesse was in many cases a type of him, and several of his enemies, sorrows, and griefs, forerunning figures of what would befall Messiah, and come upon him. Amen.— *Samuel Eyles Pierce.* 
 
-**Verse 7.** *I am for peace.* Good men love peace, pray for it, seek it, pursue it, will give anything but a good conscience for it. Compare Mt 5:9; Heb 7:14: *W.S. Plumer*. "It is a mark of a pious man, as far as in him is, to seek peace": *Arnesius*. "I would not give one hour of brotherly love for a whole eternity of contention": *Dr. Ruffner*.
+**Verse 7.** *I am for peace.* Good men love peace, pray for it, seek it, pursue it, will give anything but a good conscience for it. Compare Mt 5:9; Heb 7:14: *W. S. Plumer*. "It is a mark of a pious man, as far as in him is, to seek peace": *Arnesius*. "I would not give one hour of brotherly love for a whole eternity of contention": *Dr. Ruffner*.
 
 **Verse 7.** *When l speak, they are for war.* He spoke with all respect and kindness that could be; proposed methods of accommodation; spoke reason, spoke love; but they would not so much as hear him patiently; but cried out, To arms! To arms! so fierce and implacable were they, and so bent on mischief. Such were Christ's enemies: for his love they were his adversaries; and for his good words and good works they stoned him; and if we meet with such enemies we must not think it strange, nor love peace the less for our seeking it in vain. "Be not overcome of evil", no, not of such evil as this; "but", even when thus tried, still try to "overcome evil with good".— *Matthew Henry.* 
 
@@ -142,29 +142,29 @@ And troublers vex no more."
 
 **Verse 1.** A reminiscence.
 
-1\.It is threefold; distress, prayer, deliverance.
+1\. It is threefold; distress, prayer, deliverance.
 
-2\.It has a threefold bearing: it excites my hope, stimulates my petitions, and arouses my gratitude.
+2\. It has a threefold bearing: it excites my hope, stimulates my petitions, and arouses my gratitude.
 
 **Verse 1.** 
 
-1\.Special trouble: "In my distress."
+1\. Special trouble: "In my distress."
 
-2\.Special prayer: "I cried unto the Lord."
+2\. Special prayer: "I cried unto the Lord."
 
-3\.Special favour: "He heard me."— *G.R.* 
+3\. Special favour: "He heard me."— *G. R.* 
 
 **Verse 2.** The unjustly slandered have, besides the avenging majesty of their God to protect them, many other consolations, as
 
-1\.The consciousness of innocence to sustain them.
+1\. The consciousness of innocence to sustain them.
 
-2\.The promise of divine favour to support them: "I will hide thee from the scourge of the tongue."
+2\. The promise of divine favour to support them: "I will hide thee from the scourge of the tongue."
 
-3\.There is the consideration to soothe: "Blessed are ye when men shall revile you and persecute you, "etc.
+3\. There is the consideration to soothe: "Blessed are ye when men shall revile you and persecute you, "etc.
 
-4\.That a lie has not usually a long life.
+4\. That a lie has not usually a long life.
 
-5\.There is, lastly, for comfort, the repairing influence of time.— *R. Nisbet.* 
+5\. There is, lastly, for comfort, the repairing influence of time.— *R. Nisbet.* 
 
 **Verse 2.** A prayer against slander. We are liable to it; it would do us great injury and cause us great pain; yet none but the Lord can protect us from it, or deliver us out of it.
 
@@ -172,17 +172,17 @@ And troublers vex no more."
 
 **Verse 3.** 
 
-1\.What the reviler does for others.
+1\. What the reviler does for others.
 
-2\.What he does to himself.
+2\. What he does to himself.
 
-3\.What God will do with him.
+3\. What God will do with him.
 
 **Verse 4.** The nature of slander and the punishment of slander.
 
 **Verse 4.** 
 
-1\.The tongue is sharper than an arrow.
+1\. The tongue is sharper than an arrow.
 
 (a) It is shot in private.
 
@@ -192,7 +192,7 @@ And troublers vex no more."
 
 (d) It is aimed at the most tender part.
 
-2\.The tongue is more destructive than fire. Its scandals spread with greater rapidity. They consume that which other fires cannot touch, and they are less easily quenched. "The tongue", says an Apostle, "is a fire...and setteth on fire the course of nature; and it is set on fire of hell". A fiery dart of the wicked one.— *G.R.* 
+2\. The tongue is more destructive than fire. Its scandals spread with greater rapidity. They consume that which other fires cannot touch, and they are less easily quenched. "The tongue", says an Apostle, "is a fire...and setteth on fire the course of nature; and it is set on fire of hell". A fiery dart of the wicked one.— *G. R.* 
 
 **Verse 5.** Bad lodgings. Only the wicked can be at home with the wicked. Our dwelling with them is trying, and yet it may be useful
 
@@ -202,25 +202,25 @@ And troublers vex no more."
 
 **Verse 5.** 
 
-1\.None but the wicked enjoy the company of the wicked.
+1\. None but the wicked enjoy the company of the wicked.
 
-2\.None but the worldly enjoy the company of worldlings.
+2\. None but the worldly enjoy the company of worldlings.
 
-3\.None but the righteous enjoy the company of the righteous.— *G.R.* 
+3\. None but the righteous enjoy the company of the righteous.— *G. R.* 
 
 **Verse 6.** 
 
-1\.Trying company.
+1\. Trying company.
 
-2\.Admirable behaviour.
+2\. Admirable behaviour.
 
-3\.Undesirable consequences: "When I speak, they are for war".
+3\. Undesirable consequences: "When I speak, they are for war".
 
 **Verse 7.** The character of the man of God. He is at peace. He is for peace. He is peace. He shall have peace.
 
 **Verse 7.** 
 
-1\.Piety and peace are united.
+1\. Piety and peace are united.
 
-2\.So are wickedness and war.— *G.R.* 
+2\. So are wickedness and war.— *G. R.* 
 

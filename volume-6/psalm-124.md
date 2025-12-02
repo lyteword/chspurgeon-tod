@@ -94,7 +94,7 @@ To him that made both heaven and earth.
 
 **Verse 1.** *The Lord...on our side.* Jehovah is on the side of his people in a spiritual sense, or otherwise it would be bad for them. God the Father is on their side; his love and relation to them engage him to be so; hence all those good things that are provided for them and bestowed on them; nor will he suffer any to do them hurt, they being as dear to him as the apple of his eye; hence he grants them his gracious presence, supports them under all their trials and exercises, supplies all their wants, and keeps them by his power, and preserves them from all their enemies; so that they have nothing to fear from any quarter. Christ is on their side; he is the Surety for them, the Saviour of them; has taken their part against all their spiritual enemies, sin, Satan, the world, and death; has engaged with them and conquered them: he is the Captain of their salvation, their King at the head of them, that protects and defends them here, and is their friend in the court of heaven; their Advocate and interceding High priest there, who pleads their cause against Satan, and obtains every blessing for them. The Spirit of Jehovah is on their side, to carry on his work in them; to assist them in their prayers and supplications; to secure them from Satan's temptations; to set up a standard for them when the enemy comes in like a flood upon them; and to comfort them in all their castings down; and to work them up for, and bring them safe to heaven: but were this not the case, what would become of them!— *John Gill.* 
 
-**Verse 1.** *Israel.* The "Israel" spoken of in this psalm may be Israel in the house of Laban, in whose person the Midrash Tehillim imagines the Psalm to be said. There are certainly some of its phrases which acquire an appropriate meaning from being interpreted in this connection.— *H.T. Armfield.* 
+**Verse 1.** *Israel.* The "Israel" spoken of in this psalm may be Israel in the house of Laban, in whose person the Midrash Tehillim imagines the Psalm to be said. There are certainly some of its phrases which acquire an appropriate meaning from being interpreted in this connection.— *H. T. Armfield.* 
 
 **Verses 1-4.** Such abrupt and unfinished expressions in the beginning of the psalm indicate the great joy and exultation that will not suffer the speaker to finish his sentences.— *Robert Bellarmine.* 
 
@@ -102,9 +102,9 @@ To him that made both heaven and earth.
 
 **Verses 1,2. ** 
 
-1\.God was on our side; he took our part, espoused our cause, and appeared for us. He was our helper, and a very present help, a help on our side, nigh at hand. He was with us; not only for us, but among us, and commander-in-chief of our forces.
+1\. God was on our side; he took our part, espoused our cause, and appeared for us. He was our helper, and a very present help, a help on our side, nigh at hand. He was with us; not only for us, but among us, and commander-in-chief of our forces.
 
-2\.That God was Jehovah; there the emphasis lies. If it had not been Jehovah himself, a God of infinite power and perfection, that had undertaken our deliverance, our enemies would have overpowered us. Happy the people therefore whose God is Jehovah, a God all sufficient. Let Israel say this to his honour, and resolve never to forsake him.— *Matthew Henry.* 
+2\. That God was Jehovah; there the emphasis lies. If it had not been Jehovah himself, a God of infinite power and perfection, that had undertaken our deliverance, our enemies would have overpowered us. Happy the people therefore whose God is Jehovah, a God all sufficient. Let Israel say this to his honour, and resolve never to forsake him.— *Matthew Henry.* 
 
 **Verses 1, 2, 8.** These three things will I bear on my heart, O Lord: "The Lord was on our side, "this for the past: "The snare is broken, " for the present; "Our help is in the name of the Lord, "this for the future. I will not and I cannot be fainthearted, whether in my contest with Satan, in my intercourse with the world, or in the upheavings of my wicked heart, so long as I hold this "threefold cord" in my hand, or rather, am held by it.— *Alfred Edersheim.* 
 
@@ -122,11 +122,11 @@ To him that made both heaven and earth.
 
 For, first, he is stronger than all, being able to resist all power that is devised against him and his, and to do whatsoever he will both in heaven and earth.
 
-2\.He is wiser than all, knowing how to prevent them in all their ways, and also how to bring matters to pass for the good of his people.
+2\. He is wiser than all, knowing how to prevent them in all their ways, and also how to bring matters to pass for the good of his people.
 
-3\.He is more diligent than all, to stand, as it were, upon the watch, and to take his advantage when it is offered him, for "He that keepeth Israel doth neither slumber nor sleep."
+3\. He is more diligent than all, to stand, as it were, upon the watch, and to take his advantage when it is offered him, for "He that keepeth Israel doth neither slumber nor sleep."
 
-4\.Lastly, he is happier then all to have good success in all his enterprises, for he doth prosper still in all things which he doth take in hand and none can resist a thought of his; yea, the very "word which goeth out of his mouth doth accomplish that which he wills, and prosper in the thing where unto he doth send it." In war, all these four things are respected in a captain that will still overcome: first, that he be strong; secondly, that he be wise; thirdly, that he be diligent; and, lastly, that he be fortunate; for the victory goeth not always with the strong, nor always with the wise, nor always with the diligent, nor always with the fortunate; but sometimes with the one of them, and sometimes with the other: Out look, where all four do concur together there is always the victory, and therefore seeing all of them are in God, it is no marvel though those whose battles he doth fight, do always overcome and get the victory.— *Thomas Stint*, 1621.
+4\. Lastly, he is happier then all to have good success in all his enterprises, for he doth prosper still in all things which he doth take in hand and none can resist a thought of his; yea, the very "word which goeth out of his mouth doth accomplish that which he wills, and prosper in the thing where unto he doth send it." In war, all these four things are respected in a captain that will still overcome: first, that he be strong; secondly, that he be wise; thirdly, that he be diligent; and, lastly, that he be fortunate; for the victory goeth not always with the strong, nor always with the wise, nor always with the diligent, nor always with the fortunate; but sometimes with the one of them, and sometimes with the other: Out look, where all four do concur together there is always the victory, and therefore seeing all of them are in God, it is no marvel though those whose battles he doth fight, do always overcome and get the victory.— *Thomas Stint*, 1621.
 
 **Verses 4, 5.** A familiar, but exceedingly apt and most significant figure. Horrible is the sight of a raging conflagration; but far more destructive is a river overflowing its banks and rushing violently on: for it is not possible to restrain it by any strength or power. As, then, he says, a river is carried along with great impetuosity, and carries away and destroys whatever it meets with in its course; thus also is the rage of the enemies of the church, not to be withstood by human strength. Hence, we should learn to avail ourselves of the protection and help of God. For what else is the church but a little boat fastened to the bank, which is carried away by the force of the waters? or a shrub growing on the bank, which without effort the flood roots up? Such was the people of Israel in the days of David compared with the surrounding nations. Such in the present day is the church compared with her enemies. Such is each one of us compared with the power of the malignant spirit. We are as a little shrub, of recent growth and having no firm hold: but he is like the Elbe, overflowing, and with great force overthrowing all things far and wide. We are like a withered leaf, lightly holding to the tree; he is like the north wind, with great force rooting up and throwing down the trees. How, then, can we withstand or defend ourselves by out' own power?— *Martin Luther.* 
 
@@ -166,9 +166,9 @@ To bark or bite without thee?"
 
 **Verses 6, 7.** We were delivered,
 
-1\.Like a lamb out of the very jaws of a beast of prey: God "hath not given us as a prey to their teeth"; intimating that they had no power against God's people, but what was given them from above. They could not be a prey to their teeth unless God gave them up, and therefore they were rescued, because God would not suffer them to be ruined.
+1\. Like a lamb out of the very jaws of a beast of prey: God "hath not given us as a prey to their teeth"; intimating that they had no power against God's people, but what was given them from above. They could not be a prey to their teeth unless God gave them up, and therefore they were rescued, because God would not suffer them to be ruined.
 
-2\.Like "a bird, "a little bird, the word signifies a sparrow, "out of the snare of the fowler." The enemies are very subtle and spiteful, they lay snares for God's people, to bring them into sin and trouble, and to hold them there. Sometimes they seem to have prevailed so far as to gain their point, the children of God are taken in the snare, and are as unable to help themselves out as any weak and silly bird is; and then is God's time to appear for their relief; when all other friends fail, then God breaks the snare, and turns the counsel of the enemies into foolishness: "The snare is broken, and so we are delivered."— *Matthew Henry.* 
+2\. Like "a bird, "a little bird, the word signifies a sparrow, "out of the snare of the fowler." The enemies are very subtle and spiteful, they lay snares for God's people, to bring them into sin and trouble, and to hold them there. Sometimes they seem to have prevailed so far as to gain their point, the children of God are taken in the snare, and are as unable to help themselves out as any weak and silly bird is; and then is God's time to appear for their relief; when all other friends fail, then God breaks the snare, and turns the counsel of the enemies into foolishness: "The snare is broken, and so we are delivered."— *Matthew Henry.* 
 
 **Verse 7.** *Our soul is escaped as a bird out of the snare of the fowlers,* etc. Various snares are placed for birds, by traps, birdlime, guns, etc.: who can enumerate all the dangers of the godly, threatening them from Satan, and from the world? Ps 91:3: Ho 5:1.—"We are delivered, "not by our own skill or cunning, but by the grace and power of God only: so that every device is made vain, and freedom is preserved.— *Martin Geier.* 
 
@@ -178,11 +178,11 @@ To bark or bite without thee?"
 
 **Verse 7.** *As a bird out of the snare of the fowlers.* The soul is surrounded by many dangers.
 
-1\.It is ensnared by worldliness. One of the most gigantic dangers against which God's people have specially to guard—an enemy to all spirituality of thought and feeling.
+1\. It is ensnared by worldliness. One of the most gigantic dangers against which God's people have specially to guard—an enemy to all spirituality of thought and feeling.
 
-2\.It is ensnared by selfishness—a foe to all simple-hearted charity, to all expansive generosity and Christian philanthropy.
+2\. It is ensnared by selfishness—a foe to all simple-hearted charity, to all expansive generosity and Christian philanthropy.
 
-3\.It is ensnared by unbelief—the enemy of prayer, of ingenuous confidence, of all personal Christian effort. These are not imaginary dangers. We meet them in everyday life. They threaten us at every point, and often have we to lament over the havoc they make in our hearts.— *George Barlow*, in a *"Homiletic Commentary on the Book of Psalms,"* 1879.
+3\. It is ensnared by unbelief—the enemy of prayer, of ingenuous confidence, of all personal Christian effort. These are not imaginary dangers. We meet them in everyday life. They threaten us at every point, and often have we to lament over the havoc they make in our hearts.— *George Barlow*, in a *"Homiletic Commentary on the Book of Psalms,"* 1879.
 
 **Verse 7.** *The snare is broken.* It is as easy for God to deliver his people out of their enemies' hands, even when they have the godly in their power, as to break a net made of thread or yarn, wherewith birds are taken.— *David Dickson.* 
 
@@ -206,29 +206,29 @@ To bark or bite without thee?"
 
 **Verses 1-3**. Regard the text,
 
-1\.From the life of Jacob or Israel.
+1\. From the life of Jacob or Israel.
 
-2\.From the history of the nation.
+2\. From the history of the nation.
 
-3\.From the annals of the church.
+3\. From the annals of the church.
 
-4\.From our personal biography.
-
-**Verses 1-5.** 
-
-1\.What might have been.
-
-2\.Why it has not been.
+4\. From our personal biography.
 
 **Verses 1-5.** 
 
-1\.What the people of God would have been if the Lord had not been on their side.
+1\. What might have been.
+
+2\. Why it has not been.
+
+**Verses 1-5.** 
+
+1\. What the people of God would have been if the Lord had not been on their side.
 
 (a) What if left to their enemies? Ps 124:2,3. Israel left to Pharaoh and his host in the time of Moses: left to the Caananites in the time of Joshua: to the Midianites in the time of Gideon: Judah to the Assyrians in the time of Hezekiah: "Then they had swallowed us up," etc.
 
 (b) What if left to themselves? "The stream had gone over our soul": Ps 124:4, 5.
 
-2\.What the people of God are with the Lord on their side.
+2\. What the people of God are with the Lord on their side.
 
 (a) All the designs of their enemies against them are frustrated.
 
@@ -238,79 +238,79 @@ To bark or bite without thee?"
 
 **Verse 2, 3.** 
 
-1\.To swallow us alive—the desire of our wrathful enemies.
+1\. To swallow us alive—the desire of our wrathful enemies.
 
-2\.To save us alive—the work of our faithful God.
-
-**Verse 6.** 
-
-1\.The Lamb.
-
-2\.The Lion.
-
-3\.The Lord.
+2\. To save us alive—the work of our faithful God.
 
 **Verse 6.** 
 
-1\.They would gladly devour us.
+1\. The Lamb.
 
-2\.They cannot devour unless the Lord will.
+2\. The Lion.
 
-3\.God is to be praised since he does not permit them to injure us.
+3\. The Lord.
 
 **Verse 6.** 
 
-1\.The ill will of men against the righteous.
+1\. They would gladly devour us.
+
+2\. They cannot devour unless the Lord will.
+
+3\. God is to be praised since he does not permit them to injure us.
+
+**Verse 6.** 
+
+1\. The ill will of men against the righteous.
 
 (a) For their spoliation.
 
 (b) For their destruction: "As a prey to their teeth."
 
-2\.The goodwill of God. "Blessed be the Lord, "etc.
+2\. The goodwill of God. "Blessed be the Lord, "etc.
 
 (a) What it supposes—that good men, in a measure and for a time, may be given into the hands of the wicked.
 
-(b) What it affirms—that they are not given entirely into their hands:— *G.R.* 
+(b) What it affirms—that they are not given entirely into their hands:— *G. R.* 
 
 **Verse 7.** 
 
-1\.The soul ensnared.
+1\. The soul ensnared.
 
 (a) By whom? Wicked men are fowlers. By Satan. "Satan, the fowler, who betrays Unguarded souls a thousand ways."
 
 (b) How? By temptations—to pride, worldliness, drunkenness, error, or lust, according to the tastes and habits of the individual.
 
-2\.The soul escaped: "Our soul is escaped, "etc. "The snare is broken, "not by ourselves, but by the hand of God.— *G.R.* 
+2\. The soul escaped: "Our soul is escaped, "etc. "The snare is broken, "not by ourselves, but by the hand of God.— *G. R.* 
 
 **Verse 7.** 
 
-1\.A bird.
+1\. A bird.
 
-2\.A snare.
+2\. A snare.
 
-3\.A capture.
+3\. A capture.
 
-4\.An escape.
+4\. An escape.
 
 **Verse 8.** Our Creator, our Helper. Special comfort to be drawn from creation in this matter.
 
 **Verse 8.** 
 
-1\.The Helper: "The Lord, who made heaven and earth, "who in his works has given ample proofs of what he can do.
+1\. The Helper: "The Lord, who made heaven and earth, "who in his works has given ample proofs of what he can do.
 
-2\.The helped. "Our help" is,
+2\. The helped. "Our help" is,
 
 (a) Promise in his name.
 
-(b) Sought in his name: these make it ours.— *G.R.* 
+(b) Sought in his name: these make it ours.— *G. R.* 
 
 **Verse 8.** 
 
-1\.We have help. As troubled sinners, as dull scholars, as trembling professors, as inexperienced travellers, as feeble workers.
+1\. We have help. As troubled sinners, as dull scholars, as trembling professors, as inexperienced travellers, as feeble workers.
 
-2\.We have help in God's name. In his perfections—"They shall put my name upon the children of Israel." In his Gospel—"A chosen vessel to bear my name." In his authority—"In the name of Jesus Christ rise up, "etc.
+2\. We have help in God's name. In his perfections—"They shall put my name upon the children of Israel." In his Gospel—"A chosen vessel to bear my name." In his authority—"In the name of Jesus Christ rise up, "etc.
 
-3\.Therefore we exert ourselves.— *W.J.* 
+3\. Therefore we exert ourselves.— *W. J.* 
 
 ## Works Upon The Hundred Twenty Fourth Psalm
 

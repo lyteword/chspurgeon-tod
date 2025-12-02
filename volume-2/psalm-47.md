@@ -140,7 +140,7 @@ For the shields of the earth belong unto God. The insignia of pomp, the emblems 
 
 **Verse 9.** *The shields of the earth belong unto God.* There we have the *rulers* of the earth set forth by a double relation; the one *upward,* they are *scuta Deo,* they belong to God; the other *downward,* they are *scuta terae, "the shields of the earth; "* and both these noting two things, their *dignity* and their *duty.* They belong to God, it is their honour that he hath sealed them: they belong to God, it is their duty to be subject to him. They are *shields of the earth,* it is their honour that they are above others: they are *the shields of the earth,* it is their duty to protect others. *Edward Reynolds (Bishop).* 
 
-**Verse 9.** *The shields of the earth are God's,* is understood by many as spoken of princes. I admit that this metaphor is of frequent occurrence in Scripture, nor does this sense seem to be unsuitable to the scope of the passage...Yet the sense will be more simple if we explain the words thus: That, as it is God alone who defends and preserves the world, the high and supreme majesty which is sufficient for so exalted and difficult a work as the preservation of the world, is justly looked upon with admiration. The sacred writer expressly uses the word *shields* in the plural number, for, considering the various and almost innumerable dangers which unceasingly threaten every part of the world, the providence of God must necessarily interpose in many ways, and make use, as it were, of many bucklers. *John Calvin.* 
+**Verse 9.** *The shields of the earth are God's,* is understood by many as spoken of princes. I admit that this metaphor is of frequent occurrence in Scripture, nor does this sense seem to be unsuitable to the scope of the passage... Yet the sense will be more simple if we explain the words thus: That, as it is God alone who defends and preserves the world, the high and supreme majesty which is sufficient for so exalted and difficult a work as the preservation of the world, is justly looked upon with admiration. The sacred writer expressly uses the word *shields* in the plural number, for, considering the various and almost innumerable dangers which unceasingly threaten every part of the world, the providence of God must necessarily interpose in many ways, and make use, as it were, of many bucklers. *John Calvin.* 
 
 **Verse 9.** *The shields of the earth.* Magistrates are said to *bear the sword,* not to be swords; and they are said *to be shields,* not to bear shields; and all this to show that protection and preservation are more essential and intrinsical to their office than destruction and punishment are. *Joseph Caryl.* 
 
@@ -150,13 +150,13 @@ For the shields of the earth belong unto God. The insignia of pomp, the emblems 
 
 **Verses 1-4.** Joy the true spirit of worship.
 
-1\.Joy in God's character.
+1\. Joy in God's character.
 
-2\.In his reign.
+2\. In his reign.
 
-3\.In the triumphs of his gospel.
+3\. In the triumphs of his gospel.
 
-4\.In his favour to his saints.
+4\. In his favour to his saints.
 
 **Verse 2.** The terrors of the Lord viewed by faith as a subject of joy.
 
@@ -166,9 +166,9 @@ For the shields of the earth belong unto God. The insignia of pomp, the emblems 
 
 **Verse 3.** 
 
-1\.The final triumph of the saints. All enemies subdued under them in earth and hell, within and without—(a) gradually, (b)completely.
+1\. The final triumph of the saints. All enemies subdued under them in earth and hell, within and without—(a) gradually, (b)completely.
 
-2\.The power by which it is accomplished. He shall, etc.
+2\. The power by which it is accomplished. He shall, etc.
 
 (a) Not without means.
 
@@ -180,13 +180,13 @@ For the shields of the earth belong unto God. The insignia of pomp, the emblems 
 
 **Verse 4.** 
 
-1\.God is willing to choose our inheritance for us in time and eternity.
+1\. God is willing to choose our inheritance for us in time and eternity.
 
-2\.His choice is better than ours—the excellency of Jacob.
+2\. His choice is better than ours—the excellency of Jacob.
 
-3\.He will leave us to the consequences of our own choice.
+3\. He will leave us to the consequences of our own choice.
 
-4\.He will help us in obtaining that which he chooses for us. *G. R.* 
+4\. He will help us in obtaining that which he chooses for us. *G. R.* 
 
 **Verse 5.** The ascension. Its publicity, solemnity, triumph, joy. Who went up. Where he went up. To what he went up. For what purpose. With what result.
 
@@ -198,23 +198,23 @@ For the shields of the earth belong unto God. The insignia of pomp, the emblems 
 
 **Verse 8.** 
 
-1\.God has a throne of holiness, for which he is to be feared by all men.
+1\. God has a throne of holiness, for which he is to be feared by all men.
 
-2\.A throne of grace, for which he is to be loved by his redeemed.
+2\. A throne of grace, for which he is to be loved by his redeemed.
 
-3\.A throne of glory, for which he is to be praised by his whole creation.
+3\. A throne of glory, for which he is to be praised by his whole creation.
 
 **Verse 9.** 
 
-1\.A shield is a *merciful* weapon, none more so.
+1\. A shield is a *merciful* weapon, none more so.
 
-2\.A shield is a *venturous* weapon, a kind of surety, which bears the blows and receives the injuries which were intended for another.
+2\. A shield is a *venturous* weapon, a kind of surety, which bears the blows and receives the injuries which were intended for another.
 
-3\.A shield is a *strong* weapon, to repel the darts of wickedness and break them in pieces.
+3\. A shield is a *strong* weapon, to repel the darts of wickedness and break them in pieces.
 
-4\.A shield is an honourable weapon, none more: taking away of shields was a sign of victory; preserving them a sign of glory.
+4\. A shield is an honourable weapon, none more: taking away of shields was a sign of victory; preserving them a sign of glory.
 
-5\.Remember, a shield must ever *have an eye to guide it* —you the shields, the law the eye. *Bishop Reynolds.* 
+5\. Remember, a shield must ever *have an eye to guide it* —you the shields, the law the eye. *Bishop Reynolds.* 
 
 ## Works Upon The Forty-Seventh Psalm
 

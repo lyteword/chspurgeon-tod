@@ -74,7 +74,7 @@ If we fear God we may dismiss all other fear. In walking in God's ways we shall 
 
 **Verse 2.** *For thou shalt eat the labour of thine hands,* etc. There is a fourfold literal sense here: Thou shalt live by honest, peaceful labour, not by rapine and violence on that produced by the toil of others, nor yet indolently and luxuriously; thou shalt *"eat"*, and not penuriously stint thyself and others; thy crops shall not be blighted, but shall bring forth abundantly; and no enemy shall destroy or carry off thy harvest. And these two latter interpretations accord best with the converse punishments threatened to the disobedient by Moses. *"Thou shalt eat the labour of thine hands"*. But he who hates labour does not eat of it, nor can he say, "My meat is to do the will of him that sent me, and to finish his work": Joh 4:34. On the other hand, he to whom such labour is a delight, does not merely look forward in hope to the future fruits or rewards of labour, but even here and now finds sustenance and pleasure in toiling for God; so that it is *"well"* with him in the world, even amidst all its cares and troubles, and he *"shall be happy"* in that which is to come, whence sorrow is banished for ever, as it is written in the gospel: "Blessed is he that shall eat bread in the kingdom of God": Lu 14:15.— *Neale and Littledale.* 
 
-**Verse 2.** *Thou shalt eat the labour of thine hands,* etc. This must they learn also which are married, that they must labour. For the law of nature requireth that the husband should sustain and nourish his wife and his children. For after that man and wife do know that they ought to fear God their Creator, who not only made them, but gave his blessing also unto his creature; this secondly must they know, that something they must do that they consume not their days in ease and idleness. Hesiod, the poet, giveth his counsel, that first thou shouldest get thee a house, then a wife, and also an ox to till the ground...For albeit that our diligence, care, and travail is not able to maintain our family, yet God useth such as a means by the which he will bless us.— *Martin Luther.* 
+**Verse 2.** *Thou shalt eat the labour of thine hands,* etc. This must they learn also which are married, that they must labour. For the law of nature requireth that the husband should sustain and nourish his wife and his children. For after that man and wife do know that they ought to fear God their Creator, who not only made them, but gave his blessing also unto his creature; this secondly must they know, that something they must do that they consume not their days in ease and idleness. Hesiod, the poet, giveth his counsel, that first thou shouldest get thee a house, then a wife, and also an ox to till the ground... For albeit that our diligence, care, and travail is not able to maintain our family, yet God useth such as a means by the which he will bless us.— *Martin Luther.* 
 
 **Verse 2.** *Thou shalt eat the labour of thine hands.* Men have dreamed fascinating dreams of removing the disabilities and limitations of the world and the evils of life, without sorrow. Poets have pictured earthly paradises, where life would be one long festival,
 
@@ -144,13 +144,13 @@ In the inner part, literally, "the sides of thy house", as in Am 6:10, i.e., the
 
 **Verse 1.** Consider:
 
-1\.The union of a right fear with a right walk.
+1\. The union of a right fear with a right walk.
 
 (a) There is a wrong fear, because slavish; this never can lead to genuine obedience, which must be willingly and cheerfully rendered.
 
 (b) But the fear of reverence and filial love will surely turn the feet to God's ways, keep them steadfast therein, and wing them with speed.
 
-2\.The blessedness of him in whom they are united.
+2\. The blessedness of him in whom they are united.
 
 (a) It is blessedness of life; for that is prospered.
 
@@ -164,57 +164,57 @@ In the inner part, literally, "the sides of thy house", as in Am 6:10, i.e., the
 
 **Verse 2.** The blessedness of the righteous are first generalized, then particularized. Here they are divided into three particulars.
 
-1\.The fruit of past labours.
+1\. The fruit of past labours.
 
-2\.Present enjoyment.
+2\. Present enjoyment.
 
-3\.Future welfare: "It shall be well with thee." Well in time; well in death; well at the last judgment; well forever.— *G. R.* 
+3\. Future welfare: "It shall be well with thee." Well in time; well in death; well at the last judgment; well forever.— *G. R.* 
 
 **Verse 2.** 
 
-1\.Labour a blessing to him who fears God.
+1\. Labour a blessing to him who fears God.
 
-2\.The fruits of labour the result of God's blessing.
+2\. The fruits of labour the result of God's blessing.
 
-3\.The enjoyment of the fruits of labour a further blessing from God.
+3\. The enjoyment of the fruits of labour a further blessing from God.
 
 — *W. H. J. P.* 
 
 **Verse 2.** (*first clause* ). Success in life.
 
-1\.Its source—God's blessing.
+1\. Its source—God's blessing.
 
-2\.Its channels—our own labour.
+2\. Its channels—our own labour.
 
-3\.The measure in which it is promised—as much as we can eat. More is above the promise.
+3\. The measure in which it is promised—as much as we can eat. More is above the promise.
 
-4\.The enjoyment. We are permitted to eat or enjoy our labour.
+4\. The enjoyment. We are permitted to eat or enjoy our labour.
 
 **Verse 2.** (*second clause* ). Godly happiness.
 
-1\.Follows upon God's blessing.
+1\. Follows upon God's blessing.
 
-2\.Grows out of character: "feareth the Lord."
+2\. Grows out of character: "feareth the Lord."
 
-3\.Follows labour: see preceding sentence.
+3\. Follows labour: see preceding sentence.
 
-4\.It is supported by wellbeing: see following sentence.
+4\. It is supported by wellbeing: see following sentence.
 
 **Verse 2.** (*last clause* ).
 
-1\.It shall be well with thee while thou livest.
+1\. It shall be well with thee while thou livest.
 
-2\.It shall be better with thee when thou diest.
+2\. It shall be better with thee when thou diest.
 
-3\.It shall be best of all with thee in eternity.
+3\. It shall be best of all with thee in eternity.
 
 — *Adapted from Matthew Henry.* 
 
 **Verse 3.** The blessing of children.
 
-1\.They are round our table—expense, anxiety, responsibility, pleasure.
+1\. They are round our table—expense, anxiety, responsibility, pleasure.
 
-2\.They are like olive plants—strong, planted in order, coming on to succeed us, fruitful for God—as the olive provided oil for the lamp.
+2\. They are like olive plants—strong, planted in order, coming on to succeed us, fruitful for God—as the olive provided oil for the lamp.
 
 **Verse 3.** A complete family picture. Here are the husband, the wife, the children, the house, the rooms in the side, the table. We should ask a blessing upon each, bless God for each, and use each in a blessed manner.
 
@@ -224,17 +224,17 @@ In the inner part, literally, "the sides of thy house", as in Am 6:10, i.e., the
 
 **Verse 5.** Two priceless mercies.
 
-1\.The house of God a blessing to our house. It is connected with our own salvation, edification, consolation, etc. It is our hope for the conversion of our children and servants, etc. It is the place of their education, and for the formation of helpful friendship, etc.
+1\. The house of God a blessing to our house. It is connected with our own salvation, edification, consolation, etc. It is our hope for the conversion of our children and servants, etc. It is the place of their education, and for the formation of helpful friendship, etc.
 
-2\.Our house a blessing to God's house. Personal interest in the church, hospitality, generosity, service, etc. Children aiding holy work. Wife useful, etc.
+2\. Our house a blessing to God's house. Personal interest in the church, hospitality, generosity, service, etc. Children aiding holy work. Wife useful, etc.
 
 **Verse 6.** Old age blessed when
 
-1\.Life has been spent in the fear of God.
+1\. Life has been spent in the fear of God.
 
-2\.When it is surrounded to its close by human affection.
+2\. When it is surrounded to its close by human affection.
 
-3\.When it maintains its interest in the cause of God.
+3\. When it maintains its interest in the cause of God.
 
 — *W. H. J. P.* 
 

@@ -36,4 +36,4 @@ May the enlightening Spirit rest on all students of the Psalms and grant them to
 
 Yours very heartily,
 
-&ndash; *C.H. Spurgeon*
+&ndash; *C. H. Spurgeon*

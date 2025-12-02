@@ -4,7 +4,7 @@ This project offers a complete Markdown version of Charles H. Spurgeon's classic
 
 ## Project Purpose
 
-*The Treasury of David* is a revered biblical commentary on the Psalms by C.H. Spurgeon. By converting this timeless work into Markdown, the project makes the text lightweight, human-readable, and highly compatible with modern digital tools.
+*The Treasury of David* is a revered biblical commentary on the Psalms by C. H. Spurgeon. By converting this timeless work into Markdown, the project makes the text lightweight, human-readable, and highly compatible with modern digital tools.
 
 ## Features
 

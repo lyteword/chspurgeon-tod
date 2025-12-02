@@ -94,7 +94,7 @@ Whom he designs to keep."
 
 ## Explanatory Notes & Quaint Sayings
 
-This Psalm has in its stern contents something no doubt strange to our ears. But never let us omit to distinguish from each other the times and diverse economies, and to place ourselves as far as possible, in sympathy with the experience of a heart which burned for nothing more than for the glorifying of God in this world. Everything that tended to obscure the theocratic relation of God to his people, called up in the soul of David the most vehement passion. The scornful oppression with which Saul and his venal satellites visited him, the man of God, could not but have, upon the eyes of all, the appearance as if Jehovah were no longer Lord in his own land, who inexorably adhered to his laws and rights. Treason, falsehood, and every kind of evil then prevailed unchecked. What wonder, that as formerly Moses in the wilderness was provoked against the stiff necked people, so also David, whom the awful holiness of God had already made to tremble, should feel his spirit stirred against the ungodly who surrounded him, and should say, with Job, "My bowels boiled within me." *Frederick William Krummacher, D.D., in "David, the King of Israel, "* 1867.
+This Psalm has in its stern contents something no doubt strange to our ears. But never let us omit to distinguish from each other the times and diverse economies, and to place ourselves as far as possible, in sympathy with the experience of a heart which burned for nothing more than for the glorifying of God in this world. Everything that tended to obscure the theocratic relation of God to his people, called up in the soul of David the most vehement passion. The scornful oppression with which Saul and his venal satellites visited him, the man of God, could not but have, upon the eyes of all, the appearance as if Jehovah were no longer Lord in his own land, who inexorably adhered to his laws and rights. Treason, falsehood, and every kind of evil then prevailed unchecked. What wonder, that as formerly Moses in the wilderness was provoked against the stiff necked people, so also David, whom the awful holiness of God had already made to tremble, should feel his spirit stirred against the ungodly who surrounded him, and should say, with Job, "My bowels boiled within me." *Frederick William Krummacher, D. D., in "David, the King of Israel, "* 1867.
 
 **Verse 1.** *O my God.* There are two pleas which the psalmist makes use of; one was, that God was *his God,* Ps 59:1; the other was the *power* and *strength* of his *enemies.* It is a blessed thing to have the covenant to fly to in all times of straits and troubles; there is always an anchor hold of hope there. *My God,* is such a plea as infinitely over balances all other things. He has engaged himself to do his people good; and it is time for him to work when the enemy exalts himself. The church's enemies are never so near destruction as when they think they have nothing to do, but take and divide the spoil. We may plead God's promise and the enemies' power too; both are a ground of hope to a believer in Jesus. *John Hill (1711-1746), in "Sermons on Several Occasions."* 
 
@@ -108,9 +108,9 @@ This Psalm has in its stern contents something no doubt strange to our ears. But
 
 **Verses 3-4.** He pleads his own innocency, not as to God, but as to his persecutors. Note,
 
-1\.The innocency of the godly will not secure them from the malignity of the wicked. Those that are harmless like doves, yet for Christ's sake are hated of all men, as if they were noxious like serpents, and obnoxious accordingly.
+1\. The innocency of the godly will not secure them from the malignity of the wicked. Those that are harmless like doves, yet for Christ's sake are hated of all men, as if they were noxious like serpents, and obnoxious accordingly.
 
-2\.Though our innocency will not secure us from troubles, yet it will greatly support and comfort us under our troubles. The testimony of our conscience for us, that we have behaved ourselves well toward those that have behaved themselves ill towards us, will be very much our rejoicing in the day of evil. If we are conscious to ourselves of our innocency, we may with humble confidence appeal to God, and beg of him to plead our injured cause which he will do in due time. *Matthew Henry.* 
+2\. Though our innocency will not secure us from troubles, yet it will greatly support and comfort us under our troubles. The testimony of our conscience for us, that we have behaved ourselves well toward those that have behaved themselves ill towards us, will be very much our rejoicing in the day of evil. If we are conscious to ourselves of our innocency, we may with humble confidence appeal to God, and beg of him to plead our injured cause which he will do in due time. *Matthew Henry.* 
 
 **Verse 4.** *They run,* as armed warriors rushing to the assault (Ps 18:29). The Hebrew for "prepare themselves, "(Heb.) means also "they *establish* themselves; "they make firm their footing, like forces assaulting a city. Job 30:14. *A. R. Fausset.* 
 
@@ -124,7 +124,7 @@ This Psalm has in its stern contents something no doubt strange to our ears. But
 
 **Verse 5.** *O Lord God of hosts, the God of Israel.* In time of straits we should set our eyes most upon those styles of God which most serve to strengthen our faith, especially such as hold forth his power and goodwill to employ his power for us. *David Dickson.* 
 
-**Verse 5.** *Lord God of hosts.* YAHVEH, *Elohim, Tsebaoth;* as in Ps 80:4,19 84:8. Compare 2Sa 5:10 1Ki 19:10,14 Ps 89:8. *From "The Psalms translated from the Hebrew, with Notes chiefly exegetical." By William Kay, D.D.,* 1871.
+**Verse 5.** *Lord God of hosts.* YAHVEH, *Elohim, Tsebaoth;* as in Ps 80:4,19 84:8. Compare 2Sa 5:10 1Ki 19:10,14 Ps 89:8. *From "The Psalms translated from the Hebrew, with Notes chiefly exegetical." By William Kay, D. D.,* 1871.
 
 **Verse 5.** *Lord God of hosts.* Some have thought this equivalent to God of battles; the true force of the epithet, however, is, "Sovereign of the stars, material hosts of heaven, and of the angels their inhabitants." *A. A. Hodge, in "Outlines of Theology, "* 1866.
 
@@ -152,15 +152,15 @@ And surround the city."
 
 **Verses 6-7.** 
 
-1\.They are diligent about it, *They return at evening.* 
+1\. They are diligent about it, *They return at evening.* 
 
 2\. *Mad,* and set to do it, *They make a noise like a dog,* and threaten boldly.
 
-3\.Unwearied and obdurate in their purpose: *They go round about the city.* 
+3\. Unwearied and obdurate in their purpose: *They go round about the city.* 
 
-4\.Impudent, and brag what they will do to me: *Behold, they belch out with their mouth.* 
+4\. Impudent, and brag what they will do to me: *Behold, they belch out with their mouth.* 
 
-5\.And their words are bloody: *Swords are in their lips. Adam Clarke.* 
+5\. And their words are bloody: *Swords are in their lips. Adam Clarke.* 
 
 **Verse 7.** *Behold, they belch out with their mouth,* etc. Bark like dogs, so Aben Ezra; or, *bubble out,* as a fountain bubbles out with water; so they cast out their wickedness in great abundance (see Jer 6:7); the phrase denotes the abundance of evil things and wicked speeches that come out of their mouths, which showed the naughtiness of their hearts; so David's enemies blustered and threatened what they would do to him could they find him; and Christ's enemies poured out their wicked charges of blasphemy and sedition against him in great plenty, and without proof. *John Gill.* 
 
@@ -188,29 +188,29 @@ For God is my high fort. *William Kay.*
 
 **Verse 10.** *The God of my mercy shall prevent me.* Oh, how the saints sing of the love of Christ! Oh, how they sing that this love was not moved by worthiness, and it disdains all hire and price, but loves us because he loves us! De 7:8. O sing of his wonderful love, and of the *prevention* of this love of Christ: *The God of my mercy shall prevent me.* How,
 
-1\.It prevents thy love to him. 1Jo 4:19. *We love God, because he first loved us.* 
+1\. It prevents thy love to him. 1Jo 4:19. *We love God, because he first loved us.* 
 
-2\.It prevents our sins, as in Paul's case. Ac 4:3: *And as he journeyed, he came near Damascus: and suddenly there shined round about him a light from heaven.* 
+2\. It prevents our sins, as in Paul's case. Ac 4:3: *And as he journeyed, he came near Damascus: and suddenly there shined round about him a light from heaven.* 
 
-3\.It prevents our calamities. Ps 79:8; *Let thy tender mercies speedily prevent us.* And,
+3\. It prevents our calamities. Ps 79:8; *Let thy tender mercies speedily prevent us.* And,
 
-4\.It prevents our endeavours. *The God of my mercy shall prevent me. John Spalding, in "Synaxis Sacra,"* 1703.
+4\. It prevents our endeavours. *The God of my mercy shall prevent me. John Spalding, in "Synaxis Sacra,"* 1703.
 
 **Verse 10.** (*first clause* ). The psalmist was sure of mercy upon these grounds, he knew he was safe, because God was his God, and the God of his mercy: *The God of my mercy shall prevent me.* Some read it, *hath prevented me;* others, *doth prevent me;* and others, as in my text, *shall prevent me.* Each of these senses is exceedingly sweet and full. Take it in the first sense, *hath prevented me;* and it implies thus much, that the psalmist never was in any difficulty, temptation, or fear, but God was beforehand with him; having always the mercy ready which he stood in need of; and had given it in due season, and that when he least expected it, and it may be was least prepared for it. Take it in the second sense, *doth prevent*, it argues the psalmist's ground of confidence when all present appearances were gone; as if he had said, "God is of one mind, his thoughts are thoughts of peace, and not of evil; he may vary his providence, but his heart is the same as ever; why should I fear, why should I not hope and rejoice? for my God is a tried God, he is working for me even now. He prevents my fears, and he will prevent my falling." Take the words as they lie in my text, and it comes to the same thing. "God sees all my enemies' designs, and he is ready for them; my prayer is heard, and sure I am deliverance will come, though I know not the time of it." My design, under the Spirit's influence, is to look into my own heart and yours, and show you what wonders of providence and grace God, as *the God of our mercy,* has caused to pass before us. In discoursing on these words, I shall enquire,
 
-1\.In what sense, or in what respects, God is *the God* of our mercy.
+1\. In what sense, or in what respects, God is *the God* of our mercy.
 
-2\.How, as the God of our mercy, he doth prevent us.
+2\. How, as the God of our mercy, he doth prevent us.
 
-3\.Apply.
+3\. Apply.
 
 I am to enquire in what respects God is said to be *the God of his people's mercy,* and it seems to include in it these three things.
 
-1\.That all the mercy which is in God's nature, is for his saints. It is a great word that (1Pe 5:10), *the God of all grace.* God has in him all sorts of grace for his saints. He hath pardoning, quickening, strengthening, comforting, and preserving grace. His mercy is rich mercy, abundant mercy, inexhaustible mercy, sure mercy. A man's riches are his glory; God glories in his mercy; it is his delight, he rests in it; and so may we, because there is an infinite inconceivable fulness of it in *him.* "With thee is the fountain of life." God distributes and parcels out this mercy, that we may conceive of it the better; hence he is called by the apostle, *The Father of mercies, and the God of all comfort.* 2Co 1:3. God is not called the author of our mercies, but the *Father* of them; to show how freely they come from him; they are his bowels; he is pleased with them, as the father is with his own child; dwell on the name, it is a sweet one, the *Father of mercies.* In my text, David grasps all this mercy, lays hold of it as his own mercy: *The God of my mercy shall prevent me.* That is one sense.
+1\. That all the mercy which is in God's nature, is for his saints. It is a great word that (1Pe 5:10), *the God of all grace.* God has in him all sorts of grace for his saints. He hath pardoning, quickening, strengthening, comforting, and preserving grace. His mercy is rich mercy, abundant mercy, inexhaustible mercy, sure mercy. A man's riches are his glory; God glories in his mercy; it is his delight, he rests in it; and so may we, because there is an infinite inconceivable fulness of it in *him.* "With thee is the fountain of life." God distributes and parcels out this mercy, that we may conceive of it the better; hence he is called by the apostle, *The Father of mercies, and the God of all comfort.* 2Co 1:3. God is not called the author of our mercies, but the *Father* of them; to show how freely they come from him; they are his bowels; he is pleased with them, as the father is with his own child; dwell on the name, it is a sweet one, the *Father of mercies.* In my text, David grasps all this mercy, lays hold of it as his own mercy: *The God of my mercy shall prevent me.* That is one sense.
 
-2\.It supposes, farther, that there is a portion of mercy laid by, in the purpose of God, for every saint; a portion of mercy which he may call *his own.* This some understand to be Christ's meaning to Paul (2Co 12:9): *My grace is sufficient for thee; i.e.,* that grace which I have allotted for thee thou wilt find sufficient. I knew what thou wouldst need in my eternal counsels; I have made provision beforehand; I have taken care thou shouldest have enough.
+2\. It supposes, farther, that there is a portion of mercy laid by, in the purpose of God, for every saint; a portion of mercy which he may call *his own.* This some understand to be Christ's meaning to Paul (2Co 12:9): *My grace is sufficient for thee; i.e.,* that grace which I have allotted for thee thou wilt find sufficient. I knew what thou wouldst need in my eternal counsels; I have made provision beforehand; I have taken care thou shouldest have enough.
 
-3\.The words suppose, farther, that God has taken it upon him as his charge, to keep this portion of his mercy for his people. Whatever it be, soul, it is in trust for thee with him. Every saint may apply to God, as the God of every mercy which he needs. *Condensed from John Hill's Sermon.* 
+3\. The words suppose, farther, that God has taken it upon him as his charge, to keep this portion of his mercy for his people. Whatever it be, soul, it is in trust for thee with him. Every saint may apply to God, as the God of every mercy which he needs. *Condensed from John Hill's Sermon.* 
 
 **Verse 10.** *God shall let me see my desire upon mine enemies.* The words, *my desire,* are not in the original, and would be better omitted. The sense is—God will enable me to look down calmly upon my enemies. So Christ looked upon his murderers. So Stephen was enabled to do when they "gnashed upon him with their teeth." "All that sat in the council looking steadfastly upon him saw his face as it had been the face of an angel." Ac 6:15. *Christopher Wordsworth.* 
 
@@ -272,13 +272,13 @@ You smiling, smooth, detested parasites."
 
 **Verse 4.** The activity of the evil a rebuke for the good.
 
-1\.Their activity, *run.* 
+1\. Their activity, *run.* 
 
-2\.Unanimity— *they run.* 
+2\. Unanimity— *they run.* 
 
-3\.Their care— *prepare themselves.* 
+3\. Their care— *prepare themselves.* 
 
-4\.Their readiness— *without my fault.* 
+4\. Their readiness— *without my fault.* 
 
 **Verse 5.** *O Lord God of hosts, the God of Israel.* This title furnishes an admirable topic.
 
@@ -292,17 +292,17 @@ You smiling, smooth, detested parasites."
 
 **Verse 16.** The heavenly chorister.
 
-1\.His song is sweet in contrast with the revilings of others— *but I.* 
+1\. His song is sweet in contrast with the revilings of others— *but I.* 
 
-2\.It treats of subjects which terrify others— *thy power.* 
+2\. It treats of subjects which terrify others— *thy power.* 
 
-3\.It grows louder on tender themes— *thy mercy.* 
+3\. It grows louder on tender themes— *thy mercy.* 
 
-4\.It has its choice seasons— *in the morning.* 
+4\. It has its choice seasons— *in the morning.* 
 
-5\.It is tuned by experience— *for thou hast.* 
+5\. It is tuned by experience— *for thou hast.* 
 
-6\.It is all to God's glory— *thy power, thy mercy, thou hast.* 
+6\. It is all to God's glory— *thy power, thy mercy, thou hast.* 
 
 **Verse 17.** 
 

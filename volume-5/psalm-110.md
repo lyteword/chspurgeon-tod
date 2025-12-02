@@ -54,11 +54,11 @@ The last verses of this psalm we understand to refer to the future victories of 
 
 **Whole Psalm.** The ancients (by Cassiodorus' collection) term this psalm the sun of our faith, the treasure of holy writ: "verbis brevis, sensu infinitus", (saith Augustine,)short in words, but in sense infinite. Theodoret notes how it is connected with the psalm going before: "there (saith he) we have his cross and sufferings, here his conquest and trophies." For he cometh forth as the heir apparent of the Almighty, the brightness of his glory, and the express image of his person, graced with,
 
-1\.Title, "My Lord."
+1\. Title, "My Lord."
 
-2\.Place, "Sit thou on my right hand."
+2\. Place, "Sit thou on my right hand."
 
-3\.Power, "Until I make thine enemies thy footstool."
+3\. Power, "Until I make thine enemies thy footstool."
 
 — *John Prideaux*, in a Sermon entitled, *"The Draught of the Brooke,"* 1636.
 
@@ -66,7 +66,7 @@ The last verses of this psalm we understand to refer to the future victories of 
 
 **Whole Psalm.** Although the Jews of later times have gone about to wrest it to another meaning, yet this Psalm is so approved and undoubted a prophecy of Christ, that the Pharisees durst not deny it, when being questioned by our Saviour (Mt 22:42,43) how it should be, seeing Christ is the son of David, that David not with standing should call him Lord, saying, "The Lord said unto my Lord, " they could not answer him a word, whereas the answer had been very easy and ready if they could have denied this psalm to be meant of Christ. But they knew it could not be otherwise understood, and it was commonly taken amongst them to be a prophecy of their Messias, according to the very evidence of the text itself, which cannot be fitted to any other, but only to Christ our Saviour, the Son of God. For whereas some of them since then have construed all these things as spoken in the name of the people of Judah concerning David their king, the text itself refuseth that construction, when in those words, "Sit thou at my right hand, "it mentions an honour done to him of whom it speaketh, greater than can be fitted to the angels, and therefore much less to be applied unto David. Again, that which is spoken in the fourth verse of the priesthood, cannot be understood of David, who was indeed a king, but never had anything spoken as touching the priesthood to appertain unto him, and of whom it cannot be conceived how it should be said, "Thou art a priest for ever, "etc. Yea, there is nothing here spoken whereof we may see in David any more but some little shadow in comparison of that which hath come to pass in Jesus Christ. *Robert Abbot* (1560-1617) in *"The Exaltation of the Kingdom and Priesthood of Christ."* 
 
-**Whole Psalm.** The sixty-eighth psalm hails the ascent of the Messiah, prefigured by the translation of the ark, and gives a rapid and obscure view of the glories and the blessings consequent upon that event. The twenty-fourth exhibits to us the Messiah ascending to his redemption throne borne up by the wings of angels and archangels, and hosannahed by the whole intelligent creation; it marks in the most glowing colours the triumphant entry of Messiah into the heavenly regions, and the tone of authority and power with which he commands that entrance—it sends him attended by the angelic host to his Father's throne, there to claim that preeminence which was his by inheritance and by conquest. At this point the Psalm before us "takes up the wondrous tale"; it exhibits to us the awful solemnities of his reception, it represents the Father bestowing on his well beloved Son the kingdom which he had earned, exalting him to the throne, and putting all things under his feet; receiving him in his office of prophet, and promising universality and permanence to "the rod of his strength"; receiving him in the office of priesthood, his own peculiar priesthood, and confirming its efficacy and duration by an oath; thus perfecting the redemption scheme, and completing the conquest over sin and death, and him who had the power of death. Man united with God was raised to the throne of being: man united with God perfected the sacrifice which was demanded, and the angelic host is represented by the Psalmist as taking up the strain, and hymning the future triumphs of the King of Glory—triumphs over his foes, whom he will visit in the day of his wrath, and triumphs with his willing people, whom he will assist with his Spirit, refine by his grace, and exalt into his glory. Such do I conceive to be the occasion, the object, and the tendency of this sacred song: to me it appears to be eminently an epinicion, or song of victory: it celebrates the triumph of the conqueror, it presents him with the rewards of victory, and it predicts future conquests as crowning his glory; while elsewhere we see the Captain of our salvation militant, here we sec him triumphant; while elsewhere we see his offices inchoate, here they are perfected by the approval of the Godhead, and the promise of eternity: here we have instruction consolidating empire, and the atonement completed by the everlasting priesthood. *J.H. Singer*, in *"The Irish Pulpit,"* 1839.
+**Whole Psalm.** The sixty-eighth psalm hails the ascent of the Messiah, prefigured by the translation of the ark, and gives a rapid and obscure view of the glories and the blessings consequent upon that event. The twenty-fourth exhibits to us the Messiah ascending to his redemption throne borne up by the wings of angels and archangels, and hosannahed by the whole intelligent creation; it marks in the most glowing colours the triumphant entry of Messiah into the heavenly regions, and the tone of authority and power with which he commands that entrance—it sends him attended by the angelic host to his Father's throne, there to claim that preeminence which was his by inheritance and by conquest. At this point the Psalm before us "takes up the wondrous tale"; it exhibits to us the awful solemnities of his reception, it represents the Father bestowing on his well beloved Son the kingdom which he had earned, exalting him to the throne, and putting all things under his feet; receiving him in his office of prophet, and promising universality and permanence to "the rod of his strength"; receiving him in the office of priesthood, his own peculiar priesthood, and confirming its efficacy and duration by an oath; thus perfecting the redemption scheme, and completing the conquest over sin and death, and him who had the power of death. Man united with God was raised to the throne of being: man united with God perfected the sacrifice which was demanded, and the angelic host is represented by the Psalmist as taking up the strain, and hymning the future triumphs of the King of Glory—triumphs over his foes, whom he will visit in the day of his wrath, and triumphs with his willing people, whom he will assist with his Spirit, refine by his grace, and exalt into his glory. Such do I conceive to be the occasion, the object, and the tendency of this sacred song: to me it appears to be eminently an epinicion, or song of victory: it celebrates the triumph of the conqueror, it presents him with the rewards of victory, and it predicts future conquests as crowning his glory; while elsewhere we see the Captain of our salvation militant, here we sec him triumphant; while elsewhere we see his offices inchoate, here they are perfected by the approval of the Godhead, and the promise of eternity: here we have instruction consolidating empire, and the atonement completed by the everlasting priesthood. *J. H. Singer*, in *"The Irish Pulpit,"* 1839.
 
 **Verse 1.** In this one verse we have a description of Christ's person, his wars and his victory; so that we may say of it, (and so indeed of the whole psalm, which is an epitome of the Gospel), as Tully did of Brutus in his laconical epistle, "Quam multa, guam paucis!" How much in a little. *John Trapp.* 
 
@@ -80,11 +80,11 @@ The last verses of this psalm we understand to refer to the future victories of 
 
 **Verse 1.** *Until I make thine emimies thy footstool.* Every word is full of weight. For though ordinarily subdivisions of holy Scripture and crumbling of the bread of life be rather a loosing than an expounding of it; yet in such parts of it as were of purpose intended for models and summaries of fundamental doctrines, (of which sort this psalm is one of the fullest and briefest in the whole Scriptures), as in little maps of large countries, there is no word whereupon some point of weighty consequence may not depend. Here then is to be considered the term of duration or measure off Christ's kingdom: "until." The author of subduing Christ's enemies under him: "I, the Lord." The mariner thereof; *ponam* and *ponam scabellum* put thy foes as a stool under thy feet. Victory is a relative word, and presupposes enemies, and they are expressed in the text... Enmity shows itself against Christ in all the offices of his mediation. There is enmity against him as a prophet. Enmity against his truth,—in opinion by adulterating it with human mixtures and superinducement, teaching for doctrines the traditions of men; in affection, by wishing many divine truths were razed out of the Scriptures, as being manifestly contrary to those pleasures which they love rather than God; in conversation, by keeping down the truth in unrighteousness, and in those things which they know, as brute beasts, corrupting themselves. Enmity against his teaching, by quenching the motions, and resisting the evidence of his Spirit in the Word, refusing to hear his voice, and rejecting the counsel of God against themselves. There is enmity against him as a priest, by undervaluing his person, sufferings, righteousness, or merits. And as a king; enmity to his worship, by profaneness neglecting it, by idolatry misappropriating it, by superstition corrupting it. Enmity to his ways and service, by ungrounded prejudices, misjudging them as grievous, unprofitable, or unequal ways; and by wilful disobedience forsaking them to walk in the ways of our own heart. *Edward Reynolds.* 
 
-**Verse 1.** *Make thine enemies thy footstool!* This expression, that the conquest of Christ's enemies shall be but as the removing of a stool into its place, notes unto us two things: first, the easiness of God's victory over the enemies of Christ. They are before him as nothing, less than nothing, the drop of a bucket, the dust of the balance, a very little thing...Secondly, as this putting of Christ's enemies like a stool under the feet notes easiness, so also it notes order or beauty too. When Christ's enemies shall be under his foot, then there shall be a right order in things; then it shall indeed appear that God is a God of order, and therefore the day wherein that shall be done, is called "the times of the restitution of all things, "Ac 3:21. The putting of Christ's enemies under his feet is an act of justice; and of all others, justice is the most orderly virtue, that which keepeth beauty upon the face of a people, as consisting itself in symmetry and proportion. This putting of Christ's enemies as a stool under his feet, also denotes unto us two things in reference to Christ: first, his rest, and secondly, his triumph. To stand, in the Scripture phrase, denotes ministry, and to sit, rest; and there is no posture so easy as to sit with a stool under one's feet. Till Christ's enemies then be all under his feet, he is not fully in his rest. Furthermore, this "footstool" under Christ's feet, in reference to his enemies, denotes unto us four things. First, the extreme shame and confusion which they shall everlastingly suffer, the utter abasing and bringing down of all that exalteth itself against Christ. Secondly, hereby is noted the burden which wicked men must bear: the footstool beareth the weight of the body, so must the enemies of Christ bear the weight of his heavy and everlasting wrath upon their souls. Thirdly, herein is noted the relation which the just recompense of God bears unto the sins of ungodly men. Thus will Christ deal with his enemies at the last day. Here they trample upon Christ in his word, in his ways, in his members; they make the saints bow down for them to go over, and make them as the pavements on the ground; they tread under foot the blood of the covenant, and the sanctuary of the Lord, and put Christ to shame; but there their own measure shall be returned into their bosoms, they shall be constrained to confess as Adonibezek, "As I have done, so God hath requited me." Lastly, herein we may note the great power and wisdom of Christ in turning the malice and mischief of his enemies unto his own use and advantage; and so ordering wicked men that though they intend nothing but extirpation and ruin to his kingdom, yet they shall be useful unto him, and, against their own wills, serviceable to those glorious ends, in the accomplishing whereof he shall be admired by all those that believe. As in a great house there is necessary use of vessels of dishonour, destined unto sordid and mean, but yet daily, services: so in the great house of God, wicked men are his utensils and household instruments, as footstools and staves, and vessels wherein there is no pleasure, though of them there may be good use. *Condensed from Reynolds.* 
+**Verse 1.** *Make thine enemies thy footstool!* This expression, that the conquest of Christ's enemies shall be but as the removing of a stool into its place, notes unto us two things: first, the easiness of God's victory over the enemies of Christ. They are before him as nothing, less than nothing, the drop of a bucket, the dust of the balance, a very little thing... Secondly, as this putting of Christ's enemies like a stool under the feet notes easiness, so also it notes order or beauty too. When Christ's enemies shall be under his foot, then there shall be a right order in things; then it shall indeed appear that God is a God of order, and therefore the day wherein that shall be done, is called "the times of the restitution of all things, "Ac 3:21. The putting of Christ's enemies under his feet is an act of justice; and of all others, justice is the most orderly virtue, that which keepeth beauty upon the face of a people, as consisting itself in symmetry and proportion. This putting of Christ's enemies as a stool under his feet, also denotes unto us two things in reference to Christ: first, his rest, and secondly, his triumph. To stand, in the Scripture phrase, denotes ministry, and to sit, rest; and there is no posture so easy as to sit with a stool under one's feet. Till Christ's enemies then be all under his feet, he is not fully in his rest. Furthermore, this "footstool" under Christ's feet, in reference to his enemies, denotes unto us four things. First, the extreme shame and confusion which they shall everlastingly suffer, the utter abasing and bringing down of all that exalteth itself against Christ. Secondly, hereby is noted the burden which wicked men must bear: the footstool beareth the weight of the body, so must the enemies of Christ bear the weight of his heavy and everlasting wrath upon their souls. Thirdly, herein is noted the relation which the just recompense of God bears unto the sins of ungodly men. Thus will Christ deal with his enemies at the last day. Here they trample upon Christ in his word, in his ways, in his members; they make the saints bow down for them to go over, and make them as the pavements on the ground; they tread under foot the blood of the covenant, and the sanctuary of the Lord, and put Christ to shame; but there their own measure shall be returned into their bosoms, they shall be constrained to confess as Adonibezek, "As I have done, so God hath requited me." Lastly, herein we may note the great power and wisdom of Christ in turning the malice and mischief of his enemies unto his own use and advantage; and so ordering wicked men that though they intend nothing but extirpation and ruin to his kingdom, yet they shall be useful unto him, and, against their own wills, serviceable to those glorious ends, in the accomplishing whereof he shall be admired by all those that believe. As in a great house there is necessary use of vessels of dishonour, destined unto sordid and mean, but yet daily, services: so in the great house of God, wicked men are his utensils and household instruments, as footstools and staves, and vessels wherein there is no pleasure, though of them there may be good use. *Condensed from Reynolds.* 
 
-**Verse 1.** *Thy foot stool.* As this our king has a glorious throne, so has he also a wonderful footstool; and as his royal throne imparts to us comfort in the highest degree, so his footstool also imparts to us joy. How joyful shall his poor subjects be when they hear that their prince and king has slain their enemies and delivered them out of their hands! How did their poor subjects go forward to meet Saul and Jonathan when those kings had slain the Philistines!...Moreover, because our King has his enemies under his feet, thus shall he also bring all our enemies under our feet, for his victory is ours, God be thanked, who has given us the victory through Christ our Lord. *Joshua Arnd*, 1626-1685.
+**Verse 1.** *Thy foot stool.* As this our king has a glorious throne, so has he also a wonderful footstool; and as his royal throne imparts to us comfort in the highest degree, so his footstool also imparts to us joy. How joyful shall his poor subjects be when they hear that their prince and king has slain their enemies and delivered them out of their hands! How did their poor subjects go forward to meet Saul and Jonathan when those kings had slain the Philistines!... Moreover, because our King has his enemies under his feet, thus shall he also bring all our enemies under our feet, for his victory is ours, God be thanked, who has given us the victory through Christ our Lord. *Joshua Arnd*, 1626-1685.
 
-**Verse 2.** *The rod of thy strength,* or rather, "The sceptre of thy might", i.e., of "Thy kingly majesty, "as in Jer 48:17; Eze 19:14. Chrysostom plays upon the word rabdov (LXX) as a rod of strength and consolation, as in Ps 23:4; a rod of chastisement, as in Ps 2:9, *1Co 4:21*; a symbol of kingly rule, as in Isa 11:1, Ps 45:6. It was by this rod, he says, that the disciples wrought when they subdued the world, in obedience to the command, "Go and make disciples of all nations"; a rod far more powerful than that of Moses, "for that divided rivers, this brake in pieces the ungodliness of the world." And then with profound truth he adds, "Nor would one err who should call the Cross the rod of power; for this rod converted sea and land, and filled them with a vast power. Armed with this rod, the Apostles went forth throughout the world, and accomplished ali that they did, beginning at Jerusalem." The Cross, which to men seemed the very emblem of shame and weakness, was, in truth, the power of God. *J.J. Stewart Perowne.* 
+**Verse 2.** *The rod of thy strength,* or rather, "The sceptre of thy might", i.e., of "Thy kingly majesty, "as in Jer 48:17; Eze 19:14. Chrysostom plays upon the word rabdov (LXX) as a rod of strength and consolation, as in Ps 23:4; a rod of chastisement, as in Ps 2:9, *1Co 4:21*; a symbol of kingly rule, as in Isa 11:1, Ps 45:6. It was by this rod, he says, that the disciples wrought when they subdued the world, in obedience to the command, "Go and make disciples of all nations"; a rod far more powerful than that of Moses, "for that divided rivers, this brake in pieces the ungodliness of the world." And then with profound truth he adds, "Nor would one err who should call the Cross the rod of power; for this rod converted sea and land, and filled them with a vast power. Armed with this rod, the Apostles went forth throughout the world, and accomplished ali that they did, beginning at Jerusalem." The Cross, which to men seemed the very emblem of shame and weakness, was, in truth, the power of God. *J. J. Stewart Perowne.* 
 
 **Verse 2.** *The rod of thy strength.* The power of this sceptre and word of Christ appeareth greatly in the saving of his elect... So mightily hath it prevailed and overruled the minds of men against nature, and reason, and learning, and wisdom, and custom, and whatsoever else is strong to hold men in the liking of those things which they have once received and followed, as that they have been content to renounce the devotions which their forefathers had so long embraced; to cast away the gods which themselves had devoutly served; to stop their ears against the contrary motives and persuasions of father and mother; to harden their hearts against the kneeling and weeping and embracing of wife and children; to forego their honours, and inheritances, yea, and their lives also, rather than lose that peace and joy of heart which the same word of Christ had ministered unto them. Yea, how strange is it, and how greatly doth it commend the power of this word, to see weakness hereby prevailing against strength, simplicity against policy; to see the lamb standing without fear before the lion, the gentle turtle before the devouring kite; women and children and weaklings before the great monarchs and potentates of the world, not fearing their threatening words, nor dreading their tormenting hands, but boldly uttering the word of their testimony (Re 12:11), in despite of all their fury, and never yielding to shrink from it, by anything that could be devised against them. The word of God in their hearts gave them courage and resolution and strength to go through fire and water, to bear all adventures of wind and weather, and howsoever they seemed to be beaten against the rocks, yet they escaped shipwreck, and arrived safe at the haven of their desire. *Robert Abbot.* 
 
@@ -106,11 +106,11 @@ The last verses of this psalm we understand to refer to the future victories of 
 
 **Verse 3.** *Thy people shall be willing in the day of thy power,* etc. The prophet here notes three things respecting the subjects of the kingdom of the Messiah:
 
-1\.Their prompt obedience.
+1\. Their prompt obedience.
 
-2\.Their attire or vesture.
+2\. Their attire or vesture.
 
-3\.Their abundance, or multitude.
+3\. Their abundance, or multitude.
 
 This representation admirably agrees with what precedes. He had said that the Messiah should reign in the midst of his enemies, but lest any one should think that he would reign only over enemies, unwilling and opposing, as the devils are made subject to Christ, now he lets us know that he will have a loyal people, and obedient subjects, for else there would be wanting that same glory of which Solomon speaks in Pr 14:28, "In the multitude of people is the king's honour." He affirms also, that he would have his own people, who would recognise, receive, and serve him as King, with true obedience, nor would it be a small company, but like the dew, which waters the face of the whole earth. *Rivetus.* 
 
@@ -192,9 +192,9 @@ Sparkling in morning light. **
 
 **Verse 4.** *Sworn, and will not repent, Thou art a priest for ever.* God might have made the levitical priest by oath, and yet he might have been changed, but if he had made him by oath to be a priest for ever, then he could not have repented, that is, changed; but he must of necessity have been a priest for ever. Therefore you must take special notice, that God did not only swear that Christ should be a priest, or that he should be a priest for a long time, but a priest "for ever; "so that there should never be any priest joined with him, or come after him. So that if we consider the oath, and the thing confirmed by this oath, two things will be manifest:
 
-1\.That Christ's priesthood is personal, and settled in one single person for ever; so that he can have no fellow nor copartner, nor any successor in his priesthood.
+1\. That Christ's priesthood is personal, and settled in one single person for ever; so that he can have no fellow nor copartner, nor any successor in his priesthood.
 
-2\.That, by this oath, God did limit his own supreme and absolute power in this particular; and took away the use and exercise of it, and that for ever.
+2\. That, by this oath, God did limit his own supreme and absolute power in this particular; and took away the use and exercise of it, and that for ever.
 
 For now he hath no power to make Christ no priest, or take away his priesthood at will and pleasure: and in this God discovered his unspeakable love unto Christ, in that he did so much honour him, and so highly reward him. By this he also displayed his abundant mercy to man; for by this oath known unto man, he signifies that man shall never be destitute of a powerful and effectual priest, able for ever to save; and this doth minister unto sinful man most sweet and heavenly comfort. *George Lawson*, 1662.
 
@@ -206,19 +206,19 @@ For now he hath no power to make Christ no priest, or take away his priesthood a
 
 **Verse 4.** *Thou art a priest.* The reasons which moved our Lord to take upon him the office of priest are conceived to be these.
 
-1\.Because the salvation and redemption of mankind, wrought by the sacrifice of his priesthood., being a most noble work, and not inferior to the creation, it was not fit that any should have the honour of it, but the Son of God.
+1\. Because the salvation and redemption of mankind, wrought by the sacrifice of his priesthood., being a most noble work, and not inferior to the creation, it was not fit that any should have the honour of it, but the Son of God.
 
-2\.Neither was it agreeable that any should offer him, who was the only sacrifice that could expiate the sins of the whole world, but himself: therefore by offering himself he added infinite worth to the sacrifice, and great honour to the priesthood of the Gospel.
+2\. Neither was it agreeable that any should offer him, who was the only sacrifice that could expiate the sins of the whole world, but himself: therefore by offering himself he added infinite worth to the sacrifice, and great honour to the priesthood of the Gospel.
 
 For, as the gold sanctifieth not the altar, but the altar the gold; so it may be truly said without impeachment to the dignity of that calling, that Christ was rather an honour to the priesthood, than the priesthood an addition to him. For what got he by the priesthood which cost him his life? What preferment could it be to him, to take upon him an office, whereby he was to abase himself below himself, and be put to an ignominious and accursed death? What were we vile miscreants, conceived and born in original sin, and soiled with the filth of numberless actual transgressions, that to purge and cleanse our polluted souls and defiled consciences, the second person in the Trinity should be made a Priest? It was wonderful humility in him to wash his disciples feet; but in his divine person to wash our unclean souls, is as far above human conceit, as it seemeth below divine majesty. There is nothing so impure as a foul conscience; no matter so filthy, no corruption so rotten and unsavoury as is found in the sores of an exulcerated mind: yet the Son of God vouchsafed to wash and bathe them in his own blood. O bottomless depth of humility and mercy! Other priests were appointed by men for the service of God, but he the blood of beasts to save men, but he shed his own blood to save us, more like beasts than men: other priests offered sacrifice for themselves, he offered himself for a sacrifice: other priests were fed by the sacrifices which the people brought, but he feeds us with the sacrifice of his own body and blood: lastly, others were appointed priests but for a time, he was ordained a priest for ever. *Daniel Featley.* 
 
 **Verse 4.** *Thou art a priest.* This word, "Thou art," is "verbum constitutivum", a "constituting word", whereon the priesthood of Christ was founded. And it may be considered,
 
-1\.As declarative of God's eternal decree, with the covenant between the Father and the Son, whereby he was designed unto this office.
+1\. As declarative of God's eternal decree, with the covenant between the Father and the Son, whereby he was designed unto this office.
 
-2\.As demonstrative of his mission, or his actual sending to the discharge of his office. These words are the symbol and solemn sign of God's conferring that honour upon him, which gave him his instalment.
+2\. As demonstrative of his mission, or his actual sending to the discharge of his office. These words are the symbol and solemn sign of God's conferring that honour upon him, which gave him his instalment.
 
-3\.As predictive, for there is included in them a supposition that God would prepare a body for him, wherein he might exercise his priesthood, and which he might offer up unto him. *John Owen.* 
+3\. As predictive, for there is included in them a supposition that God would prepare a body for him, wherein he might exercise his priesthood, and which he might offer up unto him. *John Owen.* 
 
 **Verse 4.** *Melchizedek.* Some heretics of old affirmed that he was the Holy Ghost. Others, that he was an angel. Others, that he was Shem, the son of Noah. Others, that he was a Canaanite, extraordinarily raised up by God to be a priest of the Gentiles. Others, that he was Christ himself, manifested by a special dispensation and privilege unto Abraham in the flesh, who is said to have seen his day, and rejoiced, Joh 8:56. Difference there is also about Salem, the place of which he was king. Some take it for Jerusalem, as Josephus and most of the ancients. Others for a city in the half tribe of Manasseh, within the river Jordan, where Hierom reports that some ruins of the palace of Melchizedek were in his days conceived to remain. Tedious I might be in insisting on this point who Melchizedek was. But when I find the Holy Ghost purposely concealing his name, genealogy, beginning, ending, and descent, and that to special purpose, I cannot but wonder that men should toil themselves in the dark to find out that of which they have not the least ground of solid conjecture, and the inevidence whereof is expressly recorded, to make Melchizedek thereby the fitter type of Christ's everlasting priesthood. *Edward Reynolds.* 
 
@@ -228,29 +228,29 @@ First, That he was a mere man, and no more; for,
 
 1\."Every high priest" was to be "taken from among men," Heb 5:1;—so that the Son of God himself could not have been a priest had he not assumed our nature:
 
-2\.That if he were more than a man, there would be no mystery in his being introduced in Scripture as," without father, without mother, without pedigree," for none but men have such:
+2\. That if he were more than a man, there would be no mystery in his being introduced in Scripture as," without father, without mother, without pedigree," for none but men have such:
 
-3\.Without this conception of him there is no force in the apostle's argument against the Jews.
+3\. Without this conception of him there is no force in the apostle's argument against the Jews.
 
 Secondly, That he came not to his office by the right of primogeniture (which includes a genealogy) or by any way of succession, but was raised up and immediately called of God thereunto; for in that respect Christ is said to be a priest after his order. Thirdly, That he had no successor on the earth, nor could have; for there was no law to constitute an order of succession, and he was a priest only after an extraordinary call. These things belong unto faith in this matter, and no more... The first personal instituted type of Christ was a priest; this was Melchizedek. There were before real instituted types of his work, as sacrifices; and there were moral types of his person, as Adam, Abel, and Noah, which represented him in sundry things; but the first person who was solemnly designed to teach and represent him, by what he was and did, was a priest. And that which God taught herein was, that the foundation of all that the Lord Christ had to do in and for the church was laid in his priestly office, whereby he made atonement and reconciliation for sin. Everything else that he doth is built on the supposition of his priesthood. And we must begin in the application where God begins in the exhibition. An interest in the effects of the priestly office of Christ is that which in the first place we ought to look after. This being attained, we shall be willing to be taught and ruled by him. It may not be amiss to observe the likeness between Melchizedek and Christ. As for our Lord;
 
-1\.He was said to be, and he really was, and he only, first the king of righteousness, and then the king of peace, seeing he alone brought in everlasting righteousness and made peace with God for sinners. In his kingdom alone are these things to be found.
+1\. He was said to be, and he really was, and he only, first the king of righteousness, and then the king of peace, seeing he alone brought in everlasting righteousness and made peace with God for sinners. In his kingdom alone are these things to be found.
 
-2\.He was really and truly the priest of the most high God; and properly he was so alone. He offered that sacrifice, and made that atonement, which was signified by all the sacrifices offered by holy men from the foundation of the world.
+2\. He was really and truly the priest of the most high God; and properly he was so alone. He offered that sacrifice, and made that atonement, which was signified by all the sacrifices offered by holy men from the foundation of the world.
 
-3\.He blesseth all the faithful, as Abraham, the father of the faithful, was blessed by Melchizedek. In him were they to be blessed, by him are they blessed,—through him delivered from the curse, and all the fruits of it; nor are they partakers of any blessing but from him.
+3\. He blesseth all the faithful, as Abraham, the father of the faithful, was blessed by Melchizedek. In him were they to be blessed, by him are they blessed,—through him delivered from the curse, and all the fruits of it; nor are they partakers of any blessing but from him.
 
-4\.He receive, all the homage of his people, all their grateful acknowledgments of the love and favour of God, in the conquest of their spiritual adversaries, and deliverance from them, as Melchizedek received the tenth of the spoils from Abraham.
+4\. He receive, all the homage of his people, all their grateful acknowledgments of the love and favour of God, in the conquest of their spiritual adversaries, and deliverance from them, as Melchizedek received the tenth of the spoils from Abraham.
 
-5\.He was really without progenitors or predecessors in his office; nor would I exclude that mystical sense from the intention of the place, that he was without father as to his human nature, and without mother as to his divine.
+5\. He was really without progenitors or predecessors in his office; nor would I exclude that mystical sense from the intention of the place, that he was without father as to his human nature, and without mother as to his divine.
 
-6\.He was a priest without genealogy, or derivation of his pedigree from the loins of Aaron, or any other that ever was a priest in the world, and moreover, mysteriously, was of a generation which none can declare.
+6\. He was a priest without genealogy, or derivation of his pedigree from the loins of Aaron, or any other that ever was a priest in the world, and moreover, mysteriously, was of a generation which none can declare.
 
-7\.He had, in his divine person, as the high priest of the church, neither beginning of days nor end of life, as no such thing is reported of Melchizedek; for the death which he underwent, in the discharge of his office, being not the death of his whole person, but of his human nature only, no interruption of his endless office did ensue thereon. For although the person of the Son of God died, whence God is said to "redeem his church with his own blood, "Ac 20:28; yet he died not in his whole person: but in his divine nature was still alive. Absolutely, therefore, and in respect of his office, he had neither beginning of days nor end of life.
+7\. He had, in his divine person, as the high priest of the church, neither beginning of days nor end of life, as no such thing is reported of Melchizedek; for the death which he underwent, in the discharge of his office, being not the death of his whole person, but of his human nature only, no interruption of his endless office did ensue thereon. For although the person of the Son of God died, whence God is said to "redeem his church with his own blood, "Ac 20:28; yet he died not in his whole person: but in his divine nature was still alive. Absolutely, therefore, and in respect of his office, he had neither beginning of days nor end of life.
 
-8\.He was really the Son of God, as Melchizedek in many circumstances was made like to the Son of God.
+8\. He was really the Son of God, as Melchizedek in many circumstances was made like to the Son of God.
 
-9\.He alone abideth a priest forever; whereof we must particularly treat afterwards. Condensed from *John Owen.* 
+9\. He alone abideth a priest forever; whereof we must particularly treat afterwards. Condensed from *John Owen.* 
 
 **Verse 5.** *The Lord...shall strike through kings,* etc. He really threatens such great heads in an awful manner, that if they will not hear, and cannot obey, they shall be terrified to death. And assuredly he would willingly, by these means, allure them to repentance, and persuade them to turn, and to cease from raging against the Lord. But if they will not, they shall know against whom it is that they go on... This is our consolation which upholds us, and makes our heart joyful and glad against the persecution and rage of the world, that we have such a Lord, who not only delivers us from sin and eternal death, but also protects us, and delivers us in sufferings and temptations, so that we do not sink under them. And though men rage in a most savage manner against Christians, yet neither the gospel nor Christianity shall perish; but their heads shall be destroyed against it. If their persecutions were to go on unceasingly Christianity could not remain, wherefore he gives them a time, and says he will connive at them for a while, but not longer than till the hour comes which he here calls the "day of his wrath" And if they will not now cease in the name of God, they must then cease in the name of the devil. *Martin Luther.* 
 
@@ -308,45 +308,45 @@ And then in triumph raise his head. **
 
 **Verse 1.** Here the Holy Ghost begins with the kingdom of Christ, which he describeth and magnifieth,—
 
-1\.By his unction, and ordination, thereunto, by the word or decree of his Father: "The Lord said".
+1\. By his unction, and ordination, thereunto, by the word or decree of his Father: "The Lord said".
 
-2\.By the greatness of his person in himself, while yet he is nearly allied in blood and nature unto us; "My Lord".
+2\. By the greatness of his person in himself, while yet he is nearly allied in blood and nature unto us; "My Lord".
 
-3\.By the glory, power, and heavenliness of his kingdom, for in the administration thereof he sitteth at the right hand of his Father: "Sit thou at my right hand".
+3\. By the glory, power, and heavenliness of his kingdom, for in the administration thereof he sitteth at the right hand of his Father: "Sit thou at my right hand".
 
-4\.By the continuance and victories thereof: "Until I make thy foes thy footstool."— *Edward Reynolds.* 
+4\. By the continuance and victories thereof: "Until I make thy foes thy footstool."— *Edward Reynolds.* 
 
 **Verse 1.** *My Lord.* 
 
-1\.Christ's condescending nearness to us does not destroy our reverence: he was David's son, and yet he calls him Lord; he is our brother, bridegroom, and so on, and yet our Lord.
+1\. Christ's condescending nearness to us does not destroy our reverence: he was David's son, and yet he calls him Lord; he is our brother, bridegroom, and so on, and yet our Lord.
 
-2\.Christ's glory does not diminish his nearness to us, or familiarity with us. Sitting on the throne as Lord, he is yet "my Lord."
+2\. Christ's glory does not diminish his nearness to us, or familiarity with us. Sitting on the throne as Lord, he is yet "my Lord."
 
-3\.It is under the double aspect as Lord, and yet ours, that Jehovah regards him and speaks with him, and ordains him to the priesthood. Ever in these two lights let us regard him.
+3\. It is under the double aspect as Lord, and yet ours, that Jehovah regards him and speaks with him, and ordains him to the priesthood. Ever in these two lights let us regard him.
 
 **Verse 1.** *Sit,* etc.
 
-1\.Our Lord's quiet amid passing events.
+1\. Our Lord's quiet amid passing events.
 
-2\.The abundance of his present power.
+2\. The abundance of his present power.
 
-3\.The working of all history towards the ultimate end, which will be—
+3\. The working of all history towards the ultimate end, which will be—
 
-4\.His easy victory: putting his foot on his foes as readily as we tread on a footstool.
+4\. His easy victory: putting his foot on his foes as readily as we tread on a footstool.
 
 **Verse 2. ** 
 
-1\.What is that rod? The gospel (Illustrated by Moses' rod).
+1\. What is that rod? The gospel (Illustrated by Moses' rod).
 
-2\.Who sends it? "The Lord."
+2\. Who sends it? "The Lord."
 
-3\.Whence it comes? Out of the church of God.
+3\. Whence it comes? Out of the church of God.
 
-4\.What is the result? Jesus reigns.
+4\. What is the result? Jesus reigns.
 
 **Verse 3.** A willing people and an immutable Leader.
 
-1\.The promise made to Christ concerning his people: "Thy people shall be willing, "etc.
+1\. The promise made to Christ concerning his people: "Thy people shall be willing, "etc.
 
 (a) A promise of time: "In the day," etc.
 
@@ -358,17 +358,17 @@ And then in triumph raise his head. **
 
 (e) The majestic figure employed: "From the womb of the morning: thou hast the dew of thy youth."
 
-2\.The promise made to Christ concerning himself: "Thou hast the dew of thy youth." Jesus Christ has the dew of his youth personally, doctrinally, and mystically, being surrounded by new converts, who are as the early dew. *Spurgeon's Sermons*, No. 74.
+2\. The promise made to Christ concerning himself: "Thou hast the dew of thy youth." Jesus Christ has the dew of his youth personally, doctrinally, and mystically, being surrounded by new converts, who are as the early dew. *Spurgeon's Sermons*, No. 74.
 
 **Verse 3.** This is a prophecy of the subjects of Christ's kingdom.
 
-1\.Who they are; "Thy people."
+1\. Who they are; "Thy people."
 
 (a) A people. This denotes distinction, separation, similarity, organization. They are not a confused rabble, but a united community.
 
 (b) His people. By gift, by purchase, by effectual calling.
 
-2\.What they are.
+2\. What they are.
 
 (a) A loyal people: "willing."
 
@@ -376,7 +376,7 @@ And then in triumph raise his head. **
 
 (c) A holy people: "in the beauties of holiness."
 
-(d) A numerous people: "from the womb of the morning," etc. The number of converts at the first proclamation of Christ's gospel was but the dew of his youth. *G.R.* 
+(d) A numerous people: "from the womb of the morning," etc. The number of converts at the first proclamation of Christ's gospel was but the dew of his youth. *G. R.* 
 
 **Verse 3.** First, the internal evidence of Christ's kingdom is in his people's willingness: "Thy people shall be willingness—thy people shall bc a people all willing"—all volunteers, not pressed men. Secondly, the external evidence of it lies in his people's holiness; "the beauties of holiness; "or as it may be rendered—"in the magnificence of his sanctuary, "for the ornaments of the sanctuary and the dress of the priests were very splendid. When you once give yourselves to God, you become temples of God; and sanctity must adorn that heart which is a living temple of the Holy Ghost. *J. Bennett*, in a Sermon, 1829.
 
@@ -398,11 +398,11 @@ And then in triumph raise his head. **
 
 **Verse 4.** These words offer three points of special observation.
 
-1\.The ceremony used at the consecration of our Lord: "The Lord sware."
+1\. The ceremony used at the consecration of our Lord: "The Lord sware."
 
-2\.The office conferred upon him by this rite or ceremony: "Thou art a priest."
+2\. The office conferred upon him by this rite or ceremony: "Thou art a priest."
 
-3\.The prerogatives of his office; which office is here declared to be,
+3\. The prerogatives of his office; which office is here declared to be,
 
 (a) Perpetual, "for ever."
 
@@ -428,7 +428,7 @@ The Exaltation of the Kingdom and Priesthood of Christ. In certaine Sermons upon
 
 An Explication of the Hundreth and Tenth Psalme.... Being the Substance of several Sermons preached at Lincolns Inne; by Edward Reynolds *afterwards Bishop of Norwich*. 4to. 2nd edition. London, 1035. *Also in "Reynolds' Works."]* 
 
-In the works of John Boys, 160, folio, pp. 809-821, there is an Exposition of this Psalm. An incorruptible Key Composed of the CX. Psalme, wherewith You may open the rest of the holy Scriptures... By Samuel Gorton, Gent. and at the time of the penning hereof, in the place of. Judicature (upon Aquethneck, alias Road Island) of Providence Plantations in the Nanhyganset Bay, New England. Printed in the Yeere 1647. 4to. A new interpretation of the Sixty-eighth Psalm. To which is added, an Exposition of the Hundred and tenth Psalm, proposed in a Sermon, preached before the University of Oxford, at St. Mary's, on Sunday, October 27, 1811. By the Rev. Richard Dixon, A.M., F.R.S.... Oxford, 1811. *4to.* 
+In the works of John Boys, 160, folio, pp. 809-821, there is an Exposition of this Psalm. An incorruptible Key Composed of the CX. Psalme, wherewith You may open the rest of the holy Scriptures... By Samuel Gorton, Gent. and at the time of the penning hereof, in the place of. Judicature (upon Aquethneck, alias Road Island) of Providence Plantations in the Nanhyganset Bay, New England. Printed in the Yeere 1647. 4to. A new interpretation of the Sixty-eighth Psalm. To which is added, an Exposition of the Hundred and tenth Psalm, proposed in a Sermon, preached before the University of Oxford, at St. Mary's, on Sunday, October 27, 1811. By the Rev. Richard Dixon, A. M., F. R. S.... Oxford, 1811. *4to.* 
 
 In "The Golden Diary of Heart Converse with Jesus in the Book of Psalms," by the Rev. Dr. Edersheim.... London: 1873, there is a short meditation on this Psalm.
 

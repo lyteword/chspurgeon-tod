@@ -350,7 +350,7 @@ But the duty is also urged, *partly for their own profit,* Ps 78:7, *That they m
 
 4\. *And their children;* 
 
-5\.And their children.
+5\. And their children.
 
  *—* *Adam Clarke.* 
 
@@ -382,9 +382,9 @@ But the duty is also urged, *partly for their own profit,* Ps 78:7, *That they m
 
 1\. *Christ himself.* Some have noted a shadow both of his *Deity* and *humanity.* There was a *fiery brightness* in the clouds, which yet was but a dark shadow of the glory of his Deity, which was often in vision so represented; but his divine nature was veiled and over clouded by his human, as in this shadow there was a pillar of *cloud* as well as *fire.* In Re 10:1 Christ is represented as *clothed with a cloud, and his feet as pillars of fire;* expressions notably answering this ancient type and shadow.
 
-2\.It holds forth something of the *benefits* of Christ. What benefits had they from this pillar of fire and cloud? They had three: (1) Light and direction. (2) Defence and protection. (3) Ornament and glory. All which we have in a higher manner in Christ by the gospel.
+2\. It holds forth something of the *benefits* of Christ. What benefits had they from this pillar of fire and cloud? They had three: (1) Light and direction. (2) Defence and protection. (3) Ornament and glory. All which we have in a higher manner in Christ by the gospel.
 
-3\.It figured also the *ordinances,* and his presence in and with them; for the ordinances are the outward and visible tokens of God's presence with his people, as this fiery pillar was of old. And, therefore, when the Tabernacle was made and set up, *it rested upon the Tabernacle,* Ex 40:38. There be some duties are secret, which the world sees not, nor may see; as alms deeds and personal and secret prayer. But the *ordinances* of institution are things that ought to be practised with all the publickness that may be: they are outward and visible tokens of God's presence, particularly that great ordinance of *baptism,* as in 1Co 10:2. The cloud, it seems, had a refreshing moisture in it, to shade, refresh, and cool them from the burning heat; and they were bedewed (Rather *"baptised"* in it, as Paul puts it in 1Co 10:2) with it, as we are with the water of baptism; whereby this legal cloud became a type of gospel baptism. And so you see how it represented something of *Christ himself,* and something of his *benefits,* and something of all his *ordinances* under the New Testament. *—Samuel Mather.* 
+3\. It figured also the *ordinances,* and his presence in and with them; for the ordinances are the outward and visible tokens of God's presence with his people, as this fiery pillar was of old. And, therefore, when the Tabernacle was made and set up, *it rested upon the Tabernacle,* Ex 40:38. There be some duties are secret, which the world sees not, nor may see; as alms deeds and personal and secret prayer. But the *ordinances* of institution are things that ought to be practised with all the publickness that may be: they are outward and visible tokens of God's presence, particularly that great ordinance of *baptism,* as in 1Co 10:2. The cloud, it seems, had a refreshing moisture in it, to shade, refresh, and cool them from the burning heat; and they were bedewed (Rather *"baptised"* in it, as Paul puts it in 1Co 10:2) with it, as we are with the water of baptism; whereby this legal cloud became a type of gospel baptism. And so you see how it represented something of *Christ himself,* and something of his *benefits,* and something of all his *ordinances* under the New Testament. *—Samuel Mather.* 
 
 **Verse 14.** *All the night.* We need not dwell long upon the thought of what this *all* was to the Israelites. In night *marchings,* and night restings, it was very precious; whether they were in motion or at rest, it was alike needed, alike good. This light of fire, unless continuous, would have been of comparatively little worth. Were it suddenly extinguished as they marched, all Israel would have been plunged into confusion and dismay; the quenching of the light would have changed into a disordered rabble, the marshalled host. *Philip Bennett Power, in "Breviates: or Short Texts and Their Teachings."* 
 
@@ -426,11 +426,11 @@ But the duty is also urged, *partly for their own profit,* Ps 78:7, *That they m
 
 **Verse 25.** *Angel's food.* So their manna was called, either,
 
-1\.Because it was provided and sent by the ministry of angels; or,
+1\. Because it was provided and sent by the ministry of angels; or,
 
-2\.Because it seemed to come down from heaven, the dwelling place of the angels; or,
+2\. Because it seemed to come down from heaven, the dwelling place of the angels; or,
 
-3\.To set forth the excellency of this bread, that it was meat, as one would say, fit for angels, if angels needed meat.
+3\. To set forth the excellency of this bread, that it was meat, as one would say, fit for angels, if angels needed meat.
 
 And so, indeed, the exceeding glory of Stephen's countenance is set forth by this, that they "saw his face as it had been the face of an angel, "Ac 6:15; and Paul calls an excellent tongue, "the tongue of angels, "1Co 13:1. *Arthur Jackson.* 
 
@@ -492,11 +492,11 @@ Their bodies corrupted, by gluttony they die."
 
 **Verse 36.** Flattery of God.
 
-1\.A common sin.
+1\. A common sin.
 
-2\.A hateful sin.
+2\. A hateful sin.
 
-3\.A dangerous sin. *B. D.* 
+3\. A dangerous sin. *B. D.* 
 
 **Verses 36-38.** There is no disputing the fact which gives accuracy to the text, that God was moved by a repentance which had not in it even the elements of godly sorrow for sin; which could not even, by a casual observer, much less by him who searches the heart, have been mistaken for that penitence which supposes an inward and radical change, and, nevertheless, even such a repentance as this sufficed to procure a recompense at the hands of God. Though the sackcloth was on the body and not on the soul; though it was the punishment of the sin and not the sin itself which led to this outward humiliation, God did not turn away from the forced supplication, but vouchsafed the deliverance which was sought at his hands. Yes, God, who never expresses greater abhorrence of any character than that of the hypocrite; God, who rejects nothing more indignantly than outward homage when it is not the index of inward prostration—God may be said to have removed the humiliation of the people as though he could not read their hearts, or as though, having read them, and noted their unsubdued rebellion, he still thought the apparent contrition deserving of some recompense...
 
@@ -552,9 +552,9 @@ Then weary of itself, again to nothing." *Francis Quarles.*
 
 **Verse 41.** *Limited the Holy One of Israel.* They limited either
 
-1\.God's power, as above, *Ps 78:19-20*. Or,
+1\. God's power, as above, *Ps 78:19-20*. Or,
 
-2\.God's will, directing and prescribing to him what to do, and when, and in what manner; and murmuring at him if he did not always grant their particular and various desires. *Matthew Poole.* 
+2\. God's will, directing and prescribing to him what to do, and when, and in what manner; and murmuring at him if he did not always grant their particular and various desires. *Matthew Poole.* 
 
 **Verse 41.** *They limited the Holy One of Israel.* Here, then, is an awful charge, and mysterious it seems to *us* as awful. How dreadful that man, the worm, should arrogate to himself *that,* to say to him that made him, *"Thus far shalt thou go and no farther."* Amazing, I say, the charge! to contract the dimensions and operations of the Deity. Amazing insolence, to draw a boundary line, beyond which the Creator himself must not pass, to define and prescribe to the Lawgiver of nature himself the pathway of his providence! The turpitude is immense. But we know, my friends, that the crime is not uncommon; and one of the natural results of sin seem to be this,—that the sinful spirit, whether of man or of the lost archangel, unable to shake the firm foundations of the Eternal Throne, *amuses* its malignity, and seeks a temporary cessation from its withering cares, in putting up barriers on the outskirts and frontiers of the Almighty empire, vainly hoping to annoy the Possessor of the throne they cannot disturb. Affecting words! Do they affect you as they affect me? *They turned back and tempted God, and limited the Holy One of Israel.* Somehow, it seems no combination of words could have been so affecting. *They* limited *God.* They limited the *Almighty.* They limited *the Infinite. No!* These words have an awful and affecting surge of meaning in them; for wile they describe *Him,* awful and self contained Being whose essence is eternity and power; whose self existence is declared by the amazing marvels of nature; whose life was essential being. They limited *Him—The One* in whose being all being was swallowed up and absorbed— *The One* before whose glance mountains and hills fled away and were not found— *The One* from everlasting, God; *high over all, blessed for ever more. The One* to whom all the nations were as the drop of a bucket, and who took up the isles as a very little thing,—Him, *they limited.* They had known his character as *The Holy One;* it was all they knew of his character; but it was surrounded with an awfulness more dread than even the solitary power and self repose of Deity. In awful words and meanings they had heard his character proclaimed— *The Holy One.* Him they *limited. Him,* whose throne was curtained with the dreadful wings of sinless archangels, crying through the darkness of that ineffable brightness, Holy, holy, holy, Lord God Almighty! and whose holiness was asserted even by the disorders of the rolling world. *They limited him.* More personal, and therefore more wonderful, became the enormity. The generation of their race had testified for Him, the Holy One of Israel; they had beheld the marvels of his holiness and power in Egypt, in the Red Sea; they had heard of the God of Abraham, and Isaac, and Jacob; they had heard of him who had spoken to their Captain in the bush burning with fire; they beheld his pillar of fire and cloud; they knew themselves divinely selected and chosen; and him who chose *they limited!* That which should have ensured their faith became only the fountain of their criminality. *E. Paxton Hood.* 
 
@@ -640,21 +640,21 @@ Evil angels? *Par dispar,* a pair of words which seem not well matched. The latt
 
 **Verses 59-72.** 
 
-1\.A gloomy sunset, *Ps 78:59-60*.
+1\. A gloomy sunset, *Ps 78:59-60*.
 
-2\.A baleful might, *Ps 78:60-64*.
+2\. A baleful might, *Ps 78:60-64*.
 
-3\.A blessed sunrise, *Ps 78:65-72*. *C. D.* 
+3\. A blessed sunrise, *Ps 78:65-72*. *C. D.* 
 
 **Verse 65.** *Then the Lord awaked.* Know how to understand this and similar passages in Scripture, as to the Lord's sleeping and forgetting his people, *Ps 13:1 44:33 77:9*. These are not to be understood as to an universal and absolute forgetting and sleep of providence; for God hath not his vacation time: he still holds the reins of government in his hand, all the world over. Neither do they infer an absolute cessation of providence in reference to that object matter which the Lord to our apprehension seems to forget, and lies dormant; for there is a promoting work of providence, which we see not, and are not so sensible of for the present, as hath been shewed. Besides, such forgetting and sleep of providence, as it is such, bespeaks the beauty of providence in the way of bringing things to pass. It is so far from inferring an *interrgnum,* or letting fall the sceptre of government, as that it is a glorious demonstration that God orders matters, and that wisely, whilst he seems to forget, and be as one asleep. As the night, as night, falls under the providence of God, as well as the day, for there are the ordinances of heaven for the night season, *Jer 31:35*: so the dark night, when as to matters the Lord seems to sleep, is part and parcel of his all wise model of government. The seventy years captivity was a long night for the church's distress; and yet thus it must be according to the ordinance of providence. *Jer 29:10*. *Thomas Crane.* 
 
 **Verse 65.** *Like a mighty man that shouteth by reason of wine:* whose spirit and courage is revived and inflamed by a liberal draught of generous wine; which comparison is no more injurious to the Divine Majesty than that of a thief's coming in the night, to which Christ's second coming is compared. *1Th 5:2*. *Matthew Poole.* 
 
-**Verse 66.** *He smote his enemies in the hinder parts.* This has reference to the Philistines being smitten with haemorrhoids, or piles, whilst the ark was retained a captive by them, *1Sa 5:6,12*...The Greek version, as quoted by Suidas, is, *he smote his enemies on the back parts of the seat;* signifying, he says, a disease modestly expressed. *John Gill.* 
+**Verse 66.** *He smote his enemies in the hinder parts.* This has reference to the Philistines being smitten with haemorrhoids, or piles, whilst the ark was retained a captive by them, *1Sa 5:6,12*... The Greek version, as quoted by Suidas, is, *he smote his enemies on the back parts of the seat;* signifying, he says, a disease modestly expressed. *John Gill.* 
 
 **Verse 67.** The moving of the ark is not the removing of it; Shiloh has lost it, but Israel has not. God will have a church in the world, and a kingdom among men, though this or that place may have its candlestick removed; nay, the rejection of Shiloh is the election of Sion. *Matthew Henry.* 
 
-**Verses 67-68.** Refused. Chose not. Chose. As God's love is set out to us, as not independently pitched, but as having all the persons in his eye and having them all in view; so by this also, that he hath not pitched it upon everybody. This is distinct from the former; for an indefinite is not knowing whom he pitched it upon. Now, as he knew whom he pitched upon, so he hath pitched but upon some, not on every one...If God would love, it was fit he should be free. It is a strange thing that you will not allow God that which kings and princes have the prerogative of, and you will allow it them. They will have favourites whom they will love, and will not love others; and yet men will not allow God that liberty, but he must either love all mankind, or he must be cruel and unjust. The specialness of his love, increases it, endears it to us. You shall find almost all along the Bible, that when God would express his love, he doth it with a speciality to his own elect, which he illustrates by the contrary done to others...And you shall find frequently in the Scripture, when he mentions his choice of some persons, he holdeth up likewise on purpose his refusing of others...When he speaks of an election out of the tribes, he contents not himself to say he chose Judah, but he puts in the rejection, the preterition at least, of Joseph. *He refused the tabernacle of Joseph, and chose not the tribe of Ephraim: But chose the tribe of Judah, the mount Zion which he loved.*...He speaks of the times of the judges. The rejection of the ten tribes began to show itself soon; he says, he refused the tabernacle of Ephraim, but he chose Judah. After Solomon's time, they fell to worshipping of calves (let me tell you, it is the declining of election that undoes a nation, when election grows low, and ceases in an age), till at last the ten tribes were cast off, as they are at this day; but the tribe of Judah had election among them...
+**Verses 67-68.** Refused. Chose not. Chose. As God's love is set out to us, as not independently pitched, but as having all the persons in his eye and having them all in view; so by this also, that he hath not pitched it upon everybody. This is distinct from the former; for an indefinite is not knowing whom he pitched it upon. Now, as he knew whom he pitched upon, so he hath pitched but upon some, not on every one... If God would love, it was fit he should be free. It is a strange thing that you will not allow God that which kings and princes have the prerogative of, and you will allow it them. They will have favourites whom they will love, and will not love others; and yet men will not allow God that liberty, but he must either love all mankind, or he must be cruel and unjust. The specialness of his love, increases it, endears it to us. You shall find almost all along the Bible, that when God would express his love, he doth it with a speciality to his own elect, which he illustrates by the contrary done to others... And you shall find frequently in the Scripture, when he mentions his choice of some persons, he holdeth up likewise on purpose his refusing of others... When he speaks of an election out of the tribes, he contents not himself to say he chose Judah, but he puts in the rejection, the preterition at least, of Joseph. *He refused the tabernacle of Joseph, and chose not the tribe of Ephraim: But chose the tribe of Judah, the mount Zion which he loved.*... He speaks of the times of the judges. The rejection of the ten tribes began to show itself soon; he says, he refused the tabernacle of Ephraim, but he chose Judah. After Solomon's time, they fell to worshipping of calves (let me tell you, it is the declining of election that undoes a nation, when election grows low, and ceases in an age), till at last the ten tribes were cast off, as they are at this day; but the tribe of Judah had election among them...
 
 Though at the first, and for a long time, both were alike his people, yet at last election began to pass a discontinuation. Ephraim, or the ten tribes, had at first the advantage of Judah in spirituals; for the ark, the token of God's presence, was committed unto their keeping at Shiloh; the seal of God's worship and ordinances was entrusted to them, and Judah must come up thither, if they would seek the Lord. But Ephraim, for their sinning against that worship, forfeited and lost it, and should therefore have the keeping of it no longer, no, not for ever any more; but Judah had it at Bethlehem, till at last it was fixedly seated in Sion, as "the earth is established" *Ps 78:69*; and this for no other reason than that he had loved them, and out of love had chosen them *Ps 78:67-69*. For otherwise Judah was, as well as Ephraim, alike involved in the same guilt of sin which had forfeited it, as *Ps 78:56-60* of the Psalm plainly show. *"Yet they tempted and provoked the most high God, and kept not his testimonies, "* etc. He speaks it of the whole in those verses, and yet takes the occasion against Ephraim to remove it for ever. Thus, the first are last, and the last first; and those whom God's presence is with for a while, upon some eminent sin God begins to withdraw from them, and by degrees as he did by that people of the ten tribes, till at last he cast them off from being a people; but dealt not so with Judah, though these made a forfeiture of their temple, and worship, and nation, in the captivity of Babylon, yet God restored all again to greater glory at last. The ground was that in *Ps 78:68, Zion which he loved. Thomas Goodwin.* 
 
@@ -662,7 +662,7 @@ Though at the first, and for a long time, both were alike his people, yet at las
 
 **Verse 70.** *He took him from the sheepfolds.* The art of feeding cattle, and the art of ruling men are sisters, saith Basil. *John Trapp.* 
 
-**Verse 71.** *From following the ewes great with young.* A good and steady lamber is of great value to a grazier, but I would advise all graziers to attend to this operation themselves, as few servants will be found to pay that attention which is necessary, or which a master himself would do, and the slightest neglect, is, in many cases, followed with the greatest disadvantage. I have attended to the practice of lambing for several years, therefore, trust I am not a novice in it, or incompetent to give a description of it. Many lambs may be lost without its being possible to charge the lamber with neglect or ignorance, though greater attention on his part might have saved many that otherwise perish...The practice of lambing is at times very intricate, and is apt to exhaust the patience of a lamber. Sheep are obstinate, and lambing presents a scene of confusion, disorder, and trouble, which it is the lamber's business to rectify, and for which he ought always to be prepared: some of the ewes perhaps leave their lambs, or the lambs get intermixed, and the ewes which have lost their lambs run about bleating, while others want assistance. These are only a few of the various occurrences which call for the immediate attention of the lamber. *Daniel Price, in "A System of Sheep grazing and Management."* 1809.
+**Verse 71.** *From following the ewes great with young.* A good and steady lamber is of great value to a grazier, but I would advise all graziers to attend to this operation themselves, as few servants will be found to pay that attention which is necessary, or which a master himself would do, and the slightest neglect, is, in many cases, followed with the greatest disadvantage. I have attended to the practice of lambing for several years, therefore, trust I am not a novice in it, or incompetent to give a description of it. Many lambs may be lost without its being possible to charge the lamber with neglect or ignorance, though greater attention on his part might have saved many that otherwise perish... The practice of lambing is at times very intricate, and is apt to exhaust the patience of a lamber. Sheep are obstinate, and lambing presents a scene of confusion, disorder, and trouble, which it is the lamber's business to rectify, and for which he ought always to be prepared: some of the ewes perhaps leave their lambs, or the lambs get intermixed, and the ewes which have lost their lambs run about bleating, while others want assistance. These are only a few of the various occurrences which call for the immediate attention of the lamber. *Daniel Price, in "A System of Sheep grazing and Management."* 1809.
 
 **Verse 71.** *From following the ewes great with young.* It hath been reported that a learned doctor of Oxford hung up his leathern breeches in his study for a memorial to visitors of his mean original; the truth I avouch not, but history tells us of Agathocles who arose from a potter to be king of Sicily, and would be served in no other plate at his table but earthenware, to mind him of his former drudgery. It were well if some would remember whose shoes they have cleaned, whose coals they have carried, and whose money they have borrowed, and deal gratefully with their creditors, as the good Lord Cromwell did by the Florentine merchant in the time of Henry the Eighth, when Wolsey (Foxe's Martyrology) like a butcher forgot the king his master. It was otherwise with holy David, who being in kingly dignity, graciously calls to mind his following the ewes great with young, when now feeding the sheep of Israel. His golden sceptre points at his wooden hook, and he plays the old lessons of his oaten pipe upon his Algum harp, and spreads his Bethlehem tent within his marble palace on Mount Zion. *Samuel Lee.* 
 
@@ -676,11 +676,11 @@ Though at the first, and for a long time, both were alike his people, yet at las
 
 **Verses 2-3.** 
 
-1\.Truths are none the worse for being old: *sayings of* old. "Old wood, "says Lord Bacon, "is best to burn; old books are best to read; and old friends are best to trust."
+1\. Truths are none the worse for being old: *sayings of* old. "Old wood, "says Lord Bacon, "is best to burn; old books are best to read; and old friends are best to trust."
 
-2\.Truths are none the worse for being concealed under metaphors: *I will open,* etc., *in a parable; dark sayings.* 
+2\. Truths are none the worse for being concealed under metaphors: *I will open,* etc., *in a parable; dark sayings.* 
 
-3\.Truths are none the worse for being often repeated.
+3\. Truths are none the worse for being often repeated.
 
 (a) They are more tested.
 
@@ -692,13 +692,13 @@ Though at the first, and for a long time, both were alike his people, yet at las
 
 **Verse 4.** 
 
-1\.What is to be made known? *The praises of the Lord; his strength and his wonderful works.* 
+1\. What is to be made known? *The praises of the Lord; his strength and his wonderful works.* 
 
-2\.To whom are they to be made known? *To the* generations to come.
+2\. To whom are they to be made known? *To the* generations to come.
 
-3\.By whom? Parents—one generation to another.
+3\. By whom? Parents—one generation to another.
 
-4\.How made known?
+4\. How made known?
 
 (a) By hiding nothing.
 
@@ -708,17 +708,17 @@ Though at the first, and for a long time, both were alike his people, yet at las
 
 **Verses 5-8.** Family religion.
 
-1\.The fathers' knowledge the children's heritage—Ps 78:5-6.
+1\. The fathers' knowledge the children's heritage—Ps 78:5-6.
 
-2\.The fathers' fall the children's preservation—Ps 78:7-8.
+2\. The fathers' fall the children's preservation—Ps 78:7-8.
 
 **Verses 5-8.** 
 
-1\.Truth once started can never be arrested—Ps 78:5-6.
+1\. Truth once started can never be arrested—Ps 78:5-6.
 
-2\.Truth received binds the soul to God—Ps 78:7.
+2\. Truth received binds the soul to God—Ps 78:7.
 
-3\.Truth rejected lights up beacons for others—Ps 78:8.
+3\. Truth rejected lights up beacons for others—Ps 78:8.
 
 **Verses 7-8.** On the deceitfulness of the heart, in disregarding providential dispensations in general. *John Jamieson's "Sermons on the Heart, "I. 430.* 
 
@@ -730,13 +730,13 @@ Though at the first, and for a long time, both were alike his people, yet at las
 
 **Verses 9, 67.** The backsliding of prominent believers.
 
-1\.The Lord's soldiers: who they were; belonging to God's chosen people; were distinguished by grace. Ge 48:17-20. Strong by God's blessing. De 33:17. Honourable place among their brethren. Favoured with the tabernacle at Shiloh—Ps 78:60.
+1\. The Lord's soldiers: who they were; belonging to God's chosen people; were distinguished by grace. Ge 48:17-20. Strong by God's blessing. De 33:17. Honourable place among their brethren. Favoured with the tabernacle at Shiloh—Ps 78:60.
 
-2\.Their equipment: armour defensive and offensive; like that of others who triumphed.
+2\. Their equipment: armour defensive and offensive; like that of others who triumphed.
 
-3\.Their behaviour in battle: to turn back was traitorous, cowardly, dangerous, disastrous, dishonourable.
+3\. Their behaviour in battle: to turn back was traitorous, cowardly, dangerous, disastrous, dishonourable.
 
-4\.Their punishment—Ps 78:57. Deprived of their special honour. Re 3:11. *C. D.* 
+4\. Their punishment—Ps 78:57. Deprived of their special honour. Re 3:11. *C. D.* 
 
 **Verses 10-11.** The gradations of sin: neglecting, rejecting, forgetting God. *C. D.* 
 
@@ -752,9 +752,9 @@ Though at the first, and for a long time, both were alike his people, yet at las
 
 I. Their source.
 
-2\.Their variety.
+2\. Their variety.
 
-3\.Their abundance. ** 
+3\. Their abundance. ** 
 
 —B. Davies, of Greenwich.
 
@@ -766,35 +766,35 @@ I. Their source.
 
 **Verses 17-21.** 
 
-1\.They tempted God's patience; Ps 78:17.
+1\. They tempted God's patience; Ps 78:17.
 
-2\.They tempted God's wisdom; Ps 78:18.
+2\. They tempted God's wisdom; Ps 78:18.
 
-3\.They tempted God's power; Ps 78:19-20.
+3\. They tempted God's power; Ps 78:19-20.
 
-4\.They tempted God's wrath; Ps 78:21. ** 
+4\. They tempted God's wrath; Ps 78:21. ** 
 
 —E. G. Gange, of Bristol.
 
 **Verses 18-21.** The progress of evil.
 
-1\.They are drawn away by their lust: Ps 78:18.
+1\. They are drawn away by their lust: Ps 78:18.
 
-2\.Lust having conceived bringeth forth sin: Ps 78:19-20.
+2\. Lust having conceived bringeth forth sin: Ps 78:19-20.
 
-3\.Sin being finished bringeth forth death: Ps 78:21.
+3\. Sin being finished bringeth forth death: Ps 78:21.
 
 "Their carcases fell." *C. D.* 
 
 **Verses 21-22.** Evil consequences of unbelief.
 
-1\.The sin itself: they doubted the ultimate certainty, completeness, and reality of God's salvation from Egypt.
+1\. The sin itself: they doubted the ultimate certainty, completeness, and reality of God's salvation from Egypt.
 
-2\.The aggravation of it: the object of it was God; they who entertained it were God's people: The aids to faith were overlooked: "though."
+2\. The aggravation of it: the object of it was God; they who entertained it were God's people: The aids to faith were overlooked: "though."
 
-3\.What it led them to; inward sin—Ps 78:18; outward sin—Ps 78:19, etc.
+3\. What it led them to; inward sin—Ps 78:18; outward sin—Ps 78:19, etc.
 
-4\.What it brought upon them; Ps 78:21. Fiery serpents, etc. *C. D.* 
+4\. What it brought upon them; Ps 78:21. Fiery serpents, etc. *C. D.* 
 
 **Verse 25.** Different kinds of food. Beast's food, Lu 15:16. Sinners' food, Ho 4:8. Formalists' food, Ho 12:1. Saints' food, Jer 15:16 Joh 6:53-57. Angels' food. Christ's food, Joh 4:34. *C. D.* 
 
@@ -808,13 +808,13 @@ I. Their source.
 
 **Verse 42.** The day of days.
 
-1\.The enemy encountered on that day.
+1\. The enemy encountered on that day.
 
-2\.The conflict endured.
+2\. The conflict endured.
 
-3\.The deliverance accomplished.
+3\. The deliverance accomplished.
 
-4\.The joy experienced. *B. D.* 
+4\. The joy experienced. *B. D.* 
 
 **Verse 45.** The power of little things when commissioned to plague us.
 
@@ -822,15 +822,15 @@ I. Their source.
 
 **Verse 52.** 
 
-1\.God has a people in the world.
+1\. God has a people in the world.
 
-2\.He brings them away from others.
+2\. He brings them away from others.
 
-3\.He brings them into fellowship with himself.
+3\. He brings them into fellowship with himself.
 
-4\.He brings them into fellowship with each other.
+4\. He brings them into fellowship with each other.
 
-5\.He guides them to their rest.
+5\. He guides them to their rest.
 
 **Verse 55.** Divine supplanting. He supplants the fallen angels in heaven. One nation of earth by another (see all history). The thoughts and affections of the heart in regeneration, etc.— *Isa 55:13*. *C. D.* 
 
@@ -838,21 +838,21 @@ I. Their source.
 
 **Verses 59-72.** 
 
-1\.A gloomy sunset, *Ps 78:59-60*.
+1\. A gloomy sunset, *Ps 78:59-60*.
 
-2\.A baleful might, *Ps 78:60-64*.
+2\. A baleful might, *Ps 78:60-64*.
 
-3\.A blessed sunrise, *Ps 78:65-72*. *C. D.* 
+3\. A blessed sunrise, *Ps 78:65-72*. *C. D.* 
 
 **Verses 9, 67.** The backsliding of prominent believers.
 
-1\.The Lord's soldiers: who they were; belonging to God's chosen people; were distinguished by grace. *Ge 48:17-20*. Strong by God's blessing. *De 33:17*. Honourable place among their brethren. Favoured with the tabernacle at Shiloh— *Ps 78:60*.
+1\. The Lord's soldiers: who they were; belonging to God's chosen people; were distinguished by grace. *Ge 48:17-20*. Strong by God's blessing. *De 33:17*. Honourable place among their brethren. Favoured with the tabernacle at Shiloh— *Ps 78:60*.
 
-2\.Their equipment: armour defensive and offensive; like that of others who triumphed.
+2\. Their equipment: armour defensive and offensive; like that of others who triumphed.
 
-3\.Their behaviour in battle: to turn back was traitorous, cowardly, dangerous, disastrous, dishonourable.
+3\. Their behaviour in battle: to turn back was traitorous, cowardly, dangerous, disastrous, dishonourable.
 
-4\.Their punishment— *Ps 78:57*. Deprived of their special honour. *Re 3:11*. *C. D.* 
+4\. Their punishment— *Ps 78:57*. Deprived of their special honour. *Re 3:11*. *C. D.* 
 
 **Verses 70-72.** Spiritual promotions.
 

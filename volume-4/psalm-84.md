@@ -306,7 +306,7 @@ Not only does their faith bring forth water out of the sand and rocks of the des
 
 **Verse 1.** 
 
-1\.Why called Tabernacles? To include
+1\. Why called Tabernacles? To include
 
 (a) the holiest of all;
 
@@ -314,13 +314,13 @@ Not only does their faith bring forth water out of the sand and rocks of the des
 
 (c) The court and precincts of the Tabernacle. Amiable is predicated of these. The courts amiable—the holy place more amiable—the holiest of all most amiable.
 
-2\.Why called the Tabernacles of the Lord of Hosts? To denote
+2\. Why called the Tabernacles of the Lord of Hosts? To denote
 
 (a) Its connection with the boundless universe.
 
 (b) Its distinction from it. Present everywhere where God is peculiarly present here.
 
-3\.Why called *amiable?* 
+3\. Why called *amiable?* 
 
 (a) Because of the character in which God dwells here. Is condescension amiable? Is love? Is mercy? Is grace? These are displayed here.
 
@@ -330,17 +330,17 @@ Not only does their faith bring forth water out of the sand and rocks of the des
 
 **Verse 3.** 
 
-1\.The Eloquence of Grief. David in his banishment envies the sparrows and the swallows that had built their nests by the house of God, more than Absalom who had usurped his palace and his throne.
+1\. The Eloquence of Grief. David in his banishment envies the sparrows and the swallows that had built their nests by the house of God, more than Absalom who had usurped his palace and his throne.
 
-2\.The Ingenuity of Prayer. Why should sparrows and swallows be nearer to thy altars than I am, O Lord of hosts, my King and my God! "Fear not, ye are of more value than many sparrows." *G. R.* 
+2\. The Ingenuity of Prayer. Why should sparrows and swallows be nearer to thy altars than I am, O Lord of hosts, my King and my God! "Fear not, ye are of more value than many sparrows." *G. R.* 
 
 **Verse 4.** 
 
-1\.The Privilege suggested—dwelling in the house of God. Some birds fly over the house of God—some occasionally alight upon it—others build their nests and train up their young there. This was the privilege which the Psalmist desired.
+1\. The Privilege suggested—dwelling in the house of God. Some birds fly over the house of God—some occasionally alight upon it—others build their nests and train up their young there. This was the privilege which the Psalmist desired.
 
-2\.The Fact asserted. *Blessed are they that dwell,* etc., who make it the spiritual home of themselves and their children.
+2\. The Fact asserted. *Blessed are they that dwell,* etc., who make it the spiritual home of themselves and their children.
 
-3\.The Reason given. *They will be still,* etc.
+3\. The Reason given. *They will be still,* etc.
 
 (a) They will have much for which to praise God;
 
@@ -348,19 +348,19 @@ Not only does their faith bring forth water out of the sand and rocks of the des
 
 **Verse 5.** Man is blessed,
 
-1\.When his strength is in God. Strength to believe, strength to obey, strength to suffer.
+1\. When his strength is in God. Strength to believe, strength to obey, strength to suffer.
 
-2\.When God's ways are in him. *In whose heart,* etc. When the doctrines, precepts, and promises of God are deeply engraved upon the heart. *G. R.* 
+2\. When God's ways are in him. *In whose heart,* etc. When the doctrines, precepts, and promises of God are deeply engraved upon the heart. *G. R.* 
 
 **Verse 5.** The preciousness of intensity and enthusiasm in religious belief, worship, and life.
 
 **Verses 5-7.** The blessed people are described,
 
-1\.By their earnest desire and resolution to take this journey, though they dwelt far off from the tabernacle, Ps 84:5.
+1\. By their earnest desire and resolution to take this journey, though they dwelt far off from the tabernacle, Ps 84:5.
 
-2\.By their painful passage, yet some refreshments by the way, Ps 84:6.
+2\. By their painful passage, yet some refreshments by the way, Ps 84:6.
 
-3\.By their constant progress, till they came to the place they aimed at, Ps 84:7. *T. Manton.* 
+3\. By their constant progress, till they came to the place they aimed at, Ps 84:7. *T. Manton.* 
 
 **Verse 6.** As the valley of weeping symbolizes dejection, so a "well" symbolizes ever flowing salvation and comfort (compare Joh 4:14 Isa 12:3).
 
@@ -378,7 +378,7 @@ Not only does their faith bring forth water out of the sand and rocks of the des
 
 (e) Very profitable.
 
-2\.The toilsome effort: *make it a well.* 
+2\. The toilsome effort: *make it a well.* 
 
 (a) Comfort may be obtained in the deepest trouble.
 
@@ -386,17 +386,17 @@ Not only does their faith bring forth water out of the sand and rocks of the des
 
 (c) Comfort obtained by one is of use to others, as a well may be.
 
-3\.The heavenly supply. *The rain also filleth the pools.* All is from God; effort is of no avail without him.
+3\. The heavenly supply. *The rain also filleth the pools.* All is from God; effort is of no avail without him.
 
 **Verse 7.** 
 
-1\.Trusting God in trouble brings present comfort—Who passing, etc.
+1\. Trusting God in trouble brings present comfort—Who passing, etc.
 
-2\.Present comfort ensures still larger supplies— *The rain also*, etc. *G. R.* 
+2\. Present comfort ensures still larger supplies— *The rain also*, etc. *G. R.* 
 
 **Verse 8.** There is,
 
-1\.Progression. *They go;* 
+1\. Progression. *They go;* 
 
 (a) The people of God cannot remain stationary;
 
@@ -404,7 +404,7 @@ Not only does their faith bring forth water out of the sand and rocks of the des
 
 (c) They should always be advancing.
 
-2\.Invigoration. *From strength to strength.* 
+2\. Invigoration. *From strength to strength.* 
 
 (a) From one ordinance to another;
 
@@ -414,31 +414,31 @@ Not only does their faith bring forth water out of the sand and rocks of the des
 
 (d) from one degree of grace to another. Add faith to faith, virtue to virtue, knowledge to knowledge, etc.
 
-3\.Completion. *Every one of them,* etc. *G. R.* 
+3\. Completion. *Every one of them,* etc. *G. R.* 
 
 **Verse 8.** 
 
-1\.Prayer is not confined to the Sanctuary. David, inhis banishment, says, *Hear my prayer.* 
+1\. Prayer is not confined to the Sanctuary. David, inhis banishment, says, *Hear my prayer.* 
 
-2\.Help is not confined to the Sanctuary. The Lord ofhosts is "here, "as well as in his tabernacle. See Ps 84:1.
+2\. Help is not confined to the Sanctuary. The Lord ofhosts is "here, "as well as in his tabernacle. See Ps 84:1.
 
-3\.Grace is not confined to the Sanctuary. Here, too,in the wilderness is the covenanting God, the God of Jacob. *G. R.* 
+3\. Grace is not confined to the Sanctuary. Here, too,in the wilderness is the covenanting God, the God of Jacob. *G. R.* 
 
 **Verse 8.** Pleas for answers to prayer in the titles here used.
 
-1\.He is JEHOVAH, the living, all wise, all powerful, faithful, gracious, and immutable God.
+1\. He is JEHOVAH, the living, all wise, all powerful, faithful, gracious, and immutable God.
 
-2\.He is God of hosts, having abundant agencies under his control; he can send angels, restrain devils, actuate good men, overrule bad men, and govern all other agents.
+2\. He is God of hosts, having abundant agencies under his control; he can send angels, restrain devils, actuate good men, overrule bad men, and govern all other agents.
 
-3\.He is the God of Jacob, of chosen Jacob, as seen in Jacob's dream; God of Jacob in his banishment, in his wrestling (and so a God overcome by prayer), God pardoning Jacob's sins, God preserving Jacob and his seed after him.
+3\. He is the God of Jacob, of chosen Jacob, as seen in Jacob's dream; God of Jacob in his banishment, in his wrestling (and so a God overcome by prayer), God pardoning Jacob's sins, God preserving Jacob and his seed after him.
 
 **Verse 9.** Observe,
 
-1\.The Faith. Our shield is thine anointed—Thine Anointed is our Shield. This is not David, because he says *our* Shield, but David's greater Son. A gleam of Gospel light through the thick clouds.
+1\. The Faith. Our shield is thine anointed—Thine Anointed is our Shield. This is not David, because he says *our* Shield, but David's greater Son. A gleam of Gospel light through the thick clouds.
 
-2\.The Prayer. *Behold, O God,* etc. *Look,* etc. Look upon him as our Representative, and look upon us in him.
+2\. The Prayer. *Behold, O God,* etc. *Look,* etc. Look upon him as our Representative, and look upon us in him.
 
-3\.The Plea.
+3\. The Plea.
 
 (a) He has engaged to be our defence from thine anger;
 
@@ -446,45 +446,45 @@ Not only does their faith bring forth water out of the sand and rocks of the des
 
 **Verse 9.** 
 
-1\.What God is to us.
+1\. What God is to us.
 
-2\.What we would have him look at.
+2\. What we would have him look at.
 
-3\.Where we would be: hidden behind the shield—seen in the person of Christ.
+3\. Where we would be: hidden behind the shield—seen in the person of Christ.
 
 **Verse 10.** Here is,
 
-1\.A comparison of Places. *A day in thy courts,* etc. How much more a day in heaven! What, then, must an eternity in heaven be!
+1\. A comparison of Places. *A day in thy courts,* etc. How much more a day in heaven! What, then, must an eternity in heaven be!
 
-2\.A comparison of Persons. *I would rather be a doorkeeper*, etc. Better be the least in the Church than the greatest in the world. If "better reign in hell than serve in heaven" was Satan's first thought after he fell, it was the first thought only. *G.R.* 
+2\. A comparison of Persons. *I would rather be a doorkeeper*, etc. Better be the least in the Church than the greatest in the world. If "better reign in hell than serve in heaven" was Satan's first thought after he fell, it was the first thought only. *G. R.* 
 
 **Verse 10.** 
 
-1\.Days in God's courts. Days of hearing, of repenting, of believing, of adoration, of communion, of revival, etc.
+1\. Days in God's courts. Days of hearing, of repenting, of believing, of adoration, of communion, of revival, etc.
 
-2\.Their preciousness. Better than a thousand days of victory, of pleasure, of money making, of harvest, of discussion, of travelling amid beauties of nature.
+2\. Their preciousness. Better than a thousand days of victory, of pleasure, of money making, of harvest, of discussion, of travelling amid beauties of nature.
 
-3\.Reasons for this preciousness. They are more pleasurable, more profitable now, and more preparatory for the future and for heaven. The employment, the society, the enjoyment, the result, etc., are all better.
+3\. Reasons for this preciousness. They are more pleasurable, more profitable now, and more preparatory for the future and for heaven. The employment, the society, the enjoyment, the result, etc., are all better.
 
 **Verse 11.** 
 
-1\.What God is to his people. *A sun and shield.* 
+1\. What God is to his people. *A sun and shield.* 
 
 (a) The source of all good;
 
 (b) a defence from all evil.
 
-2\.What he gives.
+2\. What he gives.
 
 (a) Grace here;
 
 (b) glory hereafter.
 
-3\.What he withholds. All that is not good. If he withholds health or wealth, or his own smiles from us, it is because they are not good for us at that particular time. *G. R.* 
+3\. What he withholds. All that is not good. If he withholds health or wealth, or his own smiles from us, it is because they are not good for us at that particular time. *G. R.* 
 
 **Verse 12.** 
 
-1\.The one thing that makes man blessed. Trust in God. Blessed, etc.
+1\. The one thing that makes man blessed. Trust in God. Blessed, etc.
 
 (a) For all things;
 
@@ -492,7 +492,7 @@ Not only does their faith bring forth water out of the sand and rocks of the des
 
 (c) in all circumstances.
 
-2\.The Blessing contained in that one thing. God himself becomes ours;
+2\. The Blessing contained in that one thing. God himself becomes ours;
 
 (a) his mercy for our pardon;
 
@@ -504,7 +504,7 @@ Not only does their faith bring forth water out of the sand and rocks of the des
 
 (e) his all sufficiency for our supply.
 
-3\.The certainty of the blessing.
+3\. The certainty of the blessing.
 
 (a) From David's own experience;
 
@@ -516,7 +516,7 @@ Not only does their faith bring forth water out of the sand and rocks of the des
 
 The Faith of the Church Militant, made moste effectualie described in this exposition of the 84. Psalme, by that reverend Pastor, and publike Professor of God's word, in the famous universitie of Haffine in Denmarke, NICHOLAS HEMMINGIVS. A treatise written as to the instruction of the ignorant in the groundes of religion, so to the confutation of the Jews, the Turkes, Atheists, Papists, Heretiks, and all other adversaries of the trueth whatsoever. Translated out of Latin into English, &c. by THOMAS ROGERS. At London, printed by H. Middleton for Andrew Maunsel. Anno. 1581.
 
-David's Heart's Desire; or An Exposition of Psalm 84.; in Excellent Encouragments against Afflictions... by Thomas Pierson, M.A. (Reprinted in Nichol's Series of Puritan Commentaries.)
+David's Heart's Desire; or An Exposition of Psalm 84.; in Excellent Encouragments against Afflictions... by Thomas Pierson, M. A. (Reprinted in Nichol's Series of Puritan Commentaries.)
 
 An Exposition upon some select Psalms of David... By ROBERT ROLLOCK. 1600. 16mo.
 

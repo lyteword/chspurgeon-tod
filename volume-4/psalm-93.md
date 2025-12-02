@@ -110,21 +110,21 @@ And sweeps the cattle and the cots away." *Mollerus.*
 
 **Whole Psalm.** Revivals of religion described.
 
-1\.God reigns.
+1\. God reigns.
 
-2\.His power is felt.
+2\. His power is felt.
 
-3\.His kingdom is established.
+3\. His kingdom is established.
 
-4\.Opposition is overcome.
+4\. Opposition is overcome.
 
-5\.The word is valued.
+5\. The word is valued.
 
-6\.Holiness is cultivated.
+6\. Holiness is cultivated.
 
 **Verses 1-2.** The prophet in the first verse describes our King:
 
-1\.From his office.
+1\. From his office.
 
 (a) He "reigns." He is the great and chief Monarch; he is no idle spectator of things below; but wisely, and justly, and powerfully administers all things.
 
@@ -134,7 +134,7 @@ And sweeps the cattle and the cots away." *Mollerus.*
 
 (d) He is a warlike King: "He hath girded himself, " buckled his sword upon his armour; for offence towards his enemies, for defence of his kingdom.
 
-2\.From his kingdom.
+2\. From his kingdom.
 
 (a) It is universal: "The world."
 
@@ -144,53 +144,53 @@ And sweeps the cattle and the cots away." *Mollerus.*
 
 **Verses 1-2.** Shew,
 
-1\.The royal proclamation.
+1\. The royal proclamation.
 
-2\.The imperial robe.
+2\. The imperial robe.
 
-3\.The stable kingdom.
+3\. The stable kingdom.
 
-4\.The ancient throne.
+4\. The ancient throne.
 
-5\.The Eternal King. *C.A.D.* 
+5\. The Eternal King. *C. A. D.* 
 
 **Verses 1-2.** 
 
-1\.Make the great proclamation. The right, stability, antiquity, extent, perpetuity of the Lord's dominion.
+1\. Make the great proclamation. The right, stability, antiquity, extent, perpetuity of the Lord's dominion.
 
-2\.Note the different emotions it inspires. In the rebellious, condemned, loyal, &c.
+2\. Note the different emotions it inspires. In the rebellious, condemned, loyal, &c.
 
-3\.Negotiate for submission to the King. *C. A. D.* 
+3\. Negotiate for submission to the King. *C. A. D.* 
 
 **Verse 3.** The voice of the floods.
 
-1\.The voice of Nature is the voice of God.
+1\. The voice of Nature is the voice of God.
 
-2\.It is a voice from God.
+2\. It is a voice from God.
 
-3\.It is a voice for God. "God hath a voice that ever is heard, In the peal of the thunder, the chirp of the bird: It comes in the torrent, all rapid and strong, In the streamlet's soft gush, as it ripples along; In the waves of the ocean, the furrows of land, In the mountain of granite, the atom of sand; Turn where ye may, from the sky to the sod, Where can ye gaze that ye see not a God?" *G. R. Poetry by Eliza Cook.* 
+3\. It is a voice for God. "God hath a voice that ever is heard, In the peal of the thunder, the chirp of the bird: It comes in the torrent, all rapid and strong, In the streamlet's soft gush, as it ripples along; In the waves of the ocean, the furrows of land, In the mountain of granite, the atom of sand; Turn where ye may, from the sky to the sod, Where can ye gaze that ye see not a God?" *G. R. Poetry by Eliza Cook.* 
 
 **Verse 4.** 
 
-1\.God is mighty in creation.
+1\. God is mighty in creation.
 
-2\.He is mightier in providence.
+2\. He is mightier in providence.
 
-3\.He is mightiest in redemption. *G. R.* 
+3\. He is mightiest in redemption. *G. R.* 
 
 **Verse 5.** 
 
-1\.Faithfulness becometh the word of God.
+1\. Faithfulness becometh the word of God.
 
-2\.Holiness becometh the house of God. *G. R.* 
+2\. Holiness becometh the house of God. *G. R.* 
 
 **Verse 5** (last clause).
 
-1\.Holiness becometh God's typical house, the temple.
+1\. Holiness becometh God's typical house, the temple.
 
-2\.His greater spiritual house, the church.
+2\. His greater spiritual house, the church.
 
-3\.His smaller spiritual house, the believer.
+3\. His smaller spiritual house, the believer.
 
-4\.His eternal house, heaven. *C. A. D.* 
+4\. His eternal house, heaven. *C. A. D.* 
 

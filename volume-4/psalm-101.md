@@ -46,7 +46,7 @@ weight: 101
 
 ### Verse 8
 
-*Early.* From some incidental notices of Scripture (2Sa 15:2 Ps 101:8 Je 21:12), it has been inferred that judges ordinarily held their sessions in the morning. In a climate like that of Palestine, such a custom would be natural and convenient. It is doubtful, however, whether this passage expresses anything more than the promptness and zeal which a righteous judge exercises in the discharge of his duty.— *E.P. Barrows*, in *"Biblical Geography and Antiquities".*
+*Early.* From some incidental notices of Scripture (2Sa 15:2 Ps 101:8 Je 21:12), it has been inferred that judges ordinarily held their sessions in the morning. In a climate like that of Palestine, such a custom would be natural and convenient. It is doubtful, however, whether this passage expresses anything more than the promptness and zeal which a righteous judge exercises in the discharge of his duty.— *E. P. Barrows*, in *"Biblical Geography and Antiquities".*
 
 ### Verse 8
 
@@ -76,7 +76,7 @@ The holy vow "to destroy all the wicked of the lands": and to "cut off all wicke
 
 **Verse 1.** *I will sing of mercy and judgment.* It comes all to this, as if the psalmist should say, "I will sing of *merciful judgements";* for judgment is mercy, as it is the matter of the song: or, to take them separately, "I will sing of mercy *in* mercies, and, I will sing of mercy *in* judgment"; and so I will sing of my blinks and of my showers; I will sing both of my cloudy and my clear day; both of my ups and downs.— *Ralph Erskine.* 
 
-**Verse 1.** *Mercy and judgment.* As the pedge of the ship S.Paul sailed in was *Castor and Pollux,* twin brothers, so the badge of this Psalm is *Mercy and Judgment,* inseparable companions; of whom it may be said, as our prophet sometimes spake of Saul and Jonathan, "They were lovely and pleasant in their lives, and in their deaths they were not divided." These are the two brightest stars in the firmament of majesty; the two fairest flowers, and choicest jewels in the imperial crown; like the carnation and the lily, the ruby and the sapphire, or the carbuncle and the diamond, yielding a mutual and interchangeable lustre each to other. They resemble not unfitly the two supporters of the king's arms, or the two seraphim stretching out their golden wings over the propitiatory, or the white and red rose in the same escutcheon.
+**Verse 1.** *Mercy and judgment.* As the pedge of the ship S. Paul sailed in was *Castor and Pollux,* twin brothers, so the badge of this Psalm is *Mercy and Judgment,* inseparable companions; of whom it may be said, as our prophet sometimes spake of Saul and Jonathan, "They were lovely and pleasant in their lives, and in their deaths they were not divided." These are the two brightest stars in the firmament of majesty; the two fairest flowers, and choicest jewels in the imperial crown; like the carnation and the lily, the ruby and the sapphire, or the carbuncle and the diamond, yielding a mutual and interchangeable lustre each to other. They resemble not unfitly the two supporters of the king's arms, or the two seraphim stretching out their golden wings over the propitiatory, or the white and red rose in the same escutcheon.
 
 We read that Solomon set up two goodly pillars in the porch of the temple, the one called *Jachin,* the other *Boaz,* which signify stability and strength; such pillars of the state are *mercy and judgment.* The throne of the King is borne up by them, as Solomen's was with lions of ivory on each side. Therefore I as in one place it is said that *"the throne is established by justice"* (Pr 16:12); so in another that it is *"upheld by mercy"* (Pr 20:28); justice being as the bones and sinews in the body politic, and mercy as the veins and arteries. They are the two hands of action, the two eyes of virtue, and the two wings of honour. And as the eyes, if they be rightly set, do both look one way; so do mercy and judgment, however in the apprehension of the vulgar they seem to look contrary ways. And as the treble and the bass accord best music; so do they in managing the commonwealth. Wherefore David promiseth to make them both sound tunable in his song without jar or discord: *"I will sing of mercy and judgment."*...
 
@@ -122,47 +122,47 @@ As mercy is here set in the first place; so shall the sentence of mercy and abso
 
 **Whole Psalm.** This is a psalm of wills and shalls. There are nine wills and five shalls. Resolutions should be made,
 
-1\.With deliberation; not, therefore, upon trifling matters.
+1\. With deliberation; not, therefore, upon trifling matters.
 
-2\.With reservation. "If the Lord will, "etc.
+2\. With reservation. "If the Lord will, "etc.
 
-3\.With dependence upon divine strength for their fulfilment.
+3\. With dependence upon divine strength for their fulfilment.
 
-— *G.R.* 
+— *G. R.* 
 
 **Verse 1.** —
 
-1\.The sweet work that is resolved upon is to "sing."
+1\. The sweet work that is resolved upon is to "sing."
 
-2\.The sweet singer that thus resolves, namely, David, "l will sing."
+2\. The sweet singer that thus resolves, namely, David, "l will sing."
 
-3\.The sweet subject of the song, "mercy and judgment."
+3\. The sweet subject of the song, "mercy and judgment."
 
-4\.The sweet object of this praise, and the manner in which he would sing it—"Unto three, 0 Lord, will I sing."
+4\. The sweet object of this praise, and the manner in which he would sing it—"Unto three, 0 Lord, will I sing."
 
 — *Ralph Ershikine.* 
 
 **Verse 1.** What there is in mercy that affords ground of singing.
 
-1\.The freeness and undeservedhess of mercy.
+1\. The freeness and undeservedhess of mercy.
 
-2\.The unexpectedness of mercy. When I was expecting a frown I got a smile; when I was expecting nothing but wrath, I got a glance of love; instead of a stroke of vengeance, I got a view of glory.
+2\. The unexpectedness of mercy. When I was expecting a frown I got a smile; when I was expecting nothing but wrath, I got a glance of love; instead of a stroke of vengeance, I got a view of glory.
 
-3\.The seasonablehess of mercy is a ground of singing—grace to help in time of need.
+3\. The seasonablehess of mercy is a ground of singing—grace to help in time of need.
 
-4\.The greatness and riches of mercy make the recipiants there of sing.
+4\. The greatness and riches of mercy make the recipiants there of sing.
 
-5\.The sweetness of mercy makes them sing.
+5\. The sweetness of mercy makes them sing.
 
-6\.The sureness and firmness of mercy make them sing—"The sure mercies of David."
+6\. The sureness and firmness of mercy make them sing—"The sure mercies of David."
 
 —From *Ralph Erskine's* Sermon, entitled *"The Militant's Song".* 
 
 **Verse 1.** —
 
-1\.The different conditions of the righteous man in this life. Not all mercy, nor all judgment, but mercy and judgment.
+1\. The different conditions of the righteous man in this life. Not all mercy, nor all judgment, but mercy and judgment.
 
-2\.His one duty and privilege in reference to them: "I will sing, "etc.
+2\. His one duty and privilege in reference to them: "I will sing, "etc.
 
 (a) Because they are both from God.
 
@@ -172,51 +172,51 @@ As mercy is here set in the first place; so shall the sentence of mercy and abso
 
 (d) Because they are both preparative for the heavenly rest.
 
-— *G.R.* 
+— *G. R.* 
 
 **Verse 1.** The blending of song with holy living. The bell of praise and the pomegranate of holy fruitfulness should both adorn the Lord's priests.
 
 **Verse 2.** 
 
-1\.The end desired: "To behave wisely, "etc.; consistency of conduct.
+1\. The end desired: "To behave wisely, "etc.; consistency of conduct.
 
-2\.The means employed: "When wilt thou come, "etc.; only when God is with us we walk in a perfect way.
+2\. The means employed: "When wilt thou come, "etc.; only when God is with us we walk in a perfect way.
 
-3\.The test proposed: "Within my house, "where I am most myself and am best known.
+3\. The test proposed: "Within my house, "where I am most myself and am best known.
 
-— *G.R.* 
+— *G. R.* 
 
 **Verse 2.** —The wisdom of holiness.
 
-1\.In selecting our sphere of duty.
+1\. In selecting our sphere of duty.
 
-2\.In timing, :arranging, and balancing duties.
+2\. In timing, :arranging, and balancing duties.
 
-3\.In managing others according to their tempers.
+3\. In managing others according to their tempers.
 
-4\.In avoiding disputes with adversaries.
+4\. In avoiding disputes with adversaries.
 
-5\.In administering rebuke, giving alms, rendering advice, etc.; the blending of the serpent with the dove.
+5\. In administering rebuke, giving alms, rendering advice, etc.; the blending of the serpent with the dove.
 
 **Verse 2.** *—O when wilt thou come unto me?* A devout ejaculation.
 
-1\.Revealing the psalmist's need of the divine presence in order to holiness.
+1\. Revealing the psalmist's need of the divine presence in order to holiness.
 
-2\.His intense longing.
+2\. His intense longing.
 
-3\.His full expectation.
+3\. His full expectation.
 
-4\.His the rough appreciation of the condescending visit.
+4\. His the rough appreciation of the condescending visit.
 
 **Verse 2** (last clause). Home piety. Its duty, excellence, influence, sphere, and reward. Note also the change of heart and firmness of purpose necessary to it.
 
 **Verse 3.** 
 
-1\.The sight of wickedness is to be avoided: "I will set no wicked thing, "etc.
+1\. The sight of wickedness is to be avoided: "I will set no wicked thing, "etc.
 
-2\.When seen it is to be loathed: "I Hate, "etc.
+2\. When seen it is to be loathed: "I Hate, "etc.
 
-3\.When felt it is to be repudiated. It may touch me, but "it shall not cleave to me."
+3\. When felt it is to be repudiated. It may touch me, but "it shall not cleave to me."
 
 **Verse 4.** The need of extreme care in the choice of our intimates.
 

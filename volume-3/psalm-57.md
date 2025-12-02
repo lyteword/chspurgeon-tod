@@ -68,15 +68,15 @@ For a saint to hold his tongue."
 
 **Title &mdash;** A Psalm composed *when David fled from Saul in the cave,* which is referred to in Psalm 143, and which, because it is without any other distinction called "the cave, "is probably that celebrated cave where David with his six hundred followers lay concealed when Saul entered and David cut off the skirt of his robe. The king, accompanied by three thousand followers, chased him to the loftiest alpine heights—"to the sheepcotes, "where the cattle were driven in the hottest summer months only—to hunt him in every hiding place. There was a cave, in the darkened cool of which David and his men were hid. Such caves in Palestine and the East are frequently enlarged by human hands, and so capacious that they accommodate thousands of people. This song of complaint was written during the hours of suspense which David spent there, to wait until the calamity was overpast (Ps 57:2); in which he only gradually gains a stout heart (Ps 57:8). His life was really suspended by a hair, if Saul or any of his attendants had espied him! *Agustus F. Tholuck.* 
 
-**Title &mdash;** *The cave.* There appear good grounds for the local tradition which fixes the cave on the borders of the Dead Sea, although there is no certainty with regard to the particular cave pointed out. The cave so designated is at a point to which David was far more likely to summon his parents, whom he intended to take from Bethlehem in to Moab, than to any place in the western plains... It is an immense natural cavern, the mouth of which can be approached only on foot along the side of the cliff. Irby and Mangles, who visited it without being aware that it was the reputed Cave of Adullam, state that it "runs in by a long, winding, narrow passage, with small chambers or cavities on either side. We soon came to a large chamber with natural arches of great height; from this last there were numerous passages, leading in all directions, occasionally joined by others at right angles, and forming a perfect labyrinth, which our guides assured us had never been perfectly explored—the people being afraid of losing themselves. The passages are generally four feet high by three feet wide, and were all on a level with each other."...It seems probable that David as a native of Bethlehem, must have been well acquainted with this remarkable spot, and had probably often availed himself of its shelter, when out with his father's flocks. It would, therefore, naturally occur to him as a place of refuge when he fled from Gath. *John Kitto (1804-1854), in "A Cyclopaedia of Biblical Literature."* 
+**Title &mdash;** *The cave.* There appear good grounds for the local tradition which fixes the cave on the borders of the Dead Sea, although there is no certainty with regard to the particular cave pointed out. The cave so designated is at a point to which David was far more likely to summon his parents, whom he intended to take from Bethlehem in to Moab, than to any place in the western plains... It is an immense natural cavern, the mouth of which can be approached only on foot along the side of the cliff. Irby and Mangles, who visited it without being aware that it was the reputed Cave of Adullam, state that it "runs in by a long, winding, narrow passage, with small chambers or cavities on either side. We soon came to a large chamber with natural arches of great height; from this last there were numerous passages, leading in all directions, occasionally joined by others at right angles, and forming a perfect labyrinth, which our guides assured us had never been perfectly explored—the people being afraid of losing themselves. The passages are generally four feet high by three feet wide, and were all on a level with each other."... It seems probable that David as a native of Bethlehem, must have been well acquainted with this remarkable spot, and had probably often availed himself of its shelter, when out with his father's flocks. It would, therefore, naturally occur to him as a place of refuge when he fled from Gath. *John Kitto (1804-1854), in "A Cyclopaedia of Biblical Literature."* 
 
 **Whole Psalm.** Mystically this hymn may be construed of Christ, who was in the days of his flesh assaulted by the tyranny both of spiritual and temporal enemies. His temporal enemies, Herod and Pontius Pilate, with the Gentiles and people of Israel, furiously raged and took counsel together against him. The chief priests and princes were, saith Hierome, like *lions,* and the people like the *whelps of lions,* all of them in a readiness to devour his soul. The rulers *laid a net for his feet* in their captious interrogatories, asking (Mt 22:17), "Is it lawful to give tribute unto Caesar, or not?" and (Joh 8:5) whether the woman taken in the very act of adultery should be stoned to death or no. The people were *"set on fire, "* when as they raged against him, and *their teeth and tongues were spears and swords* in crying, "Crucify him, crucify him." His spiritual enemies also sought *to swallow him up;* his *soul was among lions* all the days of his life, at the hour of his death especially. The devil in tempting and troubling him, had *laid a snare for his feet;* and death, in *digging a pit* for him, had thought *to devour* him. As David was in death, so Christ the Son of David was in the *grave. John Boys,* 1571-1625.
 
 **Verse 1.** *Be merciful unto me, O God,* etc. This excellent Psalm was composed by David when there was enough to discompose the best man in the world. The repetition notes both the extremity of the danger, and the ardency of the supplicant. *Mercy! Mercy! Nothing but mercy,* and that exerting itself in any extraordinary way, can now save him from ruin. The arguments he pleads for obtaining mercy in this distress are very considerable.
 
-1\.He pleads his reliance upon God as an argument to move mercy. *My soul trusteth in thee,* etc. This his trust and dependence upon God, though it be not argumentative in respect of the dignity of the *act;* yet it is so in respect both of the nature of the *object,* a compassionate God who will not expose any that take shelter under his wings, and in respect of the *promise,* whereby protection is assured to them that fly to him for sanctuary. Isa 26:3.
+1\. He pleads his reliance upon God as an argument to move mercy. *My soul trusteth in thee,* etc. This his trust and dependence upon God, though it be not argumentative in respect of the dignity of the *act;* yet it is so in respect both of the nature of the *object,* a compassionate God who will not expose any that take shelter under his wings, and in respect of the *promise,* whereby protection is assured to them that fly to him for sanctuary. Isa 26:3.
 
-2\.He pleads former experiences of his help in past distresses, as an argument encouraging hope under the present strait (Ps 57:2). *John Flavel.* 
+2\. He pleads former experiences of his help in past distresses, as an argument encouraging hope under the present strait (Ps 57:2). *John Flavel.* 
 
 **Verse 1.** *Be merciful unto me.* According to the weight of the burden that grieveth us, is the cry that comes from us. How do poor condemned prisoners cry to their judges, "Have pity upon us, have pity upon us!" David, in the day of his calamities doubles his prayer for mercy: *Be merciful unto me, O God, be merciful unto me: for my soul trusteth in thee,* etc., *Until these calamities be overpast.* It was not a single calamity, but a multitude of calamities which compassed David, and therefore he compasseth the Lord about with petitions. His spirit being up in prayer, like a bell that rings out, he strikes on both sides, *Be merciful unto me, O God, be merciful unto me. Joseph Caryl.* 
 
@@ -114,11 +114,11 @@ For a saint to hold his tongue."
 
 **Verse 7.** *My heart is fixed, O God,* etc. Fitness for duty lies in the orderly temper of body and mind, making a man willing to undertake, and able to finish his work with comfortable satisfaction. If either the body or mind be distempered, a man is unfit for such an undertaking; both must be in a suitable frame, like a well tuned instrument, else there will be no melody: hence when David prepared himself for praises and worship, he tells us *his heart was ready and fixed,* and then, his *tongue* was ready also (Ps 45:1), so was his hand with psaltery and harp; all these were awakened into a suitable posture. That a man is or hath been in a fit order for service may be concluded from
 
-1\.His alacrity to undertake a duty.
+1\. His alacrity to undertake a duty.
 
-2\.His activity in the prosecution.
+2\. His activity in the prosecution.
 
-3\.His satisfaction afterward. Right grounds and principles in these things being still presupposed. *Richard Gilpin (1625-1699,1700), in "Daemonologia Sacra."* 
+3\. His satisfaction afterward. Right grounds and principles in these things being still presupposed. *Richard Gilpin (1625-1699,1700), in "Daemonologia Sacra."* 
 
 **Verse 7.** *I will sing.* It should alarm the wicked that they are contending with a people who sing and shout on the battle field. Yea, they never sing louder than when most distressed and afflicted. Whether saints conquer or are conquered they still sing on. Blessed be God for that. Let sinners tremble at contending with men of a spirit so heavenly. *William S. Plumer.* 
 
@@ -134,19 +134,19 @@ For a saint to hold his tongue."
 
 **Verse 8.** It will answer our purpose to take notice, first, of the *terms* David uses, and then, secondly, press the *exhortation.* Of the terms he uses:
 
-1\.My *glory.* That is my *soul* (say some) because the spirit of a man is the glory of a man, whereby he is dignified and raised so much above the *brutes,* as to be but a "little lower than the angels, "nay, to be akin to God himself, "the Father of spirits." My *musical skill,* say others, the glory of the artist above the unskilful; and that wherein David had the glory of excelling, as Jubal had of the first invention. My *tongue,* say others; for this is also the glory of a man above the dumb creatures, and the glory of a wise man above a fool. And as the tongue is the glory of a man, so the glory of the tongue is to glorify God. Praise is the glory of all other uses to which the tongue is employed; and the tongue is, in the body, that "temple of the Holy Ghost, "what the silver trumpet was in the temple of Solomon; to sound the high praises of God, and express the raised affections of our souls.
+1\. My *glory.* That is my *soul* (say some) because the spirit of a man is the glory of a man, whereby he is dignified and raised so much above the *brutes,* as to be but a "little lower than the angels, "nay, to be akin to God himself, "the Father of spirits." My *musical skill,* say others, the glory of the artist above the unskilful; and that wherein David had the glory of excelling, as Jubal had of the first invention. My *tongue,* say others; for this is also the glory of a man above the dumb creatures, and the glory of a wise man above a fool. And as the tongue is the glory of a man, so the glory of the tongue is to glorify God. Praise is the glory of all other uses to which the tongue is employed; and the tongue is, in the body, that "temple of the Holy Ghost, "what the silver trumpet was in the temple of Solomon; to sound the high praises of God, and express the raised affections of our souls.
 
 2\. *Awake, psaltery and harp.* The one for a psalm, the other for a spiritual song or hymn; that is to say, all my musical instruments and skill I will employ in and consecrate to the glory of him who "puts new songs into my mouth." He first teaches my fingers to fight, and then to play the *epinikion,* or song of triumph. Sound, then, my psaltery and harp, emulous of those that are around the throne above; your melody can soften my cares, lay my fears, and turn my *cave* into a *choir.* As to these instruments in the worship of God, they were doubtless allowed to David, and to the church in his time. They were agreeable to the state of that church and people, who were led very much by their senses; and whose infant and less discerning condition made it needful for the natural man to have something to fasten upon and be entertained with in the worship of God and to sweeten and take off from the labour and burden of that service. But as the gospel worship and appointments are a more spiritual, pleasant, and reasonable service, and need them less, so in the gospel institution we find no footsteps of them; and we know who first brought them into the church, as well as who first brought them into the world. It is not my business here to dispute this matter; and he must at any time do it but indifferently, whose inclination is against him all the while, and whose genius tempts him to wish himself solidly confuted in all he can advance. But since I find these instruments in my text, and since the sound of such texts as these is made use of to turn the public worship so frequently into concerts of music, I shall leave them with this remark: that to let them alone, especially in public worship, though one thought them tolerable, has a much better grace with it than to declare them "sorely displeasing to God, and that they filthily defile his holy house and place of prayer."
 
 3\. *I myself will awake early.* And without this, all the rest have been an empty sound; there would have been no melody to the Lord, whatsoever good music he might have made to himself. He would not put God off with a sacrifice of mere air. He summons the attendance of all his powers. Himself is the offering; and his music plays to the sacrifice, as it goes up in holy affections and spiritual joys; and unless these accompany the song, the mere breath of an organ, or the trembling of the strings of an harp is as good devotion and less offensive to God. Consider the *nature and excellency of the duty.* Singing psalms is a compound of several other duties. It contains prayer to a very great advantage: the stretch of the voice does humour and lead on the earnest reaching of the mind after the desired blessing. It is the very element and breath of praise; and the apostle tells us that "teaching and admonishing one another" is performed in singing "psalms and hymns and spiritual songs." For when we sing of *judgment,* it is awakening to sinners; and when we sing of *mercy,* it is comforting to all. Meditation cannot have a better help. The solemn movement of the time gives room for the mind to compass the full sense of the matter, and to impress it deep; and while the tongue is making the *pause,* the heart may make the *elevation.* In short, it gives an accent to all duty; it is the music of all other ordinances; it is adapted and suited to all circumstances; as appears from the psalms composed upon all occasions and subjects, doctrinal, prophetical, oratory, and historical; of praise and prayer, of grief and joy, in the penitential and complaining, in the triumphal and rejoicing; as if singing of psalms could stand for everything, and, like the manna in the wilderness, gives a taste of all the other food we enjoy in the house of God.
 
-Benjamin Grosvenor, D.D. (1675-1758), in "An Exhortation to the *Duty of Singing, " Eastcheap Lectures,* 1810.
+Benjamin Grosvenor, D. D. (1675-1758), in "An Exhortation to the *Duty of Singing, " Eastcheap Lectures,* 1810.
 
 **Verse 8.** The *psaltery* was a stringed instrument, usually with twelve strings, and played with the fingers. The *harp* or lyre was a stringed instrument, usually consisting of ten strings. Josephus says that it was struck or played with a key. It appears, however, that it was sometimes played with the fingers. *Albert Barnes.* 
 
 **Verse 9.** *I will praise thee, O Lord, among the people.* The Spirit of God who indited this scripture, made his penman know that the Gentiles should have the use of his Psalms. *David Dickson.* 
 
-**Verse 9.** *The people—the nations.* The Hebrew church was neither called nor qualified to be a missionary society, but it never ceased to desire and hope for the conversion of the nations. This is seen in those passages in which the psalmists betray a consciousness that they shall one day have all the world for auditors. How boldly does David exclaim, *I will sing unto thee among the nations.* In the same spirit, a later psalmist summons the church to lift up her voice, so that all the nations may hear her recital of the Lord's mighty acts: *O give thanks unto the Lord; call upon his name: make known his deeds among the people.* Ps 105:1. The full import of this class of texts is often hidden from the English reader by the circumstance that our translators have hardly ever used the word *people* in its plural form. Twice in the Revelation they venture to write *peoples;* everywhere else the singular form has to do duty for both numbers; so that in not a few passages the sense is greatly obscured to those who have no access either to the original or to other versions. In the Psalms, in particular, the mention of the Gentiles is more frequent than the English reader is made aware of. It is to be observed, moreover, that in addition to this strain of indirect prediction, the conversion of the world is articulately celebrated in many glorious Psalms. Indeed, so numerous are these, and so generally distributed over the centuries between David and Ezra, that it would seem that at no time during the long history of inspired Psalmody, did the Spirit cease to indite new songs in which the children of Zion might give utterance to their world embracing hopes. *William Binnie, D.D., in "The Psalms: their History, Teachings, and Use, "* 1870.
+**Verse 9.** *The people—the nations.* The Hebrew church was neither called nor qualified to be a missionary society, but it never ceased to desire and hope for the conversion of the nations. This is seen in those passages in which the psalmists betray a consciousness that they shall one day have all the world for auditors. How boldly does David exclaim, *I will sing unto thee among the nations.* In the same spirit, a later psalmist summons the church to lift up her voice, so that all the nations may hear her recital of the Lord's mighty acts: *O give thanks unto the Lord; call upon his name: make known his deeds among the people.* Ps 105:1. The full import of this class of texts is often hidden from the English reader by the circumstance that our translators have hardly ever used the word *people* in its plural form. Twice in the Revelation they venture to write *peoples;* everywhere else the singular form has to do duty for both numbers; so that in not a few passages the sense is greatly obscured to those who have no access either to the original or to other versions. In the Psalms, in particular, the mention of the Gentiles is more frequent than the English reader is made aware of. It is to be observed, moreover, that in addition to this strain of indirect prediction, the conversion of the world is articulately celebrated in many glorious Psalms. Indeed, so numerous are these, and so generally distributed over the centuries between David and Ezra, that it would seem that at no time during the long history of inspired Psalmody, did the Spirit cease to indite new songs in which the children of Zion might give utterance to their world embracing hopes. *William Binnie, D. D., in "The Psalms: their History, Teachings, and Use, "* 1870.
 
 **Verses 10-11.** A hard and ungrateful heart beholds even in prosperity only isolated drops of divine grace; but a grateful one like David's, though chased by persecutors, and striking the harp in the gloom of a cave, looks upon the mercy and faithfulness of God as a mighty ocean, waving and heaving from the earth to the clouds, and from the clouds to the earth again. *Agustus F. Tholuck.* 
 
@@ -156,13 +156,13 @@ Benjamin Grosvenor, D.D. (1675-1758), in "An Exhortation to the *Duty of Singing
 
 **Verse 1.** (*first clause* ). *Repetition in prayer.* 
 
-1\.Its dangers. May degenerate into "vain repetitions." Carried to excess painfully suggests the idea, God is unwilling.
+1\. Its dangers. May degenerate into "vain repetitions." Carried to excess painfully suggests the idea, God is unwilling.
 
-2\.Its uses. Eases the soul like tears. Manifests intense emotion. Enables those of less mental activity to join in the general supplication. *R. A. Griffin.* 
+2\. Its uses. Eases the soul like tears. Manifests intense emotion. Enables those of less mental activity to join in the general supplication. *R. A. Griffin.* 
 
 **Verse 1.** Here are—
 
-1\.Calamities:
+1\. Calamities:
 
 (a) War.
 
@@ -176,19 +176,19 @@ Benjamin Grosvenor, D.D. (1675-1758), in "An Exhortation to the *Duty of Singing
 
 (f)Curse of a broken law.
 
-2\.Here is a refuge from these calamities.
+2\. Here is a refuge from these calamities.
 
 (a) In God.
 
 (b) Specially in the mercy of God.
 
-3\.There is flying to that refuge.
+3\. There is flying to that refuge.
 
 (a) By faith; *My soul trusteth in thee*; *Under the shadow,* etc.
 
 (b) By prayer; *"Be  "* etc.
 
-4\.Here is continuance both in faith and prayer; *until, etc. G. R.* 
+4\. Here is continuance both in faith and prayer; *until, etc. G. R.* 
 
 **Verses 1, 4, 6-7.** Note the varying condition of the same heart, at the same time. *My soul trusteth in thee... My soul is among lions... My soul is bowed down... My heart is fixed.* 
 
@@ -196,19 +196,19 @@ Benjamin Grosvenor, D.D. (1675-1758), in "An Exhortation to the *Duty of Singing
 
 **Verse 2.** Strange reasons.
 
-1\.The psalmist in the depth of distress, cries to God, because he is most high in glory. Surely this thought might well paralyse him with the fear of divine inaccessibility, but the soul quickened with suffering, sees through and beyond the metaphor, rejoices in the truth, "Though the Lord be high, yet hath he respect unto the lowly."
+1\. The psalmist in the depth of distress, cries to God, because he is most high in glory. Surely this thought might well paralyse him with the fear of divine inaccessibility, but the soul quickened with suffering, sees through and beyond the metaphor, rejoices in the truth, "Though the Lord be high, yet hath he respect unto the lowly."
 
-2\.He cries to God for help, because God *is* performing all things for him. Why urge him then? Prayer is the music to which "the mighty man of war" goes forth to battle. *R. A. G.* 
+2\. He cries to God for help, because God *is* performing all things for him. Why urge him then? Prayer is the music to which "the mighty man of war" goes forth to battle. *R. A. G.* 
 
 **Verse 3.** The saints comfort in adversity.
 
-1\.All contingencies are provided for: *He shall* (or will) *send.* 
+1\. All contingencies are provided for: *He shall* (or will) *send.* 
 
-2\.The highest resources are available: *from* heaven.
+2\. The highest resources are available: *from* heaven.
 
-3\.The worst foes will be overcome in the end: *him* that would swallow me up.
+3\. The worst foes will be overcome in the end: *him* that would swallow me up.
 
-4\.By the holiest means: *mercy and truth. R. A. G.* 
+4\. By the holiest means: *mercy and truth. R. A. G.* 
 
 **Verse 3.** The celestial messengers. What they are. The certainty of their being sent. Their efficient operation. The grateful receiver.
 
@@ -216,9 +216,9 @@ Benjamin Grosvenor, D.D. (1675-1758), in "An Exhortation to the *Duty of Singing
 
 **Verse 5.** 
 
-1\.The end which God has in view, both in heaven and earth, in a sinful and in sinless worlds—his own glory.
+1\. The end which God has in view, both in heaven and earth, in a sinful and in sinless worlds—his own glory.
 
-2\.Our duty to acquiesce in that end: *Be thou,* etc.—Not self, not men, not angels— *Be thou* exalted, etc. In this we should acquiesce—
+2\. Our duty to acquiesce in that end: *Be thou,* etc.—Not self, not men, not angels— *Be thou* exalted, etc. In this we should acquiesce—
 
 (a) Actively, by seeking that end.
 
@@ -228,9 +228,9 @@ Benjamin Grosvenor, D.D. (1675-1758), in "An Exhortation to the *Duty of Singing
 
 **Verse 7.** 
 
-1\.What is fixed? the heart, not the mind merely, but the will, the conscience, the affections, which draw the mind after them: *My heart is fixed* —found an anchorage, a resting place, not therefore at the mercy of every gale, etc.
+1\. What is fixed? the heart, not the mind merely, but the will, the conscience, the affections, which draw the mind after them: *My heart is fixed* —found an anchorage, a resting place, not therefore at the mercy of every gale, etc.
 
-2\.The objects upon which it is fixed.
+2\. The objects upon which it is fixed.
 
 (a) Upon God.
 
@@ -240,7 +240,7 @@ Benjamin Grosvenor, D.D. (1675-1758), in "An Exhortation to the *Duty of Singing
 
 (d) Upon heaven.
 
-3\.The fixedness of the heart upon these objects, denotes—
+3\. The fixedness of the heart upon these objects, denotes—
 
 (a) Singleness of aim.
 
@@ -250,51 +250,51 @@ Benjamin Grosvenor, D.D. (1675-1758), in "An Exhortation to the *Duty of Singing
 
 **Verses 7-9.** 
 
-1\.He that will be thankful must treasure up in his heart and memory the courtesy that is done him; so had David done, and therefore he mentions *his heart;* and to make it more emphatic, he names it again, *My heart.* 
+1\. He that will be thankful must treasure up in his heart and memory the courtesy that is done him; so had David done, and therefore he mentions *his heart;* and to make it more emphatic, he names it again, *My heart.* 
 
-2\.After he remembers it, he must be affected with it, and resolve upon it; so doth David: *My heart is ready,* or else, *My heart is fixed;* confirmed I am in it to be thankful, and I cannot be altered.
+2\. After he remembers it, he must be affected with it, and resolve upon it; so doth David: *My heart is ready,* or else, *My heart is fixed;* confirmed I am in it to be thankful, and I cannot be altered.
 
-3\.It is not enough that a man carry about with him a thankful heart he must *anunciare,* tell it abroad, and make it known publicly what God hath done for him; yea, and do it joyfully too: *I will,* saith David, *sing and give praise.* 
+3\. It is not enough that a man carry about with him a thankful heart he must *anunciare,* tell it abroad, and make it known publicly what God hath done for him; yea, and do it joyfully too: *I will,* saith David, *sing and give praise.* 
 
-4\.He must use all means he can to make it known— *"tongue, ""psaltery, "* and *"harp, "* all are little enough. Whence, by an apostrophe, David turns to these. *Awake, my glory: i.e., Tongue, awake; lute and harp, awake; I myself will awake.* 
+4\. He must use all means he can to make it known— *"tongue, ""psaltery, "* and *"harp, "* all are little enough. Whence, by an apostrophe, David turns to these. *Awake, my glory: i.e., Tongue, awake; lute and harp, awake; I myself will awake.* 
 
-5\.He must not do it in a sleepy manner, but with intention and earnestness of spirit: *"Awake, awake, I will awake."* 
+5\. He must not do it in a sleepy manner, but with intention and earnestness of spirit: *"Awake, awake, I will awake."* 
 
-6\.He must take the first opportunity to do it, and not hang off and delay it. *I will awake early.* 
+6\. He must take the first opportunity to do it, and not hang off and delay it. *I will awake early.* 
 
-7\.He must do it in such a place, and such an assembly as may most redound to God's honour: *I will praise thee, O Lord, among the people: I will sing unto thee among the nations. William Nicholson.* 
+7\. He must do it in such a place, and such an assembly as may most redound to God's honour: *I will praise thee, O Lord, among the people: I will sing unto thee among the nations. William Nicholson.* 
 
 **Verse 9.** Who? *I.* What? *Will praise.* Whom? *Thee, O Lord.* Where? *Among the people.* Why?
 
 **Verse 9.** Public profession.
 
-1\.A necessity.
+1\. A necessity.
 
-2\.A privilege.
+2\. A privilege.
 
-3\.A duty. *R. A. G.* 
+3\. A duty. *R. A. G.* 
 
 **Verse 10.** The mercy of God reaches to the heavens.
 
-1\.As a throne. God is exalted in our eyes by his mercy.
+1\. As a throne. God is exalted in our eyes by his mercy.
 
-2\.As a ladder. By mercy we ascend from earth to heaven.
+2\. As a ladder. By mercy we ascend from earth to heaven.
 
-3\.As a rainbow. Present and past mercies argue exemption for the saints from the wrath of heaven.
+3\. As a rainbow. Present and past mercies argue exemption for the saints from the wrath of heaven.
 
-4\.As a mountain. Its base is on the earth though its summit is lost in clouds. The influence of the cross towers to the heaven of heavens. Who can tell the glory of the summit of this mountain, whose *base* is refulgent with glory! *R. A. G.* 
+4\. As a mountain. Its base is on the earth though its summit is lost in clouds. The influence of the cross towers to the heaven of heavens. Who can tell the glory of the summit of this mountain, whose *base* is refulgent with glory! *R. A. G.* 
 
 **Verse 10.** The amazing greatness of mercy.
 
-1\.It is not said merely that it is high as heaven, but great unto the heavens. It is *high* as the heavens, overtopping the greatest sin, and highest thought of man.
+1\. It is not said merely that it is high as heaven, but great unto the heavens. It is *high* as the heavens, overtopping the greatest sin, and highest thought of man.
 
-2\.It is *wide* as the far reaching sky, compassing men of all ages, countries, classes, etc.
+2\. It is *wide* as the far reaching sky, compassing men of all ages, countries, classes, etc.
 
-3\.It is *deep.* Everything of God is proportionate; this, therefore, is deep in abiding foundation, and infinite wisdom.
+3\. It is *deep.* Everything of God is proportionate; this, therefore, is deep in abiding foundation, and infinite wisdom.
 
 ## Works Upon The Fifty-Seventh Psalm
 
-The Works of JOHN BOYS, D.D., "Deane of Canterburie, "1629, folio, pp. 834-40, contains an Exposition of Psalm 57.
+The Works of JOHN BOYS, D. D., "Deane of Canterburie, "1629, folio, pp. 834-40, contains an Exposition of Psalm 57.
 
 In CHANDLER'S *"Life of David, "* Vol. 1., pp. 176-9, there is an Exposition of this Psalm.
 

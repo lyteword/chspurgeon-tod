@@ -80,9 +80,9 @@ He who communes with God is always at home. The divine omnipresence surrounds su
 
 **Verse 2.** *Lead me to the rock that is higher than I.* The *tower,* in Ps 18:2, is *"an high tower, "* and the *rock* is here an *high rock,* the rock *higher than I;* and yet there is a way to get into the highest towers; by scaling ladders a man may get over the high walls of towers. This tower and rock were too high for David himself to get into, and therefore he sets to the scaling ladder. *"Lead me to the rock,* and into the tower *that is higher than I. Hear my cry, attend unto my prayer."* So he makes prayer the scaling ladder to get upon that rock and into that tower that otherwise had been too high for him; he gets that safety and deliverance which otherwise but by prayer unto God had been impossible to have been obtained. *Jeremiah Dyke.* 
 
-**Verse 2.** *Lead me to the rock that is higher than I.* The language is very remarkable. It gives us the idea of a man suffering shipwreck. The vessel in which he has been sailing has sunk. He has been plunged into the mighty ocean; and there he is buffeting the waves, struggling for life, panting for breath, and just about to give up all for lost. Suddenly he discovers a *rock* towering above him. If he can but climb up to the top of it, and get sure footing upon it, the billows will not be able to reach him, and he will be safe. Now, the prayer in our text is the cry of that poor wretch for help. He is so spent and exhausted, that he cannot reach the rock *himself.* He shouts aloud for the friendly hand of some one stronger than himself, or for a rope that may be flung to him by those who are already safe on the rock, if by these helps he may gain it. *Lead me to the rock*, cries the poor perishing wretch. "O, lead me, guide me, direct me to it; for I am so worn and spent, that I cannot reach it otherwise. I am at the point to die; and I must sink, and be no more seen for ever, if there is none to help me." Thus he calls for some one to rescue him from the deep, and to place him on the *rock.* But what rock? He knows that unless the rock be a high one, he will not be in safety, though he should be on it. *The rock,* he says, "must be *higher than I,* or the waves will reach me, and wash me off again." It is not a rock, the top of which just shows itself above the sea, no higher than a man's own body, that will save the life of a shipwrecked mariner. Such a rock may occasion the wreck, but it will not afford any help to the sufferers afterwards; it is a rock to split upon for destruction, not to stand upon for safety. *Lead me to the rock*, or as it is in the Prayer book version, "Set me upon the rock that is *higher than I!"*...The text having shown us the *danger of sin,* does not leave us comfortless; it shows us the *security of the refuge.* We have before remarked, that the prayer of David, as a shipwrecked man, is, to be "led to, "and set upon a *rock,* that is *higher than himself.* The expression seems to imply much. The rock that is higher than *he,* must be higher than *any man;* for David was a mighty monarch. He implies, therefore, that the refuge he seeks must be more than any "arm of flesh" can afford him; it must be therefore *divine. Condensed from a Sermon by Fountain Elwin,* 1842.
+**Verse 2.** *Lead me to the rock that is higher than I.* The language is very remarkable. It gives us the idea of a man suffering shipwreck. The vessel in which he has been sailing has sunk. He has been plunged into the mighty ocean; and there he is buffeting the waves, struggling for life, panting for breath, and just about to give up all for lost. Suddenly he discovers a *rock* towering above him. If he can but climb up to the top of it, and get sure footing upon it, the billows will not be able to reach him, and he will be safe. Now, the prayer in our text is the cry of that poor wretch for help. He is so spent and exhausted, that he cannot reach the rock *himself.* He shouts aloud for the friendly hand of some one stronger than himself, or for a rope that may be flung to him by those who are already safe on the rock, if by these helps he may gain it. *Lead me to the rock*, cries the poor perishing wretch. "O, lead me, guide me, direct me to it; for I am so worn and spent, that I cannot reach it otherwise. I am at the point to die; and I must sink, and be no more seen for ever, if there is none to help me." Thus he calls for some one to rescue him from the deep, and to place him on the *rock.* But what rock? He knows that unless the rock be a high one, he will not be in safety, though he should be on it. *The rock,* he says, "must be *higher than I,* or the waves will reach me, and wash me off again." It is not a rock, the top of which just shows itself above the sea, no higher than a man's own body, that will save the life of a shipwrecked mariner. Such a rock may occasion the wreck, but it will not afford any help to the sufferers afterwards; it is a rock to split upon for destruction, not to stand upon for safety. *Lead me to the rock*, or as it is in the Prayer book version, "Set me upon the rock that is *higher than I!"*... The text having shown us the *danger of sin,* does not leave us comfortless; it shows us the *security of the refuge.* We have before remarked, that the prayer of David, as a shipwrecked man, is, to be "led to, "and set upon a *rock,* that is *higher than himself.* The expression seems to imply much. The rock that is higher than *he,* must be higher than *any man;* for David was a mighty monarch. He implies, therefore, that the refuge he seeks must be more than any "arm of flesh" can afford him; it must be therefore *divine. Condensed from a Sermon by Fountain Elwin,* 1842.
 
-**Verse 2.** It is more the image of one overtaken by the tide, as he is hastening onwards to get beyond its reach, and yet with every step he sees it rolling nearer and nearer to him; he hears its angry roar, the loosening sand sinks beneath his tread—a few minutes more, and the waves will be around him; despair hath *"overwhelmed his heart; "* when in the very depths of his agony he sees a point of rock high above the waves. "O that I could reach it and be safe!" And then comes the cry, the agonizing cry, to him that is mighty to save, *Lead me to the rock that is higher than I.* It is the sinner's cry to the sinner's Saviour! *Barton Bouchier, A.M., in "Manna in the Heart; or, Daily Comments on the Book of Psalms,"* 1855.
+**Verse 2.** It is more the image of one overtaken by the tide, as he is hastening onwards to get beyond its reach, and yet with every step he sees it rolling nearer and nearer to him; he hears its angry roar, the loosening sand sinks beneath his tread—a few minutes more, and the waves will be around him; despair hath *"overwhelmed his heart; "* when in the very depths of his agony he sees a point of rock high above the waves. "O that I could reach it and be safe!" And then comes the cry, the agonizing cry, to him that is mighty to save, *Lead me to the rock that is higher than I.* It is the sinner's cry to the sinner's Saviour! *Barton Bouchier, A. M., in "Manna in the Heart; or, Daily Comments on the Book of Psalms,"* 1855.
 
 **Verse 2.** *Lead me to the rock.* If we would find ourselves upon the rock, and enjoy the realisation of being so, we must be dependent upon another's hand. And that hand can do everything for us, even in our worst of times. When we are so blinded by the salt waves that dash in our eyes, so reeling in brain that we perhaps cannot think, much less make continuous efforts, there is a hand which can lead us, which can draw us out of the waters, which can set our feet upon the rock. Surely we have already experienced the power and tenderness of that hand? and it may be that in the reader's case, the waves, as they made sure of their prey, found it supernaturally drawn forth from them, that it might be set upon a rock, immoveable amid all the waters, and sufficient amid all storms! *Philip Bennett Power.* 
 
@@ -112,29 +112,29 @@ He who communes with God is always at home. The divine omnipresence surrounds su
 
 Whole Psalm. The progressive *I wills.* 
 
-1\.I will cry.
+1\. I will cry.
 
-2\.I will abide in thy tabernacle.
+2\. I will abide in thy tabernacle.
 
-3\.I will trust.
+3\. I will trust.
 
-4\.I will sing praise.
+4\. I will sing praise.
 
 **Verse 1.** Answers to prayer to be earnestly sought.
 
-1\.What hinders the answer of prayer?
+1\. What hinders the answer of prayer?
 
-2\.What is our duty when answers are denied?
+2\. What is our duty when answers are denied?
 
-3\.What encouragements we have to believe that the delay is only temporary.
+3\. What encouragements we have to believe that the delay is only temporary.
 
 **Verse 2.** *Lead me.* 
 
-1\.Show me the way: reveal Jesus.
+1\. Show me the way: reveal Jesus.
 
-2\.Enable me to tread it: work faith in me.
+2\. Enable me to tread it: work faith in me.
 
-3\.Uplift me when I cannot tread: do for me what is beyond me.
+3\. Uplift me when I cannot tread: do for me what is beyond me.
 
 **Verse 2.** *Higher than I.* Jesus greater than our highest efforts, attainments, desires, expectations, conceptions.
 
@@ -142,13 +142,13 @@ Whole Psalm. The progressive *I wills.*
 
 **Verse 2.** The heart's cry and desire.
 
-1\.A recognition of a place of safety; then,
+1\. A recognition of a place of safety; then,
 
-2\.We have this place brought before us, as abundantly sufficient, when personal weakness has been realised.
+2\. We have this place brought before us, as abundantly sufficient, when personal weakness has been realised.
 
-3\.This place cannot be attained without the help of another's hand.
+3\. This place cannot be attained without the help of another's hand.
 
-4\.The character of this refuge, and the position of a believer when availing himself of it: the place of refuge is "a rock, "and the position of the believer is "upon a rock." *P. B. Power.* 
+4\. The character of this refuge, and the position of a believer when availing himself of it: the place of refuge is "a rock, "and the position of the believer is "upon a rock." *P. B. Power.* 
 
 **Verses 2-3.** 
 
@@ -168,29 +168,29 @@ Whole Psalm. The progressive *I wills.*
 
 **Verses 5, 8.** 
 
-1\.Vows heard in heaven.
+1\. Vows heard in heaven.
 
-2\.Vows to be carefully fulfilled on earth.
+2\. Vows to be carefully fulfilled on earth.
 
 **Verse 5.** (*second clause* ).
 
-1\.They that fear God have a "heritage."
+1\. They that fear God have a "heritage."
 
-2\.This heritage is "given."
+2\. This heritage is "given."
 
-3\.We may know that we possess it. *William Jay.* 
+3\. We may know that we possess it. *William Jay.* 
 
 **Verse 6.** Our King, his eternal existence, our personal joy in this, and our joy for our descendants.
 
 **Verses 4, 7.** 
 
-1\.My privilege, *I will abide* (Ps 61:4).
+1\. My privilege, *I will abide* (Ps 61:4).
 
-2\.The ground of it, *He shall abide,* etc. (Ps 61:7).
+2\. The ground of it, *He shall abide,* etc. (Ps 61:7).
 
 **Verses 5, 8.** 
 
-1\.Vows heard in heaven.
+1\. Vows heard in heaven.
 
-2\.Vows to be carefully fulfilled on earth.
+2\. Vows to be carefully fulfilled on earth.
 

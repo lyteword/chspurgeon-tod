@@ -88,7 +88,7 @@ God's blessing works wonders for a people. That our sons may be as plants grown 
 
 **Whole Psalm.** This psalm is ruled by the numbers ten and seven. Ten verses complete the first part of the psalm, which falls into two divisions. The first portion contains, in Ps 144:1-2, ten attributes of God,—three and seven, the seven divided into four and three. In like manner it contains ten requests to God in Ps 144:5-7, divided precisely as the attributes. To this significance of the number ten for the first part, allusion is pointedly made in Ps 144:9. Seven blessings are prayed for in the second part, four in Ps 144:12-13, (valiant sons, beautiful daughters, full storehouses, numerous flocks), and three in Ps 144:14 (labouring oxen, no breach and diminution, no cry). The whole contains, apart from the closing epiphonem, which, as usual, stands outside the formal arrangement, seven strophes, each of two verses.
 
-An objection has been brought against the Davidic authorship from the "traces of reading" it contains. But one would require to consider more exactly, what sort of reading is here to be thought of. It is only the psalms of David which form the ground work of this new psalm. But that it is one of David's peculiarities to derive from his earlier productions a foundation for new ones, is evident from a variety of facts, which, if any doubt must still be entertained on the subject, would obtain a firm ground to stand upon in this psalm, which *can* only have been composed by David. The way and manner of the use made of such materials is to be kept in view. This is always of a spirited and feeling nature, and no trace anywhere exists of a dead borrowing. That we cannot think here of such a borrowing; that the appropriation of the earlier language did not proceed from spiritual impotence, but rested upon deeper grounds, is manifest from the consideration of the second part, where the dependence entirely ceases, and where even the opponents of the Davidic authorship have not been able to overlook the strong poetical spirit of the time of David. They betake themselves to the miserable shift of affirming, that the Psalmist borrowed this part of the psalm from a much older poem now lost.— *E.W. Hengstenberg.* 
+An objection has been brought against the Davidic authorship from the "traces of reading" it contains. But one would require to consider more exactly, what sort of reading is here to be thought of. It is only the psalms of David which form the ground work of this new psalm. But that it is one of David's peculiarities to derive from his earlier productions a foundation for new ones, is evident from a variety of facts, which, if any doubt must still be entertained on the subject, would obtain a firm ground to stand upon in this psalm, which *can* only have been composed by David. The way and manner of the use made of such materials is to be kept in view. This is always of a spirited and feeling nature, and no trace anywhere exists of a dead borrowing. That we cannot think here of such a borrowing; that the appropriation of the earlier language did not proceed from spiritual impotence, but rested upon deeper grounds, is manifest from the consideration of the second part, where the dependence entirely ceases, and where even the opponents of the Davidic authorship have not been able to overlook the strong poetical spirit of the time of David. They betake themselves to the miserable shift of affirming, that the Psalmist borrowed this part of the psalm from a much older poem now lost.— *E. W. Hengstenberg.* 
 
 **Verse 1.** *Blessed be the LORD.* A prayer for further mercy is fitly begun with a thanksgiving for former mercy; and when we are waiting upon God to bless us, we should stir up ourselves to bless him.— *Matthew Henry.* 
 
@@ -120,7 +120,7 @@ For know, vain man! thy valour is from God.— *Homer.*
 
 **Verse 2.** *My high tower.* Such *towers* were erected on mountains, on rocks, or on the walls of a city, and were regarded as safe places mainly because they were inaccessible. So the old castles in Europe,—as that at Heidelberg, and generally those along the Rhine,—were built on lofty places, and in such positions as not to be easily accessible.— *Albert Barnes.* 
 
-**Verse 2.** *My shield.* The Hebrew word signifies, not the huge shield which was carried by an armourbearer, but the handy target with which heroes entered into hand to hand conflicts. A warrior took it with him when he used his bow or his sword. It was often made of metal, but still was portable, and useful, and was made to serve as an ornament, being brightened or anointed with oil. David had made abundant use of the Lord, his God, from day to day, in battles many and murderous.— *C.H.S.* 
+**Verse 2.** *My shield.* The Hebrew word signifies, not the huge shield which was carried by an armourbearer, but the handy target with which heroes entered into hand to hand conflicts. A warrior took it with him when he used his bow or his sword. It was often made of metal, but still was portable, and useful, and was made to serve as an ornament, being brightened or anointed with oil. David had made abundant use of the Lord, his God, from day to day, in battles many and murderous.— *C. H. S.* 
 
 **Verse 2.** *Who subdueth my people under me.* David, accordingly, having ascribed the victories he had gained over foreign enemies to God, thanks him at the same time for the settled state of the kingdom. Raised indeed as he was from an obscure station, and exposed to hatred from calumnious charges, it was scarcely to have been believed that he would ever obtain a peaceable reign. The people had suddenly, and beyond expectation, submitted to him; and so surprising a change was eminently God's work.— *John Calvin.* 
 
@@ -168,9 +168,9 @@ Many a one besides David wonders at himself: one wonders at his own honour; and,
 
 **Verse 4.** *Man is like to vanity.* When Cain was born, there was much ado about his birth; "I have gotten a man child from God", saith his mother: she looked upon him as a great possession, and therefore called his name *Cain,* which signifies "a possession." But the second man that was born unto the world bare the title of the world, *"vanity";* his name was *Abel,* that is, *"vanity."* A premonition was given in the name of the second man what would or should be the condition of all men. In Ps 144:4 there is an allusion unto those two names. We translate it, *"Man is like to vanity";* the Hebrew is, *"Adam is as Abel"; Adam,* you know, was the name of the first man, the name of Abel's father; but as Adam was the proper name of the first, so it is an appellative, or common to all men: now Adam, that is, man of all men, are *Abel,* vain, and walking in a vain show.— *Joseph Caryl.* 
 
-**Verse 4.** *Man is like to vanity*, etc. The occasion of the introduction of these sentiments here is not quite clear. It may be the humility of the warrior who ascribes all success to God instead of to human prowess, or it may be a reflection uttered over the corpses of comrades, or, perhaps a blending of the two.— *A.S. Aglen.* 
+**Verse 4.** *Man is like to vanity*, etc. The occasion of the introduction of these sentiments here is not quite clear. It may be the humility of the warrior who ascribes all success to God instead of to human prowess, or it may be a reflection uttered over the corpses of comrades, or, perhaps a blending of the two.— *A. S. Aglen.* 
 
-**Verse 4.** *Man is like to vanity*, etc. With what idle dreams, what foolish plans, what vain pursuits, are men for the most part occupied! They undertake dangerous expeditions and difficult enterprises in foreign countries, and they acquire fame; but what is it?— *Vanity!* They pursue deep and abstruse speculations, and give themselves to that "much study which is a weariness to the flesh", and they attain to literary renown, and survive in their writings; but what is it?— *Vanity!* They rise up early, and sit up late, and eat the bread of anxiety and care, and thus they amass wealth; but what is it?— *Vanity!* They frame and execute plans and schemes of ambition—they are loaded with honours and adorned with titles—they afford employment for the herald, and form a subject for the historian; but what is it?— *Vanity!* In fact, all occupations and pursuits are worthy of no other epithet, if they are not preceded by, and connected with, a deep and paramount regard to the salvation of the soul, the honour of God, and the interests of eternity...Oh, then, what phantoms, what airy nothings are those things that wholly absorb the powers and occupy the days of the great mass of mankind around us! Their most substantial good perishes in the using, and their most enduring realities are but "the fashion of this world that passeth away."— *Thomas Raffles,* 1788-1863.
+**Verse 4.** *Man is like to vanity*, etc. With what idle dreams, what foolish plans, what vain pursuits, are men for the most part occupied! They undertake dangerous expeditions and difficult enterprises in foreign countries, and they acquire fame; but what is it?— *Vanity!* They pursue deep and abstruse speculations, and give themselves to that "much study which is a weariness to the flesh", and they attain to literary renown, and survive in their writings; but what is it?— *Vanity!* They rise up early, and sit up late, and eat the bread of anxiety and care, and thus they amass wealth; but what is it?— *Vanity!* They frame and execute plans and schemes of ambition—they are loaded with honours and adorned with titles—they afford employment for the herald, and form a subject for the historian; but what is it?— *Vanity!* In fact, all occupations and pursuits are worthy of no other epithet, if they are not preceded by, and connected with, a deep and paramount regard to the salvation of the soul, the honour of God, and the interests of eternity... Oh, then, what phantoms, what airy nothings are those things that wholly absorb the powers and occupy the days of the great mass of mankind around us! Their most substantial good perishes in the using, and their most enduring realities are but "the fashion of this world that passeth away."— *Thomas Raffles,* 1788-1863.
 
 **Verse 4.** *A shadow that passeth away.* The shadows of the mountains are constantly shifting their position during the day, and ultimately disappear altogether on the approach of night: so is it with man who is every day advancing to the moment of his final departure from this world.— *Bellarmine.* 
 
@@ -216,7 +216,7 @@ Their force overthrow.
 
 **Verse 8.** *Their right hand is a right hand of falsehood.* The pledge of the right hand, which used to be a witness of good faith, was violated by treachery and wickedness.— *Cicero. Philip. xi. c. 2.* 
 
-**Verse 9.** *Psaltery—an instrument of ten strings. Nebelazor.* We are led to the conclusion that the *nebel* was the veritable *harp* of the Hebrews. It could not have been large, because it is so frequently mentioned in the Bible as being carried in processions...The English translators render *nebel* (apparently without any special reason) by no less than four words; (1) psaltery, (2) psalm, (3) lute, (4) viol. The first of these is by far the most common in the Authorized Version, and is no doubt the most correct translation if the word be understood in its true sense as a *portable harp. Nebels* were made of fir wood, and afterwards of almug, or algum, which was, perhaps, the red sandalwood of India...With *nebel* is often associated the word *azor,* which is traced to a root signifying *ten,* and which has therefore been rendered in the Septuagint by byen dekacordwor asqalthrion dekacordon,( *psalterium decem chordarum*) or *in dechachordo psalterio* in the Vulgate. In the Chaldee, Syriac, and Arabic versions also are found words implying the existence of ten strings in the *nebelazor.* The word *azor* may therefore be considered as qualifying or describing the special kind of *nebel* to be used, much in the same way as we now speak of a *trichord* pianoforte. It is in our English version always rendered by the words *"ten stringed."* — *John Stainer, in "The Music of the Bible,"* 1882.
+**Verse 9.** *Psaltery—an instrument of ten strings. Nebelazor.* We are led to the conclusion that the *nebel* was the veritable *harp* of the Hebrews. It could not have been large, because it is so frequently mentioned in the Bible as being carried in processions... The English translators render *nebel* (apparently without any special reason) by no less than four words; (1) psaltery, (2) psalm, (3) lute, (4) viol. The first of these is by far the most common in the Authorized Version, and is no doubt the most correct translation if the word be understood in its true sense as a *portable harp. Nebels* were made of fir wood, and afterwards of almug, or algum, which was, perhaps, the red sandalwood of India... With *nebel* is often associated the word *azor,* which is traced to a root signifying *ten,* and which has therefore been rendered in the Septuagint by byen dekacordwor asqalthrion dekacordon,( *psalterium decem chordarum*) or *in dechachordo psalterio* in the Vulgate. In the Chaldee, Syriac, and Arabic versions also are found words implying the existence of ten strings in the *nebelazor.* The word *azor* may therefore be considered as qualifying or describing the special kind of *nebel* to be used, much in the same way as we now speak of a *trichord* pianoforte. It is in our English version always rendered by the words *"ten stringed."* — *John Stainer, in "The Music of the Bible,"* 1882.
 
 **Verse 10.** *It is he that giveth salvation unto kings.* Ferdinand, king of Aragon, sending his son against the Florentines, thus bespake him: Believe me, son, victories are not gotten by art or subtlety, but given of God.— *John Trapp.* 
 
@@ -226,7 +226,7 @@ Their force overthrow.
 
 **Verse 12.** The reminiscences or imitations of Ps 18:1-50, suddenly cease here, and are followed by a series of original, peculiar, and for the most part or no doubt antique expressions. Oil the supposition that the title is correct in making David the author, this is natural enough. On any other supposition it is unaccountable, unless by the gratuitous assumption, that this is a fragment of an older composition, a mode of reasoning by which anything may be either proved or disproved.— *Joseph Addison Alexander.* 
 
-**Verse 12.** *That our sons may be as plants*, etc. They who have ever been employed in the cultivation of plants of any kind, are continually tempted to wish that the human objects of their care and culture would grow up as rapidly, as straight, as flourishing, would as uniformly fulfil their specific idea and purpose, as abundantly reward the labour bestowed on them...If our sons are indeed to grow up as young plants, like our English oaks, which according to the analogies of Nature, furnish no inappropriate type of our national character, they must not be stunted or dwarfed or pollarded, for the sake of being kept under the shade of a stranger. They should grow up straight toward heaven, as God had ordained them to grow...There is something so palpable and striking in this type, that twenty-five years ago, in speaking of the gentlemanly character, I was led to say, "If a gentleman is to grow up he must grow like a tree: there must be nothing between him and heaven."— *Julius Charles Hare, in a Sermon entitled "Education the Necessity of Mankind,"* 1851.
+**Verse 12.** *That our sons may be as plants*, etc. They who have ever been employed in the cultivation of plants of any kind, are continually tempted to wish that the human objects of their care and culture would grow up as rapidly, as straight, as flourishing, would as uniformly fulfil their specific idea and purpose, as abundantly reward the labour bestowed on them... If our sons are indeed to grow up as young plants, like our English oaks, which according to the analogies of Nature, furnish no inappropriate type of our national character, they must not be stunted or dwarfed or pollarded, for the sake of being kept under the shade of a stranger. They should grow up straight toward heaven, as God had ordained them to grow... There is something so palpable and striking in this type, that twenty-five years ago, in speaking of the gentlemanly character, I was led to say, "If a gentleman is to grow up he must grow like a tree: there must be nothing between him and heaven."— *Julius Charles Hare, in a Sermon entitled "Education the Necessity of Mankind,"* 1851.
 
 **Verse 12.** *That our sons may be as plants grown up in their youth*, etc. Thus David prays for the rising generation. Metaphors seem generally unsuitable to prayer, but they do not wear this aspect in the prayers recorded in the Scriptures. The language of the text is tropical, but the metaphors are suitable and seasonable. *Roots* of vegetables are necessarily invisible. *Tender* plants are insignificant. A plant *grown up,* having height in its stem, width in its branches, abundance in its foliage, and fulness in its bloom, is conspicuous. David prays that the sons of that generation might be in their youth *"as plants grown up",* that is, that their piety might not only live, but that their godliness might be fully expressed. The stones of a *foundation* are concealed. The stones in the *mid wall* of a building are also necessarily hid. The stones on the *surface* of a wall are visible, but they are not distinguished. The *cornerstone* of buildings in that day was prominent and eminent. Placed at the angle of the structure, where two walls met, on the top of the walls, and being richly ornamented and polished, it attracted attention. David prays that the daughters of that day might make an open and lovely profession of religion—that both sons and daughters might not only *have* piety but *show* it.— *Samuel Martin, in "Cares of Youth."* 
 
@@ -250,7 +250,7 @@ Their force overthrow.
 
 **Verse 14.** *That our oxen may be strong to labour.* (Margin: *"able to bear burdens",* or, *loaded* with flesh.) As in the verse before he had ascribed the fruitfulness of the herds and flocks to God's goodness, so now the fattening of their oxen, to show that there is nothing relating to us here which he overlooks.— *John Calvin.* 
 
-**Verse 14.** *That our oxen may be strong to labour.* Oxen were not only used for ploughing, thrashing, and drawing, but also for bearing burdens; compare 1Ch 12:40, which passage is peculiarly fitted to throw light on the verse before us. Laden oxen presuppose a rich abundance of produce.— *E.W. Hengstenberg.* 
+**Verse 14.** *That our oxen may be strong to labour.* Oxen were not only used for ploughing, thrashing, and drawing, but also for bearing burdens; compare 1Ch 12:40, which passage is peculiarly fitted to throw light on the verse before us. Laden oxen presuppose a rich abundance of produce.— *E. W. Hengstenberg.* 
 
 **Verse 14.** *That there be no complaining in our streets*, etc. Rather, "and no cry of sorrow" (comp. Isa 24:11 Jer 14:2 46:12) "in our open places", *i.e.,* the places where the people commonly assembled near the gate of the city (comp. 2Ch 32:6 Ne 8:1). The word rendered *"complaining"* does not occur elsewhere in the psalter.— *Speaker's Commentary.* 
 
@@ -264,7 +264,7 @@ Their force overthrow.
 
 Now, for this first blessedness, as no philosophers could ever tell us amongst the Gentiles what true blessedness was, so no grammarian amongst the Jews, amongst the Hebrews, could ever tell us what the right signification of this word is, in which David expresses blessedness here; whether *asherei,* which is the word, be a plural noun, and signify *beatitudines,* blessednesses in the plural, and intimate thus much, that blessedness consists not in any one thing, but in a harmony and consent of many; or whether this *asherei* be an adverb, and signify *beate,* and so be an acclamation, O how happily, how blessedly are such men provided for that are so; they cannot tell. Whatsoever it be, it is the very first word with which David begins his Book of Psalms; *beatus vir;* as the last word of that book is, *laudate Dominum;* to show that all that passes between God and man, from first to last, is blessings from God to man, and praises from man to God; and that the first degree of blessedness is to find the print of the hand of God even in his temporal blessednesses, and to praise and glorify him for them in the right use of them. A man that hath no land to hold by it, nor title to recover by it, is never the better for finding, or buying, or having a fair piece of evidence, a fair instrument, fairly written, duly sealed, authentically testified; a man that hath not the grace of God, and spiritual blessings too, is never the nearer happiness, for all his abundances of temporal blessedness. Evidences are evidences to them who have **Title &mdash;** Temporal blessings are evidences to them who have a testimony of God's spiritual blessings in the temporal. Otherwise, as in his hands who hath no title, it is a suspicious thing to find evidences, and he will be thought to have embezzled and purloined them, he will be thought to have forged and counterfeited them, and he will be called to an account for them, how he came by them, and what he meant to do with them: so to them who have temporal blessings without spiritual, they are but useless blessings, they are but counterfeit blessings, they shall not purchase a minute's peace here, nor a minute's refreshing to the soul hereafter; and there must be a heavy account made for them, both how they were got, and how they were employed.— *John Donne.* 
 
-**Verse 15.** *Happy is that people*, etc. It is only a narrow and one sided religion that can see anything out of place in this beatitude of plenty and peace. If we could rejoice with the psalms fully and without misgiving, in the temporal blessings bestowed by heaven, we should the more readily and sincerely enter into the depths of their spiritual experience. And the secret of this lies in the full comprehension and contemplation of the beautiful and pleasant as the gift of God.— *A.S. Aglen.* 
+**Verse 15.** *Happy is that people*, etc. It is only a narrow and one sided religion that can see anything out of place in this beatitude of plenty and peace. If we could rejoice with the psalms fully and without misgiving, in the temporal blessings bestowed by heaven, we should the more readily and sincerely enter into the depths of their spiritual experience. And the secret of this lies in the full comprehension and contemplation of the beautiful and pleasant as the gift of God.— *A. S. Aglen.* 
 
 **Verse 15.** *Yea, happy is that people, whose God is the LORD. "Yea, happy."* This is the best wine, kept to the last, though all men be not of this opinion. You shall hardly bring a worldly man to think so. The world is willing enough to misconstrue the order of the words, and to give the priority to civil happiness, as if it were first in dignity, because 'tis first named: they like better to hear of the *cui sic* than the *cui Dominus.* To prevent this folly, the Psalmist interposes a caution in this corrective particle, *"yea, happy."* It hath the force of a revocation, whereby he seems to retract what went before, not simply and absolutely, but in a certain degree, lest worldly men should wrest it to a misinterpretation. It is not an *absolute* revocation, but a *comparative;* it doth not simply deny that there is some part of popular happiness in these outward things, but it prefers the spirituals before them: *"Yea",* that is, *Yea more,* or, *Yea rather;* like that of Christ in the Gospel, when one in the company blessed the womb that bare him, he presently replies, "Yea, rather blessed are they that hear the word of God and keep it": Lu 11:28. In like manner, the prophet David, having first premised the inferior part and outside of a happy condition; fearing lest any should of purpose mistake his meaning, and, hearing the first proposition, should either there set up their rest, and not at all take up the second; or if they take it in, do it preposterously, and give it the precedence before the second, according to the world's order, *Virtus post nummos.* In this respect he puts in the clause of revocation, whereby he shows that these outward things, though *named* first, yet they are not to be *reputed* first. The particle *"Yea"* removes them to the second place; it tacitly transposes the order; and the path of piety, which was *locally* after, it places *virtually* before. 'Tis as if he had said, Did I call them *happy* who are in such a case? Nay, miserable are they if they be only in such a case: the temporal part cannot make them so without the spiritual. Admit the windows of the visible heaven were opened, and all outward blessings poured down upon us; admit we did perfectly enjoy whatsoever the vastness of the earth contains in it; tell me, What will it profit to gain all and lose God? If the earth be bestowed upon us, and not heaven; or the material heaven be opened, and not the beatifical; or the whole world made ours, and God not ours; we do not arrive at happiness. All that is in the first proposition is nothing unless this be added, *"Yea, happy are the people which have the Lord for their God."* — *Richard Holdsworth.* 
 
@@ -302,13 +302,13 @@ With this prayer of Jehovah's anointed One end the prayers of the Book of Psalms
 
 **Verse 1.** 
 
-1\.Two things needful in our holy war—strength and skill; for the hands and the fingers, for the difficult and the delicate.
+1\. Two things needful in our holy war—strength and skill; for the hands and the fingers, for the difficult and the delicate.
 
-2\.In what way God supplies us with both. He is the one, and teaches the other. Impartation and Instruction. The teaching comes by illumination, experience, distinct guidance.
+2\. In what way God supplies us with both. He is the one, and teaches the other. Impartation and Instruction. The teaching comes by illumination, experience, distinct guidance.
 
 **Verse 1.** Things not to be forgotten by the Christian Soldier.
 
-1\.The true source of his strength: "The Lord my strength." If remembered,
+1\. The true source of his strength: "The Lord my strength." If remembered,
 
 a) He will not be found trusting in self.
 
@@ -318,7 +318,7 @@ c) He will always anticipate victory.
 
 d) He will never be worsted in the conflict.
 
-2\.His constant need of instruction, and the Teacher who never forgets him: "Which teacheth my hands", etc. If remembered,
+2\. His constant need of instruction, and the Teacher who never forgets him: "Which teacheth my hands", etc. If remembered,
 
 a) He will gird on the armour provided and commended by God.
 
@@ -328,27 +328,27 @@ c) He will study the divinely given text book of military tactics and discipline
 
 d) He will wait upon God for understanding.
 
-3\.The praise due to God, both for victories won and skill displayed: "Blessed be", etc. If remembered,
+3\. The praise due to God, both for victories won and skill displayed: "Blessed be", etc. If remembered,
 
 a) He will wear his honours humbly.
 
 b) Glorify the honour of his King.
 
-c) Twice taste the sweets of victory in the happiness of gratitude.— *J.F.* 
+c) Twice taste the sweets of victory in the happiness of gratitude.— *J. F.* 
 
 **Verse 2.** Double flowers.
 
-1\.Good preserved from evil: "goodness" and "fortress."
+1\. Good preserved from evil: "goodness" and "fortress."
 
-2\.Safety enlarged into liberty: "tower", "deliverer."
+2\. Safety enlarged into liberty: "tower", "deliverer."
 
-3\.Security attended with rest: "shield, in whom I trust."
+3\. Security attended with rest: "shield, in whom I trust."
 
-4\.Sufficiency to maintain superiority: "subdueth my people under me." View God as working all.
+4\. Sufficiency to maintain superiority: "subdueth my people under me." View God as working all.
 
 **Verse 2.** A Group of Titles. Notice,
 
-1\.Which comes first. "Goodness." *Heb.* "Mercy."
+1\. Which comes first. "Goodness." *Heb.* "Mercy."
 
 a) It is right and natural that a saved sinner should make the most of "mercy", and place it in the foreground.
 
@@ -356,13 +356,13 @@ b) Mercy is the ground and reason of the other titles named. For whatever God is
 
 c) It is a good thing to see a believer ripe in experience making mercy the leading note in his song of praise.
 
-2\.Which comes last: "He in whom I trust." It suggests,
+2\. Which comes last: "He in whom I trust." It suggests,
 
 a) That what God is makes him worthy of trust.
 
 b) That meditation upon what he is strengthens our trust.
 
-3\.What peculiar force the word "my" gives to each. It makes it,
+3\. What peculiar force the word "my" gives to each. It makes it,
 
 a) A record of experience.
 
@@ -370,25 +370,25 @@ b) An ascription of praise.
 
 c) A blessed boasting.
 
-d) An incentive, enough to set others longing.— *J.F.* 
+d) An incentive, enough to set others longing.— *J. F.* 
 
 **Verse 3.** A note of interrogation, exclamation, and admiration.
 
 **Verse 3.** The question,
 
-1\.Denies any right in man to claim the regard of God.
+1\. Denies any right in man to claim the regard of God.
 
-2\.Asserts the great honour God has nevertheless put upon him.
+2\. Asserts the great honour God has nevertheless put upon him.
 
-3\.Suggests that the true reason of God's generous dealings is the graciousness of his own heart.
+3\. Suggests that the true reason of God's generous dealings is the graciousness of his own heart.
 
-4\.Implies the becomingness of gratitude and humility.
+4\. Implies the becomingness of gratitude and humility.
 
-5\.Encourages the most unworthy to put their confidence in God.— *J.F.* 
+5\. Encourages the most unworthy to put their confidence in God.— *J. F.* 
 
 **Verse 3.** 
 
-1\.What was man as he came from the hands of his Creator?
+1\. What was man as he came from the hands of his Creator?
 
 a) Rational.
 
@@ -398,7 +398,7 @@ c) Immortal.
 
 d) Holy and happy.
 
-2\.What is man in his present condition?
+2\. What is man in his present condition?
 
 a) Fallen.
 
@@ -408,7 +408,7 @@ c) Sinful.
 
 d) Miserable, and helpless in his misery.
 
-3\.What is man when he has believed in Christ?
+3\. What is man when he has believed in Christ?
 
 a) Restored to a right relation to God.
 
@@ -418,7 +418,7 @@ c) He enjoys the influences of the Holy Spirit.
 
 d) He is in process of preparation for the heavenly world.
 
-4\.What shall man be when he is admitted into heaven?
+4\. What shall man be when he is admitted into heaven?
 
 a) Free from sin and sorrow.
 
@@ -434,11 +434,11 @@ d) Near to his Saviour and his God.
 
 **Verse 3.** It is a wonder above all wonders, that ever the great God should make such account of such a thing as man.
 
-1\.It will appear if you consider what a great God the Lord is.
+1\. It will appear if you consider what a great God the Lord is.
 
-2\.What a poor thing man is.
+2\. What a poor thing man is.
 
-3\.What a great account the great God hath of this poor thing, man.
+3\. What a great account the great God hath of this poor thing, man.
 
 — *Joseph Alleine.* 
 
@@ -446,45 +446,45 @@ d) Near to his Saviour and his God.
 
 **Verse 4.** The Shadow World.
 
-1\.Our lives are like shadows.
+1\. Our lives are like shadows.
 
-2\.But God's light casts these shadows. Our being is of God. The brevity and mystery of life are a part of providence.
+2\. But God's light casts these shadows. Our being is of God. The brevity and mystery of life are a part of providence.
 
-3\.The destiny of the shadows; eternal night; or eternal light.— *W.B.H.* 
+3\. The destiny of the shadows; eternal night; or eternal light.— *W. B. H.* 
 
 **Verse 4.** The brevity of our earthly life.
 
-1\.A profitable subject for meditation.
+1\. A profitable subject for meditation.
 
-2\.A rebuke to those who provide for this life alone.
+2\. A rebuke to those who provide for this life alone.
 
-3\.A trumpet call to prepare for eternity.
+3\. A trumpet call to prepare for eternity.
 
-4\.An incentive to the Christian to make the best of this life for the glory of God.— *J.F.* 
+4\. An incentive to the Christian to make the best of this life for the glory of God.— *J. F.* 
 
 **Verse 5.** Condescension, visitation, contact, and conflagration.
 
 **Verses 7-8, 11.** Repetitions, not vain. Repetitions in prayer are vain when they result from form, thoughtlessness, or superstition; but not, *e.g.,* 
 
-1\.When they are the utterance of genuine fervour.
+1\. When they are the utterance of genuine fervour.
 
-2\.When the danger prayed against is imminent.
+2\. When the danger prayed against is imminent.
 
-3\.When the fear which prompts the prayer is urgent.
+3\. When the fear which prompts the prayer is urgent.
 
-4\.When the repetition is prompted by a new motive, Ps 144:7-8; by God's condescension, Ps 144:3,11; by God's former deliverance, Ps 144:10; and by the results which will flow from the answer, Ps 144:12-14.— *C.A.D.* 
+4\. When the repetition is prompted by a new motive, Ps 144:7-8; by God's condescension, Ps 144:3,11; by God's former deliverance, Ps 144:10; and by the results which will flow from the answer, Ps 144:12-14.— *C. A. D.* 
 
 **Verse 8.** What is "a right hand of falsehood"? Ask the hypocrite, the schemer, the man of false doctrine, the boaster, the slanderer, the man who forgets his promise, the apostate.
 
 **Verse 9.** For God's Ear.
 
-1\.The Singer. A grateful heart.
+1\. The Singer. A grateful heart.
 
-2\.The Song. Full of Praise. New.
+2\. The Song. Full of Praise. New.
 
-3\.The Accompaniment: "Psaltery." Helps to devotion. Give God the best.
+3\. The Accompaniment: "Psaltery." Helps to devotion. Give God the best.
 
-4\.The Auditor and Object of the eulogium: "Thee, O God."— *W.B.H.* 
+4\. The Auditor and Object of the eulogium: "Thee, O God."— *W. B. H.* 
 
 **Verse 11.** Persons from whom it is a mercy to escape: those alien to God, vain in conversation, false in deed.
 
@@ -494,7 +494,7 @@ d) Near to his Saviour and his God.
 
 **Verse 12.** (*first clause* ). To Young Men. Consider,
 
-1\.What is desired on your behalf: "Sons may be as plants", etc.
+1\. What is desired on your behalf: "Sons may be as plants", etc.
 
 (a) That you may be respected and valued.
 
@@ -502,7 +502,7 @@ d) Near to his Saviour and his God.
 
 (c) That you may be vigorous and strong in moral power.
 
-2\.What is requisite on your part to the accomplishment of this desire.
+2\. What is requisite on your part to the accomplishment of this desire.
 
 (a) A good rooting in Christ.
 
@@ -510,11 +510,11 @@ d) Near to his Saviour and his God.
 
 (c) The dews of divine grace obtained by prayer.
 
-(d) A resolute tendency within to answer the God appointed purpose of your existence.— *J.F.* 
+(d) A resolute tendency within to answer the God appointed purpose of your existence.— *J. F.* 
 
 **Verse 12.** (*second clause* ). To Young Women. Consider,
 
-1\.The important position you may occupy in the social fabric: "As cornerstones."
+1\. The important position you may occupy in the social fabric: "As cornerstones."
 
 (a) The moral and religious tone of society is determined more by your character and influence than by those of men.
 
@@ -524,7 +524,7 @@ d) Near to his Saviour and his God.
 
 (d) Let these facts weigh with you as a motive in seeking the grace of God, without which you can never fulfil your mission worthily.
 
-2\.The beauty which ought to belong to you in your position. "Polished after", etc. The beauty of,
+2\. The beauty which ought to belong to you in your position. "Polished after", etc. The beauty of,
 
 (a) Heart purity: "The King's daughter is all glorious within."
 
@@ -532,27 +532,27 @@ d) Near to his Saviour and his God.
 
 (c) Gracious and gentle demeanour.
 
-3\.How both the right position and right beauty are obtained.
+3\. How both the right position and right beauty are obtained.
 
 (a) By yielding yourselves to God.
 
 (b) By Christ dwelling in your heart.
 
-(c) By becoming living stones and polished stones under the workmanship of the Holy Spirit.— *J.F.* 
+(c) By becoming living stones and polished stones under the workmanship of the Holy Spirit.— *J. F.* 
 
 **Verse 14.** A prayer for our ministers, and for the security, unity, and happiness of the church.
 
 **Verse 14.** The prosperous Church. There—
 
-1\.Labour is cheerfully performed.
+1\. Labour is cheerfully performed.
 
-2\.The enemy is kept without the gate.
+2\. The enemy is kept without the gate.
 
-3\.There are few or no departures.
+3\. There are few or no departures.
 
-4\.Faith and content silence complaint.
+4\. Faith and content silence complaint.
 
-5\.Pray that such may be our case as a church.— *W.B.H.* 
+5\. Pray that such may be our case as a church.— *W. B. H.* 
 
 **Verse 15.** The peculiar happiness of those whose God is the Lord.
 

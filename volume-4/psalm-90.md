@@ -94,11 +94,11 @@ Who wishes it to be otherwise? Wherefore should we linger here? What has this po
 
 ## Explanatory Notes & Quaint Sayings
 
-**Title &mdash;** The correctness of the title which ascribes the Psalm to Moses is confirmed by its unique simplicity and grandeur; its appropriateness to his times and circumstances; its resemblance to the Law in urging the connection between sin and death; its similarity of diction to the poetical portions of the Pentateuch, without the slightest trace of imitation or quotation; its marked unlikeness to the Psalms of David, and still more to those of later date; and finally, the proved impossibility of plausibly assigning it to any other age or author.— *J.A. Alexander.* 
+**Title &mdash;** The correctness of the title which ascribes the Psalm to Moses is confirmed by its unique simplicity and grandeur; its appropriateness to his times and circumstances; its resemblance to the Law in urging the connection between sin and death; its similarity of diction to the poetical portions of the Pentateuch, without the slightest trace of imitation or quotation; its marked unlikeness to the Psalms of David, and still more to those of later date; and finally, the proved impossibility of plausibly assigning it to any other age or author.— *J. A. Alexander.* 
 
 **Title &mdash;** A prayer of Moses. Moses may be considered as the first composer of sacred hymns.— *Samuel Burder.* 
 
-**Title &mdash;** The Psalm is described in the title as a *prayer.* This description shows, as Amyraldus saw, that the kernel of the Psalm in the *second* part, and that the design of the first is to prepare the way for the second, and lay down a basis on which it may rest.— *E.W. Hengstenberg.* 
+**Title &mdash;** The Psalm is described in the title as a *prayer.* This description shows, as Amyraldus saw, that the kernel of the Psalm in the *second* part, and that the design of the first is to prepare the way for the second, and lay down a basis on which it may rest.— *E. W. Hengstenberg.* 
 
 **Title &mdash;** A prayer of Moses. Moses was an old and much tried man, but age and experience had taught him that, amidst the perpetual changes which are taking place in the universe, one thing at least remains immutable, even the faithfulness of him who is "from everlasting to everlasting God." How far back into the past may the patriarch have been looking when he spake these words? The burning bush, the fiery furnace of Egypt, the Red Sea, Pharaoh with his chariots of war, and the weary march of Israel through the wilderness, were all before him; and in all of them he had experienced that "God is the Rock, his work perfect, all his ways judgment" (De 32:4). But Moses was looking beyond these scenes of his personal history when he said, "Remember the days of old, consider the years of many generations." (De 32:7), and we may be sure that he was also looking beyond them when he indited the song, *Thou hast been our dwelling place in all generations.* Yes; he was casting in his mind how God had been the refuge of Jacob and Isaac, of Abraham, Noah, and all the patriarchs. Moses could take a retrospect of above a thousand years, which had all confirmed the truth. I can do no more. At this point of time I can look back to the days of Moses and Joshua and David, and descending thence to the days of the Son of God upon earth, and of Paul and Peter, and all the saints of the Church down to the present hour; and what a thousand years avouched to Moses, three thousand now avouch to me: the Lord is the dwelling place of those that trust in him from generation to generation. Yes; and to him who was the refuge of a Moses and an Abraham, I too in the day of trouble can lift my hands. Delightful thought! That great Being who, during the lapse of three thousand years, amidst the countless changes of the universe, has to this day remained unchanged, is MY God.— *Augustus F. Theluck, in "Hours of Christian Devotion",* 1870.
 
@@ -178,7 +178,7 @@ To let us know it will not bear our sins.— *Francis Bacon.*
 
 **Verse 2.** Such a God (he says) have we, such a God do we worship, to such a God do we pray, at whose command all created things sprang into being. Why then should we fear if this God favours us? Why should we tremble at the anger of the whole world? If He is our dwelling place, shall we not be safe though the heavens should go to wrack? For we have a Lord greater than all the world. We have a Lord so mighty that at his word all things sprang into being. And yet we are so fainthearted that if the anger of a single prince or king, nay, even of a single neighbour, is to be borne, we tremble and droop in spirit. Yet in comparison with this King, all things beside in the whole world are but as the lightest dust which a slight breath moves from its place, and suffers not to be still. In this way this description of God is consolatory, and trembling spirits ought to look to this consolation in their temptations and dangers.— *Martin Luther.* 
 
-**Verse 3.** *Thou turnest man to destruction*, etc. The prophet conceives of God as of a potter, that having of dust tempered a mass, and framed it into a vessel, and dried it, doth presently, within a minute or an hour after, dash it again in pieces, and beat it to dust, in passion as it were speaking unto it, "Get thee to dust again." The word here translated *"destruction",* signifies a beating, or grinding, or pounding of a thing to powder. And the prophet seems to allude to the third of Genesis, where God speaks of Adam, "Dust thou art, and to dust thou shalt return", as if he should say, O Lord, thou that hast made and framed man of the dust of the earth, thou beatest him to dust again; and as thou madest him by thy word alone, so with thy word thou suddenly turnest, and beatest him against to dust; as a man that makes a thing, and presently mars it again...He doth it with a word, against which is no resistance, when that word is once come out of his mouth; it is not all the diet, physic, and help, and prayers in the world that can save the life. And this he can do suddenly, in the twinkling of an eye. And therefore we should, as we love our lives, fear him, and take heed how we offend and displease him that can with a word turn the strongest man into dust.— *William Bradshaw.* 
+**Verse 3.** *Thou turnest man to destruction*, etc. The prophet conceives of God as of a potter, that having of dust tempered a mass, and framed it into a vessel, and dried it, doth presently, within a minute or an hour after, dash it again in pieces, and beat it to dust, in passion as it were speaking unto it, "Get thee to dust again." The word here translated *"destruction",* signifies a beating, or grinding, or pounding of a thing to powder. And the prophet seems to allude to the third of Genesis, where God speaks of Adam, "Dust thou art, and to dust thou shalt return", as if he should say, O Lord, thou that hast made and framed man of the dust of the earth, thou beatest him to dust again; and as thou madest him by thy word alone, so with thy word thou suddenly turnest, and beatest him against to dust; as a man that makes a thing, and presently mars it again... He doth it with a word, against which is no resistance, when that word is once come out of his mouth; it is not all the diet, physic, and help, and prayers in the world that can save the life. And this he can do suddenly, in the twinkling of an eye. And therefore we should, as we love our lives, fear him, and take heed how we offend and displease him that can with a word turn the strongest man into dust.— *William Bradshaw.* 
 
 **Verse 3.** *Thou turnest man to destruction*, etc. The first word for *"man",* signifies a man full of misery, full of sickness and infirmities, a miserable man, vwna. And the other word here used in the end of the verse, signifies a man made of *clay,* or of the very slime of the earth. From hence we learn what is the nature of all men, of all the sons of *Adam,* viz., a piece of living *clay,* a little piece of red earth. And besides that man is subject to *breaking* and *crushing,* every way a miserable man; so is he of a brittle mould, a piece of red clay, that hath in it for a time a living soul, which must return to God that gave it; and the body, this piece of earth, return to the earth from whence it came: and if we had no Scripture at all to prove this, daily experience before our eyes makes it clear how all men, even the wisest, the strongest, the greatest and the mightiest monarchs and princes in the world, be but miserable men, made of red earth, and quickly turn again to dust.— *Samuel Smith, in "Moses his Prayer",* 1656.
 
@@ -210,19 +210,19 @@ To let us know it will not bear our sins.— *Francis Bacon.*
 
 **Verse 5.** *They are as a sleep.* Our life may be compared to sleep in four respects.
 
-1\.In regard of the shortness of it.
+1\. In regard of the shortness of it.
 
-2\.In regard of the easiness of being put out of it.
+2\. In regard of the easiness of being put out of it.
 
-3\.In regard of the many means to disquiet and break it off.
+3\. In regard of the many means to disquiet and break it off.
 
-4\.With regard to the many errors in it.
+4\. With regard to the many errors in it.
 
 For the first three. Sleep is but short, and the sweeter it is, the shorter it seems to be. And as it is but short of itself, though it should last the full swing of nature; so the soundest sleep is easily broken; the least knock, the lowest call puts men out of it; and a number of means and occasions there be to interrupt and break it off. And is it not so with the life of man? Is not the longest life short? Is it not the shorter, the sweeter and fuller of contents it is? And is it not easily taken away? Are there not many means to bring us unto our end? even as many as there are to waken us out of sleep. For the fourth. How many errors are we subject to in sleep? In sleep the prisoner many times dreams that he is at liberty; he that is at liberty, that he is in prison; he that is hungry, that he is feeding daintily; he that is in want, that he is in great abundance; he that abounds, that he is in great want. How many in their sleep have thought they have gotten that which they shall be better for for ever, and when they are even in the hope of present possessing some such goodly matter, or beginning to enjoy it, or in the midst of their joy, they are suddenly awaked, and then all is gone with them, and their golden fancies vanish away in an instant. So for evil and sorrow as well. And is it not just so in the life of man?— *William Bradshaw.* 
 
 **Verse 5.** *They are like grass.* In this last similitude, the prophet compares men to grass, that as grass hath a time of growing and a time of withering, even so has man. *In the morning it flourisheth, and groweth up.* In which words Moses compares the former part of man's life, which is the space of thirty-three years, to the time of growing of grass, and that is accounted the time of the perfection of man's strength and age; at which age, according to the course of nature, man flourisheth as grass doth; that is the time of a man's prime and flourishing estate. But *in the evening*; that is, when the grass is ripe, and ready to be cut down, *it withereth.* Even so man, being once at his strength, and ripest age, doth not stand at a stay, nor continueth long so; but presently begins to decay, and to wither away, till old age comes, and he is cut down by the scythe of death. Now, in that Moses useth so many similitudes, and all to show how frail this life of man is, we are taught, that the frailty, vanity, and shortness of man's life is such, that examples will scarcely shew it. Death comes as a *flood,* violently and suddenly; we are as a *sleep;* we are as *grass;* our life is like *a dream;* we spend our days *as a tale that is told,* Ps 90:9. All these similitudes Moses hath in this Psalm, as if he wanted words and examples, how to express the vanity, frailty, and shortness thereof.— *Samuel Smith.* 
 
-**Verse 6.** *In the morning.* This can hardly mean "in early youth", as some of the Rabbis explain. The words, strictly speaking, are a part of the comparison ("they are as grass which springeth afresh in the morning"), and are only thus placed first to give emphasis to the figure. In the East, one night's rain works a change as if by magic. The field at evening was brown, parched, arid as a desert; in the morning it is green with the blades of grass. The scorching hot wind (Jas 1:11) blows upon it, and again before evening it is withered.— *J.J.S. Perowne.* 
+**Verse 6.** *In the morning.* This can hardly mean "in early youth", as some of the Rabbis explain. The words, strictly speaking, are a part of the comparison ("they are as grass which springeth afresh in the morning"), and are only thus placed first to give emphasis to the figure. In the East, one night's rain works a change as if by magic. The field at evening was brown, parched, arid as a desert; in the morning it is green with the blades of grass. The scorching hot wind (Jas 1:11) blows upon it, and again before evening it is withered.— *J. J. S. Perowne.* 
 
 **Verse 6.** *Cut down.* 
 
@@ -238,7 +238,7 @@ It is true that to some Death sends his grey harbingers before, and gives them t
 
 **Verse 7.** *For we are consumed by thine anger.* This is a point disputed by philosophers. They seek for the cause of death, since indeed proofs of immortality that cannot be despised exist in nature. The prophet replies, that the chief cause must not be sought in the material, either in a defect of the fluids, or in a failure of the natural heat; but that God being offended at the sins of men, hath subjected this nature to death and other infinite calamities. Therefore, our sins are the causes which have brought down this destruction. Henee he says, *In thine anger we vanish away.* — *Mollerus.* 
 
-**Verse 7.** *For we are consumed by thine anger*, etc. Whence we may first of all observe, how they compare their present estate in the wilderness, with the estate of other nations and people, and shew that their estate was far worse than theirs: for others died now one, and then one, and so they were diminished; but for them, they were hastily consumed and suddenly swept away by the plague and pestilence which raged amongst them. Hence we may observe, first of all—That it is a ground of humiliation to God's people when their estate is worse than God's enemies'.Moses gathers this as an argument to humble them, and to move them to repentance and to seek unto God; viz., that because of their sins they were in a far worse case and condition than the very enemies of God were. For though their lives were short, yet they confess that theirs was far worse than the very heathen themselves, for they were *suddenly consumed by his anger.* When God is worse to his own church and people than he is to his enemies; when the Lord sends wars in a nation called by his name, and peace in other kingdoms that are anti Christian; sends famine in his church, and plenty to the wicked; sends the plague and pestilence in his church, and health and prosperity to the wicked; oh, here is matter of mourning and humiliation; and it is that which hath touched God's people to the quick, and wounded them to the heart, to see the enemies of the church in better condition than the church itself.— *Samuel Smith.* 
+**Verse 7.** *For we are consumed by thine anger*, etc. Whence we may first of all observe, how they compare their present estate in the wilderness, with the estate of other nations and people, and shew that their estate was far worse than theirs: for others died now one, and then one, and so they were diminished; but for them, they were hastily consumed and suddenly swept away by the plague and pestilence which raged amongst them. Hence we may observe, first of all—That it is a ground of humiliation to God's people when their estate is worse than God's enemies'. Moses gathers this as an argument to humble them, and to move them to repentance and to seek unto God; viz., that because of their sins they were in a far worse case and condition than the very enemies of God were. For though their lives were short, yet they confess that theirs was far worse than the very heathen themselves, for they were *suddenly consumed by his anger.* When God is worse to his own church and people than he is to his enemies; when the Lord sends wars in a nation called by his name, and peace in other kingdoms that are anti Christian; sends famine in his church, and plenty to the wicked; sends the plague and pestilence in his church, and health and prosperity to the wicked; oh, here is matter of mourning and humiliation; and it is that which hath touched God's people to the quick, and wounded them to the heart, to see the enemies of the church in better condition than the church itself.— *Samuel Smith.* 
 
 **Verse 7.** *By thy wrath are we troubled.* The word used by Moses is much stronger than merely "troubled." It implies being cut off, destroyed—in forms moreover of overwhelming terror.— *Henry Cowles, in "The Psalms; with Notes." New York,* 1872.
 
@@ -258,7 +258,7 @@ My hearers, if you are willing to see your sins in their true colours; if you wo
 
 **Verse 9.** *As a tale that is told.* The Chaldee has it, *like the breath of our mouth in winter.* — *Daniel Cresswell.* 
 
-**Verse 9.** The thirty-eight years, which after this they were away in the wilderness, were not the subject of the sacred history, for little or nothing is recorded of that which happened to them from the second year to the fortieth. After they came out of Egypt, their time was perfectly trifled away, and was not worthy to be the subject of a history, but only of *a tale that is told*; for it was only to pass away time like telling stories, that they spent those years in the wilderness; all that while they were in the consuming, and another generation was in the rising...The spending of our years is like the telling of a tale. A year when it is past is like a tale when it is told. Some of our years are as a pleasant story, others as a tragical one; most mixed, but all short and transient; that which was long in the doing may be told in a short time.— *Matthew Henry.* 
+**Verse 9.** The thirty-eight years, which after this they were away in the wilderness, were not the subject of the sacred history, for little or nothing is recorded of that which happened to them from the second year to the fortieth. After they came out of Egypt, their time was perfectly trifled away, and was not worthy to be the subject of a history, but only of *a tale that is told*; for it was only to pass away time like telling stories, that they spent those years in the wilderness; all that while they were in the consuming, and another generation was in the rising... The spending of our years is like the telling of a tale. A year when it is past is like a tale when it is told. Some of our years are as a pleasant story, others as a tragical one; most mixed, but all short and transient; that which was long in the doing may be told in a short time.— *Matthew Henry.* 
 
 **Verse 9.** *We spend our year as a tale that is told*, or, *as a meditation* (so some translate) suddenly or swiftly: a discourse is quickly over, whether it be a discourse from the mouth, or in the mind; and of the two the latter is far the more swift and nimble of foot. A discourse in our thoughts outruns the sun, as much as the sun outruns a snail; the thoughts of a man will travel the world over in a moment; he that now sits in this place, may be at the world's end in his thoughts, before I can speak another word.— *Joseph Caryl.* 
 
@@ -268,7 +268,7 @@ My hearers, if you are willing to see your sins in their true colours; if you wo
 
 **Verse 9.** (*second clause* ). The Hebrew is different from all the Versions. *We consume our years* (hgx-wmk *kemo hegeh*) *like a groan.* We live a dying, whining, complaining life, and at last a *groan* is its termination!— *Adam Clarke.* 
 
-**Verse 9.** The Vulgate translation has, *Our years pass away like those of a spider.* It implies that our life is as frail as the thread of a spider's web. Constituted most curiously the spider's web is; but what more fragile? In what is there more wisdom than in the complicated frame of the human body; and what more easily destroyed? Glass is granite compared with flesh; and vapours are rocks compared with life.— *C.H.S.* 
+**Verse 9.** The Vulgate translation has, *Our years pass away like those of a spider.* It implies that our life is as frail as the thread of a spider's web. Constituted most curiously the spider's web is; but what more fragile? In what is there more wisdom than in the complicated frame of the human body; and what more easily destroyed? Glass is granite compared with flesh; and vapours are rocks compared with life.— *C. H. S.* 
 
 **Verse 10.** *It is soon cut off, and we fly away.* At the Witan or council assembled at Edwin of Northumbria at Godmundingham (modern name Godmanham), to debate on the mission of Paulinus, the King was thus addressed by a heathen Thane, one of his chief men:—"The present life of man, O King, may be likened to what often happens when thou art sitting at supper with thy thanes and nobles in winter time. A fire blazes on the hearth, and warms the chamber; outside rages a storm of wind and snow; a sparrow flies in at one door of thy hall, and quickly passes out at the other. For a moment and while it is within, it is unharmed by the wintry blast, but this brief season of happiness over, it returns to that wintry blast whence it came, and vanishes from thy sight. Such is the brief life of man; we know not what went before it, and we are utterly ignorant as to what shall follow it. If, therefore, this new doctrine contain anything more certain, it justly deserves to be followed."— *Bede's Chronicle.* 
 
@@ -346,7 +346,7 @@ My drooping wing upbear.
 
 If it has happened to you—and there is not perhaps a man on the face of the earth to whom it does not sometimes happen—if it has ever happened to you to be crushed with the thought, that a life of ungodliness must issue in an eternity of woe, and if amid the solitude of midnight and amid the dejections of sickness there pass across the spirit the fitful figures of all avenging ministry, then we have to tell you, it is not the roar of battle which is powerful enough, nor the wail of orphans which is thrilling enough, to serve as the vehicle of such a communication; we have to tell you, that you fly to a refuge of lies, if you dare flatter yourselves that either the stillness of the hour or the feebleness of disease has caused you to invest vengeance with too much of the terrible. We have to tell you, that the picture was not overdrawn which you drew in your agony. *"According to thy fear, so is thy wrath."* Fear is but a mirror, which you may lengthen indefinitely, and widen indefinitely, and wrath lengthens with the lengthening and widens with the widening, still crowding the mirror with new and fierce forms of wasting and woe. We caution you, then, against ever cherishing the flattering notion, that fear can exaggerate God's wrath. We tell you, that when fear has done its worst, it can in no degree come up to the wrath which it images...
 
-Now, it is easy to pass from this view of the text to another, which is in a certain sense similar. You will always find, that men's apprehensions of God's wrath are nicely proportioned to the fear and reverence which are excited in them by the name and the attributes of God. He will have but light thoughts of future vengeance, who has but low thoughts of the character and properties of his Creator: and from this it comes to pass, that the great body of men betray a kind of stupid insensibility to the wrath of Jehovah...Look at the crowd of the worldly and the indifferent. There is no fear of God in that crowd; they are "of the earth earthy." The soul is sepulchred in the body, and has never wakened to a sense of its position with reference to a holy and avenging Creator. Now, then, you may understand the absence of all knowledge of the power of God's wrath. *"Who knoweth the power of thine anger? even according to thy fear, so is thy wrath."* — *Henry Melvill.* 
+Now, it is easy to pass from this view of the text to another, which is in a certain sense similar. You will always find, that men's apprehensions of God's wrath are nicely proportioned to the fear and reverence which are excited in them by the name and the attributes of God. He will have but light thoughts of future vengeance, who has but low thoughts of the character and properties of his Creator: and from this it comes to pass, that the great body of men betray a kind of stupid insensibility to the wrath of Jehovah... Look at the crowd of the worldly and the indifferent. There is no fear of God in that crowd; they are "of the earth earthy." The soul is sepulchred in the body, and has never wakened to a sense of its position with reference to a holy and avenging Creator. Now, then, you may understand the absence of all knowledge of the power of God's wrath. *"Who knoweth the power of thine anger? even according to thy fear, so is thy wrath."* — *Henry Melvill.* 
 
 **Verse 11.** *Who knoweth the power of thine anger?* etc. This he utters, 1. By way of lamentation. He sighing forth a most doleful complaint against the security and stupor he observed in that generation of men in his time, both in those that had already died in their sins, as well as of that new generation that had come up in their room, who still lived in their sins; oh, says he, `Who of them knoweth the power of thine anger?' namely, of that wrath which followeth after death, and seizes upon men's souls for ever; that is, who considers it, or regards it, till it take hold upon them? He utters it, 2. In a way of astonishment, out of the apprehension he had of the greatness of that wrath. *"Who knoweth the power of thine anger?"* that is, who hath or can take it in according to the greatness of it? which he endeavours to set forth, as applying himself to our own apprehension, in this wise, *Even according to thy fear, so is thy wrath.* Where those words, *"thy fear"* are taken *objective,* and so signify the *fear of thee;* and so the meaning is, that according to whatever proportion our souls can take in, in fears of thee and of thine anger, so great is thy wrath itself. You have souls that are able to comprehend vast fears and terrors; they are as extensive in their fears as in their desires, which are stretched beyond what this World or the creatures can afford them, to an infinity. The soul of man is a dark cell, which when it begets fears once, strange and fearful apparitions rise up in it, which far exceed the ordinary proportion of worldly evils (which yet also our fears usually make greater than they prove to be); but here, as to that punishment which is the effect of God's own immediate wrath, let the soul enlarge itself, says he, and widen its apprehension to the utmost; fear what you can imagine, yet still God's wrath, and the punishment it inflicts, are not only proportionable, but infinitely exceedingly all you can fear or imagine. *"Who knoweth the power of thine anger?"* It passeth knowledge.— *Thomas Goodwin.* 
 
@@ -378,7 +378,7 @@ For all Time is no time, when the Time is past."
 
 **Verse 12.** Of all arithmetical rules this is the hardest— *to number our days.* Men can number their herds and droves of oxen and of sheep, they can estimate the revenues of their manors and farms, they can with a little pains number and tell their coins, and yet they are persuaded that their days are infinite and innumerable and therefore do never begin to number them. Who saith not upon the view of another, surely yonder man looketh by his countenance as if he would not live long, or yonder woman is old, her days cannot be many: thus we can number other men's days and years, and utterly forget our own, therefore this is the true wisdom of mortal men, to number their own days.— *Thomas Tymme.* 
 
-**Verse 12.** Observe here, after that Moses had given us a description of the wrath of God, presently his thoughts are taken up with the meditation of death. The wrath of God thought on makes us think of death...Let us often think of the wrath of God, and let the thought of it so far work upon us, as to keep us in a constant awe and fear of God; and let this fear drive us to God by prayer, that fearing as we ought, we may pray as we are commanded, and praying, we may prevent the wrath of God. If our present sorrows do not move us, God will send greater; and when our sorrows are grown too great for us, we shall have little heart or comfort to pray. Let our fears then quicken our prayers; and let our prayers be such as are able to overcome our fears; so both ways shall we be happy, in that our fears have taught us to pray, and our prayers have made us to fear no more.— *Christopher Shute, in "Ars pie moriendi: or, The true Accomptant. A Sermon", etc.,* 1658.
+**Verse 12.** Observe here, after that Moses had given us a description of the wrath of God, presently his thoughts are taken up with the meditation of death. The wrath of God thought on makes us think of death... Let us often think of the wrath of God, and let the thought of it so far work upon us, as to keep us in a constant awe and fear of God; and let this fear drive us to God by prayer, that fearing as we ought, we may pray as we are commanded, and praying, we may prevent the wrath of God. If our present sorrows do not move us, God will send greater; and when our sorrows are grown too great for us, we shall have little heart or comfort to pray. Let our fears then quicken our prayers; and let our prayers be such as are able to overcome our fears; so both ways shall we be happy, in that our fears have taught us to pray, and our prayers have made us to fear no more.— *Christopher Shute, in "Ars pie moriendi: or, The true Accomptant. A Sermon", etc.,* 1658.
 
 **Verse 12.** It is evident, that the great thing wanted to make men provide for eternity, is the practical persuasion that they have but a short time to live. They will not apply their hearts unto wisdom until they are brought to the numbering of their days. And how are you to be brought, my brethren? The most surprising thing in the text is, that it should be in the form of a prayer. It is necessary that God should interfere to make men number their days. We call this surprising. What! is there not enough to make us feel our frailty, without an actual, supernatural impression? What! are there not lessons enough of that frailty without any new teaching from above? Go into our churchyards—all ages speak to all ranks. Can we need more to prove to us the uncertainty of life? Go into mourning families, and where are they not to be found?—in this it is the old, in that it is the young, whom death has removed—and is there not eloquence in tears to persuade us that we are mortal? Can it be that in treading every day on the dust of our fathers, and meeting every day with funerals of our brethren, we shall not yet be practically taught to number our days, unless God print the truth on our hearts, through some special operation of his Spirit? It is not thus in other things. In other things the frequency of the occurrence makes us expect it. The husbandman does not pray to be made believe that the seed must be buried and die before it will germinate. This has been the course of the grain of every one else, and where there is so much experience what room is there for prayer. The mariner does not pray to be taught that the needle of his compass points towards the north. The needle of every compass has so pointed since the secret was discovered, and he has not to ask when he is already so sure. The benighted man does not pray to be made to feel that the sun will rise in a few hours. Morning has succeeded to night since the world was made, and why should he ask what he knows too welt to doubt? But in none of these things is there greater room for assurance than we have each one for himself, in regard to its being appointed to him once to die. Nevertheless, we must pray to be! made to know—to be made to feel—that we are to die, in the face of an experience which is certainly not less than that of the parties to whom we have referred. This is a petition that we may believe, believe as they do: for they act on their belief in the fact which this experience incontestably attests. And we may say of this, that it is amongst the strangest of the strange things that may be affirmed of human nature, that whilst, in regard to inferior concerns, we can carefully avail ourselves of experience, taking care to register its decisions and to deduce from them rules for our guidance—in the mightiest concern of all we can act as though experience had furnished no evidence, and we were left without matter from which to draw inferences. And, nevertheless, in regard to nothing else is the experience so uniform. The grain does not always germinate—but every man dies. The needle does not always point due north—but every man dies. The sun does not cross the horizon in every place in every twenty-four hours—but every man dies. Yet we must pray—pray as for the revelation of a mystery hidden from our gaze—we must pray to be made to know—to be made to believe—that every man dies! For I call it not belief, and our text calls it not belief, in the shortness of life and the certainty of death, which allows men to live without thought of eternity, without anxiety as to the soul, or without an effort to secure to themselves salvation. I call it not belief—no, no, anything rather than belief. Men are rational beings, beings of forethought, disposed to make provision for what they feel to be inevitable; and if there were not a practical infidelity as to their own mortality, they could not be practically reckless as to their own safety.— *Henry Melvill.* 
 
@@ -386,7 +386,7 @@ For all Time is no time, when the Time is past."
 
 **Verse 12.** *Our hearts.* In both the Scriptures of the Old and New Testament, the term *"heart"* is applied alike to the mind that thinks, to the spirit that feels, and the will that acts. And it here stands for the whole mental and moral nature of man, and implies that the whole soul and spirit, with all their might, are to be applied in the service of wisdom.— *William Brown Keer,* 1863.
 
-**Verse 12.** *Wisdom.* I consider this *"wisdom"* identical with the hypostatic *wisdom* described by Solomon, Pr 8:15-31, and Pr 9:1,5, even Immanuel, the *wisdom,* righteousness, sanctification, and redemption of his people. The chief pursuit of life should be the attainment of an experimental knowledge of Christ, by whom "kings reign and princes decree justice; whose delights are with the sons of men, and who crieth, Whoso findeth me findeth life, and shall obtain favour of the Lord; come, eat of my bread and drink of the wine which I have mingled." David in the Psalms, and Solomon, his son, in the Proverbs, have predictively manifested Messiah as the hypostatic *wisdom,* "whose goings forth have been from of old, from everlasting."— *J.N. Coleman.* 
+**Verse 12.** *Wisdom.* I consider this *"wisdom"* identical with the hypostatic *wisdom* described by Solomon, Pr 8:15-31, and Pr 9:1,5, even Immanuel, the *wisdom,* righteousness, sanctification, and redemption of his people. The chief pursuit of life should be the attainment of an experimental knowledge of Christ, by whom "kings reign and princes decree justice; whose delights are with the sons of men, and who crieth, Whoso findeth me findeth life, and shall obtain favour of the Lord; come, eat of my bread and drink of the wine which I have mingled." David in the Psalms, and Solomon, his son, in the Proverbs, have predictively manifested Messiah as the hypostatic *wisdom,* "whose goings forth have been from of old, from everlasting."— *J. N. Coleman.* 
 
 **Verse 13.** *Let it repent thee.* According to the not infrequent and well known phraseology of Scripture, God is said to repent, when putting away men's sorrow, and affording new ground of gladness, he appears as it were to be changed.— *John Calvin.* 
 
@@ -394,7 +394,7 @@ For all Time is no time, when the Time is past."
 
 **Verse 14.** *O satisfy us.* That is everywhere and evermore the cry of humanity. And what a strange cry it is, when you think of it, brethren! Man is the offspring of God; the bearer of his image; he stands at the head of the terrestrial creation; on earth he is peerless; he possesses wondrous capacities of thought, and feeling, and action. The world, and all that is in it, has been formed in a complete and beautiful adaptation to his being. Nature seems to be ever calling to him with a thousand voices, to be glad and rejoice; and yet he is unsatisfied, discontented, miserable! This is a most strange thing—strange, that is, on any theory respecting man's character and condition, but that which is supplied by the Bible; and it is not only a testimony to the ruin of his nature, but also to the insufficiency of everything earthly to meet his cravings.— *Charles M. Merry,* 1864.
 
-**Verse 14.** *O satisfy us early with thy mercy; that we may rejoice and be glad all our days.* We pass now to this particular prayer, and those limbs that make up the body of it. They are many; as many as words in it: satisfy, and satisfy us, and do that early, and do that with that which is thine, and let that be mercy. So that first it is a prayer for fulness and satisfaction,— *satisfy:* and then it is a prayer not only of appropriation to ourselves, satisfy me, but of a charitable dilation and extension to others, satisfy *us,* all us, all thy servants, all thy church; and then thirdly it is a prayer of despatch and expedition, "Satisfy us *early; "* and after that, it is a prayer of evidence and manifestation, satisfy us with that which is, and which we may discern to be *thine;* and then lastly it is a prayer of limitation even upon God himself, that God will take no other way herein but the way of *"mercy." "Satisfy us early with thy mercy."*...There is a spiritual fulness in this life of which St. Hierome speaks, *Ebrietas felix, satietas salutaris,* A happy excess and a wholesome surfeit; *quoe quanto copiosius sumitur, majorem donat sobrietatem*, In which the more we eat, the more temperate we are, and the more we drink, the more sober. In which (as St. Bernard also expresses it in his mellifluence) *Mutua interminabili inexplicabili generatione, desiderium generat satietatem, et satietas parit desiderium,* By a mutual and reciprocal, by an undeterminable and inexpressible generation of one another, the desire of spiritual graces begets a satiety, and then this satiety begets a farther desire. This is a holy ambition, a sacred covetousness. Naphtali's blessing, *"O Naphtali, satisfied with favour, and full with the blessing of the Lord",* De 33:23; St. Stephen's blessing, *"Full of faith and of the Holy Ghost",* Ac 6:5; the blessed Virgin's blessing, *"Full of grace";* Dorcas' blessing, *"Full of good works and of alms deeds",* Ac 9:36; the blessing of him who is blessed above all, and who blesseth all, even Christ Jesus, *"Full of wisdom, full of the Holy Ghost, full of grace and truth".* Lu 2:40 4:1 Joh 1:14.... *"Satisfy us early with"* that which is thine, *"thy mercy; "* for there are mercies (in a fair extent and accommodation of the word, that is refreshing, eases, deliverances), that are not *his* mercies, nor his satisfactions...It is not his mercy, except we go by good ways to good ends; except our safety be established by alliance with his friends, except our peace may be had with the perfect continuance of our religion, there is no safety, there is no peace. But let me feel the effect of this prayer, as it is a prayer of manifestation, let me discern that that which is done upon me is done by the hand of God, and I care not what it be, I had rather have God's vinegar, than man's oil, God's wormwood, than man's manna, God's justice, than any man's mercy; for therefore did Gregory Nyssen call St. Basil in a holy sense, Ambidextrum, because he took everything that came by the right handle, and with the right hand, because he saw it come from God. Even afflictions are welcome when we see them to be his: though the way that he would choose, and the way that this prayer entreats, be only mercy, *"Satisfy us early with thy mercy."* — *John Donne.* 
+**Verse 14.** *O satisfy us early with thy mercy; that we may rejoice and be glad all our days.* We pass now to this particular prayer, and those limbs that make up the body of it. They are many; as many as words in it: satisfy, and satisfy us, and do that early, and do that with that which is thine, and let that be mercy. So that first it is a prayer for fulness and satisfaction,— *satisfy:* and then it is a prayer not only of appropriation to ourselves, satisfy me, but of a charitable dilation and extension to others, satisfy *us,* all us, all thy servants, all thy church; and then thirdly it is a prayer of despatch and expedition, "Satisfy us *early; "* and after that, it is a prayer of evidence and manifestation, satisfy us with that which is, and which we may discern to be *thine;* and then lastly it is a prayer of limitation even upon God himself, that God will take no other way herein but the way of *"mercy." "Satisfy us early with thy mercy."*... There is a spiritual fulness in this life of which St. Hierome speaks, *Ebrietas felix, satietas salutaris,* A happy excess and a wholesome surfeit; *quoe quanto copiosius sumitur, majorem donat sobrietatem*, In which the more we eat, the more temperate we are, and the more we drink, the more sober. In which (as St. Bernard also expresses it in his mellifluence) *Mutua interminabili inexplicabili generatione, desiderium generat satietatem, et satietas parit desiderium,* By a mutual and reciprocal, by an undeterminable and inexpressible generation of one another, the desire of spiritual graces begets a satiety, and then this satiety begets a farther desire. This is a holy ambition, a sacred covetousness. Naphtali's blessing, *"O Naphtali, satisfied with favour, and full with the blessing of the Lord",* De 33:23; St. Stephen's blessing, *"Full of faith and of the Holy Ghost",* Ac 6:5; the blessed Virgin's blessing, *"Full of grace";* Dorcas' blessing, *"Full of good works and of alms deeds",* Ac 9:36; the blessing of him who is blessed above all, and who blesseth all, even Christ Jesus, *"Full of wisdom, full of the Holy Ghost, full of grace and truth".* Lu 2:40 4:1 Joh 1:14.... *"Satisfy us early with"* that which is thine, *"thy mercy; "* for there are mercies (in a fair extent and accommodation of the word, that is refreshing, eases, deliverances), that are not *his* mercies, nor his satisfactions... It is not his mercy, except we go by good ways to good ends; except our safety be established by alliance with his friends, except our peace may be had with the perfect continuance of our religion, there is no safety, there is no peace. But let me feel the effect of this prayer, as it is a prayer of manifestation, let me discern that that which is done upon me is done by the hand of God, and I care not what it be, I had rather have God's vinegar, than man's oil, God's wormwood, than man's manna, God's justice, than any man's mercy; for therefore did Gregory Nyssen call St. Basil in a holy sense, Ambidextrum, because he took everything that came by the right handle, and with the right hand, because he saw it come from God. Even afflictions are welcome when we see them to be his: though the way that he would choose, and the way that this prayer entreats, be only mercy, *"Satisfy us early with thy mercy."* — *John Donne.* 
 
 **Verse 16.** *And thy glory unto their children.* That is to say, that our children may see the glorious fruit of this affliction in us, that so they may not be discouraged thereby to serve thee, but rather the more heartened, when they shall see what a glorious work thou hast wrought in and upon us by afflicting us.— *William Bradshaw.* 
 
@@ -422,109 +422,109 @@ For all Time is no time, when the Time is past."
 
 **Verse 1.** 
 
-1\.The soul is at home in God. (a) Originally. Its birth place—its native air—home of its thoughts, will, conscience, affections, desires. (b) Experimentally. When it returns here it feels itself at home: "Return unto thy rest", etc. (c) Eternally. The soul, once returned to this home, never leaves it: "it shall go no more out for ever."
+1\. The soul is at home in God. (a) Originally. Its birth place—its native air—home of its thoughts, will, conscience, affections, desires. (b) Experimentally. When it returns here it feels itself at home: "Return unto thy rest", etc. (c) Eternally. The soul, once returned to this home, never leaves it: "it shall go no more out for ever."
 
-2\.The soul is not at home elsewhere. "Our dwelling place", etc. (a) For all men. (b) At all times. He is ever the same, and the wants of the soul substantially are over the same.— *G.R.* 
+2\. The soul is not at home elsewhere. "Our dwelling place", etc. (a) For all men. (b) At all times. He is ever the same, and the wants of the soul substantially are over the same.— *G. R.* 
 
 **Verse 2.** A Discourse upon the Eternity of God. S. Charnock. Works pg 344-373, Nichol's Edition.
 
 **Verse 2.** (*last clause* ).—The consideration of God's eternity may serve,
 
-1\.For the support of our faith; in reference to our own condition for the future; in reference to our posterity; and to the condition of God's church to the end of the world.
+1\. For the support of our faith; in reference to our own condition for the future; in reference to our posterity; and to the condition of God's church to the end of the world.
 
-2\.For the encouragement of our obedience. We serve the God who can give us an everlasting reward.
+2\. For the encouragement of our obedience. We serve the God who can give us an everlasting reward.
 
-3\.For the terror of wicked men.
+3\. For the terror of wicked men.
 
 — *Tillotson's Sermon on the Eternity of God.* 
 
 **Verse 3.** 
 
-1\.The cause of death—"thou turnest."
+1\. The cause of death—"thou turnest."
 
-2\.The nature of death—"return."
+2\. The nature of death—"return."
 
-3\.The necessities of death—reconciliation with God, and preparation to return.
+3\. The necessities of death—reconciliation with God, and preparation to return.
 
 **Verse 4.** 
 
-1\.Contemplate the lengthened period with all its events.
+1\. Contemplate the lengthened period with all its events.
 
-2\.Consider what He must be to whom all this is as nothing.
+2\. Consider what He must be to whom all this is as nothing.
 
-3\.Consider how we stand towards Him.
+3\. Consider how we stand towards Him.
 
 **Verse 5.** Comparison of mortal life to sleep. See William Bradshaw's remarks in our Notes on this verse.
 
 **Verses 5-6.** The lesson of the Meadows.
 
-1\.Grass growing the emblem of youth.
+1\. Grass growing the emblem of youth.
 
-2\.Grass flowering—or man in his prime.
+2\. Grass flowering—or man in his prime.
 
-3\.The scythe.
+3\. The scythe.
 
-4\.Grass mown—or man at death.
+4\. Grass mown—or man at death.
 
 **Verse 7.** 
 
-1\.Man's chief troubles are the effect of death. (a) His own death. (b) The death of others.
+1\. Man's chief troubles are the effect of death. (a) His own death. (b) The death of others.
 
-2\.Death is the effect of Divine anger: "We are consumed by", etc.
+2\. Death is the effect of Divine anger: "We are consumed by", etc.
 
-3\.Divine anger is the effect of sin. Death by sin.— *G.R.* 
+3\. Divine anger is the effect of sin. Death by sin.— *G. R.* 
 
 **Verse 8.** 
 
-1\.The notice which God takes of sin. (a) Individual. *"Our* iniquities." (b) Universal notice—"iniquities"—not one only, but all. (c) Minute, even the most secret sins. (d) Constant: "Set them before" him—"in the light", etc.
+1\. The notice which God takes of sin. (a) Individual. *"Our* iniquities." (b) Universal notice—"iniquities"—not one only, but all. (c) Minute, even the most secret sins. (d) Constant: "Set them before" him—"in the light", etc.
 
-2\.The notice which we should take of them on that account. (a) In our thoughts. Set them before us. (b) In our consciences. Condemn ourselves on account of them. (c) In our wills. Turn from them by repentance—turn to a pardoning God by faith.— *G.R.* 
+2\. The notice which we should take of them on that account. (a) In our thoughts. Set them before us. (b) In our consciences. Condemn ourselves on account of them. (c) In our wills. Turn from them by repentance—turn to a pardoning God by faith.— *G. R.* 
 
 **Verse 9.** 
 
-1\.Every man has a history. His life is as a tale—a separate tale—to be told.
+1\. Every man has a history. His life is as a tale—a separate tale—to be told.
 
-2\.Every man's history has some display of God in it. All our days, some may say, are passed away in thy wrath—all, others may say, in thy love—and others, some of our days in anger and some in love.
+2\. Every man's history has some display of God in it. All our days, some may say, are passed away in thy wrath—all, others may say, in thy love—and others, some of our days in anger and some in love.
 
-3\.Every man's history will be told. In death, at judgment, through eternity.— *G.R.* 
+3\. Every man's history will be told. In death, at judgment, through eternity.— *G. R.* 
 
 **Verse 10.** 
 
-1\.What life is *to* most. It seldom reaches its natural limits. One half die in childhood; more than half of the other half die in manhood; few attain to old age.
+1\. What life is *to* most. It seldom reaches its natural limits. One half die in childhood; more than half of the other half die in manhood; few attain to old age.
 
-2\.What life is *at* most. "Threescore years", etc.
+2\. What life is *at* most. "Threescore years", etc.
 
-3\.What it is to most beyond that limit. "If by reason", etc.
+3\. What it is to most beyond that limit. "If by reason", etc.
 
-4\.What it is to all. "It is soon cut off", etc.— *G.R.* 
+4\. What it is to all. "It is soon cut off", etc.— *G. R.* 
 
 **Verse 11.** 
 
-1\.The anger of God against sin is not fully known by its effects in this life. "Who knoweth the power", etc. Here we see the hiding of its power.
+1\. The anger of God against sin is not fully known by its effects in this life. "Who knoweth the power", etc. Here we see the hiding of its power.
 
-2\.The anger of God against sin hereafter is equal to our greatest fears. "According to thy fear", etc.; or, "the fear of thee", etc.— *G.R.* 
+2\. The anger of God against sin hereafter is equal to our greatest fears. "According to thy fear", etc.; or, "the fear of thee", etc.— *G. R.* 
 
 **Verse 12.** 
 
-1\.The Reckoning. (a) What their usual number. (b) How many of them are already spent. (c) How uncertain the number that remains. (d) How much of them must be occupied with the necessary duties of this life. (e) What afflictions and helplessness may attend them.
+1\. The Reckoning. (a) What their usual number. (b) How many of them are already spent. (c) How uncertain the number that remains. (d) How much of them must be occupied with the necessary duties of this life. (e) What afflictions and helplessness may attend them.
 
-2\.The use to be made of it. (a) To "seek wisdom"—not riches, worldly honours, or pleasures—but wisdom; not the wisdom of the world, but of God. (b) To "apply the heart" to it. Not mental merely, but moral wisdom; not speculative merely, but experimental; not theoretical merely, but practical. (c) To seek it at once—immediately. (d) To seek it constantly— *"apply* our hearts", etc.
+2\. The use to be made of it. (a) To "seek wisdom"—not riches, worldly honours, or pleasures—but wisdom; not the wisdom of the world, but of God. (b) To "apply the heart" to it. Not mental merely, but moral wisdom; not speculative merely, but experimental; not theoretical merely, but practical. (c) To seek it at once—immediately. (d) To seek it constantly— *"apply* our hearts", etc.
 
-3\.The help to be sought in it. "So teach us", etc. (a) Our own ability is insufficient through the perversion both of the mind and heart by sin. (b) Divine help may be obtained. "If any man lack wisdom." etc.— *G.R.* 
+3\. The help to be sought in it. "So teach us", etc. (a) Our own ability is insufficient through the perversion both of the mind and heart by sin. (b) Divine help may be obtained. "If any man lack wisdom." etc.— *G. R.* 
 
 **Verse 12.** —The Sense of Mortality. Show the variety of blessings dispensed to different classes by the right use of the sense of mortality.
 
-1\.It may be an antidote for the sorrowful. Reflect, "there is an end."
+1\. It may be an antidote for the sorrowful. Reflect, "there is an end."
 
-2\.It should be a restorative to the labouring.
+2\. It should be a restorative to the labouring.
 
-3\.It should be a remedy for the impatient.
+3\. It should be a remedy for the impatient.
 
-4\.As a balm to the wounded in heart.
+4\. As a balm to the wounded in heart.
 
-5\.As a corrective for the worldly.
+5\. As a corrective for the worldly.
 
-6\.As a sedative to the frivolous.
+6\. As a sedative to the frivolous.
 
 — *R. Andrew Griffin, in "Stems and Twigs",* 1872.
 
@@ -534,45 +534,45 @@ For all Time is no time, when the Time is past."
 
 **Verse 14.** 
 
-1\.The deepest yearning of man is for satisfaction.
+1\. The deepest yearning of man is for satisfaction.
 
-2\.Satisfaction can only be found in the realization of Divine Mercy.
+2\. Satisfaction can only be found in the realization of Divine Mercy.
 
-— *C.M. Merry, 1864.* 
+— *C. M. Merry, 1864.* 
 
 **Verse 14.** *O satisfy us early with thy mercy*, etc. Learn,
 
-1\.That our souls can have no solid satisfaction in earthly things.
+1\. That our souls can have no solid satisfaction in earthly things.
 
-2\.That the mercy of God alone can satisfy our souls.
+2\. That the mercy of God alone can satisfy our souls.
 
-3\.That nothing but satisfaction in God can fill our days with joy and gladness.
+3\. That nothing but satisfaction in God can fill our days with joy and gladness.
 
 — *John Cawood,* 1842.
 
 **Verse 14.** 
 
-1\.The most cheerful days of earth are made more cheerful by thoughts of Divine mercy.
+1\. The most cheerful days of earth are made more cheerful by thoughts of Divine mercy.
 
-2\.The most sorrowful days of earth are made glad by the consciousness of Divine love.
+2\. The most sorrowful days of earth are made glad by the consciousness of Divine love.
 
-— *G.R.* 
+— *G. R.* 
 
 **Verse 15.** 
 
-1\.The joy of faith is in proportion to the sorrow of repentance.
+1\. The joy of faith is in proportion to the sorrow of repentance.
 
-2\.The joy of consolation is in proportion to suffering in affliction.
+2\. The joy of consolation is in proportion to suffering in affliction.
 
-3\.The joy of the returning smiles of God is in proportion to the terror of his frowns.— *G.R.* 
+3\. The joy of the returning smiles of God is in proportion to the terror of his frowns.— *G. R.* 
 
 **Verse 15.** The Balance of life, or the manner in which our joys are set over against our sorrows.
 
 **Verse 16.** 
 
-1\.Our duty—"work", and our desire about it.
+1\. Our duty—"work", and our desire about it.
 
-2\.Our children's portion—"glory", and our prayer in reference to it.
+2\. Our children's portion—"glory", and our prayer in reference to it.
 
 **Verse 17.** The Right Establishment, or the work which will endure—why it will endure and should endure. Why we wish our work to be of such a nature, and whether there are enduring elements in it.
 
@@ -588,13 +588,13 @@ Moses his Prayer. Or, An Exposition of the Ninetieth Psalme. In which is set for
 
 Wherein:
 
-1\.The Sum and Scope.
+1\. The Sum and Scope.
 
-2\.The Doctrines.
+2\. The Doctrines.
 
-3\.The Reasons.
+3\. The Reasons.
 
-4\.The uses of most Texts are observed.
+4\. The uses of most Texts are observed.
 
 By *Samuel Smith,* Minister of the Gospel, Author of *David's Repentance* and the *Great Assize,* and yet Living...1656.
 

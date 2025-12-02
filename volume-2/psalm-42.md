@@ -90,7 +90,7 @@ Yea, mine own God is he."
 
 **Title &mdash;** *"Sons of Korah."* Medieval writers remark how here, as so often, it was the will of God to raise up saints where they could have been least looked for. Who should imagine that from the posterity of him who said, "Ye take too much upon you, ye sons of Aaron, "should have risen those whose sweet Psalms would be the heritage of the church of God to the end of time? *J. M. Neale.* 
 
-**Verse 1.** *The hart panteth after the water brooks.* And here we have started up, and have sent leaping over the plain another of Solomon's favourites. What elegant creatures these gazelles are, and how gracefully they bound!...The sacred writers frequently mention gazelles under the various names of harts, roes, and hinds...I have seen large flocks of these panting harts gather round the water brooks in the great deserts of Central Syria, so subdued by thirst that you could approach quite near them before they fled. *W. M. Thomson.* 
+**Verse 1.** *The hart panteth after the water brooks.* And here we have started up, and have sent leaping over the plain another of Solomon's favourites. What elegant creatures these gazelles are, and how gracefully they bound!... The sacred writers frequently mention gazelles under the various names of harts, roes, and hinds... I have seen large flocks of these panting harts gather round the water brooks in the great deserts of Central Syria, so subdued by thirst that you could approach quite near them before they fled. *W. M. Thomson.* 
 
 **Verse 1.** Little do the drunkards think that take so much pleasure in frequenting the houses of Bacchus, that the godly take a great deal more, and have a great deal more joy in frequenting the houses of God. But it is a thing that God promised long ago by the prophet: "Then will I bring to my holy mountain, and make them joyful in my house of prayer: their burnt offerings and their sacrifices shall be accepted upon mine altar; for mine house shall be called an house of prayer for all people." Isa 56:7. And I think, I hear the willing people of God's power, merrily calling one to another in the words of Mic 4:2, "Come, and let us go up to the mountain of the Lord, and to the house of the God of Jacob; and he will teach us of his ways, and we will walk in his paths: for the law shall go forth of Zion, and the word of the Lord from Jerusalem." How is a godly man ravished with "the beauty of holiness, "when he is at such meetings! How was holy David taken with being in the house of God at Jerusalem! insomuch, that if he were kept from it but a little while, his soul panted for it, and longed after it, and fainted for lack of it, as a thirsty hart would do for lack of water! *As the hart panteth after the water brooks, so panteth my soul after thee, O God. My soul thirsteth for God, for the living God: when shall I come and appear before God?* The poor disconsolate captives preferred it to the best place in their memory. "If I forget thee, O Jerusalem, let my right hand forget her cunning." Ps 137:5; nay, they preferred it to their chiefest joy: "If I do not remember thee, let my tongue cleave to the roof of my mouth; if I prefer not Jerusalem above my chief joy, "Ps 42:6. There was no place in the world that David regarded or cared to be in in comparison of it. "A day in thy courts is better than a thousand. I had rather be a doorkeeper in the house of my God, than to dwell in the tents of wickedness" Ps 84:10, insomuch, that he could find it in his heart, nay, and would choose, if he might have his desire, to spend all his days in that house. Ps 27:4. *Zachary Bogan.* 
 
@@ -162,7 +162,7 @@ Help me for thy honour's sake.
 
 **Verse 4.** *I had gone with the multitude, I went with them to the house of God, with the voice of joy and praise, with a multitude that kept holyday.* The gracious God is pleased to esteem it his glory to have many beggars thronging at the beautiful gate of his temple, for spiritual and corporal alms. What an honour is it to our great Landlord that multitudes of tenants flock together to his house to pay their rent of thanks and worship for their all which they hold of him! How loud and lovely is the noise of many golden trumpets! Good Lord, what an echo do they make in heaven's ears! When many skilful musicians play in concert with well tuned and prepared instruments the music cannot but be ravishing to God himself. *George Swinnock.* 
 
-**Verse 4.** Do but consider David's tears and grief for want of, and his fervent prayers for the fruition of public ordinances even then, when he had opportunities for private performances; and surely thou wilt esteem the ministry of the Word no mean mercy. See his sorrow when he was driven from God's sanctuary. *When I remember these things I pour out my soul in me: for I had gone with the multitude, I went with them to the house of God." "My soul is poured out;* that is, I am overwhelmed with grief, and ever ready to die when I compare my present condition with my former happiness in the fruition of religious assemblies. There is an elegancy in the phrase *poured out*; the word is applied to water, or any liquid thing, and in Scripture signifieth abundance. Joe 2:28. My life is ready to be poured out as water upon the ground, which cannot be gathered up again, when I remember my former mercies, and consider my present misery...The loss of his father, mother, wives, children, lands, liberty—nay, of his very life, would not have gone so near his heart as the loss of public ordinances. As his sorrow was great for the want, so was his suit most earnest for the enjoyment of them. How many a prayer doth he put up for the liberty of the tabernacle! Ps 43:3-4 27:4,8. It is the one thing, the principal thing which he begs of God. *Henry Smith.* 
+**Verse 4.** Do but consider David's tears and grief for want of, and his fervent prayers for the fruition of public ordinances even then, when he had opportunities for private performances; and surely thou wilt esteem the ministry of the Word no mean mercy. See his sorrow when he was driven from God's sanctuary. *When I remember these things I pour out my soul in me: for I had gone with the multitude, I went with them to the house of God." "My soul is poured out;* that is, I am overwhelmed with grief, and ever ready to die when I compare my present condition with my former happiness in the fruition of religious assemblies. There is an elegancy in the phrase *poured out*; the word is applied to water, or any liquid thing, and in Scripture signifieth abundance. Joe 2:28. My life is ready to be poured out as water upon the ground, which cannot be gathered up again, when I remember my former mercies, and consider my present misery... The loss of his father, mother, wives, children, lands, liberty—nay, of his very life, would not have gone so near his heart as the loss of public ordinances. As his sorrow was great for the want, so was his suit most earnest for the enjoyment of them. How many a prayer doth he put up for the liberty of the tabernacle! Ps 43:3-4 27:4,8. It is the one thing, the principal thing which he begs of God. *Henry Smith.* 
 
 **Verse 4.** The bias of the soul is remarkably shown by the objects of regretful recollection. *Henry March.* 
 
@@ -186,13 +186,13 @@ Pray with the most: for where most pray, is heaven.
 
 Think of this, ye that feel the heaviness of your soul; think of it, ye that do not, for ye may feel it. Know there is a sorrow "that worketh repentance not to be repented of." Know again there is a sorrow "that worketh death." Remember that there were tears that got sinful Mary heaven; remember again there were tears that got sinful Esau *nothing.* For as in martyrdom, it is not the sword, the boiling lead, or fire, not *what* we suffer, but *why,* that makes us martyrs; so in our sorrows, it is not how deep they wound, but *why,* that justifies them. Let every one, therefore, that hath a troubled heart, ask his soul the *"Why:" "Why art thou cast down?"* Is it not for thine own sins, or the sins of others? Take either of them, thine eyes will have a large field to water. Is it for that thou hast been a child of wrath, a servant of the devil? Is it for that thou art a candle set in the wind, blown at by several temptations? or is it for that thou wouldst be freed from them? "Woe is me, that I sojourn in Mesech, that I dwell in the tents of Kedar!" Ps 120:5. Art thou troubled as St. Augustine was, when he read that the way to heaven was narrow, the number small that travelled thither? Or hast thou put on St. Bernard's resolution, who had made a compact with his soul, never to joy till he had heard his Saviour call him, "Come ye blessed, "nor never to leave sorrowing till he had escaped the bitter sentence, "Go, ye cursed?" If any of these be the *Why,* the ground of thy sorrows, if such thoughts have *cast thee down;* know, that thy Saviour hath already blessed thee, for "Blessed are they that mourn." The angels are thy servants, they gather thy tears; God is thy treasurer, he lays them up in his bottle; the Holy Ghost is thy comforter, he will not leave thee. Fear not, then, to be thus *cast down,* fear not to be thus *disquieted within thee. Brian Duppa (Bishop), 1588-1662, in a Sermon entitled "The Soule's Soloquie."* 
 
-**Verse 5.** *Why art thou cast down, O my soul?* Why, or what may be the reason, that this text is three times used in this Psalm and in the next? whereas you do not find two verses of the same length used in all the Book of Psalms besides, except in Psalm 107, where is often repeated, "O that men would praise the Lord, "etc. Now, surely the frequent mention of this text and words doth argue and note unto us the weightiness of the matter...Wicked men oppressed David, and the devil tempted him; yet he chides his own heart and nothing else. David did not chide at Saul, nor chide at Absalom; but he chides and checks his own heart. "Why art thou cast down, O my soul?" Though the devil and wicked men, the one do tempt, the other do oppress as instruments of punishment for sin; yet we with David are to chide our own hearts. Consider, what though in our translations the words are translated and rendered passively, *Why art thou cast down?* yet, in the original, they are rendered actively; we read it, *Why art thou cast down?* etc; but in the original it is read, (yle ymht-hmw yvkn yxxwtvt-hm) *"Why bowest* (or pressest) *thou down thyself, my soul? and why tumultest thou against me?"* As Arias Montanus, *Cur humiliasti te? Cur deprimes te anima mea?* So Lorinus, Pr 12:25. And the words so read, they do not intimate thus much, that God's own people may be cast down too much for the sense of sin, and they are most active in their own down casting. It is not God nor the devil that cast thee down; but *Why dost thou cast thyself down?* to create more trouble on thyself than either God doth inflict or the devil tempt thee to. *Christopher Love, in "The Dejected Soul's Cure,"* 1657.
+**Verse 5.** *Why art thou cast down, O my soul?* Why, or what may be the reason, that this text is three times used in this Psalm and in the next? whereas you do not find two verses of the same length used in all the Book of Psalms besides, except in Psalm 107, where is often repeated, "O that men would praise the Lord, "etc. Now, surely the frequent mention of this text and words doth argue and note unto us the weightiness of the matter... Wicked men oppressed David, and the devil tempted him; yet he chides his own heart and nothing else. David did not chide at Saul, nor chide at Absalom; but he chides and checks his own heart. "Why art thou cast down, O my soul?" Though the devil and wicked men, the one do tempt, the other do oppress as instruments of punishment for sin; yet we with David are to chide our own hearts. Consider, what though in our translations the words are translated and rendered passively, *Why art thou cast down?* yet, in the original, they are rendered actively; we read it, *Why art thou cast down?* etc; but in the original it is read, (yle ymht-hmw yvkn yxxwtvt-hm) *"Why bowest* (or pressest) *thou down thyself, my soul? and why tumultest thou against me?"* As Arias Montanus, *Cur humiliasti te? Cur deprimes te anima mea?* So Lorinus, Pr 12:25. And the words so read, they do not intimate thus much, that God's own people may be cast down too much for the sense of sin, and they are most active in their own down casting. It is not God nor the devil that cast thee down; but *Why dost thou cast thyself down?* to create more trouble on thyself than either God doth inflict or the devil tempt thee to. *Christopher Love, in "The Dejected Soul's Cure,"* 1657.
 
 **Verse 5.** *Why art thou cast down, O my soul?* Consider but this, how much there is of God in the affliction. 1. Came it not without *God's privity?* Why art thou troubled, then? Thy Father knowing of it would have stopped its course if it had been best for thee. 2. Came it not *without his command?* Why art thou troubled? It is the cup that thy Father hath given thee, and wilt thou not drink it? 3. Is it thy Father's will that thou shouldest suffer, and shall it be thy humour to rebel? 4. Hath God done *no more than he might do?* Why dost thou murmur, as if he had done thee wrong? 5. Is it a piece of his *wise acting?* Why dost thou exalt thy foolish will above his infinite wisdom? 6. Is his way *a way of mercy?* Why does thy mutinous spirits tumble at it, as a rough way? 7. Is the thing *good* that is befallen thee? Why dost thou quarrel as if it were evil? 8. Is it *less than men suffer,* than his own people, yea, than his own Son hath suffered, and hast thou cause to complain? 9. Is it but *thy merit?* and less than that, too; and shall the living man complain for the punishment of his sin? 10. Is it *in measure,* ordered with care? (1) by the physician's hand; and (2) a little draught, and (3) proportioned to thy strength; (4) measured out according to the proportion of strength and comfort he intends to measure thee out, to bear it withal? Why are thou cast down? Why art thou disquieted? Is the end and fruit of it but to make thee white, and purify thee? to purge thy sin past, and to prevent it for the time to come? and dost thou find a present fruit in it? Dost thou find that now thou art turned into a chalk stone; thy groves and images—those corruptions which did attend thee while thou wert in prosperity, and which would attend thee if you had those good things which you want, and are disquieted for; and if those evils which you feel or fear were far from your sense and fear, would still attend thee—that those do not now stand up? Lift up thy head, Christian! say to thy soul, *Why art thou cast down, O my soul? and why art thou disquieted in me?* Meditate what there is of God in the cause of thy disquietments. *John Collinge (1623-1690) in "A Cordial for a Fainting Soule,"* 1652.
 
 **Verse 5.** *Why art thou disquieted?* more literally, *tumultuated,* a word frequently applied to the roaring and tumult and tossing of the sea. See Isa 17:12 Jer 5:22 6:23 51:55. *Henry March.* 
 
-**Verse 5.** *Hope thou in God.* I shall show what powerful influence *hope* hath on the Christian in affliction, and how. First, it stills and silences him under affliction. It keeps the king's peace in the heart, which else would soon be in an uproar. A hopeless soul is clamorous: one while it charges God, another while it reviles his instruments. It cannot long rest, and no wonder, when hope is not there. Hope hath a rare art in stilling a froward spirit, when nothing else can; as the mother can make the crying child quiet by laying it to the breast, when the rod makes it cry worse. This way David took, and found it effectual; when his soul was unquiet by reason of his present affliction, he lays it to the breast of the promise: "Why art thy cast down O my soul? and why art thou disquieted in me? hope thou in God." And here his soul sweetly sleeps, as the child with the breast in his mouth; and that this was his usual way, we may think by the frequent instances we find; thrice we find him taking this course in two Psalms, 42 and 43...Secondly, this hope fills the afflicted soul with such inward joy and consolation, that it can laugh while tears are in the eye, sigh and sing all in a breath; it is called "the rejoicing of hope, "Heb 3:6. And hope never affords more joy than in affliction. It is on a watery cloud that the sun paints those curious colours in the rainbow...There are two graces, which Christ useth above any other, to fill the soul with joy—faith and hope, because these two fetch all their wine of joy without door. Faith tells the soul what Christ hath done for it; and so comforts it; hope revives the soul with the news of what Christ will do: both draw at one tap—Christ and his promise. *Condensed from William Gurnall.* 
+**Verse 5.** *Hope thou in God.* I shall show what powerful influence *hope* hath on the Christian in affliction, and how. First, it stills and silences him under affliction. It keeps the king's peace in the heart, which else would soon be in an uproar. A hopeless soul is clamorous: one while it charges God, another while it reviles his instruments. It cannot long rest, and no wonder, when hope is not there. Hope hath a rare art in stilling a froward spirit, when nothing else can; as the mother can make the crying child quiet by laying it to the breast, when the rod makes it cry worse. This way David took, and found it effectual; when his soul was unquiet by reason of his present affliction, he lays it to the breast of the promise: "Why art thy cast down O my soul? and why art thou disquieted in me? hope thou in God." And here his soul sweetly sleeps, as the child with the breast in his mouth; and that this was his usual way, we may think by the frequent instances we find; thrice we find him taking this course in two Psalms, 42 and 43... Secondly, this hope fills the afflicted soul with such inward joy and consolation, that it can laugh while tears are in the eye, sigh and sing all in a breath; it is called "the rejoicing of hope, "Heb 3:6. And hope never affords more joy than in affliction. It is on a watery cloud that the sun paints those curious colours in the rainbow... There are two graces, which Christ useth above any other, to fill the soul with joy—faith and hope, because these two fetch all their wine of joy without door. Faith tells the soul what Christ hath done for it; and so comforts it; hope revives the soul with the news of what Christ will do: both draw at one tap—Christ and his promise. *Condensed from William Gurnall.* 
 
 **Verse 5.** *Hope thou in God.* The word which is here rendered, *hope* denotes that *expectation* which is founded on faith in God, and which leads the soul to *wait* upon him. The idea is beautifully expressed in Ps 39:7. "And now, Lord, what wait I for? my hope is in thee." *Henry March.* 
 
@@ -280,7 +280,7 @@ Another lifts its boisterous head.
 
 **Verse 8.** It is all one to a godly man, *night* or *day.* For what *night* can there be to him who hath God always with him, who is a *sun* to comfort him, as well as a shield to protect him Ps 84:11; and *the light of whose countenance,* if it be but very little, is more comfortable than all things else whatsoever that the *day* can bring with it. He can say, "When I sit in darkness, the Lord shall be a light unto me" Mic 7:8; and "the Lord my God will enlighten my darkness." Ps 18:28. To tell you the truth, I think the *night* is the merriest time that the godly man hath, and the saddest for the wicked man (who, though he may make use of *darkness* to hide his sin, yet is he afraid, because of that very thing in which his safety consists). For if a man be merry in good company, he must needs be more merry when he enjoys it better, and there is less to disturb his mirth. So as it is with a godly man in the *night*, when the greatest part of his hindrances are removed, and he can "delight himself in the Almighty" without disturbance. Job 27:10. David says that the Lord would indeed *command his lovingkindness in the daytime.* but, *in the night* (says he) *his song shall be with me*.—"His song, "as I think, not of *thanksgiving,* but of *joy and exultation,* such as God uses to give at that time. Job 35:10. In the *daytime* the soul is so taken up with base employments, so distracted with variety of sensible objects, and so busied with work for the body, that either she hath no leisure at all to do her own work (such as this joy is as much as anything) or she cannot do it so well as she would, or so well as she could *in the night,* when she hath less to do. I doubt not but the worldly and carnal man, now that I am talking so much of *night,* and sleep, will be ready to say that I do but *dream,* and to answer me as the fellow did the hunter, when he bade him hear "what heavenly music his dogs made." For I know he counts the music and songs that we speak of, nothing but a frenzy, or a fancy at least, such as mad and diseased people have in their brain, while they imagine it to be in the air. But, as Peter said of those upon whom the Holy Ghost fell, "These men are not drunk, as ye suppose; "so may I reply to such men, No such matter, the godly are not mad, as ye suppose, for their songs are not works of their own fancy, not made of their own head, but set for them by God himself, "who giveth songs in the night." Job 35:10. *Zachary Bogan.* 
 
-**Verse 8.** *And my prayer unto the God of my life.* Here may be seen that David's religion was a religion of prayer *after* deliverance, as well as before. The selfish who cry out in trouble will have done with their prayers, when the trouble is over. With David it was the very reverse. Deliverance from trouble would strengthen his confidence in God, embolden his addresses to him, and furnish him with new arguments...There is great *need* of prayer after deliverance; for the time of deliverance is often a time of temptation; the soul being elated, and thrown off its guard. At such seasons much of the joy that is felt may be merely natural, as David's would probably be when rescued from that corroding care which injures the body as well as distresses the soul. There is danger of mistaking; of supposing it to be all spiritual, and hence of imagining the soul to be in a higher state of grace than it really is, and so, of being imperceptibly drawn into a state of false security. There is then especial need of that prayer. "Hold thou me up, and I shall be safe." And with some peculiarly, who being of a sanguine constitution of mind, are in times of enjoyment, soon puffed up and brought into danger. *Henry March.* 
+**Verse 8.** *And my prayer unto the God of my life.* Here may be seen that David's religion was a religion of prayer *after* deliverance, as well as before. The selfish who cry out in trouble will have done with their prayers, when the trouble is over. With David it was the very reverse. Deliverance from trouble would strengthen his confidence in God, embolden his addresses to him, and furnish him with new arguments... There is great *need* of prayer after deliverance; for the time of deliverance is often a time of temptation; the soul being elated, and thrown off its guard. At such seasons much of the joy that is felt may be merely natural, as David's would probably be when rescued from that corroding care which injures the body as well as distresses the soul. There is danger of mistaking; of supposing it to be all spiritual, and hence of imagining the soul to be in a higher state of grace than it really is, and so, of being imperceptibly drawn into a state of false security. There is then especial need of that prayer. "Hold thou me up, and I shall be safe." And with some peculiarly, who being of a sanguine constitution of mind, are in times of enjoyment, soon puffed up and brought into danger. *Henry March.* 
 
 **Verse 8.** *(last clause)*. Your song and your prayer must be directed to God as *the God of your life.* You do not own him as God, except you own and adore him as your all sufficient good, and that "fulness which filleth all in all." You detract from the glory of his Godhead, if you attribute not this to him; and if, accordingly, as one that cannot live without him, you do not seek union with him, and join yourself to him, and then rejoice and solace yourself in that blessed conjunction. *John Howe.* 
 
@@ -290,19 +290,19 @@ Another lifts its boisterous head.
 
 **Verse 10.** *They say daily unto me.* Here's their constancy and perseverance in this their carriage and language, it is *daily,* or *all the day,* (Mwyh-lk) It is not only for a fit and away, but it is their frequent and continual practice; it's every, and it's all the day; they begin in the morning, and they hold out still till night as unquiet persons use to do; and they begin the week with it, and so they continue till the end; he could never come into their company or near them, but he had such language from them. *Thomas Horton.* 
 
-**Verse 10.** *Where is thy God?* David might rather have said to them, Where are your eyes? where is your sight? for God is not only in heaven, but in me. Though David was shut out from the sanctuary, yet David's soul was a sanctuary for God; for God is not tied to a sanctuary made with hands. God hath two sanctuaries, he hath two heavens—the heaven of heavens and a broken spirit. God dwelt in David as in his temple. God was with David and in him; and he was never more with him, nor never more in him than in his greatest afflictions. They wanted eyes, he wanted not God. Though sometimes God hide himself, not only from the world but from his own children, yet he is there; howsoever their sorrow is such that it dims their sight (as we see in Hagar), so that they cannot see him for the present, he sometimes looks in their face, as we see in Mary's case. She could not see Christ distinctly, but thought him to be the gardener. There is a kind of concealment awhile in heavenly wisdom, yet notwithstanding, God is with his children always, and they know it by faith though not by feeling always...Therefore, it was an ignorant question of them to ask, *Where is thy God?* It showed that they were ignorant of the passages of God's dealing with his children, as indeed none are greater atheists than your scoffers. *Where is thy God?* as if God had been only a God of observation, to be observed outwardly in all his passages towards his children; whereas, as I said, he is a God hiding himself ofttimes; and he shows himself in contrary conditions most of all, most comfortably. His work is by contraries. But these carnal men were ignorant of the mysteries of religion, and the mysteries of divine providence towards God's children. Therefore, their question savours of their disposition, *Where is now thy God? Richard Sibbes.* 
+**Verse 10.** *Where is thy God?* David might rather have said to them, Where are your eyes? where is your sight? for God is not only in heaven, but in me. Though David was shut out from the sanctuary, yet David's soul was a sanctuary for God; for God is not tied to a sanctuary made with hands. God hath two sanctuaries, he hath two heavens—the heaven of heavens and a broken spirit. God dwelt in David as in his temple. God was with David and in him; and he was never more with him, nor never more in him than in his greatest afflictions. They wanted eyes, he wanted not God. Though sometimes God hide himself, not only from the world but from his own children, yet he is there; howsoever their sorrow is such that it dims their sight (as we see in Hagar), so that they cannot see him for the present, he sometimes looks in their face, as we see in Mary's case. She could not see Christ distinctly, but thought him to be the gardener. There is a kind of concealment awhile in heavenly wisdom, yet notwithstanding, God is with his children always, and they know it by faith though not by feeling always... Therefore, it was an ignorant question of them to ask, *Where is thy God?* It showed that they were ignorant of the passages of God's dealing with his children, as indeed none are greater atheists than your scoffers. *Where is thy God?* as if God had been only a God of observation, to be observed outwardly in all his passages towards his children; whereas, as I said, he is a God hiding himself ofttimes; and he shows himself in contrary conditions most of all, most comfortably. His work is by contraries. But these carnal men were ignorant of the mysteries of religion, and the mysteries of divine providence towards God's children. Therefore, their question savours of their disposition, *Where is now thy God? Richard Sibbes.* 
 
 **Verse 10.** *Where is thy God?* It is the deriding question which persecutors put to the saints in the time of their trials and troubles, *Ubi Deus?* "Where is now your God?" But they may return a bold and confident answer, *Hic Deus,* "Our God is here, "our God is nigh unto us, our God is round about us, our God is in the midst of us, our God has given us his promise "that he will never leave us nor forsake us." Heb 13:5. In every trouble, in every danger, in every death, the Lord will be sure to keep us company. God will bear his children company, not only whilst they are in a delightful paradise, but also when they are in a howling wilderness. Ho 2:14. When a company of poor Christians were going into banishment, one standing by to see them pass along said, that it was a very sad condition that those poor people were in, to be thus hurried from the society of men, and to be made companions of the beasts of the fields. True, said another, it were a sad condition indeed, if they were carried to a place where they should not find their God; but let them be of good cheer, for God goes along with them, and will exhibit the comforts of his presence whithersoever they go, his presence is infinite, and filleth all places. The Rabbins put *Makom,* which signifies *place,* among the names of God; Bythner brings them in expounding that text Es 4:14, thus: "Deliverance shall arise from another place, "that is, from God. Now, they called God *place,* because he is in every place, filling heaven and earth with his presence. *Thomas Brooks.* 
 
 **Verse 10.** Forest flies, small as they are, drive the noble war horse mad; therefore David says, *As with a sword in my bones, mine enemies reproach me; while they say daily unto me, Where is thy God? Frederick William Robertson,* 1851.
 
-**Verse 11.** Imitate here the example of David, instead of yielding to a vague grief: cite your soul; *enquire* of it the particular cause of your sorrow: different remedies will be requisite according to the different sources of your distress; and be careful that you trifle not with God, and your comfort, and your salvation, while you enquire of your soul, *Why art thou cast down, O my soul?* Be impartial, there is another and more solemn judgment to succeed: be persevering, like the psalmist, return, again and again to the investigation: be prayerful; self love, or the delusion of your heart, may otherwise deceive you. Pray then to God, to "search you, and see if there be any wicked way in you." *Henry Kollock, D.D., in "Sermons,"* etc. 1822.
+**Verse 11.** Imitate here the example of David, instead of yielding to a vague grief: cite your soul; *enquire* of it the particular cause of your sorrow: different remedies will be requisite according to the different sources of your distress; and be careful that you trifle not with God, and your comfort, and your salvation, while you enquire of your soul, *Why art thou cast down, O my soul?* Be impartial, there is another and more solemn judgment to succeed: be persevering, like the psalmist, return, again and again to the investigation: be prayerful; self love, or the delusion of your heart, may otherwise deceive you. Pray then to God, to "search you, and see if there be any wicked way in you." *Henry Kollock, D. D., in "Sermons,"* etc. 1822.
 
-**Verse 11.** *Hope.* Hope is like the sun, which, as we journey towards it, casts the shadow of our burden behind us. *Samuel Smiles, L.L.D.* 
+**Verse 11.** *Hope.* Hope is like the sun, which, as we journey towards it, casts the shadow of our burden behind us. *Samuel Smiles, L. L. D.* 
 
 **Verse 11.** *God...is the health of my countenance.* The health of David's countenance was not in his countenance, but *in his God,* and this makes his faith silence his fears, and so peremptorily resolve upon it, that there is a time coming (how near so ever he now lies to the grave's mouth) when he *shall yet praise him.* The health and life of thy grace lie both of them, not in thy grace, saith faith, but *in God*, who is *thy* God, therefore I shall yet live and praise him. I do not wonder that the weak Christian is melancholy and sad, when he sees his sickly face in any other glass than this. *William Gurnall.* 
 
-**Verse 11.** *The health of my countenance.* The countenance is often a true index to the mind. In the present awakening in religion, nothing is more remarkable than the sad or joyous looks of those whom God has spiritually exercised. It is easy who are sad, and who happy. There is nothing new in this; the psalmist says, "My soul is cast down within me." Therefore had he a dejected countenance; but said he, "Send thy light and thy truth; let them lead me; then will I go unto God, my exceeding joy...And he shall be *the health of my countenance."* In his sorrow, the face of Jesus was marred more than any man's, and his visage more than the sons of men. The martyr Stephen was so filled with the sight of Jesus, that in the midst of his persecutors, with death in prospect, he had a face which "shone as the face of an angel." My friend, how is it with thee? Is thy countenance sad? or doth it shine with the joy of the Lord, telling the true tale of thy life and lot? *J. Denham Smith.* 1860.
+**Verse 11.** *The health of my countenance.* The countenance is often a true index to the mind. In the present awakening in religion, nothing is more remarkable than the sad or joyous looks of those whom God has spiritually exercised. It is easy who are sad, and who happy. There is nothing new in this; the psalmist says, "My soul is cast down within me." Therefore had he a dejected countenance; but said he, "Send thy light and thy truth; let them lead me; then will I go unto God, my exceeding joy... And he shall be *the health of my countenance."* In his sorrow, the face of Jesus was marred more than any man's, and his visage more than the sons of men. The martyr Stephen was so filled with the sight of Jesus, that in the midst of his persecutors, with death in prospect, he had a face which "shone as the face of an angel." My friend, how is it with thee? Is thy countenance sad? or doth it shine with the joy of the Lord, telling the true tale of thy life and lot? *J. Denham Smith.* 1860.
 
 **Verse 11.** Hast thou seen the sun shine forth in February, and the sky blue, and the hedgerows bursting into bud, and the primrose peeping beneath the bank, and the birds singing in the bushes? Thou hast thought that spring was already come in its beauty and sweet odours. But a few days, and the clouds returned, and the atmosphere was chilled, and the birds were mute, and snow was on the ground, and thou hast said that spring would never come. And thus sometimes the young convert finds his fears removed, and the comforts of the gospel shed abroad in his heart, and praise and thanksgiving, and a new song put in his mouth. And he deems unadvisedly that his troubles are past for ever. But awhile, and his doubts return, and his comforts die away, and his light is taken from him, and his spirit is overwhelmed, and he is fain to conclude that salvation and all its blessings are not for him. But the spring, though late, shall break at last. *Why art thou cast down, O my soul? and why art thou disquieted within me? H. G. Salter's "Book of Illustrations,"* 1840.
 
@@ -314,69 +314,69 @@ Another lifts its boisterous head.
 
 **Verse 1.** The longing heart and the panting hart compared.
 
-**Verses 1,2.** Those who have enjoyed the presence of God in the public ordinances of religion will greatly desire, if deprived of them, to be favoured with them again...Prevention from attending the public ordinances of God's house may be made the means of great benefit to the soul.
+**Verses 1,2.** Those who have enjoyed the presence of God in the public ordinances of religion will greatly desire, if deprived of them, to be favoured with them again... Prevention from attending the public ordinances of God's house may be made the means of great benefit to the soul.
 
-1\.By renewing our relish for the provisions of the Lord's house, which so soon and so often palls.
+1\. By renewing our relish for the provisions of the Lord's house, which so soon and so often palls.
 
-2\.By making us to prize the means of grace more highly. There is, through human degeneracy, a proneness to value things less, however excellent in themselves, because of their being common, or plentiful, or of easy attainment.
+2\. By making us to prize the means of grace more highly. There is, through human degeneracy, a proneness to value things less, however excellent in themselves, because of their being common, or plentiful, or of easy attainment.
 
-3\.By driving us more directly from God. *H. March.* 
+3\. By driving us more directly from God. *H. March.* 
 
 **Verses 1-3.** The home sickness of the soul. What awakens it in the soul? To what is it directed, or does it point or tend? Wherewith can it be satisfied? By the bitter, but ofttimes wholesome food of tears. *J. P. Lange.* 
 
-**Verses 1-2.** Those who have enjoyed the presence of God in the public ordinances of religion will greatly desire, if deprived of them, to be favoured with them again...Prevention from attending the public ordinances of God's house may be
+**Verses 1-2.** Those who have enjoyed the presence of God in the public ordinances of religion will greatly desire, if deprived of them, to be favoured with them again... Prevention from attending the public ordinances of God's house may be
 
 **Verse 2.** 
 
-1\.What thirsts? "my soul."
+1\. What thirsts? "my soul."
 
-2\.For what? "for God."
+2\. For what? "for God."
 
-3\.In what way? "when shall I come."
+3\. In what way? "when shall I come."
 
 Or, the cause, incentives, excellences, and privileges of spiritual thirst.
 
 **Verse 2.** *(last clause)*. The true view of public worship.
 
-**Verse 2.** *(last clause)*. Appearance before God here and hereafter. *Isaac Watts, D.D., Two Sermons.* 
+**Verse 2.** *(last clause)*. Appearance before God here and hereafter. *Isaac Watts, D. D., Two Sermons.* 
 
 **Verses 1-3.** The home sickness of the soul. What awakens it in the soul? To what is it directed, or does it point or tend? Wherewith can it be satisfied? By the bitter, but ofttimes wholesome food of tears. *J. P. Lange.* 
 
 **Verse 3.** The believer's Lent, and its salt meats.
 
-1\.What causes the sorrow?
+1\. What causes the sorrow?
 
-2\.What will remove it?
+2\. What will remove it?
 
-3\.What benefit will come of it?
+3\. What benefit will come of it?
 
 **Verses 3, 10.** The carriage of David's enemies.
 
-1\.The *nature* of it, and that was *reproach*.
+1\. The *nature* of it, and that was *reproach*.
 
-2\.The *expression* of it, *They say unto me*.
+2\. The *expression* of it, *They say unto me*.
 
-3\.The *constancy* of it: *daily*, or, *all the day long.* 
+3\. The *constancy* of it: *daily*, or, *all the day long.* 
 
-4\.The *specification* of it, in a scornful and opprobrious question: *Where is (now) thy God? Thomas Horton.* 
+4\. The *specification* of it, in a scornful and opprobrious question: *Where is (now) thy God? Thomas Horton.* 
 
 **Verse 4.** 
 
-1\.It is common for the mind, in seasons of sorrow, to seek relief from the present in recollections of the past.
+1\. It is common for the mind, in seasons of sorrow, to seek relief from the present in recollections of the past.
 
-2\.In recollections of past enjoyments, those that relate to social worship will be peculiarly dear to the servant of God.
+2\. In recollections of past enjoyments, those that relate to social worship will be peculiarly dear to the servant of God.
 
-3\.Man is a social being, hence he derives help from united worship.
+3\. Man is a social being, hence he derives help from united worship.
 
 **Verse 4.** *I pour out my soul in me.* The uselessness of mistrustful introspection.
 
 **Verse 4.** *I had gone with the multitude,* etc. Company, if it be that which is good, is a very blessed and comfortable accommodation in sundry respects.
 
-1\.It is an exercise of men's faculties, and the powers and abilities of the mind.
+1\. It is an exercise of men's faculties, and the powers and abilities of the mind.
 
-2\.It is a fence against danger, and a preservative against sadness and various temptations.
+2\. It is a fence against danger, and a preservative against sadness and various temptations.
 
-3\.An opportunity of doing more good. *Thomas Horton.* 
+3\. An opportunity of doing more good. *Thomas Horton.* 
 
 **Verse 4.** *I had gone,* etc. Sunny memories, their lessons of gratitude and hope.
 
@@ -394,11 +394,11 @@ Or, the cause, incentives, excellences, and privileges of spiritual thirst.
 
 **Verse 5.** *Why art thou cast down?* 
 
-1\.The mind, even of a holy man, may be unduly cast down and disquieted.
+1\. The mind, even of a holy man, may be unduly cast down and disquieted.
 
-2\.In cases of undue dejection and disquietude, the proper remedy is to expostulate with the soul, and to direct it to the *only true source* of relief.
+2\. In cases of undue dejection and disquietude, the proper remedy is to expostulate with the soul, and to direct it to the *only true source* of relief.
 
-3\.Expostulation with the soul in times of distress, is then productive of its proper end, when it leads to an immediate application to God. *H. March.* 
+3\. Expostulation with the soul in times of distress, is then productive of its proper end, when it leads to an immediate application to God. *H. March.* 
 
 **Verse 5.** An emphasis of *enquiry or examination;* David calls himself to account for his present passion and trouble of mind. An emphasis of *reproof or objurgation;* David chides and rebukes himself for his present distemper. *"Why art thou thus?" Thomas Horton.* 
 
@@ -408,9 +408,9 @@ Or, the cause, incentives, excellences, and privileges of spiritual thirst.
 
 **Verse 6.** *Therefore will I remember thee.* There are two ways of understanding this; each of them instructive and profitable...
 
-1\.It may be considered as an expression of *determined remembrance of God* should he ever be found in such places and conditions. Believers can suppose the worst, and yet hope for the best.
+1\. It may be considered as an expression of *determined remembrance of God* should he ever be found in such places and conditions. Believers can suppose the worst, and yet hope for the best.
 
-2\.The language may be considered as an expression of *encouragement derived from reflection.* He had been in these situations and circumstances, and had experienced in them displays of divine providence and grace. *W. Jay.* 
+2\. The language may be considered as an expression of *encouragement derived from reflection.* He had been in these situations and circumstances, and had experienced in them displays of divine providence and grace. *W. Jay.* 
 
 **Verse 6.** Ebenezers, many, varied, remembered, helpful.
 
@@ -418,19 +418,19 @@ Or, the cause, incentives, excellences, and privileges of spiritual thirst.
 
 **Verse 7.** *Deep calleth unto deep.* One evil inviting another.
 
-1\.The *variety* of evils—one evil to another.
+1\. The *variety* of evils—one evil to another.
 
-2\.The *conjunction* of evils—one evil with another.
+2\. The *conjunction* of evils—one evil with another.
 
-3\.The *connexion* of evils, or dependence and mutual reference—one evil upon another. *T. Horton.* 
+3\. The *connexion* of evils, or dependence and mutual reference—one evil upon another. *T. Horton.* 
 
 **Verse 7.** The threefold depth which the saints and servants of God are subject to here in this life.
 
-1\.The depth of *temptation.* 
+1\. The depth of *temptation.* 
 
-2\.The depth of *desertion.* 
+2\. The depth of *desertion.* 
 
-3\.The depth of *affliction and human calamities. T. Horton.* 
+3\. The depth of *affliction and human calamities. T. Horton.* 
 
 **Verses 7, 8.** In seasons of affliction the servants of God will be distinguished from others by their ready perception and acknowledgment of the hand of God in their trials. *H. March.* 
 
@@ -448,33 +448,33 @@ Or, the cause, incentives, excellences, and privileges of spiritual thirst.
 
 **Verse 9.** 
 
-1\.Why *thou?* 
+1\. Why *thou?* 
 
-2\.Why *I?* 
+2\. Why *I?* 
 
-3\.Why *he?* It is a *why* to all three. To God, *Why has thou forgotten me?* To David himself, *Why do I go mourning?* To David's *adversary*, whoever he was, *Why does the enemy oppress me?* — *T. Horton.* 
+3\. Why *he?* It is a *why* to all three. To God, *Why has thou forgotten me?* To David himself, *Why do I go mourning?* To David's *adversary*, whoever he was, *Why does the enemy oppress me?* — *T. Horton.* 
 
 **Verse 10.** The most grievous of taunts.
 
 **Verse 11.** *My God.* 
 
-1\.It's a word of *interest—My God,* as in covenant with him.
+1\. It's a word of *interest—My God,* as in covenant with him.
 
-2\.A word of *compliance—My God,* as submitting to him.
+2\. A word of *compliance—My God,* as submitting to him.
 
-3\.A word of affection— *My God,* as taking delight, and rejoicing in him. *T. Horton.* 
+3\. A word of affection— *My God,* as taking delight, and rejoicing in him. *T. Horton.* 
 
 **Verse 11.** A catechism, a consolation, a commendation.
 
 **Verse 11.** 
 
-1\.David's *experience* of God. *He is the health*, or *help of my countenance*.
+1\. David's *experience* of God. *He is the health*, or *help of my countenance*.
 
-2\.His *relation* to God, and *interest* in him— *And my God. T. Horton.* 
+2\. His *relation* to God, and *interest* in him— *And my God. T. Horton.* 
 
 ## Works Upon The Forty-Second Psalm
 
-A Practical Exposition of the Forty-second Psalm, in ten Sermons, in *Choice and Practical Expositions on four select Psalms.* Psalms 4, 42, 51, 63. By THOMAS HORTON, D.D. 1675. Folio.
+A Practical Exposition of the Forty-second Psalm, in ten Sermons, in *Choice and Practical Expositions on four select Psalms.* Psalms 4, 42, 51, 63. By THOMAS HORTON, D. D. 1675. Folio.
 
 Sabbaths at Home: or, a help to their right improvement; founded on *the Forty-second and Forty-third Psalms.* Intended for the use of pious persons when prevented from attending the public worship of God. By HENRY MARCH. London: 1823.
 

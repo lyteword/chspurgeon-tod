@@ -94,17 +94,17 @@ To ages shall endure.
 
 **Whole Psalm.** The scope of this Psalm is to stir up all to praise God, and that for so many reasons as there are verses in the psalm. The exhortation is in the first words, *"Praise ye the Lord."* The reasons follow in order. The psalm is composed so after the order of the Hebrew alphabet, as every sentence or half verse begins with a several letter of the A B C in order, and all the psalm is of praise only. Whence we learn in general,
 
-1\.Sometimes it is expedient to set all other things apart, and employ ourselves expressly to proclaim the praises of the Lord only; for so is done in this psalm.
+1\. Sometimes it is expedient to set all other things apart, and employ ourselves expressly to proclaim the praises of the Lord only; for so is done in this psalm.
 
-2\.The praises of the Lord are able to fill all the letters and words composed of letters, in all their possible junctures of composition; for so much doth the going through all the letters of the A B C point out unto us, he is Alpha and Omega, and all the middle letters of the A B C of praise.
+2\. The praises of the Lord are able to fill all the letters and words composed of letters, in all their possible junctures of composition; for so much doth the going through all the letters of the A B C point out unto us, he is Alpha and Omega, and all the middle letters of the A B C of praise.
 
-3\.The praises of the Lord are worthy to be kept in memory: for that this psalm may be the better remembered, it is composed after the manner of the A B C, and so it insinuated thus much to us.— *David Dickson.* 
+3\. The praises of the Lord are worthy to be kept in memory: for that this psalm may be the better remembered, it is composed after the manner of the A B C, and so it insinuated thus much to us.— *David Dickson.* 
 
 **Verse 1.** *Praise ye the LORD*, etc. The exhortation is immediately succeeded by the expression of a firm resolve; the psalmist having commenced by urging the duty of gratitude upon others— *"Praise ye the LORD, "* forthwith announces his determination to act upon his own advice— *"I will praise the LORD with my whole heart."* Such a conjunction of ideas is fraught with several most important lessons.
 
-1\.It teaches us, very emphatically, that our preaching, if it is to carry weight and conviction, must be backed and exemplified by our conduct; that we need never expect to persuade others by arguments which are too weak to influence ourselves.
+1\. It teaches us, very emphatically, that our preaching, if it is to carry weight and conviction, must be backed and exemplified by our conduct; that we need never expect to persuade others by arguments which are too weak to influence ourselves.
 
-2\.Another inference is similarly suggested—that our own decision should be given without reference to the result of our appeal. The psalmist did not wait to ascertain whether those whom he addressed would attend to his exhortation, but, before he could receive a reply, declared unhesitatingly the course he would himself adopt.— *W.T. Maudson, in a Sermon on Thanksgiving,* 1855.
+2\. Another inference is similarly suggested—that our own decision should be given without reference to the result of our appeal. The psalmist did not wait to ascertain whether those whom he addressed would attend to his exhortation, but, before he could receive a reply, declared unhesitatingly the course he would himself adopt.— *W. T. Maudson, in a Sermon on Thanksgiving,* 1855.
 
 **Verse 1.** *With my whole heart.* That is, earnestly, and with a sincere affection; meaning also, that he would do it privately, and, as it were, within himself, as by the next words he notes that he will do it openly.— *Thomas Wilcocks.* 
 
@@ -114,7 +114,7 @@ To ages shall endure.
 
 **Verse 2.** *The works of the LORD are great.* Their greatness is known from comparison with the works and powers of men, which, verily, die and perish quickly. We should, therefore, admire, fear, confide, obey.— *Martin Geier.* 
 
-**Verse 2.** *The works of the LORD are great,* etc. Their greatness is equally manifest when we turn from the *immensity* to the *variety* of his works...How great are the works of him who gives to every plant its leaf and flower and fruit; to every animal its faculties and functions; to every man his understanding, affections, and will. What an accumulative idea of the magnitude of his works do we gather from the innumerable multitudes and endless diversities of being called into existence by his powers.— *Samuel Summers,* 1837.
+**Verse 2.** *The works of the LORD are great,* etc. Their greatness is equally manifest when we turn from the *immensity* to the *variety* of his works... How great are the works of him who gives to every plant its leaf and flower and fruit; to every animal its faculties and functions; to every man his understanding, affections, and will. What an accumulative idea of the magnitude of his works do we gather from the innumerable multitudes and endless diversities of being called into existence by his powers.— *Samuel Summers,* 1837.
 
 **Verse 2.** *The works of the LORD are great.* The workman who never makes a small article, an inferior article, but makes all his articles both great and valuable, deserves much praise; and any one that will study God's works, which we think so little of by reason of their being so constantly before us, cannot fail to behold God's infinite power and wisdom in every one of them, even though he cannot comprehend them.— *Robert Bellarmine.* 
 
@@ -188,11 +188,11 @@ Had in remembrance always with delight.
 
 **Verse 10** (*first clause* ). In this passage *fear* is not to be understood as referring to the first or elementary principles of piety, as in 1Jo 4:18, but is comprehensive of all true godliness, or the worship of God.— *John Calvin.* 
 
-**Verse 10.** *The fear of the LORD is the beginning of wisdom,* etc. The text shows us the first step to true wisdom, and the test of common sense. It is so frequently repeated, that it may pass for a Scripture maxim, and we may be sure it is of singular importance. Job starts the question, "Where shall wisdom be found? and where is the place of understanding?" He searches nature through, in quest of it, but cannot find it: he cannot purchase it with the gold of Ophir, and its price is above rubies. At length he recollects the primitive instruction of God to man, and there he finds it: *To man he said, Behold, the fear of the Lord, that is wisdom; and to depart from evil is understanding.* Job 28:28. Solomon, the wisest of men, begins his Proverbs with this maxim, *The fear of the LORD is the beginning of knowledge,* Pr 1:7. And he repeats it again: *The fear of the LORD is the beginning of wisdom; and the knowledge of the holy,* (the knowledge of those that may be called *saints* with a sneer), *is understanding,* Pr 9:10. *"The fear of the LORD"* in Scripture signifies not only that pious passion or filial reverence of our adorable Father who is in heaven, but it is frequently put for the whole of practical religion; hence it is explained in the last part of the verse by *doing his commandments.* The fear of the Lord, in this latitude, implies all the graces and all the virtues of Christianity; in short, all that holiness of heart and life which is necessary to the enjoyment of everlasting happiness. So that the sense of the text is this: To practise religion and virtue, to take that way which leads to everlasting happiness, is *wisdom,* true wisdom, the *beginning* of wisdom, the first step towards it: unless you begin here you can never attain it; all your wisdom without this does not deserve the name; it is madness and nonsense. *To do his commandments* is the best test of a *good understanding*: a *good* sound *understanding* have *all they* that do this, *all* of them without exception: however weak some of them may be in other things, they are wise in the most important respect; but without this, however cunning they are in other things, they have lost their understandings; they contradict common sense; they are beside themselves. In short, to pursue everlasting happiness as the end, in the way of holiness as the mean, this is *"wisdom, "* this is common sense, and there can be none without this.— *Samuel Davies*, A.M. (1724-1761), *President of Princeton College, New Jersey.* 
+**Verse 10.** *The fear of the LORD is the beginning of wisdom,* etc. The text shows us the first step to true wisdom, and the test of common sense. It is so frequently repeated, that it may pass for a Scripture maxim, and we may be sure it is of singular importance. Job starts the question, "Where shall wisdom be found? and where is the place of understanding?" He searches nature through, in quest of it, but cannot find it: he cannot purchase it with the gold of Ophir, and its price is above rubies. At length he recollects the primitive instruction of God to man, and there he finds it: *To man he said, Behold, the fear of the Lord, that is wisdom; and to depart from evil is understanding.* Job 28:28. Solomon, the wisest of men, begins his Proverbs with this maxim, *The fear of the LORD is the beginning of knowledge,* Pr 1:7. And he repeats it again: *The fear of the LORD is the beginning of wisdom; and the knowledge of the holy,* (the knowledge of those that may be called *saints* with a sneer), *is understanding,* Pr 9:10. *"The fear of the LORD"* in Scripture signifies not only that pious passion or filial reverence of our adorable Father who is in heaven, but it is frequently put for the whole of practical religion; hence it is explained in the last part of the verse by *doing his commandments.* The fear of the Lord, in this latitude, implies all the graces and all the virtues of Christianity; in short, all that holiness of heart and life which is necessary to the enjoyment of everlasting happiness. So that the sense of the text is this: To practise religion and virtue, to take that way which leads to everlasting happiness, is *wisdom,* true wisdom, the *beginning* of wisdom, the first step towards it: unless you begin here you can never attain it; all your wisdom without this does not deserve the name; it is madness and nonsense. *To do his commandments* is the best test of a *good understanding*: a *good* sound *understanding* have *all they* that do this, *all* of them without exception: however weak some of them may be in other things, they are wise in the most important respect; but without this, however cunning they are in other things, they have lost their understandings; they contradict common sense; they are beside themselves. In short, to pursue everlasting happiness as the end, in the way of holiness as the mean, this is *"wisdom, "* this is common sense, and there can be none without this.— *Samuel Davies*, A. M. (1724-1761), *President of Princeton College, New Jersey.* 
 
 **Verse 10.** *The fear of the LORD is the beginning of wisdom.* Now, then, I demand of the worldling what is the most high and deep point of wisdom? Is it to get an opulent fortune, to be *so wise as fifty thousand pounds?* Behold, *godliness is great gain,* saith Paul, and the Christian only rich, quoth the renowned catechist *Clement* of Alexandria. Is it to live joyfully, (or to use the gallant's phrase) jovially? Behold, there is joyful gladness for such as are true hearted, Ps 97:11. A wicked man in his mad merry humour for a while may be *Pomponius Laetus,* but a good man only is *Hilarius;* only he which is faithful in heart is joyful in heart. Is it to get honour? *the praise of God's fear* (saith our text) *endures for ever.* Many worthies of the world are most unhappy, because they be commended where they be not, and tormented where they be; hell rings of their pains, earth of their praise; but *blessed is the man that feareth the Lord* (Ps 112:1), for his commendation is both here lasting, and hereafter everlasting; in this world he is renowned among men, in the next he shall be rewarded amongst saints and angels in the kingdom of glory.— *John Boys.* 
 
-**Verse 10.** *The fear of the LORD is the beginning of wisdom.* It is not only the beginning of wisdom, but the middle and the end. It is indeed the Alpha and Omega, the essence, the body and the soul, the sum and substance. He that hath the fear of God is truly wise...It is surely wisdom to love that which is most lovable, and to occupy our hearts with that which is most worthy of our attachment, and the most capable of satisfying us.— *From the French of Daniel de Superville,* 1700.
+**Verse 10.** *The fear of the LORD is the beginning of wisdom.* It is not only the beginning of wisdom, but the middle and the end. It is indeed the Alpha and Omega, the essence, the body and the soul, the sum and substance. He that hath the fear of God is truly wise... It is surely wisdom to love that which is most lovable, and to occupy our hearts with that which is most worthy of our attachment, and the most capable of satisfying us.— *From the French of Daniel de Superville,* 1700.
 
 **Verse 10** (first clause). Fear is not all then; no, for it is but the beginning. God will have us begin, but not end there. We have begun with *qui timet Eum, who fears him;* we must end with *et operatar justitiam, and does justice,* and then comes *acceptus est Illi,* and not before. For neither fear, if it be fear alone; nor faith, if it be faith alone, is accepted of Him. If it be true fear, if such as God will accept, it is not *timor piger,* "a dull lazy fear"; his fear that feared his lord and *went and digged his talent into the ground,* and did nothing with it. Away with his fear and him *into outer darkness.* — *Lancelot Andrewes.* 
 
@@ -202,7 +202,7 @@ Had in remembrance always with delight.
 
 **Verse 10.** As there are degrees of wisdom, so of the fear of the Lord; but there is no degree of this fear so inferior or low, but it is a beginning, at least, of wisdom; and there is no degree of wisdom so high or perfect, but it hath its root in, or beginning, from this fear.— *Joseph Caryl.* 
 
-**Verse 10.** *Beginning of wisdom.* The word translated *beginning* is of uncertain sense. It may signify the *first* in *time* only, and so the rudiments, first foundation, or groundwork, and so though the most necessary, yet the most imperfect part of the work. And if it should thus be understood here and in other places, the sense would be no more but this, that there were no true *wisdom,* which had not its foundation in piety and fear of God. But the word signifies the *first* in *dignity* as well as in order or time, and is frequently used for the chief or principal of any kind...And thus it is to be understood here, that *the fear of the Lord* (which signifies all piety) *is the principal or chief of wisdom,* as *sapientia prima* in Horace is the *principal* or most excellent wisdom; according to that of Job 28:28: *Unto man he said, Behold, the fear of the Lord, that is wisdom; and to depart from evil is understanding, that,* by way of eminence, the most excellent *wisdom* and understanding.— *Henry Hammond.* 
+**Verse 10.** *Beginning of wisdom.* The word translated *beginning* is of uncertain sense. It may signify the *first* in *time* only, and so the rudiments, first foundation, or groundwork, and so though the most necessary, yet the most imperfect part of the work. And if it should thus be understood here and in other places, the sense would be no more but this, that there were no true *wisdom,* which had not its foundation in piety and fear of God. But the word signifies the *first* in *dignity* as well as in order or time, and is frequently used for the chief or principal of any kind... And thus it is to be understood here, that *the fear of the Lord* (which signifies all piety) *is the principal or chief of wisdom,* as *sapientia prima* in Horace is the *principal* or most excellent wisdom; according to that of Job 28:28: *Unto man he said, Behold, the fear of the Lord, that is wisdom; and to depart from evil is understanding, that,* by way of eminence, the most excellent *wisdom* and understanding.— *Henry Hammond.* 
 
 **Verse 10.** *A good understanding have all they that do his commandments.* They which *do* the commandments have a good understanding; not they which speak of the commandments, nor they which write of the commandments, nor they which preach of the commandments, but they which do the commandments, have a good understanding. The rest have a false understanding, a vain understanding, an understanding like that of the scribes and pharisees, which was enough to condemn them, but not to save them.— *Henry Smith.* 
 
@@ -212,9 +212,9 @@ Had in remembrance always with delight.
 
 **Verse 10** (second clause). Where the fear of the Lord rules in the heart, there will be a constant conscientious care to keep his commandments: not to talk them, but to do them; and such *have a good understanding, i.e.,* First, They are well understood, their obedience is graciously accepted as a plain indication of their mind, that they do indeed fear God. Secondly, They understand well.
 
-1\.It is a sign they do understand well: the most obedient are accepted as the most intelligent. They are wise that make God's law their rule, and are in everything ruled by it.
+1\. It is a sign they do understand well: the most obedient are accepted as the most intelligent. They are wise that make God's law their rule, and are in everything ruled by it.
 
-2\.It is the way to understand better. *"A good understanding are they to all that do them"; i.e.,* the fear of the Lord, and the laws of God give men a good understanding, and are able to make them wise unto salvation.— *Condensed from Matthew Henry.* 
+2\. It is the way to understand better. *"A good understanding are they to all that do them"; i.e.,* the fear of the Lord, and the laws of God give men a good understanding, and are able to make them wise unto salvation.— *Condensed from Matthew Henry.* 
 
 ## Hints to the Village Preacher
 
@@ -224,37 +224,37 @@ Had in remembrance always with delight.
 
 **Verse 1.** 
 
-1\.Who are the upright?
+1\. Who are the upright?
 
-2\.What are they doing? Praising God.
+2\. What are they doing? Praising God.
 
-3\.What shall I do if I am favoured to stand among them? "I will praise the Lord."
+3\. What shall I do if I am favoured to stand among them? "I will praise the Lord."
 
 **Verse 1.** Where I love to be, and what I love to do.
 
 **Verse 2.** The Christian philosopher.
 
-1\.His sphere: "The works of the Lord."
+1\. His sphere: "The works of the Lord."
 
-2\.His work: "Sought out."
+2\. His work: "Sought out."
 
-3\.His qualification: "Pleasure therein."
+3\. His qualification: "Pleasure therein."
 
-4\.His conclusion: "Praise, "as in Ps 111:1.
+4\. His conclusion: "Praise, "as in Ps 111:1.
 
 **Verses 2-9.** The psalmist furnishes us with matter for praise from the works of God.
 
-1\.The greatness of his works and the glory of them.
+1\. The greatness of his works and the glory of them.
 
-2\.The righteousness of them.
+2\. The righteousness of them.
 
-3\.The goodness of them.
+3\. The goodness of them.
 
-4\.The power of them.
+4\. The power of them.
 
-5\.The conformity of them to his word of promise.
+5\. The conformity of them to his word of promise.
 
-6\.The perpetuity of them.— *Matthew Henry.* 
+6\. The perpetuity of them.— *Matthew Henry.* 
 
 **Verse 3** (last clause). As an essential attribute, as revealed in providence, as vindicated in redemption, as demonstrated in punishment, as appropriated by believers.
 
@@ -278,7 +278,7 @@ Had in remembrance always with delight.
 
 (g) He so dealt with them as to refresh their memories.
 
-2\.It is our wisdom to remember the Lord's wonders.
+2\. It is our wisdom to remember the Lord's wonders.
 
 a. To assure us of his compassion: "The Lord is gracious."
 
@@ -290,13 +290,13 @@ d. To arouse our praise: "Praise ye the Lord."
 
 **Verse 5.** There is,
 
-1\.Encouragement from the past: "He hath given meat," etc.
+1\. Encouragement from the past: "He hath given meat," etc.
 
-2\.Confidence for the future: "He will ever be mindful," etc.— *G. R.* 
+2\. Confidence for the future: "He will ever be mindful," etc.— *G. R.* 
 
 **Verse 6.** The power of God an encouragement for the evangelization of the heathen.
 
-**Verse 9.** *Redemption.* Praise our Triune Jehovah for his redemption. Write it down where you may read it. Affix it where you may see it. Engrave it on your heart that you may understand it. It is a word big with importance. In it is enfolded your destinies and those of the Church, to all future ages. There are heights in it you never can have scaled, and depths you never can have fathomed. You have never taken the wings of the morning, and gained the utmost parts of earth, to measure the length and breadth of it. Wear it as a seal on your arm, as a signet on your right hand, for Jesus is the author of it. O! prize it as a precious stone, more precious than rubies...Let it express your best hopes while living, and dwell on your trembling lips in the moment of dissolution; for it shall form the chorus of the song of the redeemed throughout eternity.— *Isaac Saunders,* 1818.
+**Verse 9.** *Redemption.* Praise our Triune Jehovah for his redemption. Write it down where you may read it. Affix it where you may see it. Engrave it on your heart that you may understand it. It is a word big with importance. In it is enfolded your destinies and those of the Church, to all future ages. There are heights in it you never can have scaled, and depths you never can have fathomed. You have never taken the wings of the morning, and gained the utmost parts of earth, to measure the length and breadth of it. Wear it as a seal on your arm, as a signet on your right hand, for Jesus is the author of it. O! prize it as a precious stone, more precious than rubies... Let it express your best hopes while living, and dwell on your trembling lips in the moment of dissolution; for it shall form the chorus of the song of the redeemed throughout eternity.— *Isaac Saunders,* 1818.
 
 **Verse 9.** *He hath commanded his covenant for ever.* As he covenanted, so he looketh that his covenants should be respected, which are as binding to us, as his covenant is to him; and, through grace, his covenant is as binding to him, as those are to us.— *John Trapp.* 
 
@@ -308,41 +308,41 @@ d. To arouse our praise: "Praise ye the Lord."
 
 **Verse 9.** Redemption.
 
-1\.Its author: "He sent."
+1\. Its author: "He sent."
 
-2\.Its objects: "Unto his people."
+2\. Its objects: "Unto his people."
 
-3\.The pledge it gives us: "He hath commanded his covenant, "etc.
+3\. The pledge it gives us: "He hath commanded his covenant, "etc.
 
-4\.The praise it creates in us.
+4\. The praise it creates in us.
 
 **Verse 9.** *Holy and reverend.* 
 
-1\.The holiness of God the object of our reverence.
+1\. The holiness of God the object of our reverence.
 
-2\.Such reverence has much useful influence over us.
+2\. Such reverence has much useful influence over us.
 
-3\.It should always accompany our faith in redemption and covenant. See preceding clauses of verse.
-
-**Verse 10.** 
-
-1\.The beginner in Christ's school.
-
-2\.The man who has taken a degree: "a good understanding, " etc.
-
-3\.The Master who receives the praise.
+3\. It should always accompany our faith in redemption and covenant. See preceding clauses of verse.
 
 **Verse 10.** 
 
-1\.The beginning of wisdom: "The fear of the Lord"—God is feared.
+1\. The beginner in Christ's school.
 
-2\.Its continuance: "a good understanding have all they that do his commandments"—when the fear of the Lord in the heart is developed in the life.
+2\. The man who has taken a degree: "a good understanding, " etc.
 
-3\.Its end, praising God for ever: "his praise, "etc.— *G. R.* 
+3\. The Master who receives the praise.
+
+**Verse 10.** 
+
+1\. The beginning of wisdom: "The fear of the Lord"—God is feared.
+
+2\. Its continuance: "a good understanding have all they that do his commandments"—when the fear of the Lord in the heart is developed in the life.
+
+3\. Its end, praising God for ever: "his praise, "etc.— *G. R.* 
 
 ## Works Upon The Hundred And Eleventh Psalm
 
 In the Works of John Boys, 1626, folio, pp. 841-845, there is a short exposition of this psalm.
 
- *Jesus God and Man; an Exposition of Psalms 111 and 112.* By the Rev. James H. Vidal, M.A., Vicar of Chiddingley, Sussex. London: 1863 *12mo*.
+ *Jesus God and Man; an Exposition of Psalms 111 and 112.* By the Rev. James H. Vidal, M. A., Vicar of Chiddingley, Sussex. London: 1863 *12mo*.
 

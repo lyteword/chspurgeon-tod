@@ -50,15 +50,15 @@ Deliver me from my persecutors. If he did not get out of their hands, they would
 
 **Verse 1.** *I cried unto the LORD.* Thou hast posted me over to no deputy for the hearing of my prayer, neither dost thou require that I should bring a spokesman for the presenting of it; but thou hast commanded me to come myself, and to come to thee thyself.— *Sir Richard Baker on the Lord's Prayer.* 
 
-**Verse 1.** *With my voice.* The Lord needs not the tongue to be an interpreter between him and the hearts of his children. He that hears without ears can interpret prayers though not uttered by the tongue. Our desires are cries in the ears of the Lord of hosts. The vehemency of the affections may sometimes cause the outcrying of the voice; but alas! Without this it is but a tinkling cymbal...There is a use of words in prayer, to excite, and convey, and give vent to, affection: Ho 14:2, "Take with you words, and turn to the Lord: say unto him, Take away all iniquity, and receive us graciously." The prophet doth not only prescribe that they should take affections, but take with them words.— *Thomas Manton.* 
+**Verse 1.** *With my voice.* The Lord needs not the tongue to be an interpreter between him and the hearts of his children. He that hears without ears can interpret prayers though not uttered by the tongue. Our desires are cries in the ears of the Lord of hosts. The vehemency of the affections may sometimes cause the outcrying of the voice; but alas! Without this it is but a tinkling cymbal... There is a use of words in prayer, to excite, and convey, and give vent to, affection: Ho 14:2, "Take with you words, and turn to the Lord: say unto him, Take away all iniquity, and receive us graciously." The prophet doth not only prescribe that they should take affections, but take with them words.— *Thomas Manton.* 
 
 **Verse 2.** *I poured out my complaint before him.* Literally, my meditation; that is—what so much occupied my thoughts at the time I expressed aloud. The word *"complaint"* does not express the idea. The meaning is, not that he complained of God or of man; but that his mind meditated on his condition.— *Albert Barnes.* 
 
 **Verse 2.** *I poured out*, etc. I did it fully, and fervently, and confidently.— *Matthew Henry.* 
 
-**Verse 2.** *Poured out...before him.* Those words teach us that in prayer we should not try to keep anything back from God, but should show him all that is in our hearts, and that in his presence in our closet, with the door shut, but not before men. The Carmelite adds that there is much force in the words *with my voice*, twice repeated (as in Heb., A.V. Vulgate, etc.) to show us that we ought to pray to God directly for ourselves, and in person, and not be contented with an *Ora pro me* addressed to some one else.— *Cassiodorus and Ayguan, in Neale and Littledale.* 
+**Verse 2.** *Poured out...before him.* Those words teach us that in prayer we should not try to keep anything back from God, but should show him all that is in our hearts, and that in his presence in our closet, with the door shut, but not before men. The Carmelite adds that there is much force in the words *with my voice*, twice repeated (as in Heb., A. V. Vulgate, etc.) to show us that we ought to pray to God directly for ourselves, and in person, and not be contented with an *Ora pro me* addressed to some one else.— *Cassiodorus and Ayguan, in Neale and Littledale.* 
 
-**Verse 2.** *I shewed before him my trouble.* Be very particular in secret prayer, both as to sins, wants, and mercies...Be not ashamed to open out all thy necessities. David argues because he is "poor and needy"; four several times he presses his wants and exigencies before God, like an earnest but holy beggar (Ps 40:17 70:5 86:1 109:22). He *"shewed before him"* his trouble. He presents *"before"* God his ragged condition, and spreads open his secret wounds; as Job said, he "would order" his "cause before him": Job 23:4...Before God we may speak out our minds fully, and name the persons that afflict, affront, and trouble us; and woe to them that a child of God upon a mature judgment names in prayer! I find not that such a prayer in Scripture ever returned empty...A great reason why we reap so little benefit in prayer is, because we rest too much in generals; and if we have success, it is but dark, so that often we cannot tell what to make of the issues of prayer. Besides, to be particular in our petitions would keep the spirit much from wandering when we are intent upon a weighty case, and the progress of the soul in grace would manifest its gradual success in prayer.— *Samuel Lee* (1625-1691), *in "The Morning Exercises."* 
+**Verse 2.** *I shewed before him my trouble.* Be very particular in secret prayer, both as to sins, wants, and mercies... Be not ashamed to open out all thy necessities. David argues because he is "poor and needy"; four several times he presses his wants and exigencies before God, like an earnest but holy beggar (Ps 40:17 70:5 86:1 109:22). He *"shewed before him"* his trouble. He presents *"before"* God his ragged condition, and spreads open his secret wounds; as Job said, he "would order" his "cause before him": Job 23:4... Before God we may speak out our minds fully, and name the persons that afflict, affront, and trouble us; and woe to them that a child of God upon a mature judgment names in prayer! I find not that such a prayer in Scripture ever returned empty... A great reason why we reap so little benefit in prayer is, because we rest too much in generals; and if we have success, it is but dark, so that often we cannot tell what to make of the issues of prayer. Besides, to be particular in our petitions would keep the spirit much from wandering when we are intent upon a weighty case, and the progress of the soul in grace would manifest its gradual success in prayer.— *Samuel Lee* (1625-1691), *in "The Morning Exercises."* 
 
 **Verse 2.** The committing of our cause to God is at once our duty, our safety, and our ease.— *Abraham Wright.* 
 
@@ -70,7 +70,7 @@ My spirit on me lay."
 
 What is here said of the *spirit,* is oftener predicted of the *soul,* the seat of the passions. See Ps 42:6 43:5 131:2. The dejection of the *spirit* represents a still more sorrowful and downcast condition, than the fainting of the *soul.* See Ps 143:3-4, and compare our Lord's words, "My *soul* is troubled" (Joh 12:27) with the Evangelist's statement, "Jesus was troubled in spirit" (Joh 13:21 11:33).— *Christopher Wordsworth.* 
 
-**Verse 3.** *When my spirit was overwhelmed within me.* Literally, *in the muffling upon me of my spirit.* When my spirit was so wrapped in trouble and gloom, so "muffled round with woe", that I could not see the path before me, was distracted and unable to choose a line of conduct, *Thou* (emphatic) *knewest my path.* — *A.S. Aglen, in "An Old Testament Commentary for English" Readers,* 1884.
+**Verse 3.** *When my spirit was overwhelmed within me.* Literally, *in the muffling upon me of my spirit.* When my spirit was so wrapped in trouble and gloom, so "muffled round with woe", that I could not see the path before me, was distracted and unable to choose a line of conduct, *Thou* (emphatic) *knewest my path.* — *A. S. Aglen, in "An Old Testament Commentary for English" Readers,* 1884.
 
 **Verse 3.** I wish you much comfort from David's thought: *When my spirit was overwhelmed within me, then thou knewest my path.* The Lord is not withdrawn to a great distance, but his eye is upon you. He sees you not with the indifference of a mere spectator; but he observes with attention, he knows, he consider's your path: yea, he appoints it, and every circumstance about it is under his direction. Your trouble began at the hour he saw best, it could not come before; and he has marked the degree of it to a hair's breadth, and its duration to a minute. He knows likewise how your spirit is affected; and such supplies of grace and strength, and in such seasons as he sees needful, he will afford in due season. So that when things appear darkest, you shall still be able to say, Though chastened, not killed. Therefore hope in God, for you shall yet praise him.— *John Newton* (1725-1807), *in "Cardiphonia."* 
 
@@ -92,7 +92,7 @@ Prescribes for ills, none else can understand,
 
 All, all is known to thee.— *Charlotte Elliott.* 
 
-**Verse 3.** Although we as Christians possess the full solution of the problem of suffering, yet we frequently find ourselves in the position of Job, in regard to this or that particular affliction. There are sorrows so far reaching, so universal; there are losses so absolute, and blows so terrible and inexplicable, that it seems for a time as if we were wrapped in thickest gloom, and as if the secret of the Lord had not been revealed. Why was this man stricken, and that man spared? Why was such and such a being, in whom so many hopes centred, or who had already realised so many pleasant expectations, why was he withdrawn? Why was that other person left, a useless encumbrance to earth? Why was that voice, which found echo in so many hearts, suddenly silenced? Why have I been smitten? Why have I lost that which rendered my moral life beautiful and useful? Oftentimes the soul seems lost for awhile in thoughts which overwhelm it, it loses its foothold, it tumbles about helplessly amid the deep waters of affliction. It seems as if all were over. Do not believe it. Remember Job; you cannot go to greater lengths of despair than he, and yet God had pity on him. There is much comfort for you in this example of indescribable suffering, exasperated to the highest degree, and yet pardoned and consoled. Cling to the memory of this blessed fact as to a cable of deliverance, a board or a plank amidst the shipwreck. And then remember that affliction forms part of God's plan, and that he also asks you to manifest ready and absolute confidence in him.— *E. De Pressense, D.D., in "The Mystery of Suffering,"* 1869.
+**Verse 3.** Although we as Christians possess the full solution of the problem of suffering, yet we frequently find ourselves in the position of Job, in regard to this or that particular affliction. There are sorrows so far reaching, so universal; there are losses so absolute, and blows so terrible and inexplicable, that it seems for a time as if we were wrapped in thickest gloom, and as if the secret of the Lord had not been revealed. Why was this man stricken, and that man spared? Why was such and such a being, in whom so many hopes centred, or who had already realised so many pleasant expectations, why was he withdrawn? Why was that other person left, a useless encumbrance to earth? Why was that voice, which found echo in so many hearts, suddenly silenced? Why have I been smitten? Why have I lost that which rendered my moral life beautiful and useful? Oftentimes the soul seems lost for awhile in thoughts which overwhelm it, it loses its foothold, it tumbles about helplessly amid the deep waters of affliction. It seems as if all were over. Do not believe it. Remember Job; you cannot go to greater lengths of despair than he, and yet God had pity on him. There is much comfort for you in this example of indescribable suffering, exasperated to the highest degree, and yet pardoned and consoled. Cling to the memory of this blessed fact as to a cable of deliverance, a board or a plank amidst the shipwreck. And then remember that affliction forms part of God's plan, and that he also asks you to manifest ready and absolute confidence in him.— *E. De Pressense, D. D., in "The Mystery of Suffering,"* 1869.
 
 **Verse 3.** *They have privily laid a snare for me.* Snares on the right hand, and snares on the left: snares on the right hand, worldly prosperity; snares on the left hand, worldly adversity; snares on the right hand, flattery; snares on the left hand, alarm. Do thou walk in the midst of the snares: depart not from the way: let neither flattery ensnare thee, nor alarm drive thee off it.— *Augustine.* 
 
@@ -108,7 +108,7 @@ All, all is known to thee.— *Charlotte Elliott.*
 
 **Verse 4.** Observe the beautiful opposition between "Thou knewest" (Ps 142:3) and "no man would know me." *Refuge failed me* ,—literally *"perished"* from me (Jer 25:35 Am 2:14). But "thou hast been my *refuge* in the day of my trouble"; Ps 59:16.— *Andrew Robert Fausset.* 
 
-**Verses 4-5.** Refuge failed me...Thou art my refuge. Travellers tell us that they who are at the top of the Alps can see great showers of rain fall under them, but not one drop of it falls on them. They who have God for their portion are in a high tower, and thereby safe from all troubles and showers. A drift rain of evil will beat in at the creature's windows, be they never so well pointed; all the garments this world can make up cannot keep them that travel in such weather from being wet to the skin. No creature is able to bear the weight of its fellow creature; but as reeds, they break under the pressure, and as thorns, they run into the sides of those who lean on them. The bow drawn beyond its compass breaks in sunder, and the string wound above its strength snaps in pieces. Such are outward helps to all that trust to them in hardships.— *George Swinnock.* 
+**Verses 4-5.** Refuge failed me... Thou art my refuge. Travellers tell us that they who are at the top of the Alps can see great showers of rain fall under them, but not one drop of it falls on them. They who have God for their portion are in a high tower, and thereby safe from all troubles and showers. A drift rain of evil will beat in at the creature's windows, be they never so well pointed; all the garments this world can make up cannot keep them that travel in such weather from being wet to the skin. No creature is able to bear the weight of its fellow creature; but as reeds, they break under the pressure, and as thorns, they run into the sides of those who lean on them. The bow drawn beyond its compass breaks in sunder, and the string wound above its strength snaps in pieces. Such are outward helps to all that trust to them in hardships.— *George Swinnock.* 
 
 **Verses 4-5.** Refuge failed me.... Thou art my refuge. Are there any among us to whom the world's face is quite changed, and the brooks of comfort in it are dried up, and they are so tossed, chased, and harassed in it that they have forgotten their resting place? Are any of you "become a stranger unto your brethren and an alien unto your mother's children"? Ps 69:8. Is it grown such a strange world, that even "your own familiar friend, in whom you trusted, which did eat of your bread, hath lifted up his heel against you"? (Ps 41:9); and that wherever you turn yourselves in it, to find rest and refuge, the door is shut in your face? Here is a refuge for you; here is one open door; come in, thou blessed of the Lord: "the Lord gathereth the outcasts of Israel" Ps 147:2. It seems the Lord minds to have you in: he is doing with you as a father with a stubborn son who ran away from his father's house, thinking to shift for himself among his friends, and not come back: the father sends peremptory word through them all, saying, "In whoever's house my son is skulking, presently turn him out of doors, and let none of you take him in; and if he come to you give him not one night's lodging, nay, let him not eat in your house." Wherefore is all this but just to get him back again to his father's house?— *Thomas Boston,* 1676-1732.
 
@@ -218,45 +218,45 @@ He doth sit by us and moan.
 
 **Verse 1.** 
 
-1\.A vivid memory—of what he did, and how, and when.
+1\. A vivid memory—of what he did, and how, and when.
 
-2\.A public declaration; from which we infer that his prayer cheered him, brought him succour in trouble, and deliverance out of it.
+2\. A public declaration; from which we infer that his prayer cheered him, brought him succour in trouble, and deliverance out of it.
 
-3\.A reasonable inference: he prays again.
+3\. A reasonable inference: he prays again.
 
 **Verses 1-2.** 
 
-1\.Special seasons for prayer: times of complaint and trouble.
+1\. Special seasons for prayer: times of complaint and trouble.
 
-2\.Special prayer on such occasions; "I cried", "I make my supplication", "I poured out my complaint", "I showed before him my trouble." Spread the whole case before God, as Hezekiah did the letter from Sennacherib.— *G.R.* 
+2\. Special prayer on such occasions; "I cried", "I make my supplication", "I poured out my complaint", "I showed before him my trouble." Spread the whole case before God, as Hezekiah did the letter from Sennacherib.— *G. R.* 
 
 **Verse 2.** 
 
-1\.The true place for prayer—"before him."
+1\. The true place for prayer—"before him."
 
-2\.The freedom of prayer—"poured out."
+2\. The freedom of prayer—"poured out."
 
-3\.The unveiling of the heart in prayer—"shewed before him my trouble."
+3\. The unveiling of the heart in prayer—"shewed before him my trouble."
 
 **Verse 3.** (*first clause* ).
 
-1\.When.
+1\. When.
 
-2\.Then.
+2\. Then.
 
 **Verse 3.** (*latter clause* ). Temptations.
 
-1\.What form they take?—"snares."
+1\. What form they take?—"snares."
 
-2\.Who lay them?—"they."
+2\. Who lay them?—"they."
 
-3\.How do they lay them? Secretly, craftily "in the way", frequently.
+3\. How do they lay them? Secretly, craftily "in the way", frequently.
 
-4\.What becomes of the tempted believer? He lives to tell the tale, to warn others, to glorify God.
+4\. What becomes of the tempted believer? He lives to tell the tale, to warn others, to glorify God.
 
 **Verse 4.** (*last clause* ). The soul considered of no value.
 
-1\.Consider the worth of the soul.
+1\. Consider the worth of the soul.
 
 a) The soul will continue for ever.
 
@@ -264,7 +264,7 @@ b) The righteous will grow more happy, and the wicked more miserable.
 
 c) A great price has been paid for it.
 
-2\.Contrast the care we take of our souls, and our anxiety about worldly objects.
+2\. Contrast the care we take of our souls, and our anxiety about worldly objects.
 
 a) The solicitude we manifest for riches.
 
@@ -276,7 +276,7 @@ d) How anxious about a human life! Describe the search for a lost child.
 
 e) Contrast our care for souls and our Saviour's care for them: Paul's, Luther's, Whitefield's.
 
-3\.Remember some things which show that this care does not exist.
+3\. Remember some things which show that this care does not exist.
 
 a) If you do not statedly observe secret prayer.
 
@@ -292,7 +292,7 @@ Remark: The great responsibility resting upon every Christian.
 
 **Verse 4.** (*last clause* ). The burden of souls.
 
-1\.What is meant by care for souls?
+1\. What is meant by care for souls?
 
 a) To have a firm conviction of their value.
 
@@ -302,7 +302,7 @@ c) To feel alarming apprehensions of their danger.
 
 d) To make zealous exertions for their salvation.
 
-2\.Who ought specially to exercise this care?
+2\. Who ought specially to exercise this care?
 
 a) Parents.
 
@@ -312,7 +312,7 @@ c) Ministers.
 
 d) Members.
 
-3\.The criminality of neglect.
+3\. The criminality of neglect.
 
 a) It is ungrateful.
 
@@ -320,27 +320,27 @@ b) It is cruel.
 
 c) It is fatal.
 
-— *W.W. Wythe, in "The Pulpit Analyst",* 1870.
+— *W. W. Wythe, in "The Pulpit Analyst",* 1870.
 
 **Verses 4-5.** 
 
-1\.A terrible plight; no friend, no helper, no pitying heart.
+1\. A terrible plight; no friend, no helper, no pitying heart.
 
-2\.A touching prayer. A cry and a saying.
+2\. A touching prayer. A cry and a saying.
 
 **Verses 4-5.** 
 
-1\.Human help fails most when most needed.
+1\. Human help fails most when most needed.
 
 a) In outward troubles: "I looked", etc.
 
 b) In soul troubles: "No man cared for my soul."
 
-2\.Divine help is most given when most needed. A refuge and a portion when all others fail. Man has many friends in prosperity, one only in adversity.— *G.R.* 
+2\. Divine help is most given when most needed. A refuge and a portion when all others fail. Man has many friends in prosperity, one only in adversity.— *G. R.* 
 
 **Verses 4-5.** 
 
-1\.Why the saints make God their refuge, and the object of their faith and hope in their greatest afflictions.
+1\. Why the saints make God their refuge, and the object of their faith and hope in their greatest afflictions.
 
 a) God has given himself to the saints, in the covenant of grace, to be their God, and has promised that they shall be his people.
 
@@ -348,7 +348,7 @@ b) God stands in a most near relation to the saints, and condescends to sustain 
 
 c) The saints, through the power of God's grace upon their souls, have chosen him for their portion, and their highest felicity.
 
-2\.What perfections there are in God that render him a safe refuge for the saints, and a proper object of their confidence.
+2\. What perfections there are in God that render him a safe refuge for the saints, and a proper object of their confidence.
 
 a) God is infinite in mercy.
 
@@ -362,7 +362,7 @@ d) God is a Being whose love never changes.
 
 e) God is an independent Being, and the Governor and Director of all things.
 
-3\.The many sweet advantages, arising to the saints, from this practice of making God their refuge, in their greatest troubles.
+3\. The many sweet advantages, arising to the saints, from this practice of making God their refuge, in their greatest troubles.
 
 a) They have been preserved from fainting under their heavy burdens.
 
@@ -372,11 +372,11 @@ c) God has refreshed his saints with divine consolations for the future.— *Joh
 
 **Verse 5.** The soul choosing God.
 
-1\.Deliberately: "I cried unto thee, I said."
+1\. Deliberately: "I cried unto thee, I said."
 
-2\.For all in all: "refuge", "portion."
+2\. For all in all: "refuge", "portion."
 
-3\.Before every other "in the land of the living."— *W.B.H.* 
+3\. Before every other "in the land of the living."— *W. B. H.* 
 
 **Verse 5.** "How we may bring our Hearts to bear Reproofs." See John Owen's Sermon in "The Morning Exercises", vol. 2, page 600, etc.; and in his "Works", vol. 16, p. 23, etc.
 
@@ -384,31 +384,31 @@ c) God has refreshed his saints with divine consolations for the future.— *Joh
 
 **Verses 6-7.** 
 
-1\.The language of Despondency. "I am brought very low." "My enemies are stronger than I." "My soul is in prison."
+1\. The language of Despondency. "I am brought very low." "My enemies are stronger than I." "My soul is in prison."
 
-2\.Of Prayer. "Attend unto me." "Deliver me." "Bring me out of prison."
+2\. Of Prayer. "Attend unto me." "Deliver me." "Bring me out of prison."
 
-3\.Of Praise.
+3\. Of Praise.
 
 a) For the congratulation of others.
 
-b) For his own deliverance and prosperity.— *G.R.* 
+b) For his own deliverance and prosperity.— *G. R.* 
 
 **Verse 6.** Low and Lowly. Here is David,
 
-1\.In a low place; the depths of a cave.
+1\. In a low place; the depths of a cave.
 
-2\.In a low way: "very low"; "stronger than I."
+2\. In a low way: "very low"; "stronger than I."
 
-3\.But see, "with the lowly is wisdom" (Pr 11:2); he prays.
+3\. But see, "with the lowly is wisdom" (Pr 11:2); he prays.
 
-4\.The Lord "hath respect to the lowly", Ps 138:6. He will not pray in vain.— *W.B.H.* 
+4\. The Lord "hath respect to the lowly", Ps 138:6. He will not pray in vain.— *W. B. H.* 
 
 **Verse 7.** A prisoner. A freedman. A singer. A centre. A wonder.
 
 **Verse 7.** Prison Dreams.
 
-1\.What we image in our fetters.
+1\. What we image in our fetters.
 
 a) Christ's brow girt about with rare praise.
 
@@ -416,9 +416,9 @@ b) Christ's people compassing and accompanying us in costliest service.
 
 c) A new life of bounty and blessing—when we get out.
 
-2\.How far do our dreamings come true? Before peril and after; under conviction, and after conversion; sick room, and active service.
+2\. How far do our dreamings come true? Before peril and after; under conviction, and after conversion; sick room, and active service.
 
-3\.The duty of fidelity to prison vows and lessons.— *W.B.H.* 
+3\. The duty of fidelity to prison vows and lessons.— *W. B. H.* 
 
 **Verse 7.** (*middle clause* ). A Queen Bee. An under shepherd. A warm hearth. A Museum of wonders. Or, they shall surround me, interested in my story—"out of prison"; drawn by my song—"praise thy name"; attracted by likeness of character, and admiring the goodness of the Lord.
 

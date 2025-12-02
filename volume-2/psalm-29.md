@@ -168,7 +168,7 @@ Jehovah will bless his people with peace."
 
  *—Robert Murray Macheyne, 1813-1843.* 
 
-**Whole Psalm.** There is no phenomenon in nature so awful as a thunderstorm, and almost every poet from Homer and Virgil down to Dante and Milton, or rather down to Grahame and Pollok, has described it. In the Bible, too, we have a thunderstorm, the twenty-ninth Psalm—the description of a tempest, which, rising from the Mediterranean, and travelling by Lebanon and along the inland mountains, reaches Jerusalem, and sends the people into the temple porticoes for refuge; and; besides those touches of terror in which the geographical progress of the tornado is described, it derives a sacred vitality and power from the presence of Jehovah in each successive peal. *James Hamilton, D.D., in "The Literary Attractions of the Bible,"* 1849.
+**Whole Psalm.** There is no phenomenon in nature so awful as a thunderstorm, and almost every poet from Homer and Virgil down to Dante and Milton, or rather down to Grahame and Pollok, has described it. In the Bible, too, we have a thunderstorm, the twenty-ninth Psalm—the description of a tempest, which, rising from the Mediterranean, and travelling by Lebanon and along the inland mountains, reaches Jerusalem, and sends the people into the temple porticoes for refuge; and; besides those touches of terror in which the geographical progress of the tornado is described, it derives a sacred vitality and power from the presence of Jehovah in each successive peal. *James Hamilton, D. D., in "The Literary Attractions of the Bible,"* 1849.
 
 **Whole Psalm.** A glorious Psalm of praise sung during a tempest, the majesty of which shakes universal nature, so much so that the greatness of the power of the Lord is felt by all in heaven and on earth. This Lord is the God of his people, who blesses them with strength and peace. To rightly appreciate the feelings of the bard, one ought to realise an Oriental storm, especially in the mountainous regions of Palestine, which, accompanied by the terrific echoes of the encircling mountains, by torrents of rain like waterspouts, often scatters terror on man and beast, destruction on cities and fields. Wilson, the traveller, describes such a tempest in the neighbourhood of Baalbek: "I was overtaken by a storm, as if the floodgates of heaven had burst; it came on in a moment, and raged with a power which suggested the end of the world. Solemn darkness covered the earth: the rain descended in torrents, and sweeping down the mountain side, became by the fearful power of the storm transmuted into thick clouds of fog." Compare also our Lord's parable, taken from life, in Mt 7:27. *Augustus F. Tholuck, in loc.* 
 
@@ -292,7 +292,7 @@ And when from heaven the lightning flies,
 
 It blasts the hills that proudest rise.
 
- *—* *Horace, translated by Philip Francis, D.D., 1765.* 
+ *—* *Horace, translated by Philip Francis, D. D., 1765.* 
 
 **Verse 5.** *The cedars of Lebanon.* These mighty trees of God, which for ages have stood the force of the tempest, rearing their evergreen colossal boughs in the region of everlasting snow, are the first objects of the fury of the lightning, which is well known to visit first the highest objects. *Robert Murray Macheyne.* 
 
@@ -378,11 +378,11 @@ Robert Murray Macheyne.
 
 **Verse 9** (*last clause* ). 1. Matchless temple.
 
-2\.Unanimous worship.
+2\. Unanimous worship.
 
-3\.Forcible motive.
+3\. Forcible motive.
 
-4\.General enthusiasm, *"glory."* 
+4\. General enthusiasm, *"glory."* 
 
 **Verse 10.** The ever present and undisturbed government of God.
 

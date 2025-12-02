@@ -260,11 +260,11 @@ So has the promise been fulfilled to us, "the sun shall not hurt thee by day, no
 
 **Verse 14.** I resolve the words into these three parts.
 
-1\.Here is the nearness and the dearness of the saints unto God. They are dearer to him than kings and states, simply considered; that is, otherwise than as they in their persons are also saints; for you see that for their sakes he reproved kings, and so sheweth that he prefers them to kings.
+1\. Here is the nearness and the dearness of the saints unto God. They are dearer to him than kings and states, simply considered; that is, otherwise than as they in their persons are also saints; for you see that for their sakes he reproved kings, and so sheweth that he prefers them to kings.
 
-2\.Here is the great danger to kings and states, to deal with his saints otherwise than well. Which appeareth many ways; for he doth not only in words give a charge not to touch them, but he carries it in a high way (for so God will do when he pleads their cause). Touch them not; as if he had said, Let me see if you dare so much as touch them; and it is with an intimation of the highest threatening if they should; upon your peril if you do so; for that is the scope of such a speech. And accordingly in deeds he made this good; for the text saith he suffered no man to do them wrong; not that he did altogether prevent all wrong and injuries, for they received many as they went through those lands; but at no time did lie let it go unpunished. In that sense he suffered them not. You know how he plagued Pharaoh, king of Egypt, with great plagues, and all his household, for Abraham's wife's sake, Gen. 7. And so Abimelech, king of Gerar, the Lord cometh upon him with a greatness, and his first word is in Ge 2:3, "Behold, thou art but a dead man, "afore he had first told him why or wherefore, though then he adds the reason; he brings him upon his knees, verse 4, bids him look to it, that he give satisfaction to Abraham, and restore his wife to him again, verse 7; and well he escaped so; and tells him also that he must be beholden to Abraham's prayers for his life. "He is a prophet, "saith he, "and he shall pray for thee, and thou shalt live."
+2\. Here is the great danger to kings and states, to deal with his saints otherwise than well. Which appeareth many ways; for he doth not only in words give a charge not to touch them, but he carries it in a high way (for so God will do when he pleads their cause). Touch them not; as if he had said, Let me see if you dare so much as touch them; and it is with an intimation of the highest threatening if they should; upon your peril if you do so; for that is the scope of such a speech. And accordingly in deeds he made this good; for the text saith he suffered no man to do them wrong; not that he did altogether prevent all wrong and injuries, for they received many as they went through those lands; but at no time did lie let it go unpunished. In that sense he suffered them not. You know how he plagued Pharaoh, king of Egypt, with great plagues, and all his household, for Abraham's wife's sake, Gen. 7. And so Abimelech, king of Gerar, the Lord cometh upon him with a greatness, and his first word is in Ge 2:3, "Behold, thou art but a dead man, "afore he had first told him why or wherefore, though then he adds the reason; he brings him upon his knees, verse 4, bids him look to it, that he give satisfaction to Abraham, and restore his wife to him again, verse 7; and well he escaped so; and tells him also that he must be beholden to Abraham's prayers for his life. "He is a prophet, "saith he, "and he shall pray for thee, and thou shalt live."
 
-3\.The third is the care and protection which God had over them, set and amplified, 1, by the number and condition of the persons whom he defended; though *"few men in number, "* that is, soon reckoned, for their power and strength a few, or very small, eivs mikron, so the Septuagint in the parallel place, 1Ch 16:19; as also, 2, by what he did for them: He suffered no man, how great soever, to do them any wrong, how small soever; not without recompense and satisfaction; not to do it, though they had a mind to it. Though the people had an ill eye at them, Ge 26:11, God causeth Abimelech to make a law on purpose; Abimelech charged all his people in Isaac's behalf, and spake in the very words of the text, "He that toucheth this man or his wife shall be put to death."— *Thomas Goodwin.* 
+3\. The third is the care and protection which God had over them, set and amplified, 1, by the number and condition of the persons whom he defended; though *"few men in number, "* that is, soon reckoned, for their power and strength a few, or very small, eivs mikron, so the Septuagint in the parallel place, 1Ch 16:19; as also, 2, by what he did for them: He suffered no man, how great soever, to do them any wrong, how small soever; not without recompense and satisfaction; not to do it, though they had a mind to it. Though the people had an ill eye at them, Ge 26:11, God causeth Abimelech to make a law on purpose; Abimelech charged all his people in Isaac's behalf, and spake in the very words of the text, "He that toucheth this man or his wife shall be put to death."— *Thomas Goodwin.* 
 
 **Verse 15.** *Mine anointed.* Abraham, Isaac, and Jacob had no external anointing. They were, however, called *"anointed, "* because they were separated by God from the multitude of wicked men, and endowed with the Spirit and his gifts, of which the oil was an emblem. *Mollerus.* 
 
@@ -272,27 +272,27 @@ So has the promise been fulfilled to us, "the sun shall not hurt thee by day, no
 
 **Verse 15.** *Prophets.* The aybk is the prophet, or forth speaker; the term laying stress on the utterance, and not upon the vision. The Hebrew word comes from a root which means to bubble up and overflow as from a full fountain. But the fulness of the true prophets of Jehovah was not that of their own thoughts and emotions. It was of the Divine Spirit within them. "The prophecy came not in old time by the will of man: but holy men of God spake as they were moved by the Holy Ghost, "2Pe 1:21. The first application of the word is to Abraham (Ge 2:7); although, long before Abraham, "Enoch the seventh from Adam, prophesied, "Jude 14. *Donald Fraser*, in *"Synoptical Lectures on the Books of Holy Scripture."* 1873.
 
-**Verse 16.** *He called for a famine.* As a master *calls for* a servant ready to do his bidding. On the contrary, God says (Eze 36:29), "I will call for the corn, and will increase it, and lay no famine upon you." Compare the centurion's words as to sickness being Christ's servant, ready to come or go at his call, Mt 8:8,9. *A.R. Fausset.* 
+**Verse 16.** *He called for a famine.* As a master *calls for* a servant ready to do his bidding. On the contrary, God says (Eze 36:29), "I will call for the corn, and will increase it, and lay no famine upon you." Compare the centurion's words as to sickness being Christ's servant, ready to come or go at his call, Mt 8:8,9. *A. R. Fausset.* 
 
 **Verse 17.** Joseph may be a fit type to us of our spiritual deliverance. Consider him sold into Egypt, not without the determinate counsel of God, who preordained this to good; "God did send me before you to preserve life, "Ge 45:5. Here is the difference, the brethren sold Joseph, we sold ourselves. Consider us thus sold unto sin and death; God had a purpose to redeem us; there is election. Joseph was delivered out of prison, and we ransomed out of the house of bondage; there was redemption. Joseph's cause was made known, and himself acquitted; we could not be found innocent ourselves, but were acquitted in Christ; wherein consists our justification. Lastly, Joseph was clothed in glorious apparel, and adorned with golden chains, and made to ride in the second chariot of Egypt: so our last step is to be advanced to high honour, even the glory of the celestial court; "This honour have all the saints, " Ps 149:9. *Thomas Adams.* 
 
 **Verse 17.** In many circumstances concerning Joseph—in his being beloved of his father—in his being hated of his brethren—in his sufferings and deep abasement—in his being brought out of prison—in his advancement and exaltation—in his wisdom and prudence—in his providing for his father's family—in his free forgiveness of the injuries he had sustained from his brethren—it maybe truly said, we have Christ delineated therein, and set forth thereby, in type, figure, and representatively. But I have nothing to do with this here; I only give this hint to the reader. *Samuel Eyles Pierce*, 1817.
 
-**Verse 18.** *His soul came into iron* (margin). The whole person is denoted by the soul, because the soul of the captive suffers still more than the body. Imprisonment is one of the most severe trials to the soul. Even to spiritual heroes, such as a Savonarola and St. Cyran, the waters often go over the soul. *E.W. Hengstenberg.* 
+**Verse 18.** *His soul came into iron* (margin). The whole person is denoted by the soul, because the soul of the captive suffers still more than the body. Imprisonment is one of the most severe trials to the soul. Even to spiritual heroes, such as a Savonarola and St. Cyran, the waters often go over the soul. *E. W. Hengstenberg.* 
 
 **Verse 18.** *His soul came into iron.* Till we have felt it, we cannot conceive that sickness of heart, which at times will steal upon the patient sufferer; that sense of loneliness, that faintness of soul, which comes from hopes deferred and wishes unshared, from the selfishness of brethren and the heartlessness of the world. We ask ourselves, If the Lord were with me, should I suffer thus, not only the scorn of the learned and the contempt of the great, but even the indifference and neglect of those whom I have served, who yet forget me? So Joseph might have asked; and so till now may the elect ask, as they stand alone without man's encouragement or sympathy, not turned aside by falsehood or scorn, with their face set as a flint, yet deeply feeling what it costs them. *Andrew dukes*, in" The Types of Genesis, "1858.
 
 **Verse 19.** *Until the time that his word came: the word of the LORD tried him.* This verse forms the key to the whole meaning of Joseph's mysterious trial, and at the same time illustrates a deep mystery in the spiritual life of man. By "the word of the Lord" that "tried him, "the psalmist evidently refers to the dreams of his future destiny which were sent to Joseph from God; and in saying that they tried him "until his word came, "he evidently means that his faith in those promises was tested by his long imprisonment, until the day of his deliverance dawned. Consider for a moment his position, and you will see the purpose of that trial. A youth educated amidst all the quiet simplicity of the early patriarchal life, he was haunted by dream visions of a mighty destiny. Those visions were mysteriously foretelling his government in Egypt, and the blessings which his wise and just rule would confer on the land; but while unable to comprehend them, he yet believed that they were voices of the future, and promises of God. But the quietude of that shepherd life was not the preparation for the fulfilment of his promised destiny. The education that would form the man who could withstand, firmly, the temptations of Egyptian life with its cities and civilization; the education that would form the ruler whose clear eye should judge between the good and the evil, and discern the course of safety in the hour of a nation's peril—all this was not to be gained under the shadow of his father's tent; it must come through trial, and through trial arising from the very promise of God in which he believed. Hence, a great and startling change crossed his life, that seemed to forbid the fulfilment of that dream promise, and tempted him to doubt its truth. Sold into Egypt as a slave, cast into prison through his fidelity to God, the word of the Lord most powerfully tried his soul. In the gloom of that imprisonment it was most hard to believe in God's faithfulness, when his affliction had risen from his obedience; and most hard to keep the promise clearly before him, when his mighty trouble would perpetually tempt him to regard it as an idle dream. But through the temptation, he gained the strong trust which the pomp and glory of the Egyptian court would have no power to destroy; and when the word of deliverance came, the man came forth, strong through trial, to fulfil his glorious destiny of ruling Egypt in the name of God, and securing for it the blessings of heaven. Thus his trial by the word of the Lord—his temptation to doubt its truth—was a divine discipline preparing him for the fulfilment of the promise. And looking at it in this aspect, this verse presents to us a deep spiritual truth: The promises of God try man, that through the trial he may be prepared for their fulfilment. Our subject then is this: The trial of man by the promises of God. This verse suggests three great facts which exhibit the three aspects of that trial.
 
-1\.God's promises must try man. Every promise of the Lord is of necessity a trial. Now, this necessity arises from two sources; from man's secret unbelief, and from God's purposes of discipline.
+1\. God's promises must try man. Every promise of the Lord is of necessity a trial. Now, this necessity arises from two sources; from man's secret unbelief, and from God's purposes of discipline.
 
 (a) God's word must try man by revealing his secret unbelief. We never know our want of faith till some glorious promise rouses the soul into the attitude of belief; then the coldness and unfaithfulness of the heart are lighted up by that flash of belief, and the promise is a trial. Thus Paul with his profound insight into the facts of spiritual experience, says, "The word of the Lord is sharper than a two edged sword, piercing even to the dividing asunder of soul and spirit, and of the joints and marrow, and is a *discerner of the thoughts and intents of the heart."* In illustration of this we may observe that many promises of the Lord come to us, as they came to Joseph, like dream visions of the future. Visions come to the Christian soul, as grand and wonderful as those which came to the Hebrew youth of old; and they, too, are prophecies of what we are destined to be. There comes a time when the voice of God is more clearly heard, and the great inheritance revealed. No dream of the night—no spirit of the dead—has visited us; but like a spirit some truth of God has entered the soul's presence chamber and summoned it to noble aspiration and Christ like endeavour. Then the earnest of the future gleams on life's horizon. The Sabbath of eternity, with all its balm and music, seems near, and rapt with its glory, we are roused to all surrendering zeal. But I appeal to your experience whether it is not true that such revelations of the promise rapidly become limes of trial. Then the mocking voice of unbelief tells us that aspiration is vain. The cold cross currents of indifference chill the fiery impulses of the heart. We are in prison like Joseph, by no material bars indeed, but by the invisible bonds of unbelief; and we find it most hard to keep the promise clear and bright, while tempted to believe that our aspirations were merely idle dreams. And there is that arousing, by the promise, of the soul's hidden unbelief, which makes every promise an inevitable trial.
 
 (b) Again: *God causes his promises to try nature that he may accomplish his own purposes of discipline*. It is a law of our nature that no belief in any unseen thing can ever pass into the active form of strong endeavour to attain it, until we are tempted to disbelieve it. Thus the great idea of an undiscovered land across the wastes of the Atlantic smote the soul of Columbus; but it remained a dreamy faith until by opposition and ridicule he was tempted to regard it as a dream, and then it became heroic endeavour, and the land was found. Thus with all men of genius. They stand in the front of their age, with thoughts which the world cannot understand; but those thoughts are dreams until suffering and scorn try the men, and then they are awakened into effort to realise them. Hence God leads us into circumstances in which we are tempted to doubt his promises, that by temptation he may discipline faith into power. There is a wilderness of temptation in every life, and like Christ, we are often led into it, from the solemn hour when we heard the voice, "Thou art my son; " but like Christ, we come forth strong, through the long, silent wrestling with temptation, to do our Father's will.
 
-2\.God sends the Hour of Deliverance: *"until the time that his word came."* When the discipline was perfected, Joseph came forth ready for his mission. But our deliverance does not always come in this way. Take from the Bible histories the four great methods by which God sends deliverance. *Sometimes by death.* Thus with Elijah Weariness, loneliness, failure, had wrung from by death the strong man the cry, "Take away my life for I and not better than my fathers." The temptation was becoming too strong, and God sent deliverance in the chariot of fire. *Sometimes by* transforming *the height of trial into the height of blessing*. The three youths in Babylon had clenched their nerves for the climax of agony, when the fire became a Paradise. So, now, God makes the climax of trial the herald of spiritual blessedness. By suffering we are loosened from the bonds of time and sense; there is one near to us like the Son of God; and deliverance has come. *Sometimes by the glance of love on the falling soul*. Thus with Peter. The temptation was mastering him; one glance of that eye, and he went out weeping and delivered. *Sometimes by continuing the trial*, but increasing the power to endure it. Thus with Paul. After the vision of the third heaven came "the thorn in the flesh, "The temptation made him cry thrice to, God; the trial remained, but here was the deliverance" my grace is sufficient for thee." The suffering lost none of its pressure, but he learned to glory in infirmity; and *then* came his delivering hour.
+2\. God sends the Hour of Deliverance: *"until the time that his word came."* When the discipline was perfected, Joseph came forth ready for his mission. But our deliverance does not always come in this way. Take from the Bible histories the four great methods by which God sends deliverance. *Sometimes by death.* Thus with Elijah Weariness, loneliness, failure, had wrung from by death the strong man the cry, "Take away my life for I and not better than my fathers." The temptation was becoming too strong, and God sent deliverance in the chariot of fire. *Sometimes by* transforming *the height of trial into the height of blessing*. The three youths in Babylon had clenched their nerves for the climax of agony, when the fire became a Paradise. So, now, God makes the climax of trial the herald of spiritual blessedness. By suffering we are loosened from the bonds of time and sense; there is one near to us like the Son of God; and deliverance has come. *Sometimes by the glance of love on the falling soul*. Thus with Peter. The temptation was mastering him; one glance of that eye, and he went out weeping and delivered. *Sometimes by continuing the trial*, but increasing the power to endure it. Thus with Paul. After the vision of the third heaven came "the thorn in the flesh, "The temptation made him cry thrice to, God; the trial remained, but here was the deliverance" my grace is sufficient for thee." The suffering lost none of its pressure, but he learned to glory in infirmity; and *then* came his delivering hour.
 
-3\.God makes the Trial by Promise fulfil the Promise itself. In Joseph the temptation to doubt the word of God silently meetened him for its fulfilment. So with us all. We hope not for an Egyptian kingdom, our dream vision is of a heavenly inheritance, and the palace of a heavenly King. But every temptation resisted, every mocking voice of doubt overcome, is an aid upwards and onwards. Trials, sufferings, struggles, are angels arraying the souls in the white robes of the heavenly world, and crowning it with the crown that fadeth not away. And when the end comes, then it will be seen that the long dreary endeavour to hold fast the dream promise—the firm resolute "no" to the temptation to disbelieve, are all more than recompensed with "the exceeding and eternal weight of glory."— *Edward Zuscombe*, in *"Sermons preached at Kings Lynn."* 1867.
+3\. God makes the Trial by Promise fulfil the Promise itself. In Joseph the temptation to doubt the word of God silently meetened him for its fulfilment. So with us all. We hope not for an Egyptian kingdom, our dream vision is of a heavenly inheritance, and the palace of a heavenly King. But every temptation resisted, every mocking voice of doubt overcome, is an aid upwards and onwards. Trials, sufferings, struggles, are angels arraying the souls in the white robes of the heavenly world, and crowning it with the crown that fadeth not away. And when the end comes, then it will be seen that the long dreary endeavour to hold fast the dream promise—the firm resolute "no" to the temptation to disbelieve, are all more than recompensed with "the exceeding and eternal weight of glory."— *Edward Zuscombe*, in *"Sermons preached at Kings Lynn."* 1867.
 
 **Verse 19.** *The word of the Lord tried him.* As we try God's word, so God's word tries us; and happy if, when we are tried, we come forth as gold; and the trial of our faith proves more precious than that of gold which perisheth, though it be tried with fire. *William Jay.* 
 
@@ -326,7 +326,7 @@ So has the promise been fulfilled to us, "the sun shall not hurt thee by day, no
 
 **Verse 26.** *Moses and Aaron.* God usually sendeth his servants by two and two for mutual helps and comfort. *John Trapp.* 
 
-**Verse 28.** *He sent darkness.* The darkness here stands at the beginning, (not in the historical order that the particular plague of darkness stood), to mark how God's wrath hung over Egypt as a dark cloud during all the plagues. *A.R. Fausset.* 
+**Verse 28.** *He sent darkness.* The darkness here stands at the beginning, (not in the historical order that the particular plague of darkness stood), to mark how God's wrath hung over Egypt as a dark cloud during all the plagues. *A. R. Fausset.* 
 
 **Verse 28.** *Darkness.* There is an awful significance in this plague of darkness. The sun was a leading object of devotion among the Egyptians under the name of Osiris. The very name Pharaoh means not only the king but also the sun, and characterises the king himself as the representative of the sun and entitled in some sort to divine honours. But now the very light of the sun has disappeared and primeval chaos seems to have returned. Thus all the forms of Egyptian will worship were covered with shame and confusion by the plagues. *James G. Murphy*, in *"A Commentary on Exodus,"* 1866.
 
@@ -338,17 +338,17 @@ So has the promise been fulfilled to us, "the sun shall not hurt thee by day, no
 
 **Verse 29.** *He turned their waters into blood,* etc. The Nile begins to rise about the end of June, and attains its highest point at the end of September. About the commencement of the rise it assumes a greenish hue, is disagreeable to the taste, unwholesome, and often totally unfit for drinking. It soon, however, becomes red and turbid, and continues in this state for three or more weeks. In this condition it is again healthy and fit for use. The miracle now performed was totally different from this annual change. For,
 
-1\.It occurred after the winter, not the summer, solstice;
+1\. It occurred after the winter, not the summer, solstice;
 
-2\.The water was turned into blood, and not merely reddened by an admixture of red clay or animalcule;
+2\. The water was turned into blood, and not merely reddened by an admixture of red clay or animalcule;
 
-3\.The fish died, a result which did not follow from the periodical change of colour;
+3\. The fish died, a result which did not follow from the periodical change of colour;
 
-4\.The river stank, and became offensive, which it ceased to be when the ordinary redness made its appearance;
+4\. The river stank, and became offensive, which it ceased to be when the ordinary redness made its appearance;
 
-5\.The stroke was arrested at the end of seven days, whereas the natural redness continued for at least three weeks; and
+5\. The stroke was arrested at the end of seven days, whereas the natural redness continued for at least three weeks; and
 
-6\.The change was brought on instantly at the word of command before the eyes of Pharaoh. The calamity was appalling. The sweet waters of the Nile were the common beverage of Egypt. It abounded in all kinds of fish, which formed a principal article of diet for the inhabitants. It was revered as a god by Egypt. But now it was a putrid flood, from which they turned away with loathing. *James G. Murphy.* 
+6\. The change was brought on instantly at the word of command before the eyes of Pharaoh. The calamity was appalling. The sweet waters of the Nile were the common beverage of Egypt. It abounded in all kinds of fish, which formed a principal article of diet for the inhabitants. It was revered as a god by Egypt. But now it was a putrid flood, from which they turned away with loathing. *James G. Murphy.* 
 
 **Verse 29.** *He turned their waters into blood.* By the miraculous change of the waters into blood, a practical rebuke was given to their superstitious. This sacred and beautiful river, the benefactor and preserver of the country, this birthplace of their chief gods, this abode of their lesser deities, this source of all their prosperity, this centre of all their devotion, is turned to blood: the waters stink; the canals and pools, the vessels of wood and vessels of stone, which were replenished from the river, all are alike polluted. The Nile, according to Pliny, was the "only source from whence the Egyptians obtained water for drinking" (Hist. Nat. 76, c. 33). This water was considered particularly sweet and refreshing; so much so that the people were in the habit of provoking thirst in order that they might partake more freely of its soft and pleasant draughts. Now it was become abominable to them, and they loathed to drink of it. *Thomas S. Millington.* 
 
@@ -392,7 +392,7 @@ On 22nd May, 1822, Dr. Noggerath saw fall at Bonn hailstones which weighed from 
 
 It appears, therefore, certain that in different countries hailstorms have occurred in which stones weighing from half to three quarters of a pound have fallen. *Dionysius Lardner*, in *"The Museum of Science and Art,"* 1854.
 
-**Verse 34.** *Locusts came, and caterpillars, and that without number.* In this country, and in all the dominions of Prete Janni, is a very great and horrible plague, which is an innumerable company of locusts, which eat and consume all the corn and trees; and the number of them is so great, as it is incredible; and with their multitude they cover the earth and fill the air in such wise, that it is a hard matter to be able to see the sun...We travelled five days journey through places wholly waste and destroyed, wherein millet had been sown, which had stalks as great as those we set in our vineyards, and we saw them all broken and beaten down as if a tempest had been there; and this the locusts did. The trees were without leaves, and the bark of them was all devoured; and no grass was there to be seen, for they had eaten up all things; and if we had not been warned and advised to carry victual with us, we and our cattle had perished. This country was all covered with locusts without wings; and they told us these were the seed of them which had eaten up all, and that as soon as their wings were grown they would seek after the old ones. The number of them was so great, that I shall not speak of it, because I shall not be believed: but this! will say, that I saw men, women, and children sit as forlorn and dead among the locusts. *Samuel Purchas*, 1577-1628.
+**Verse 34.** *Locusts came, and caterpillars, and that without number.* In this country, and in all the dominions of Prete Janni, is a very great and horrible plague, which is an innumerable company of locusts, which eat and consume all the corn and trees; and the number of them is so great, as it is incredible; and with their multitude they cover the earth and fill the air in such wise, that it is a hard matter to be able to see the sun... We travelled five days journey through places wholly waste and destroyed, wherein millet had been sown, which had stalks as great as those we set in our vineyards, and we saw them all broken and beaten down as if a tempest had been there; and this the locusts did. The trees were without leaves, and the bark of them was all devoured; and no grass was there to be seen, for they had eaten up all things; and if we had not been warned and advised to carry victual with us, we and our cattle had perished. This country was all covered with locusts without wings; and they told us these were the seed of them which had eaten up all, and that as soon as their wings were grown they would seek after the old ones. The number of them was so great, that I shall not speak of it, because I shall not be believed: but this! will say, that I saw men, women, and children sit as forlorn and dead among the locusts. *Samuel Purchas*, 1577-1628.
 
 **Verse 34.** *Locusts and caterpillars.* God did not bring the same plague twice; but when there was occasion for another, it was still a new one; for he has many arrows in his quiver. *Matthew Henry.* 
 
@@ -500,11 +500,11 @@ From sacred word once to his Abraham given.
 
 **Verse 1. ** 
 
-1\.Praise God for former mercies.
+1\. Praise God for former mercies.
 
-2\.Pray for further mercies.
+2\. Pray for further mercies.
 
-3\.Publish his famous mercies.
+3\. Publish his famous mercies.
 
 **Verse 1.** A series of holy exercises.
 
@@ -528,45 +528,45 @@ From sacred word once to his Abraham given.
 
 **Verse 2. ** 
 
-1\.The pleasure of talking to God. "Sing, "etc.; making melody in the heart.
+1\. The pleasure of talking to God. "Sing, "etc.; making melody in the heart.
 
-2\.The duty of talking of God. "Talk ye, "etc. *G.R.* 
+2\. The duty of talking of God. "Talk ye, "etc. *G. R.* 
 
 **Verse 2.** The Christian's table talk.
 
 **Verse 3. ** 
 
-1\.Those who find: or—"glory ye, "etc.
+1\. Those who find: or—"glory ye, "etc.
 
-2\.Those who seek: or—"rejoice."
+2\. Those who seek: or—"rejoice."
 
 **Verse 3** (second clause). Let the seeker rejoice that there is such a God to seek, that he invites us to seek, that he moves us to seek, enables us to seek, and promises to be found of us. The tendency of the seeker is to despond, but there are many grounds of comfort.
 
 **Verse 4.** How can we seek the Lord's strength?
 
-1\.By desiring to be subject to it.
+1\. By desiring to be subject to it.
 
-2\.By being supported by it.
+2\. By being supported by it.
 
-3\.By being equipped with it for service.
+3\. By being equipped with it for service.
 
-4\.By seeing its results upon others.
+4\. By seeing its results upon others.
 
 **Verse 4.** Threefold seeking.
 
-1\.The Lord for mercy.
+1\. The Lord for mercy.
 
-2\.His strength for service.
+2\. His strength for service.
 
-3\.His face for happiness. *A.G. Brown.* 
+3\. His face for happiness. *A. G. Brown.* 
 
 **Verse 4** (last clause). Seeking the Lord the perpetual occupation of a believer.
 
 **Verse 5.** Themes for memory.
 
-1\.What God has done.
+1\. What God has done.
 
-2\.What he has said.
+2\. What he has said.
 
 **Verse 5.** Our memory and God's memory. "Remember." "He hath remembered."
 
@@ -578,11 +578,11 @@ From sacred word once to his Abraham given.
 
 **Verse 13. ** 
 
-1\.God's people may be often removed.
+1\. God's people may be often removed.
 
-2\.They can never be injured.
+2\. They can never be injured.
 
-3\.God's property in them will not be renounced.
+3\. God's property in them will not be renounced.
 
 **Verse 14.** Dr. T. Goodwin has an excellent sermon on these verses, entitled "The Interest of England, "in which he condenses the history of the world, to show, that those nations which have persecuted and afflicted the people of God have invariably been broken in pieces. (*Goodwin's Works*, volume 12 pg 34-60, Nichol's edition).
 
@@ -590,9 +590,9 @@ From sacred word once to his Abraham given.
 
 **Verse 16. ** 
 
-1\.All things come at the call of God. He called for plenty, and it came, for famine, and it came; for captivity, and it came; for deliverance, and it came.
+1\. All things come at the call of God. He called for plenty, and it came, for famine, and it came; for captivity, and it came; for deliverance, and it came.
 
-2\.The most unlikely means of accomplishing an end with man is often the direct way with God. He fulfilled the promise of Canaan to Abraham by banishing him from it; of plenty, by sending a famine; of freedom, by bringing into captivity. *G.R.* 
+2\. The most unlikely means of accomplishing an end with man is often the direct way with God. He fulfilled the promise of Canaan to Abraham by banishing him from it; of plenty, by sending a famine; of freedom, by bringing into captivity. *G. R.* 
 
 **Verse 19.** The duration of our troubles, the testing power of the promise, the comfortable issue which is secured to us.
 
@@ -600,11 +600,11 @@ From sacred word once to his Abraham given.
 
 **Verse 25. ** 
 
-1\.The natural hatred of the world to the church.
+1\. The natural hatred of the world to the church.
 
-2\.God's permitting it to be shown. When? Why?
+2\. God's permitting it to be shown. When? Why?
 
-3\.The subtle manner in which this enmity seeks its object.
+3\. The subtle manner in which this enmity seeks its object.
 
 **Verse 32.** *He gave them hail for rain.* Judgment substituted for mercy.
 
@@ -614,59 +614,59 @@ From sacred word once to his Abraham given.
 
 **Verse 39. ** 
 
-1\.A dark cloud of providence is the guide of the people of God by day.
+1\. A dark cloud of providence is the guide of the people of God by day.
 
-2\.A bright cloud of promises is their guide by night. *G.R.* 
+2\. A bright cloud of promises is their guide by night. *G. R.* 
 
 **Verse 39.** The Lord's goodness exemplified in our varying conditions.
 
-1\.For prosperity—a cloud.
+1\. For prosperity—a cloud.
 
-2\.For adversity—a light. A good text would be found in "light in the night."
+2\. For adversity—a light. A good text would be found in "light in the night."
 
 **Verse 40. ** 
 
-1\.God often gives in love what is not asked. So the bread from heaven which was beyond all they could ask or think.
+1\. God often gives in love what is not asked. So the bread from heaven which was beyond all they could ask or think.
 
-2\.He sometimes gives in anger what is asked. They asked for flesh to eat—"and he brought quails."— *G.R.* 
+2\. He sometimes gives in anger what is asked. They asked for flesh to eat—"and he brought quails."— *G. R.* 
 
 **Verse 41.** We have,
 
-1\.A type of the person of Christ, in the rock.
+1\. A type of the person of Christ, in the rock.
 
 (a) Unsightly as Horeb—"When we shall see him, there is no beauty, "etc. (Isa 43:2).
 
 (b) Firm and immovable "Who is a rock, save our God?" (2Sa 22:32).
 
-2\.A type of the sufferings of Christ, in the smitten rock.
+2\. A type of the sufferings of Christ, in the smitten rock.
 
 (a) Smitten by the rod of the Law.
 
 (b) Smitten to the heart.
 
-3\.A type of the benefits of Christ, in the water flowing from the rock—pure, refreshing, perpetual, abundant. *James Bennett*, 1828.
+3\. A type of the benefits of Christ, in the water flowing from the rock—pure, refreshing, perpetual, abundant. *James Bennett*, 1828.
 
 **Verse 41. ** 
 
-1\.The miraculous energy of God's grace in the conversion of a sinner: "He opened the rock, and the waters gushed out."
+1\. The miraculous energy of God's grace in the conversion of a sinner: "He opened the rock, and the waters gushed out."
 
-2\.The effect in relation to others, which demonstrates at once the excellence and the reality of the miracle in ourselves: "They ran in the dry places like a river."— *Thomas Dale*, 1836.
+2\. The effect in relation to others, which demonstrates at once the excellence and the reality of the miracle in ourselves: "They ran in the dry places like a river."— *Thomas Dale*, 1836.
 
 **Verse 41. ** 
 
-1\.The grand source—the rock opened.
+1\. The grand source—the rock opened.
 
-2\.The liberal stream—"gushed out".
+2\. The liberal stream—"gushed out".
 
-3\.The continued flow—"in dry places".
+3\. The continued flow—"in dry places".
 
 **Verse 42. ** 
 
-1\.The grand source—the rock opened.
+1\. The grand source—the rock opened.
 
-2\.The liberal stream—"gushed out".
+2\. The liberal stream—"gushed out".
 
-3\.The continued law—"in dry places".
+3\. The continued law—"in dry places".
 
 **Verse 45.** Obedience to God the design of his mercies to us.
 

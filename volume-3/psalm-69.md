@@ -394,11 +394,11 @@ But, if ever human heart was riven and ruptured by the mere amount of mental ago
 
 **Verse 28.** *Let them be blotted out of the book of the living,* etc. We come to the question, Whether to be written in heaven be an infallible assurance of salvation; or, whether any there registered may come to be blotted out? The truth is, that none written in heaven can ever be lost; yet they object against it this verse. Hence, they infer, that some names once there recorded are afterwards put out; but this opinion casteth a double aspersion on God himself. Either it makes him ignorant of future things, as if he foresaw not the end of elect and reprobate, and so were deceived in decreeing some to be saved that shall not be saved; or, that his decree is mutable, in excluding those upon their sins whom he hath formerly chosen. From both these weaknesses St. Paul vindicates him (2Ti 2:19): "The foundation of God standeth sure, having this seal, the Lord knoweth them that are his." First, "The Lord knows them that are his; "this were not true if God's prescience could be deluded. Then, his "foundation stands sure; "but that were no sure foundation, if those he hath decreed to be his should afterwards fall out not to be his. The very conclusion of truth is this *impossibilis est deletio;* they which are "written in heaven" can never come into hell. To clear this from the opposed doubt, among many, I will cull out three proper distinctions:
 
-1\.One may be said to be written in heaven *simpliciter,* and *secundum quid.* He that is simply written there, *in quantum praedestinatus ad vitam,* because elected to life, can never be blotted out. He that is written after a sort may, for he is written *non secundum Dei praescientiam, sed secundum praesentem justitiam* —not according to God's former decree, but according to his present righteousness. So they are said to be blotted out, not in respect of God's knowledge, for he knows they never were written there; but according to their present condition, apostatising from grace to sin. *(Lyra.)* 
+1\. One may be said to be written in heaven *simpliciter,* and *secundum quid.* He that is simply written there, *in quantum praedestinatus ad vitam,* because elected to life, can never be blotted out. He that is written after a sort may, for he is written *non secundum Dei praescientiam, sed secundum praesentem justitiam* —not according to God's former decree, but according to his present righteousness. So they are said to be blotted out, not in respect of God's knowledge, for he knows they never were written there; but according to their present condition, apostatising from grace to sin. *(Lyra.)* 
 
-2\.Some are blotted out *non secundum rei veritatem, sed hominum opinionem* —not according to the truth of the thing but according to men's opinion. It is usual in the Scriptures to say a thing is done *quando innotescat fieri,* when it is declared to be done. Hypocrites have a simulation of outward sanctity, so that men in charity judge them to be written in heaven. But when those glistening stars appear to be only *ignes fatui,* foolish meteors, and fall from the firmament of the church, then we say they are blotted out. The written *ex existentia,* by a perfect being, are never lost; but *ex apparentia,* by a dissembled appearance, may. Some God so writes, *in se ut simpliciter habituri vitam* —that they have life simply in themselves, though not of themselves. Others he so writes, *ut habeant non in se, sed in sua causa;* from which falling they are said to be obliterated. *(Aquinas.)* 
+2\. Some are blotted out *non secundum rei veritatem, sed hominum opinionem* —not according to the truth of the thing but according to men's opinion. It is usual in the Scriptures to say a thing is done *quando innotescat fieri,* when it is declared to be done. Hypocrites have a simulation of outward sanctity, so that men in charity judge them to be written in heaven. But when those glistening stars appear to be only *ignes fatui,* foolish meteors, and fall from the firmament of the church, then we say they are blotted out. The written *ex existentia,* by a perfect being, are never lost; but *ex apparentia,* by a dissembled appearance, may. Some God so writes, *in se ut simpliciter habituri vitam* —that they have life simply in themselves, though not of themselves. Others he so writes, *ut habeant non in se, sed in sua causa;* from which falling they are said to be obliterated. *(Aquinas.)* 
 
-3\.Augustine says, we must not so take it, that God first writes and then dasheth out. For if a Pilate could say, *Quod scripsi, scripsi* —"What I have written, I have written, "and it shall stand; shall God say, *Quod scripsi expungam* —What I have written, I will wipe out, and it shall not stand? They are written, then, *secundum spem ipsorum, qui ibi se scriptos putabant* —according to their own hope that presumed their names there; and are blotted out *quando ipsis constet illos non ibi fuisse* —when it is manifest to themselves that their names never had any such honour of inscription. This even that Psalm strengthens whence they fetch their opposition: *Let them be blotted out of the book of the living, and not be written with the righteous.* So that to be blotted out of that book, it is, indeed, never to be written there. To be wiped out in the end, is but a declaration that such were not written in the beginning. *Thomas Adams.* 
+3\. Augustine says, we must not so take it, that God first writes and then dasheth out. For if a Pilate could say, *Quod scripsi, scripsi* —"What I have written, I have written, "and it shall stand; shall God say, *Quod scripsi expungam* —What I have written, I will wipe out, and it shall not stand? They are written, then, *secundum spem ipsorum, qui ibi se scriptos putabant* —according to their own hope that presumed their names there; and are blotted out *quando ipsis constet illos non ibi fuisse* —when it is manifest to themselves that their names never had any such honour of inscription. This even that Psalm strengthens whence they fetch their opposition: *Let them be blotted out of the book of the living, and not be written with the righteous.* So that to be blotted out of that book, it is, indeed, never to be written there. To be wiped out in the end, is but a declaration that such were not written in the beginning. *Thomas Adams.* 
 
 **Verse 32.** *Your heart shall live that seek God.* As such who are poor in spirit, and truly humbled, do live upon God's alms, and are daily at his doors for relief of their necessities, and for communion with his gracious goodness; so shall they thrive well in this trade. *David Dickson.* 
 
@@ -410,23 +410,23 @@ But, if ever human heart was riven and ruptured by the mere amount of mental ago
 
 **Verse 1.** Our trials like waters.
 
-1\.They should be kept out of the heart.
+1\. They should be kept out of the heart.
 
-2\.There are, however, leaks which admit them.
+2\. There are, however, leaks which admit them.
 
-3\.Take note when the hold is filling.
+3\. Take note when the hold is filling.
 
-4\.Use the pumps, and cry for help.
+4\. Use the pumps, and cry for help.
 
 **Verses 2-3.** The sinner aware of his position, unable to hope, overwhelmed with fear, finding no comfort in prayer, unvisited with divine consolation. Direct and console him.
 
 **Verse 3.** 
 
-1\.Here is faith in the midst of trouble: *My God.* 
+1\. Here is faith in the midst of trouble: *My God.* 
 
-2\.Hope in the midst of disappointment: *Mine eyes fail, etc.* 
+2\. Hope in the midst of disappointment: *Mine eyes fail, etc.* 
 
-3\.Prayer in the midst of discouragement: *I am weary,* etc.; *My throat,* etc. Or, (a) There is praying beyond prayer: *I am weary,* etc.; (b) Hoping beyond hope: *Mine eyes,* etc. *G. R.* 
+3\. Prayer in the midst of discouragement: *I am weary,* etc.; *My throat,* etc. Or, (a) There is praying beyond prayer: *I am weary,* etc.; (b) Hoping beyond hope: *Mine eyes,* etc. *G. R.* 
 
 **Verse 4.** Jesus as the Restorer, the Christian imitating him in the same office; Christianity a power which will do this for the whole race in due season.
 
@@ -434,13 +434,13 @@ But, if ever human heart was riven and ruptured by the mere amount of mental ago
 
 **Verse 5.** 
 
-1\.God's knowledge of sin is an inducement to repent.
+1\. God's knowledge of sin is an inducement to repent.
 
 (a) Because it is foolish to endeavour to hide any sin from him.
 
 (b) Because it is impossible to confess all our sin to him.
 
-2\.It is an encouragement to hope for pardon.
+2\. It is an encouragement to hope for pardon.
 
 (a) Because, in the full knowledge of sin, he has declared himself to be merciful and ready to forgive.
 
@@ -448,35 +448,35 @@ But, if ever human heart was riven and ruptured by the mere amount of mental ago
 
 **Verses 8-9.** 
 
-1\.A grievous trial.
+1\. A grievous trial.
 
-2\.An honourable reason for it: for Christ's sake.
+2\. An honourable reason for it: for Christ's sake.
 
-3\.Consoling supports under it.
+3\. Consoling supports under it.
 
 **Verse 9.** 
 
-1\.The object of zeal: *thy house;* thy Zion; thy Church.
+1\. The object of zeal: *thy house;* thy Zion; thy Church.
 
-2\.The degree of zeal: *hath eaten me up.* Our Lord was consumed by his own zeal. So Paul: *And I if I be offered up, etc.* 
+2\. The degree of zeal: *hath eaten me up.* Our Lord was consumed by his own zeal. So Paul: *And I if I be offered up, etc.* 
 
-3\.The manifestation of zeal: *The reproaches,* etc.; of thy justice; of thy law; of thy moral government; of thy lovingkindness. "Who himself bare our sins," etc. *G. R.* 
+3\. The manifestation of zeal: *The reproaches,* etc.; of thy justice; of thy law; of thy moral government; of thy lovingkindness. "Who himself bare our sins," etc. *G. R.* 
 
 **Verses 10-12.** A prophecy.
 
-1\.Of the Saviour's tears: *When I wept.* 
+1\. Of the Saviour's tears: *When I wept.* 
 
-2\.Of his fasting.
+2\. Of his fasting.
 
-3\.Of reproach.
+3\. Of reproach.
 
-4\.Of his humiliation: *I made sackcloth,* etc.
+4\. Of his humiliation: *I made sackcloth,* etc.
 
-5\.Of the perversion of his words: as, "I will destroy this temple, "etc.
+5\. Of the perversion of his words: as, "I will destroy this temple, "etc.
 
-6\.Of the opposition of the Pharisees, and rulers: *They that sit in the gate, etc.* 
+6\. Of the opposition of the Pharisees, and rulers: *They that sit in the gate, etc.* 
 
-7\.Of the contempt of the lowest of the people: *I was the song, etc. G. R.* 
+7\. Of the contempt of the lowest of the people: *I was the song, etc. G. R.* 
 
 **Verse 11.** Proverbial sayings of a scoffing character.
 
@@ -488,25 +488,25 @@ But, if ever human heart was riven and ruptured by the mere amount of mental ago
 
 **Verses 14-16.** 
 
-1\.The depth from which prayer may rise.
+1\. The depth from which prayer may rise.
 
-2\.The height to which it may ascend. Thus Jonah, when at the bottom of the sea, says, "My prayer came up," etc. *G. R.* 
+2\. The height to which it may ascend. Thus Jonah, when at the bottom of the sea, says, "My prayer came up," etc. *G. R.* 
 
 **Verse 17.** 
 
-1\.Prayer: *Hide not thy face.* 
+1\. Prayer: *Hide not thy face.* 
 
-2\.Person: *Thy servant.* 
+2\. Person: *Thy servant.* 
 
-3\.Plea: *For I am in trouble.* 
+3\. Plea: *For I am in trouble.* 
 
-4\.Pressure: *Hear me speedily.* 
+4\. Pressure: *Hear me speedily.* 
 
 **Verse 19.** 
 
-1\.God knows what his people suffer; how much, how long, from whom, for what.
+1\. God knows what his people suffer; how much, how long, from whom, for what.
 
-2\.His people should find consolation in this knowledge.
+2\. His people should find consolation in this knowledge.
 
 (a) That trial is permitted by him.
 
@@ -526,13 +526,13 @@ But, if ever human heart was riven and ruptured by the mere amount of mental ago
 
 **Verse 29.** 
 
-1\.The humiliation that precedes exaltation.
+1\. The humiliation that precedes exaltation.
 
 (a) Deep: *I am poor and sorrowful.* 
 
 (b) Confessed: *I am poor,* etc.
 
-2\.The exaltation that follows humiliation.
+2\. The exaltation that follows humiliation.
 
 (a) Divine: *Thy salvation, O Lord. Though the Lord be high,* etc.
 
@@ -542,21 +542,21 @@ But, if ever human heart was riven and ruptured by the mere amount of mental ago
 
 **Verse 30-31.** 
 
-1\.The effect of deliverance upon the people of God. It fills them with praise and thanksgiving.
+1\. The effect of deliverance upon the people of God. It fills them with praise and thanksgiving.
 
-2\.The effect in relation to God. He is more pleased with it than with any other offerings: "Whoso offereth praise, "etc. *G. R.* 
+2\. The effect in relation to God. He is more pleased with it than with any other offerings: "Whoso offereth praise, "etc. *G. R.* 
 
 **Verse 32.** 
 
-1\.The joy of a good man's heart is in the experience of others.
+1\. The joy of a good man's heart is in the experience of others.
 
-2\.The life of his heart is in God.
+2\. The life of his heart is in God.
 
 **Verse 33.** 
 
-1\.What the people of God are in their own esteem: "poor"  and "prisoners."
+1\. What the people of God are in their own esteem: "poor"  and "prisoners."
 
-2\.What they are in the divine esteem: not unnoticed; not unheard; not despised.
+2\. What they are in the divine esteem: not unnoticed; not unheard; not despised.
 
 **Verse 34.** *The sea,* etc. How God is, should be, and shall be praised by the sea.
 
@@ -566,17 +566,17 @@ But, if ever human heart was riven and ruptured by the mere amount of mental ago
 
 **Verse 36.** 
 
-1\.The sure evidence of grace: "love his name."
+1\. The sure evidence of grace: "love his name."
 
-2\.The blessing given.
+2\. The blessing given.
 
-3\.The enduring character of it: "shall dwell."
+3\. The enduring character of it: "shall dwell."
 
 **Verse 36.** 
 
-1\.The inheritance: "Inherit it; "we reign with Christ on earth, then in heaven.
+1\. The inheritance: "Inherit it; "we reign with Christ on earth, then in heaven.
 
-2\.The **Title &mdash;** 
+2\. The **Title &mdash;** 
 
 (a) Legal: "Seed of his servants"—Abraham, Jacob, David—David's Lord and Son.
 

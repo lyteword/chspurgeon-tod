@@ -68,7 +68,7 @@ God is concerned in all that concerns his servants. He will see to it that none 
 
 **Whole Psalm.** This is the first of a series of eight Psalms (Ps 138:1-145:21), probably the last composed by David, a kind of commentary on the great Messianic promise in 2Sa 7:1-29. They are found in this part of the psalter, in consequence of having been made the basis, or rather the body, of a system or series (Ps 135:1-146:10) by a later writer.— *Joseph Addison Alexander.* 
 
-**Whole Psalm.** If this Psalm refers to the promise in 2Sa 7:1-29, there can be no doubt of the correctness of the superscription, which ascribes it to David. For he, on whom the promise has been conferred, himself stands forth as the speaker. Proof also of David's authorship is found in the union, so characteristic of him, of bold courage, see especially Ps 138:3, and deep humility, see Ps 138:6. And in proof of the same comes, finally, the near relationship in which it stands with the other Psalms of David, especially those which likewise refer to the promise of the everlasting kingdom; and with David's thanksgiving in 2Sa 7:1-29, the conclusion of which remarkably agrees with the conclusion of our Psalm: "And now, Lord God, the word which thou hast spoken upon thy servant and upon his house, that fulfil even to eternity, and do as thou hast spoken."— *E.W. Hengstenberg.* 
+**Whole Psalm.** If this Psalm refers to the promise in 2Sa 7:1-29, there can be no doubt of the correctness of the superscription, which ascribes it to David. For he, on whom the promise has been conferred, himself stands forth as the speaker. Proof also of David's authorship is found in the union, so characteristic of him, of bold courage, see especially Ps 138:3, and deep humility, see Ps 138:6. And in proof of the same comes, finally, the near relationship in which it stands with the other Psalms of David, especially those which likewise refer to the promise of the everlasting kingdom; and with David's thanksgiving in 2Sa 7:1-29, the conclusion of which remarkably agrees with the conclusion of our Psalm: "And now, Lord God, the word which thou hast spoken upon thy servant and upon his house, that fulfil even to eternity, and do as thou hast spoken."— *E. W. Hengstenberg.* 
 
 **Verse 1.** *I will praise thee with my whole heart.* It is a part of our thankfulness to engage our heart to praise God in time to come, since we find that all the thanks we can give for the present are short of our duty or desire to praise him: *"I will praise thee",* saith David. Sometimes the believer will find his heart set at liberty in God's worship, which at another time he will find to be in bands, and then he should take the opportunity of an enlarged heart to run in the way of God's service, as David doth here: *"I will praise thee with my whole heart."* — *David Dickson.* 
 
@@ -76,7 +76,7 @@ God is concerned in all that concerns his servants. He will see to it that none 
 
 **Verse 1.** *I will praise thee.* Alas, for that capital crime of the Lord's people—barrenness in praises! Oh, how fully I am persuaded that a line of praises is worth a leaf of prayer, and an hour of praises is worth a day of fasting and mourning!— *John Livingstone,* 1603-1672.
 
-**Verse 1.** *With my whole heart.* This expression, as in Ps 9:1, points to the surpassing greatness of the benefit received, which filled the whole heart with thankfulness, and did not proceed, as it were, from some particular corner of it. It corresponds also to the greatness of the benefaction, in the expression, *before the gods* ,—demanding of these, whether they would verify their godhead by pointing to any such boon conferred by them on their servants. The benefit which could afford such a demonstration, and give occasion and ground for raillery, must have been a surpassingly great one.— *E.W. Hengstenberg.* 
+**Verse 1.** *With my whole heart.* This expression, as in Ps 9:1, points to the surpassing greatness of the benefit received, which filled the whole heart with thankfulness, and did not proceed, as it were, from some particular corner of it. It corresponds also to the greatness of the benefaction, in the expression, *before the gods* ,—demanding of these, whether they would verify their godhead by pointing to any such boon conferred by them on their servants. The benefit which could afford such a demonstration, and give occasion and ground for raillery, must have been a surpassingly great one.— *E. W. Hengstenberg.* 
 
 **Verse 1.** *Before the gods.* There is much diversity in the meaning assigned to *"gods"* in this verse. It may mean literally in an idolatrous country, in the very temples of false gods, as so many Christian martyrs bore testimony to the faith. The LXX., Vulgate, Ethiopic, and Arabic translate *angels.* The Chaldee has *judges,* the Syriac *kings,* and the earlier Greek fathers explain it as a reference to the choirs of *Priests and Levites* in the Temple.— *Zigabenus, in Neale and Littledale.* 
 
@@ -102,11 +102,11 @@ God is concerned in all that concerns his servants. He will see to it that none 
 
 **Verse 2.** *Thou hast magnified thy word above all thy name.* God has sent his word to us,
 
-1\.As *a mirror,* to reflect his glory. "The heavens declare the glory of God; and the firmament sheweth his handywork"; from them may his eternal power and Godhead be clearly seen. Ps 19:1, 3-4. In his providential dealings, also, is much of his wisdom and goodness exhibited. But of his perfections, generally, we can form no idea from these things; of his purposes we can know nothing. The state of the Heathen world clearly attests this; for they behold the wonders of Creation and Providence, as well as we: "There is no speech nor language where *their* voice is not heard. Their line is gone out through all the earth, and their words to the end of the world": Ps 19:3-4. But in the sacred volume all the glory of the Godhead shines: there we are admitted, so to speak, even to the council chamber of the Most High; to hear the covenant entered into between the Father and the Son; the Father engaging to give to him a seed, whom he should have for his inheritance, if he, on his part, would "make his soul an offering for their sins", and, in their nature, expiate the guilt of their iniquities. This mysterious transaction having taken place in the incarnation and death of the Lord Jesus Christ, we behold all the perfections of God united and harmonizing in a way that they never did, or could, by any other means: we see justice more inexorable, than if it had executed vengeance on the whole human race; and mercy more abundant, than if it had spared the human race without any such atonement. There, as it is well expressed, "Mercy and truth are met together; righteousness and peace have kissed each other": Ps 85:10. Of this great mystery we find not a trace in the whole creation besides; but in the word it is reflected, as in a mirror (2Co 3:18); and it shines so brightly, that the very angels around the throne are made wiser by the revelation of it to the Church: Eph 3:10.
+1\. As *a mirror,* to reflect his glory. "The heavens declare the glory of God; and the firmament sheweth his handywork"; from them may his eternal power and Godhead be clearly seen. Ps 19:1, 3-4. In his providential dealings, also, is much of his wisdom and goodness exhibited. But of his perfections, generally, we can form no idea from these things; of his purposes we can know nothing. The state of the Heathen world clearly attests this; for they behold the wonders of Creation and Providence, as well as we: "There is no speech nor language where *their* voice is not heard. Their line is gone out through all the earth, and their words to the end of the world": Ps 19:3-4. But in the sacred volume all the glory of the Godhead shines: there we are admitted, so to speak, even to the council chamber of the Most High; to hear the covenant entered into between the Father and the Son; the Father engaging to give to him a seed, whom he should have for his inheritance, if he, on his part, would "make his soul an offering for their sins", and, in their nature, expiate the guilt of their iniquities. This mysterious transaction having taken place in the incarnation and death of the Lord Jesus Christ, we behold all the perfections of God united and harmonizing in a way that they never did, or could, by any other means: we see justice more inexorable, than if it had executed vengeance on the whole human race; and mercy more abundant, than if it had spared the human race without any such atonement. There, as it is well expressed, "Mercy and truth are met together; righteousness and peace have kissed each other": Ps 85:10. Of this great mystery we find not a trace in the whole creation besides; but in the word it is reflected, as in a mirror (2Co 3:18); and it shines so brightly, that the very angels around the throne are made wiser by the revelation of it to the Church: Eph 3:10.
 
-2\.As *a standard,* to which everything may be referred. Of God's will we know nothing, but from the word: "we know neither good nor evil from all that is before us." What God requires of us, nothing in Creation or Providence can inform us: what he will do for us, we cannot ascertain: how he will deal with us, we cannot ascertain. But, in the sacred volume, all is written as with a sunbeam. There is nothing which God expects us to do for him, which is not there most explicitly declared: nothing which he engages to do for us, that does not form the subject of a distinct promise. The whole of his procedure in the day of judgment is there laid open: the laws by which we shall be judged: the manner in which the testimony, whether against us or in our favour, shall be produced; the grounds on which the sentence of condemnation or acquittal shall be passed; yea, the very state to which every person, either as acquitted or condemned, shall be consigned; all is so clearly made known, that every person, who will judge himself with candour now, may assuredly anticipate his fate. There is nothing left to conjecture. Every man has a standard to which he may refer, for the rectifying of his judgment in every particular: so that nothing can be added for the instruction of our minds, or the regulation of our future expectations.
+2\. As *a standard,* to which everything may be referred. Of God's will we know nothing, but from the word: "we know neither good nor evil from all that is before us." What God requires of us, nothing in Creation or Providence can inform us: what he will do for us, we cannot ascertain: how he will deal with us, we cannot ascertain. But, in the sacred volume, all is written as with a sunbeam. There is nothing which God expects us to do for him, which is not there most explicitly declared: nothing which he engages to do for us, that does not form the subject of a distinct promise. The whole of his procedure in the day of judgment is there laid open: the laws by which we shall be judged: the manner in which the testimony, whether against us or in our favour, shall be produced; the grounds on which the sentence of condemnation or acquittal shall be passed; yea, the very state to which every person, either as acquitted or condemned, shall be consigned; all is so clearly made known, that every person, who will judge himself with candour now, may assuredly anticipate his fate. There is nothing left to conjecture. Every man has a standard to which he may refer, for the rectifying of his judgment in every particular: so that nothing can be added for the instruction of our minds, or the regulation of our future expectations.
 
-3\.As *a fountain,* from whence all his blessings emanate. Great blessings, beyond all doubt, flow down to us through the works of Creation and Providence: in fact, they are incessantly administering to our welfare; for "God opens his hands, and fills all things living with plenteousness." Still, however, the benefits derived from them are only temporal; whereas those which the inspired volume imparts are spiritual and eternal; from whence we derive all our knowledge of Divine truth, and all our hopes of everlasting salvation. Nor is it the knowledge only of truth that we obtain, but the operation and efficacy of it on our souls. There is in Divine truth, when applied by the Holy Spirit, a power to wound, to sanctify, to save: Ps 19:7-11. When it comes to the soul with power, the stoutest heart in the universe is made to tremble: when it is poured out as balm, the most afflicted creature under heaven is made to leap for joy. Look over the face of the globe, and see how many, who were once under the unrestrained dominion of sin, are now transformed into the image of their God. And then ascend to heaven, and behold the myriads of the redeemed around the throne of God, uniting their hallelujahs to God and to the Lamb: to this state were they all brought by that blessed word, which alone could ever prevail for so great a work. Thus it is that God has magnified his word; and thus it is that he will magnify it, to the end of time; yea, through eternity will it be acknowledged as the one source of all blessings that shall ever be enjoyed.— *Charles Simeon, in Horae Homileticae.* 
+3\. As *a fountain,* from whence all his blessings emanate. Great blessings, beyond all doubt, flow down to us through the works of Creation and Providence: in fact, they are incessantly administering to our welfare; for "God opens his hands, and fills all things living with plenteousness." Still, however, the benefits derived from them are only temporal; whereas those which the inspired volume imparts are spiritual and eternal; from whence we derive all our knowledge of Divine truth, and all our hopes of everlasting salvation. Nor is it the knowledge only of truth that we obtain, but the operation and efficacy of it on our souls. There is in Divine truth, when applied by the Holy Spirit, a power to wound, to sanctify, to save: Ps 19:7-11. When it comes to the soul with power, the stoutest heart in the universe is made to tremble: when it is poured out as balm, the most afflicted creature under heaven is made to leap for joy. Look over the face of the globe, and see how many, who were once under the unrestrained dominion of sin, are now transformed into the image of their God. And then ascend to heaven, and behold the myriads of the redeemed around the throne of God, uniting their hallelujahs to God and to the Lamb: to this state were they all brought by that blessed word, which alone could ever prevail for so great a work. Thus it is that God has magnified his word; and thus it is that he will magnify it, to the end of time; yea, through eternity will it be acknowledged as the one source of all blessings that shall ever be enjoyed.— *Charles Simeon, in Horae Homileticae.* 
 
 **Verse 2.** *For thou hast magnified thy word above all thy name.* This is one of those expressions of Scripture that seem so comprehensive, and yet so amazing. To my mind it is one of the most remarkable expressions in the whole book of God. *"Thou hast magnified thy word above all thy name."* The name of God includes all the perfections of God; everything that God is, and which God has revealed himself as having—his justice, majesty, holiness, greatness, and glory, and whatever he is in himself, that is God's name. And yet he has *"magnified"* something *"above his name"* —his *word* —his *truth.* This may refer to the Incarnate Word, the Son of God, who was called *"the Word."* "There are three that bear record in heaven, the Father, the *Word,* and the Holy Ghost, and these three are one": 1Jo 5:7, "In the beginning was the *Word,* and the *Word* was with God": Joh 1:1. You may take the words either as meaning that God has magnified his *Word,* his eternal Son—above all his great name, that is, he has set Jesus on high above all the other perfections of his majesty; or take it as meaning his written word, which is written in the sacred Scriptures. So, in that case, not only the Incarnate *Word* in the person of Jesus; but also the written word in the Scriptures of truth. He has magnified it above all his name in the fulfilment of it: God's faithfulness being so dear to him, he has exalted his faithfulness above all his other perfections. We see this in nature. Here is a man so to be depended upon, so faithful to his word, that he will sacrifice anything sooner than depart from it: that man will give up his property, or life itself, rather than forfeit his word. So God has spoken of magnifying his word above all his name. He would sooner allow all his other perfections to come to naught, than for his faithfulness to fail. He has so magnified his faithfulness, that his love, his mercy, his grace, would all sooner fail than his faithfulness—the word of his mouth and what he has revealed in the Scripture. What a firm salvation, then, is ours, which rests upon his word, when God has magnified that word above all his name! What volumes of blessedness and truth are contained therein! so that, if God has revealed his truth to your soul, and given you faith to anchor in the world of promise, sooner than that should fail, he would suffer the loss of all; for he has magnified his word above all his name.— *Joseph C. Philpot.* 
 
@@ -142,11 +142,11 @@ God is concerned in all that concerns his servants. He will see to it that none 
 
 **Verse 6.** *The LORD hath respect unto the lowly.* God has such a respect unto the lowly, not as if this frame of soul were meritorious of any good at his hand, but because,
 
-1\.This is a disposition that best serves God's great design of lifting up and glorifying his free grace. What think you, sirs, was God's design in election, in redemption, in the whole of the gospel dispensation, and in all the ordinances thereof? His grand design in all was to rear up a glorious high throne, from which he might display the riches of his free and sovereign grace; this is that which he will have magnified through eternity above all his other name. Now, this lowliness and humility of spirit suits best unto God's design of exalting the freedom of his grace. It is not the legalist, or proud Pharisee, but the poor humble publican, who is smiting on his breast, and crying, "God be merciful to me, a sinner", that submits to the revelation of grace.
+1\. This is a disposition that best serves God's great design of lifting up and glorifying his free grace. What think you, sirs, was God's design in election, in redemption, in the whole of the gospel dispensation, and in all the ordinances thereof? His grand design in all was to rear up a glorious high throne, from which he might display the riches of his free and sovereign grace; this is that which he will have magnified through eternity above all his other name. Now, this lowliness and humility of spirit suits best unto God's design of exalting the freedom of his grace. It is not the legalist, or proud Pharisee, but the poor humble publican, who is smiting on his breast, and crying, "God be merciful to me, a sinner", that submits to the revelation of grace.
 
-2\.God has such respect unto the humble soul because it is a fruit of the Spirit inhabiting the soul, and an evidence of the soul's union with the Lord Jesus Christ, in whom alone we are accepted.
+2\. God has such respect unto the humble soul because it is a fruit of the Spirit inhabiting the soul, and an evidence of the soul's union with the Lord Jesus Christ, in whom alone we are accepted.
 
-3\.This is a disposition that makes the soul like Christ; and the more alike that a person is to Christ, God loves him all the better. We are told that Christ was "meek and lowly"; "he did not cry, nor lift up, nor cause his voice to be heard in the streets"; though he was "the brightness of his Father's glory", yet he was content to appear "in the form of a servant"; though he was rich, yet he was content to become poor, that we through his poverty might be rich. Now, the humble soul, being the image of Christ, who is the express image of his Father, God cannot but have a regard unto him.— *Ebenezer Erskine.* 
+3\. This is a disposition that makes the soul like Christ; and the more alike that a person is to Christ, God loves him all the better. We are told that Christ was "meek and lowly"; "he did not cry, nor lift up, nor cause his voice to be heard in the streets"; though he was "the brightness of his Father's glory", yet he was content to appear "in the form of a servant"; though he was rich, yet he was content to become poor, that we through his poverty might be rich. Now, the humble soul, being the image of Christ, who is the express image of his Father, God cannot but have a regard unto him.— *Ebenezer Erskine.* 
 
 **Verse 6.** *He hath respect unto the lowly.* Give me the homely vessel of humility, which God shall preserve, and fill with the wine of his grace; rather than the varnished cup of pride, which he will dash in pieces, like a potter's vessel. Where humility is the corner stone, there glory shall be the top stone.— *William Seeker, in "The Nonsuch Professor in his Meridian Splendour,"* 1660.
 
@@ -168,7 +168,7 @@ God is concerned in all that concerns his servants. He will see to it that none 
 
 **Verse 8.** *Forsake not the works of thine own hands.* Behold in me thy work, not mine: for mine, if thou seest, thou condemnest; thine, if thou seest, thou crownest. For whatever good works there be of mine, from thee are they to me; and so they are more thine than mine. For I hear from thine apostle, "By grace are ye saved through faith; and that not of yourselves: it is the gift of God. Not of works, lest any man should boast. For we are his workmanship, created in Christ Jesus": Eph 2:8-10.— *Augustine.* 
 
-**Verse 8.** *Thine own hands.* His creating hands formed our souls at the beginning; his nail pierced hands redeemed them on Calvary; his glorified hands will hold our souls fast and not let them go for ever. Unto his hands let us commend our spirits, sure that even though the works of our hands have made void the works of his hands, yet his hands will again make perfect all that our hands have unmade.— *J.W. Burgon.* 
+**Verse 8.** *Thine own hands.* His creating hands formed our souls at the beginning; his nail pierced hands redeemed them on Calvary; his glorified hands will hold our souls fast and not let them go for ever. Unto his hands let us commend our spirits, sure that even though the works of our hands have made void the works of his hands, yet his hands will again make perfect all that our hands have unmade.— *J. W. Burgon.* 
 
 ## Hints to the Village Preacher
 
@@ -224,17 +224,17 @@ c) By exhibiting the strength in soul which was given in answer to prayer.
 
 **Verse 2.** The Christward position.
 
-1\.Worship and praise are to be blended.
+1\. Worship and praise are to be blended.
 
-2\.They are to be presented with an eye to God in Christ, for he is the temple: the place of divine indwelling, sacrifice, intercession, priesthood, oracle, and manifestation.
+2\. They are to be presented with an eye to God in Christ, for he is the temple: the place of divine indwelling, sacrifice, intercession, priesthood, oracle, and manifestation.
 
 **Verse 2.** (*first clause* ).—
 
-1\.The soul's noblest attitude: "Toward thy temple."
+1\. The soul's noblest attitude: "Toward thy temple."
 
-2\.The soul's noblest exercise: "worship," "praise."
+2\. The soul's noblest exercise: "worship," "praise."
 
-— *W.W.* 
+— *W. W.* 
 
 **Verse 2.** 
 
@@ -246,57 +246,57 @@ c) By exhibiting the strength in soul which was given in answer to prayer.
 
 **Verse 3.** 
 
-1\.Prayer answered *in* the day.
+1\. Prayer answered *in* the day.
 
-2\.Prayer answered by giving strength *for* the day. See 2Co 12:8-9.
+2\. Prayer answered by giving strength *for* the day. See 2Co 12:8-9.
 
-— *A.G.B.* 
+— *A. G. B.* 
 
 **Verse 3.** 
 
-1\.Answers to prayer should be noted and acknowledged: "Thou answeredst me."
+1\. Answers to prayer should be noted and acknowledged: "Thou answeredst me."
 
-2\.Speedy answers should have special praise: "In the when I cried, thou", etc.
+2\. Speedy answers should have special praise: "In the when I cried, thou", etc.
 
-3\.A strengthened soul is sometimes the best answer to prayer: "Strengthened me with strength."
+3\. A strengthened soul is sometimes the best answer to prayer: "Strengthened me with strength."
 
-— *J.F.* 
+— *J. F.* 
 
 **Verse 3.** Remarkable answer to prayer.
 
-1\.The prayer: feeble, earnest, sorrowful, inarticulate.
+1\. The prayer: feeble, earnest, sorrowful, inarticulate.
 
-2\.The answer: prompt, divine, effectual, certain.
+2\. The answer: prompt, divine, effectual, certain.
 
-3\.The praise deserved by such grace. See preceding verses.
+3\. The praise deserved by such grace. See preceding verses.
 
 **Verse 3.** 
 
-1\.A special day.
+1\. A special day.
 
-2\.A specific form of prayer: "I cried."
+2\. A specific form of prayer: "I cried."
 
-3\.A special method of response.
+3\. A special method of response.
 
-— *W.W.* 
+— *W. W.* 
 
 **Verse 4.** 
 
-1\.A royal audience.
+1\. A royal audience.
 
-2\.A royal orchestra.
+2\. A royal orchestra.
 
 **Verses 4-5.** 
 
-1\.They who hear the words of God will know God.
+1\. They who hear the words of God will know God.
 
-2\.They who know God will praise him, however exalted they may be amongst men: "All the kings, "etc.
+2\. They who know God will praise him, however exalted they may be amongst men: "All the kings, "etc.
 
-3\.They who praise God will walk in his ways.
+3\. They who praise God will walk in his ways.
 
-4\.They who walk in the ways of the Lord will glorify him, and he will be glorified in them.
+4\. They who walk in the ways of the Lord will glorify him, and he will be glorified in them.
 
-— *G.R.* 
+— *G. R.* 
 
 **Verse 5.** See "Spurgeon's Sermons", No. 1615: "Singing in the Ways of the Lord."
 
@@ -330,57 +330,57 @@ c) As a preparation to eternally honouring him.
 
 **Verse 6.** Divine inversions.
 
-1\.Lowliness honoured to its great surprise.
+1\. Lowliness honoured to its great surprise.
 
-2\.Pride passed by to its eternal mortification.
+2\. Pride passed by to its eternal mortification.
 
-— *W.B.H.* 
+— *W. B. H.* 
 
 **Verse 7.** (*first clause* ).
 
-1\.The Psalmist's dismal excursion: walking "in the midst of trouble"; this is not a spectator, but one assailed. Troubles—personal, social, ecclesiastical, national.
+1\. The Psalmist's dismal excursion: walking "in the midst of trouble"; this is not a spectator, but one assailed. Troubles—personal, social, ecclesiastical, national.
 
-2\.His cheering anticipation—of revival, defence, deliverance.— *W.J.* 
+2\. His cheering anticipation—of revival, defence, deliverance.— *W. J.* 
 
 **Verse 7.** 
 
-1\.Good men are sometimes in the midst of troubles: these are many, and continue long.
+1\. Good men are sometimes in the midst of troubles: these are many, and continue long.
 
-2\.They interfere not with their progress. They "walk in the midst" of them; faint, yet pursuing; sometimes they "run with patience", etc.
+2\. They interfere not with their progress. They "walk in the midst" of them; faint, yet pursuing; sometimes they "run with patience", etc.
 
-3\.They have comfort in them: "Though I walk", etc., "thou wilt revive me."
+3\. They have comfort in them: "Though I walk", etc., "thou wilt revive me."
 
-4\.They are benefited by them.
+4\. They are benefited by them.
 
 a) Their enemies are overthrown.
 
-b) Their deliverance is complete.— *G.R.* 
+b) Their deliverance is complete.— *G. R.* 
 
-**Verse 7.** The child of God often revived *out* of trouble; more frequently *in* trouble; not seldom *through* trouble. Delivered from, sustained in, sanctified through, trouble.— *A.G.B.* 
+**Verse 7.** The child of God often revived *out* of trouble; more frequently *in* trouble; not seldom *through* trouble. Delivered from, sustained in, sanctified through, trouble.— *A. G. B.* 
 
 **Verse 7.** An incident of the road to the city.
 
-1\.Pilgrims beset by thieves and struck down.
+1\. Pilgrims beset by thieves and struck down.
 
-2\.The arrival of Great heart and flight of the enemy.
+2\. The arrival of Great heart and flight of the enemy.
 
-3\.The flask to the lips: "thou wilt revive me." Sweet awakening to know the beauty of his face and strength of his hand!— *W.B.H.* 
+3\. The flask to the lips: "thou wilt revive me." Sweet awakening to know the beauty of his face and strength of his hand!— *W. B. H.* 
 
 **Verse 7.** (*third clause* ). Right hand salvation.
 
-1\.It shall be wrought of God.
+1\. It shall be wrought of God.
 
-2\.He shall throw his strength into the deed.
+2\. He shall throw his strength into the deed.
 
-3\.His utmost dexterity shall be displayed.
+3\. His utmost dexterity shall be displayed.
 
 **Verse 8.** (*first clause* ).
 
-1\.A wide subject "That which concerneth me." Not necessarily that which gives me concern.
+1\. A wide subject "That which concerneth me." Not necessarily that which gives me concern.
 
-2\.A promise that covers it: "the Lord will perfect."— *A.G.B.* 
+2\. A promise that covers it: "the Lord will perfect."— *A. G. B.* 
 
-**Verse 8.** (*first and last clauses* ). Faith in divine purpose no hindrance to prayer, but rather an encouragement in it: "The Lord will perfect." "Forsake not."— *A.G.B* 
+**Verse 8.** (*first and last clauses* ). Faith in divine purpose no hindrance to prayer, but rather an encouragement in it: "The Lord will perfect." "Forsake not."— *A. G. B* 
 
 **Verse 8.** See "Spurgeon's Sermons", Nos. 231 and 1506: "Faith in Perfection", and, "Choice Comfort for a Young Believer."
 
@@ -420,9 +420,9 @@ c) Nor his work by me unfinished. Why did he begin? Why carry so far? Why not co
 
 **Verse 8.** 
 
-1\.Faith's full assurance: "The Lord will perfect that which concerneth me."
+1\. Faith's full assurance: "The Lord will perfect that which concerneth me."
 
-2\.Faith's firm foundation: "Thy mercy, O Lord, endureth for ever."
+2\. Faith's firm foundation: "Thy mercy, O Lord, endureth for ever."
 
-3\.Faith's fervent prayer: "Forsake not the works of thine own hands."
+3\. Faith's fervent prayer: "Forsake not the works of thine own hands."
 

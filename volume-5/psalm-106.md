@@ -218,15 +218,15 @@ And loudly, `Hallelujah', say,
 
 **Verse 1**. There is,
 
-1\.The doxology;
+1\. The doxology;
 
-2\.Invitation;
+2\. Invitation;
 
-3\.The reason that we should, and why we should, give thanks always;
+3\. The reason that we should, and why we should, give thanks always;
 
-4\.The greatness of the work. But "who can utter the mighty acts of the LORD? who can shew forth all his praise?" That is, it is impossible for any man in the world to do this great duty aright, as he should.
+4\. The greatness of the work. But "who can utter the mighty acts of the LORD? who can shew forth all his praise?" That is, it is impossible for any man in the world to do this great duty aright, as he should.
 
-5\.The best mode and method of giving thanks. "Blessed are they that keep judgment, and he that doeth righteousness at all times." As if he had said, "This is indeed a vast duty; but yet he makes the best essay towards it that sets himself constantly to serve God and keep his commandments."— *William Cooper*, in the " *Morning Exercises.* "
+5\. The best mode and method of giving thanks. "Blessed are they that keep judgment, and he that doeth righteousness at all times." As if he had said, "This is indeed a vast duty; but yet he makes the best essay towards it that sets himself constantly to serve God and keep his commandments."— *William Cooper*, in the " *Morning Exercises.* "
 
 **Verse 1**. The first and two last verses of this psalm form a part of that psalm which David delivered into the hand of Asaph and his brethren, to be sung before the ark of the covenant, after it was brought from the house of Obededom to Mount Zion. See 1Ch 16:34-36. Hence it has been ascribed to the pen of David. Many of the ancients thought, and they are followed by Horsley and Mudge, that it was written during the captivity; resting their opinion chiefly on verse 47; but as that verse occurs in the Psalm of David recorded in 1Ch 16:35, this argument is clearly without force. *James Anderson's Note to Calvin in loc.* 
 
@@ -280,7 +280,7 @@ Thirdly. Provoking God imports an affront upon his longsuffering, and his patien
 
 **Verse 7** *. They provoked him.* Wherein lay their provocation? *They remembered not the multitude of his mercies* :the former mercies of the Lord did not strengthen their trust in present troubles; that was one provocation. And as former mercies did not strengthen their trust, so the present troubles drew out their distrust, as another Scripture assures, reporting their behaviour in it (Ex 14:11): "And they said unto Moses, Because there were no graves in Egypt, hast thou taken us away to die in the wilderness? wherefore hast thou dealt thus with us, to carry us forth out of Egypt? "What were these fearful forecasts, these amazing bodements of an unavoidable (as they apprehended) ruin, but the overflowing of unbelief, or distrust in God; and this was another provocation. Former mercies are forgotten, yea, eaten up by unbelief, as the seven lean kine in Pharaoh's dream, eat up the fat ones, and present difficulties are aggravated by unbelief, as if all the power of God could not remove and overcome them. And will not the Lord (think you) visit in anger such a sin as this?— *Joseph Caryl.* 
 
-**Verse 7** *. At the Red Sea.* That is to say, at the Arabian Gulf: literally, at the Sea of Suph, which, if Suph be not here a proper name, (as it seems to be in De 1:1, and, with a slight variation, in Nu 31:14) means the sea of weeds, and that sea is still called by a similar name, in modern Egypt. Its designation, throughout the books of the Old Testament, is in the Syriac version, and the Chaldee Paraphrased, likewise rendered the sea of weeds; which name may have been derived from the reeds growing near its shore: or from the weeds, or coralline productions, seen through its waters, and the corals seen at its bottom...Pliny states, that it is called the Red Sea from King Erythras, or from the reflection of a red colour by the sun, or from its sand and its ground, or form the nature of its water. *Daniel Cresswell.* 
+**Verse 7** *. At the Red Sea.* That is to say, at the Arabian Gulf: literally, at the Sea of Suph, which, if Suph be not here a proper name, (as it seems to be in De 1:1, and, with a slight variation, in Nu 31:14) means the sea of weeds, and that sea is still called by a similar name, in modern Egypt. Its designation, throughout the books of the Old Testament, is in the Syriac version, and the Chaldee Paraphrased, likewise rendered the sea of weeds; which name may have been derived from the reeds growing near its shore: or from the weeds, or coralline productions, seen through its waters, and the corals seen at its bottom... Pliny states, that it is called the Red Sea from King Erythras, or from the reflection of a red colour by the sun, or from its sand and its ground, or form the nature of its water. *Daniel Cresswell.* 
 
 **Verses 7-8.** This psalm is a psalm of thanksgiving, as the first and last verses declare. Now because a man is most fit to praise God when he is most sensible of his own sin and unworthiness; the psalmist doth throughout this psalm lay Israel's sin and God's mercy together. Ps 106:7. Our Fathers (says he) *understood not thy wonders in Egypt.* They saw them with their eyes, but they did not understand them with their heart: they did not apprehend the design and scope and end of God in those wonders: and therefore, "they remembered not (says the text) *thy mercies*; for a man remembers no more than he understands."
 
@@ -338,9 +338,9 @@ But the feeling is usually transient; and the acknowledgment is forgotten almost
 
 **Verse 15.** *And he gave them their request*, etc. The throat's pleasure did shut up paradise, sold the birthright, beheaded the Baptist, and it was the chief of the cooks, Nebuzaradan, that first set fire to the temple, and razed the city. These effects are,
 
-1\.Grossness; which takes away agility to any good work; which makes a man more like a tun upon two pottle pots. Caesar said he mistrusted not Antony and Dolabella for any practices, because they were fat; but Casca and Cassius, lean, hollow fellows, who did think too much. The other are the devil's crammed fowls, too fat to lay. Indeed, what need they travel far, whose felicity is at home; placing paradise in their throats, and heaven in their food?
+1\. Grossness; which takes away agility to any good work; which makes a man more like a tun upon two pottle pots. Caesar said he mistrusted not Antony and Dolabella for any practices, because they were fat; but Casca and Cassius, lean, hollow fellows, who did think too much. The other are the devil's crammed fowls, too fat to lay. Indeed, what need they travel far, whose felicity is at home; placing paradise in their throats, and heaven in their food?
 
-2\.Macilency of grace; for as it puts fatness into their bodies, so leanness into their souls. God fatted the Israelites with quails, but withal *sent leanness into their soul.* The flesh is blown up, the spirit doth languish. They are worse than man eaters, for they are self eaters: they put a pleurisy into their bloods, and an apoplexy into their souls. *Thomas Adams.* 
+2\. Macilency of grace; for as it puts fatness into their bodies, so leanness into their souls. God fatted the Israelites with quails, but withal *sent leanness into their soul.* The flesh is blown up, the spirit doth languish. They are worse than man eaters, for they are self eaters: they put a pleurisy into their bloods, and an apoplexy into their souls. *Thomas Adams.* 
 
 **Verse 15.** Sent leanness into their soul. God affords us as great means for our increase in these Gospel times as ever he did; he puts us into fat pastures, and well watered, Ps 23:1-6; therefore it is a shame for God's people not to grow, not to "bring forth twins", as So 6:6. They should grow twice as fast, bring forth twice as fast, bring forth twice as many lambs, twice as much wool, twice as much milk, as those that go upon bare commons. All the world may cry shame on such a man that is high fed, and often fed with fat and sweet ordinances, if he be still like Pharaoh's lean kine, as lean and ill favoured as ever he was before. Certainly, fat ordinances and lean souls do not well agree. We are to look upon it as the greatest of judgments to have *leanness sent into our souls* while we are fed with *manna.* We look on it as an affliction to have an over lean body; but it's a far sadder condition to have a lean soul. Of the two, it were far better to have a well thriving body and a lean soul: it is a great mercy when both prosper, 3Jo 1:2: "I wish above all things that thou mayest prosper and be in health, even as thy soul prospereth." Oh it is a sweet thing, especially to have a prospering soul, and still upon the growing hand: and God expects it should be so, where he affords good diet, great means of grace; as Da 1:10: "The prince of the eunuchs said unto Daniel, I fear my lord the king, who hath appointed your meat and your drink." If you should look ill, who fare so well, I should be sure to bear the blame; it were so much as my head is worth. So certainly, where God affords precious food for precious souls, if these souls be lean under fat ordinances, either those that are fed, or those that feed them; either the stewards or the household; either minister, or people, or both, are sure to bear the blame. It is but equal and just that such should grow. We do not wonder to see lean sheep upon bare commons, but when we see sheep continue lean in fat pastures, we think their meat is ill bestowed on them; and therefore let us strive to be on the growing hand. *Matthew Lawrence.* 
 
@@ -348,17 +348,17 @@ But the feeling is usually transient; and the acknowledgment is forgotten almost
 
 **Verse 17.** *The earth opened*, etc. This element was not used to such morsels. It devours the carcases of men; but bodies informed with living souls, never before. To have seen them struck dead upon the earth had been fearful; but to see the earth at once their executioner and grave, was more horrible. Neither the sea nor the earth are fit to give passage; the sea is moist and flowing, and will not be divided, for the continuity of it; the earth is dry and massy, and will neither yield naturally, nor meet again when it hath yielded: yet the waters did cleave to give way unto Israel for their preservation; the earth did cleave to give way to the conspirators in judgment; both sea and earth did shut their jaws again upon the adversaries of God. There was more wonder in this latter. It was a marvel that the waters opened; it was no wonder that they shut again; for the retiring and flowing was natural. It was no less marvel that the earth opened; but more marvel that it shut again; because it had no natural disposition to meet when it was divided. Now might Israel see they had to do with a God that could revenge with ease. There are two sorts of traitors: the earth swallowed up the one, the fire the other. All the elements agree to serve the vengeance of their Maker. Nadab and Abihu brought fit persons, but unfit fire, to God; these Levites bring the right fire, but unwarranted persons, before him: fire from God consumes both. It is a dangerous thing to usurp sacred functions. The ministry will not grace the man; the man may disgrace the ministry. *Joseph Hall.* 
 
-**Verse 17.** Dathan and Abiram only are mentioned, and this in strict agreement with Nu 26:11, where it is said, *"the children of Korah* died not." And the same thing is at least *implied* in Nu 16:27, where it is said, that, just before the catastrophe took place, "Dathan and Abiram" (there is no mention of Korah) "came out and stood in the door of their tents." See this noticed and accounted for in Blunt's *Veracity of the Books of Moses,* Part 1, 20 pounds, 86. *J.J. Stewart Perowne.* 
+**Verse 17.** Dathan and Abiram only are mentioned, and this in strict agreement with Nu 26:11, where it is said, *"the children of Korah* died not." And the same thing is at least *implied* in Nu 16:27, where it is said, that, just before the catastrophe took place, "Dathan and Abiram" (there is no mention of Korah) "came out and stood in the door of their tents." See this noticed and accounted for in Blunt's *Veracity of the Books of Moses,* Part 1, 20 pounds, 86. *J. J. Stewart Perowne.* 
 
 **Verse 19.** *They made a calf.* And why a calf? Could they find no fitter resemblance of God amongst all the creatures? Why not rather the lordly lion, to show the sovereignty; vast elephant, the immensity; subtle serpent, the wisdom; long-lived hart, the eternity; swift eagle, the ubiquity of God, rather than the silly senseless calf, that eateth hay? But the shape matters not much, for if God be made like anything, he may be made like anything, it being as unlawful to fashion him an angel as a worm, seeing the commandment forbids as well the likeness of things in heaven above as ill earth beneath (Ex 20:4). But probably a calf was preferred before other forms because they had learned it from the Egyptians' worshipping their ox Apis. Thus the Israelites borrowed (Ex 12:35) not all gold and silver but some dross from the Egyptians, whence they fetch the idolatrous forms of their worship.
 
 **Verse 19.** The modern Jews are of opinion that all the afflictions which ever since have, do, or shall befall their nation, are still the just punishments on them for this their first act of idolatry. And the rabbins have a saying that God never inflicts any judgment upon them, but there is an ounce of his anger on them for their ancestors' making the golden calf. A reverend friend of mine, conversing at Amsterdam with a Jewish youth (very capable and ingenious for one of that nation) endeavoured to make him sensible of God's anger upon them for rejecting and crucifying of Christ, for which foul act he showed how the Jews have lived many hundred years in miserable banishment. But the youth would in no wise acknowledge in their sufferings any effect or punishment of their murdering of Christ, but taking his Bible turned to God's threatening immediately after their making of the calf (Ex 33:34); "Nevertheless in the day when I visit, I will visit their sin upon them", so interpreting and applying all the numerous calamities which since have befallen them to relate to no other cause than that their first idolatry. Whereas, indeed, the arrears of their idolatry long ago were satisfied, and this is a new debt of later date contracted on themselves by their infidelity. *Thomas Fuller,* 1608-1661, *in "A Pisgah Sight of Palestine."* 
 
-**Verse 19.** *They made a calf*, etc. This people had seen this idolatrous service in Egypt; and now they did not more long after Egyptian food, than after this Egyptian god...It is an easy matter for men to be drawn to the practice of that idolatry that they have been accustomed to see practised in those places that they have a long time lived in. He that would take heed of idolatry, let him take heed of Egypt; the very air of Egypt (as I may so say) is infectious in this kind. See here, they had seen the worship of a young bullock in Egypt, and they must have a bullock.... The local seat of Antichrist (and what seat can that be but *Rome?*) is called in the Revelation by three names: it is called *Egypt,* Re 2:8. It is called *Sodom* in the same verse. It is called *Babylon* in many places of the Revelation. It is called *Babylon,* in regard of her cruelty. It is called *Sodom,* in regard to her filthiness; and *Egypt,* in regard of her *idolatry.* It is a hard matter for a man to live in Egypt, and not to taste and savour somewhat of the idolatry of Egypt. We had sometime, in England, a proverb about going to Rome. They said, a man that went the first time to Rome, he went to see a wicked man there; he that went the second rime to Rome, went to be acquainted with that wicked man there; he that went the third time, brought him home with him. How many have we seen (and it is pity to see so many) of our nobility and gentry go to those Egyptian, parts, and return home again; but few of them bring home the same manners, the same religion, nor the same souls they carried out with them. *Thomas Westfield, Bishop of Brigtow, in "England's Face in Israel's Glasse,"* 1658.
+**Verse 19.** *They made a calf*, etc. This people had seen this idolatrous service in Egypt; and now they did not more long after Egyptian food, than after this Egyptian god... It is an easy matter for men to be drawn to the practice of that idolatry that they have been accustomed to see practised in those places that they have a long time lived in. He that would take heed of idolatry, let him take heed of Egypt; the very air of Egypt (as I may so say) is infectious in this kind. See here, they had seen the worship of a young bullock in Egypt, and they must have a bullock.... The local seat of Antichrist (and what seat can that be but *Rome?*) is called in the Revelation by three names: it is called *Egypt,* Re 2:8. It is called *Sodom* in the same verse. It is called *Babylon* in many places of the Revelation. It is called *Babylon,* in regard of her cruelty. It is called *Sodom,* in regard to her filthiness; and *Egypt,* in regard of her *idolatry.* It is a hard matter for a man to live in Egypt, and not to taste and savour somewhat of the idolatry of Egypt. We had sometime, in England, a proverb about going to Rome. They said, a man that went the first time to Rome, he went to see a wicked man there; he that went the second rime to Rome, went to be acquainted with that wicked man there; he that went the third time, brought him home with him. How many have we seen (and it is pity to see so many) of our nobility and gentry go to those Egyptian, parts, and return home again; but few of them bring home the same manners, the same religion, nor the same souls they carried out with them. *Thomas Westfield, Bishop of Brigtow, in "England's Face in Israel's Glasse,"* 1658.
 
 **Verse 19.** *In Horeb.* There is a peculiar stress on the words "in Horeb", as denoting the very place where the great manifestation of God's power and presence has been made, and where the law had been given, whose very first words were a prohibition of the sin of idolatry. *Agellius, in Neale and Littledale.* 
 
-**Verse 19-20.** Apis, or Serapis, was a true living black bull, with a white list or streak along the back, a white mark in fashion of an half moon on his right shoulder, only two hairs growing on his tail (why just so many and no more, the devil knows), with a fair square blaze on his forehead, and a great bunch called cantharus under his tongue. What art their priests did use to keep up the breed and preserve succession of cattle with such gwrismata, or privy marks, I list not to inquire...Besides this natural and living bull, kept in one place, they also worshipped boun diacruson, a golden or gilded ox, the image or portraiture of the former. Some conceive this Apis to have been the symbol and emblem of Joseph the patriarch, so called from ba, *ab,* a father, seeing he is said to be made by God a father to Pharaoh (Ge 45:8), that is, preserver of him and his country; and therefore the Egyptians, in after ages, gratified his memory with statues of an ox, a creature so useful in ploughing, sowing, bringing home, and treading out of corn, to perpetuate that gift of grain he had conferred upon them. They strengthen their conjecture because Serapis (which one will have to be nothing else but Apis with addition of rv, *sar,* that is, a prince, whence perchance our English Sir) was pictured with a bushel over his head, and Joseph (we know) was corn meter general in Egypt. Though others, on good ground, conceive ox worship in Egypt of far greater antiquity. However, hence Aaron (Ex 32:4), and hence afterwards Jeroboam (who flying from Solomon, lived some years with Shishak, king of Egypt, 1Ki 11:40) had the pattern of their calves, which they made for the children of Israel to worship. If any object the Egyptians' idols were bulls or oxen, the Israelites' but calves, the difference is not considerable; for (besides the objector never looked into the mouths of the latter to know their age) *gradus non variat speciem,* a less character is not another letter. Yea, Herodotus calls Apis himself moscov, a calf, and Vitulus is of as large acceptation among the Latins. Such an old calf the poet describes—
+**Verse 19-20.** Apis, or Serapis, was a true living black bull, with a white list or streak along the back, a white mark in fashion of an half moon on his right shoulder, only two hairs growing on his tail (why just so many and no more, the devil knows), with a fair square blaze on his forehead, and a great bunch called cantharus under his tongue. What art their priests did use to keep up the breed and preserve succession of cattle with such gwrismata, or privy marks, I list not to inquire... Besides this natural and living bull, kept in one place, they also worshipped boun diacruson, a golden or gilded ox, the image or portraiture of the former. Some conceive this Apis to have been the symbol and emblem of Joseph the patriarch, so called from ba, *ab,* a father, seeing he is said to be made by God a father to Pharaoh (Ge 45:8), that is, preserver of him and his country; and therefore the Egyptians, in after ages, gratified his memory with statues of an ox, a creature so useful in ploughing, sowing, bringing home, and treading out of corn, to perpetuate that gift of grain he had conferred upon them. They strengthen their conjecture because Serapis (which one will have to be nothing else but Apis with addition of rv, *sar,* that is, a prince, whence perchance our English Sir) was pictured with a bushel over his head, and Joseph (we know) was corn meter general in Egypt. Though others, on good ground, conceive ox worship in Egypt of far greater antiquity. However, hence Aaron (Ex 32:4), and hence afterwards Jeroboam (who flying from Solomon, lived some years with Shishak, king of Egypt, 1Ki 11:40) had the pattern of their calves, which they made for the children of Israel to worship. If any object the Egyptians' idols were bulls or oxen, the Israelites' but calves, the difference is not considerable; for (besides the objector never looked into the mouths of the latter to know their age) *gradus non variat speciem,* a less character is not another letter. Yea, Herodotus calls Apis himself moscov, a calf, and Vitulus is of as large acceptation among the Latins. Such an old calf the poet describes—
 
 Ego hanc vitalam (ne forte recuses
 
@@ -440,7 +440,7 @@ Call him aloud, and bid our last farewell. *Virgil.*
 
 **Verse 30.** *Stood up*, as valiantly to do his work of zeal, as Moses had done to discharge the office of intercessor, and because he alone rose to set the example of resistance to the foul rites of Baal Peor. *Cassiodorus, quoted by Neale and Littledale.* 
 
-**Verse 30.** *So the plague was stayed.* God himself puts this peculiar honour of staying the plague (when he was about to destroy the whole camp) upon this fact of Phinehas, saying, "He hath turned away my wrath", Nu 25:10-11, because he was acted with the same zeal for God's glory and Israel's good, as God himself is acted with for them, and feared not to lose his life in God's cause, by putting to death a prince and a princess in the very flagrancy of their lust at one blow. There is such an accent and such an emphasis put by the Lord on this act, (as the Jewish Rabbis observe), that here they begin the forty-first section or lecture of the Law, or (as Vatablus saith) the seventh section of the book, which they call Phinehas. Moreover, it teacheth us, that zeal of justice in the cause of God is an hopeful means to remove God's wrath from, and to procure his mercy to, man. Thus David also made an atonement by doing justice on Saul's house, 2Sa 21:3, etc.... Phinehas by virtue of this promise of the priesthood (Nu 25:12-13) lived himself to a great old age, even (as some say) to three hundred years, as appeareth by Jud 20:28, where he then is found alive, for his zeal at this time. He lived so long that some of the Rabbis are of opinion that he died not at all, but is still alive, whom they suppose to be the Elias that is to come before the coming of Christ; but this notion is confuted by others of their Rabbis, and by the mention of his seed succeeding him in sacred Scripture. However, though few after the Flood did near attain to any such age, yet must Phinehas be very old in that time of Israel's warring with Benjamin...Phinehas's priesthood is called "everlasting", not in his person, but in his posterity, whose sons were successively high priests till the captivity of Babylon, 1Ch 6:4-16; and at the return out of captivity, Ezra, the great priest and scribe, was of his line, Ezr 7:1-6; and so it continued in that line until, or very near, the approach of our evangelical High Priest (as Christ is called, Heb 5:6), who was of the order of Melchizedek. *Christopher Ness.* 
+**Verse 30.** *So the plague was stayed.* God himself puts this peculiar honour of staying the plague (when he was about to destroy the whole camp) upon this fact of Phinehas, saying, "He hath turned away my wrath", Nu 25:10-11, because he was acted with the same zeal for God's glory and Israel's good, as God himself is acted with for them, and feared not to lose his life in God's cause, by putting to death a prince and a princess in the very flagrancy of their lust at one blow. There is such an accent and such an emphasis put by the Lord on this act, (as the Jewish Rabbis observe), that here they begin the forty-first section or lecture of the Law, or (as Vatablus saith) the seventh section of the book, which they call Phinehas. Moreover, it teacheth us, that zeal of justice in the cause of God is an hopeful means to remove God's wrath from, and to procure his mercy to, man. Thus David also made an atonement by doing justice on Saul's house, 2Sa 21:3, etc.... Phinehas by virtue of this promise of the priesthood (Nu 25:12-13) lived himself to a great old age, even (as some say) to three hundred years, as appeareth by Jud 20:28, where he then is found alive, for his zeal at this time. He lived so long that some of the Rabbis are of opinion that he died not at all, but is still alive, whom they suppose to be the Elias that is to come before the coming of Christ; but this notion is confuted by others of their Rabbis, and by the mention of his seed succeeding him in sacred Scripture. However, though few after the Flood did near attain to any such age, yet must Phinehas be very old in that time of Israel's warring with Benjamin... Phinehas's priesthood is called "everlasting", not in his person, but in his posterity, whose sons were successively high priests till the captivity of Babylon, 1Ch 6:4-16; and at the return out of captivity, Ezra, the great priest and scribe, was of his line, Ezr 7:1-6; and so it continued in that line until, or very near, the approach of our evangelical High Priest (as Christ is called, Heb 5:6), who was of the order of Melchizedek. *Christopher Ness.* 
 
 **Verse 30.** Why is the pacifying of God's wrath, and the staying of the plague ascribed to Phinehas, having a blush of irregularity in it, rather than to the acts of Moses and the judges, which were by express command from God and very regular? For answer, the acts of Moses and the judges *slaked the fire* of God's wrath, that of Phinehas *quenched* it; again, the acts of Moses and the judges had a rise from a *spark,* that of Phinehas from a *flame of zeal* and holy indignation in him; hence the Lord, who is exceedingly taken with the springs and roots of actions, sets the crown upon the head of Phinehas. *Edmund Staunton, in a Sermon preached before the House of Lords,* 1644.
 
@@ -454,27 +454,27 @@ Call him aloud, and bid our last farewell. *Virgil.*
 
 **Verse 33.** *They provoked his spirit.* In a dispensation itself mainly gracious, and foreshadowing one which would be grace altogether, it was of prime importance that the mediating men should be merciful and gracious, long suffering, and slow to anger. And sure they were in marvellous manner.... Brimming, over with instruction as is this passage, we must leave it with a few remarks.
 
-1\.How careful preachers of the gospel and expounders of Scripture should be not to give an erroneous impression of God's mind or message. The mental acumen is rare, but the right spirit is rarer. But what is the right spirit?—A loving spirit, a gentle spirit, a faithful spirit, a meek and weaned spirit, a spirit which says, "Speak, Lord, for thy servant heareth", and a spirit which adds, "All that the Lord giveth me, that will I speak", that excellent spirit which is only imparted by the good Spirit of God. For if He withdraw, even a Moses ceases to be meek, and ceasing to be meek, even a Moses becomes a bad divine and an erroneous teacher, striking the rock that has been already stricken once for all, and preaching glad tidings gruffly. He who gives the living water does not grudge it; but sometimes, instead of "Ho! every one that thirsteth", the preacher says, "Hear now, ye rebels; must we fetch you water out of this rock?" and makes the very invitation repulsive.
+1\. How careful preachers of the gospel and expounders of Scripture should be not to give an erroneous impression of God's mind or message. The mental acumen is rare, but the right spirit is rarer. But what is the right spirit?—A loving spirit, a gentle spirit, a faithful spirit, a meek and weaned spirit, a spirit which says, "Speak, Lord, for thy servant heareth", and a spirit which adds, "All that the Lord giveth me, that will I speak", that excellent spirit which is only imparted by the good Spirit of God. For if He withdraw, even a Moses ceases to be meek, and ceasing to be meek, even a Moses becomes a bad divine and an erroneous teacher, striking the rock that has been already stricken once for all, and preaching glad tidings gruffly. He who gives the living water does not grudge it; but sometimes, instead of "Ho! every one that thirsteth", the preacher says, "Hear now, ye rebels; must we fetch you water out of this rock?" and makes the very invitation repulsive.
 
-2\.When any one has run long and run well, how sad it is to stumble within a few steps of the goal! If Moses had an earthly wish, it was to see Israel safe in their inheritance, and his wish was all but consummated. Faith and patience had held out well nigh forty years, and in a few months more the Jordan would be crossed and the work would be finished. And who can tell but this very nearness of the prize helped to create something of a presumptuous confidence? The blood of Moses was hot to begin with, and he was not the meekest of men when he smote the Egyptian and hid him in the sand. But he had got a good lesson in ruling his spirit, and betwixt the long sojourn with Jethro and the self discipline needful in the charge of this multitude, he might fancy that he had now his foot on the neck of this enemy: when lo! the sin revives and Moses dies.
+2\. When any one has run long and run well, how sad it is to stumble within a few steps of the goal! If Moses had an earthly wish, it was to see Israel safe in their inheritance, and his wish was all but consummated. Faith and patience had held out well nigh forty years, and in a few months more the Jordan would be crossed and the work would be finished. And who can tell but this very nearness of the prize helped to create something of a presumptuous confidence? The blood of Moses was hot to begin with, and he was not the meekest of men when he smote the Egyptian and hid him in the sand. But he had got a good lesson in ruling his spirit, and betwixt the long sojourn with Jethro and the self discipline needful in the charge of this multitude, he might fancy that he had now his foot on the neck of this enemy: when lo! the sin revives and Moses dies.
 
 Blessed is the man that feareth alway! Blessed is the man who, although years have passed without an attempt at burglary, still bars his doors and sees his windows fastened! Blessed is the man who, although a generation has gone since the last eruption, forbears to build on the volcanic soil and dreads fires which have smouldered for fourscore years! Blessed is the man who, even when the high seas are crossed and the land is made, still keeps an outlook! Blessed is the man who, even on the confines of Canaan, takes heed of the evil heart, lest, with a promise of entering in, he should come short through unbelief!
 
 **Verse 33.** *They provoked his spirit*, etc. Angry he certainly was; and when, reverting to a former miracle, the Most High directed him to take the wonder staff—his rod of many miracles and at the head of the congregation "speak to the rock", and it would "give forth its water", in the heat and agitation of his spirit he failed to implement implicitly the Divine command. Instead of speaking to the rock he spoke to the people, and his harangue was no longer in the language calm and dignified of the lawgiver, but had a certain tone of petulance and egotism. "Hear now, ye rebels, must we—must I and Aaron, not must Jehovah—fetch you water out of this rock?" And instead of simply speaking to it, he raised the rod and dealt it two successive strokes, just as if the rock were sharing the general perversity, and would no more than the people obey its Creator's bidding. He was angry, and he sinned. He sinned and was severely punished. Water flowed sufficient for the whole camp and the cattle, clear, cool, and eagerly gushing, enough for all the million; but at the same moment that its unmerited bounty burst on you, ye rebels, "a cup of wrath was put into the hand of Moses." (Van Oosterzee.) To you, ye murmurers, there came forth living water; to your venerable leaders the cup of God's anger. "The Lord spoke unto Moses and Aaron, Because ye believed me not, to sanctify me in the eyes of the children of Israel, therefore ye shall not bring this congregation into the land which I have given them." Nu 20:12. *James Hamilton.* 
 
-**Verse 33.** *He spake unadvisedly with his lips.* The Lord desires him to address the rock, but Moses speaks to Israel. God wishes him to speak a word to the inanimate stone, and Moses strikes it twice. God still is willing that the people shall remain as his inheritance, but Moses evidently treats them with ill will and much offensiveness. God wishes to relieve, and give refreshing to the people in their thirst, and Moses is selected to cooperate with him in all such joy; but mark how, on this very day, a deep discord between God's inclination and the mind of Moses shows itself. God is inclined to grant forgiveness,—Moses inclines to punishment; before, the very opposite seemed to prevail. God is forbearing,—Moses, filled with bitterness; God seeks to glorify his grace,—with Moses, self, not God, comes into prominence. "Must we",—not, "must the Lord",—but "must we fetch you water out of this rock?" We see now, in this prophet, strong at other times, the first plain indications of decay and weariness. He has grown tired (and truly it should not seem strange, for which of us could have sustained a struggle such as his for half the time?) of carrying these stubborn children any longer now. This man, so truly great, has never for an instant hitherto forgotten his own dignity in presence of all Israel; but now, he is no longer master of himself. *J.J. Van Oosterzee.* 
+**Verse 33.** *He spake unadvisedly with his lips.* The Lord desires him to address the rock, but Moses speaks to Israel. God wishes him to speak a word to the inanimate stone, and Moses strikes it twice. God still is willing that the people shall remain as his inheritance, but Moses evidently treats them with ill will and much offensiveness. God wishes to relieve, and give refreshing to the people in their thirst, and Moses is selected to cooperate with him in all such joy; but mark how, on this very day, a deep discord between God's inclination and the mind of Moses shows itself. God is inclined to grant forgiveness,—Moses inclines to punishment; before, the very opposite seemed to prevail. God is forbearing,—Moses, filled with bitterness; God seeks to glorify his grace,—with Moses, self, not God, comes into prominence. "Must we",—not, "must the Lord",—but "must we fetch you water out of this rock?" We see now, in this prophet, strong at other times, the first plain indications of decay and weariness. He has grown tired (and truly it should not seem strange, for which of us could have sustained a struggle such as his for half the time?) of carrying these stubborn children any longer now. This man, so truly great, has never for an instant hitherto forgotten his own dignity in presence of all Israel; but now, he is no longer master of himself. *J. J. Van Oosterzee.* 
 
 **Verse 33.** *He spake unadvisedly.* A gracious person may be surprised and fall suddenly among thieves that lurk behind the bushes. Nay, very holy men, unless wonderful wary, may be quickly tripped up by sudden questions and unexpected emergencies. Who knows the subtilty of sin, and the deceitfulness of his own heart? Take heed of answering quickly, and send up sudden ejaculations to heaven before you reply to a weighty and doubtful motion. *Samuel Lee.* 
 
 **Verse 34-38.** The miracles and mercies which settled them in Canaan made no more deep and durable impressions upon them than those that fetched them out of Egypt; for by that time they were well warm in Canaan, they corrupted themselves, and forsook God. Observe the steps of their apostasy.
 
-1\.They spared the nations which God had doomed to destruction (Ps 106:34). When they had got the good land God had promised them, they had no zeal against the wicked inhabitants, whom the Lord commanded them to extirpate, pretending pity; but so merciful is God, that no man needs to be in any case more compassionate than he.
+1\. They spared the nations which God had doomed to destruction (Ps 106:34). When they had got the good land God had promised them, they had no zeal against the wicked inhabitants, whom the Lord commanded them to extirpate, pretending pity; but so merciful is God, that no man needs to be in any case more compassionate than he.
 
-2\.When they spared them, they promised themselves, that for all this, they would not join in any dangerous affinity with them; but the way of sin is down hill; omissions make way for commissions; when they neglect to destroy the heathen, the next news we hear is, they *were mingled among the heathen*, made leagues with them, and contracted an intimacy with them, so that they *learned their works* (Ps 106:35). That which is rotten will sooner corrupt that which is sound, than be cured or made sound by it.
+2\. When they spared them, they promised themselves, that for all this, they would not join in any dangerous affinity with them; but the way of sin is down hill; omissions make way for commissions; when they neglect to destroy the heathen, the next news we hear is, they *were mingled among the heathen*, made leagues with them, and contracted an intimacy with them, so that they *learned their works* (Ps 106:35). That which is rotten will sooner corrupt that which is sound, than be cured or made sound by it.
 
-3\.When they mingled with them, and learned some of their works that seemed innocent diversions and entertainments, yet they thought they would never join with them in their worship; but by degrees they learned that too (Ps 106:36). *They served their idols* in the same manner, and with the same rites that they served them; and they became a snare unto them, that sin drew on many more, and brought the judgments of God upon them, which they themselves could not but be sensible of, and yet knew not how to recover themselves.
+3\. When they mingled with them, and learned some of their works that seemed innocent diversions and entertainments, yet they thought they would never join with them in their worship; but by degrees they learned that too (Ps 106:36). *They served their idols* in the same manner, and with the same rites that they served them; and they became a snare unto them, that sin drew on many more, and brought the judgments of God upon them, which they themselves could not but be sensible of, and yet knew not how to recover themselves.
 
-4\.When they joined with them in some of their idolatrous services, which they thought had least harm in them, they little thought that ever they should be guilty of that barbarous and inhuman piece of idolatry, the sacrificing of their living children to their dead gods: but they came to that at last (Ps 106:37-38) in which Satan triumphed over his worshippers, and regaled himself in blood and slaughter. *They sacrificed their sons and daughters*, pieces of themselves *to devils*; and added murder, the most unnatural murder, to their idolatry; one cannot think of it without horror; they "shed innocent blood", the most innocent, for it was infant blood, nay, it was the "blood of their sons and their daughters." See the power of the spirit that works in the children of disobedience, and see his malice. The beginning of idolatry and superstition, like that of strife, is as the letting forth of water, and there is no villainy which they that venture upon it can be sure they shall stop short of, for God justly "gives them up to a reprobate mind" (Ro 1:28). *Matthew Henry.* 
+4\. When they joined with them in some of their idolatrous services, which they thought had least harm in them, they little thought that ever they should be guilty of that barbarous and inhuman piece of idolatry, the sacrificing of their living children to their dead gods: but they came to that at last (Ps 106:37-38) in which Satan triumphed over his worshippers, and regaled himself in blood and slaughter. *They sacrificed their sons and daughters*, pieces of themselves *to devils*; and added murder, the most unnatural murder, to their idolatry; one cannot think of it without horror; they "shed innocent blood", the most innocent, for it was infant blood, nay, it was the "blood of their sons and their daughters." See the power of the spirit that works in the children of disobedience, and see his malice. The beginning of idolatry and superstition, like that of strife, is as the letting forth of water, and there is no villainy which they that venture upon it can be sure they shall stop short of, for God justly "gives them up to a reprobate mind" (Ro 1:28). *Matthew Henry.* 
 
 **Verse 37.** *Yea, they sacrificed their sons and their daughters unto devils.* We need no better argument to discover the nature of these gods than this very service in my text accepted of them: for both by the record of sacred writ, and relation of heathen authors and other writers, we know that nothing was so usually commanded nor gratefully accepted by these heathenish gods, as was the shedding of man's blood, and the sacrificing of men, maids, and children unto them, as appears by the usual practice of men in former times. From the testimonies of Scripture, I give only the example of the king of Moab, mentioned in 2Ki 3:27, where it is said, that, being in some straits, "He took his eldest son that should have reigned in his stead, and offered him for a burnt offering upon the wall."
 
@@ -494,7 +494,7 @@ Who can now doubt, seeing such exceeding superstitious cruelty, but that the god
 
 **Verse 43.** *They were brought low for their iniquity.* Sin is of a weakening and impoverishing nature; it has weakened all mankind, and taken from them their moral strength to do good; and has brought them to poverty and want; to be beggars on the dunghill; to a pit wherein is no water; and left them in a hopeless and helpless condition; yea, it brings the people of God often times after conversion into a low estate, when God hides his face because of it, temptations are strong, grace is weak, and they become lukewarm and indifferent to spiritual things. *John Gill.* 
 
-**Verse 46.** *He made them also to be pitied of all them that carried them captives.* This improved feeling towards the Jews through God's influence appears in Da 1:9; as Joseph similarly had his captivity improved by God's favour (Ge 39:21). So Evil merodach, King of Babylon, treated kindly Jehoiachin, king of Judah (2Ki 25:27). *A.R. Fausset.* 
+**Verse 46.** *He made them also to be pitied of all them that carried them captives.* This improved feeling towards the Jews through God's influence appears in Da 1:9; as Joseph similarly had his captivity improved by God's favour (Ge 39:21). So Evil merodach, King of Babylon, treated kindly Jehoiachin, king of Judah (2Ki 25:27). *A. R. Fausset.* 
 
 **Verse 47.** *Gather us.* Bishop Patrick says that, in his opinion, this verse refers to those, who, in the days of Saul, or before, were taken prisoners by the Philistines, or other nations; whom David prays God to gather to their own land again; that they might worship him in that place which he had prepared for the ark of his presence. *Thomas Fenton.* 
 
@@ -504,35 +504,35 @@ Who can now doubt, seeing such exceeding superstitious cruelty, but that the god
 
 **Verse 1.** Take this verse as the theme of the Psalm, and we shall then see that its exhortation to praise,
 
-1\.Is directed to a special people: chosen, redeemed, but sinful, borne with, and forgiven.
+1\. Is directed to a special people: chosen, redeemed, but sinful, borne with, and forgiven.
 
-2\.Is supported by abundant arguments. Man not to be praised, for he sins. God gives in his goodness, and forgives in his mercy, and is therefore to be thanked.
+2\. Is supported by abundant arguments. Man not to be praised, for he sins. God gives in his goodness, and forgives in his mercy, and is therefore to be thanked.
 
-3\.Is as applicable now as ever: for our story is a transcript of Israel's.
+3\. Is as applicable now as ever: for our story is a transcript of Israel's.
 
 **Verse 2.** 
 
-1\.A challenge.
+1\. A challenge.
 
-2\.A suggestion: at least let us do what we can.
+2\. A suggestion: at least let us do what we can.
 
-3\.An ambition: in the ages to come we will make known with the church to angels, and all intelligent beings, the mighty acts of divine grace.
+3\. An ambition: in the ages to come we will make known with the church to angels, and all intelligent beings, the mighty acts of divine grace.
 
-4\.A question—shall I be there?
+4\. A question—shall I be there?
 
 **Verse 3.** The blessedness of a godly life.
 
 **Verse 4.** 
 
-1\.The language of Humility: "Remember me, O Lord." Let me not escape thy notice amongst the many millions of creatures under thy care.
+1\. The language of Humility: "Remember me, O Lord." Let me not escape thy notice amongst the many millions of creatures under thy care.
 
-2\.The language of Faith.
+2\. The language of Faith.
 
 (a) That God has a people to whom he shows special favour.
 
 (b) That he himself has provided salvation for them.
 
-3\.The language of prayer.
+3\. The language of prayer.
 
 (a) For the free gift of salvation.
 
@@ -540,35 +540,35 @@ Who can now doubt, seeing such exceeding superstitious cruelty, but that the god
 
 "Be this my glory, Lord, to be
 
-Joined to thy saints, and near to thee."— *G.R.* 
+Joined to thy saints, and near to thee."— *G. R.* 
 
 **Verses 4, 7, 45.** In Ps 106:4, a remembrance desired. In Ps 106:7, a failure of remembrance deplored. In Ps 106:45, a divine remembrance extolled.
 
 **Verse 5.** 
 
-1\.The Persons: "Thy chosen"; "Thy nation"; "Thine inheritance."
+1\. The Persons: "Thy chosen"; "Thy nation"; "Thine inheritance."
 
-2\.The Privileges: "The good of thy chosen"; "The gladness of thy nation"; "The glory of thine inheritance."
+2\. The Privileges: "The good of thy chosen"; "The gladness of thy nation"; "The glory of thine inheritance."
 
-3\.The Pleas: "That I may see", etc. They were once as I am: make me what they are now.
+3\. The Pleas: "That I may see", etc. They were once as I am: make me what they are now.
 
-(a) My salvation is everything to me. "That I may see," etc. "That I may rejoice", etc. They are many, I am but one. "That I may glory", etc.— *G.R.* 
+(a) My salvation is everything to me. "That I may see," etc. "That I may rejoice", etc. They are many, I am but one. "That I may glory", etc.— *G. R.* 
 
 **Verse 6.** In what respects men may be partakers in the sins of their ancestors.
 
 **Verses 7-8.** 
 
-1\.On man's part a darkened understanding, ungrateful forgetfulness, and provocation.
+1\. On man's part a darkened understanding, ungrateful forgetfulness, and provocation.
 
-2\.On God's part: understanding discovering a reason for mercy; memory mindful of the covenant; patience revealing its power.
+2\. On God's part: understanding discovering a reason for mercy; memory mindful of the covenant; patience revealing its power.
 
 **Verses 7-8.** 
 
-1\.A special provocation; they murmured at the Red Sea.
+1\. A special provocation; they murmured at the Red Sea.
 
-2\.A special deliverance; "Nevertheless", etc.
+2\. A special deliverance; "Nevertheless", etc.
 
-3\.A special Design; "For his own sake"; "That he might make his power known."— *G.R.* 
+3\. A special Design; "For his own sake"; "That he might make his power known."— *G. R.* 
 
 **Verse 8.** Salvation by grace a grand display of power.
 
@@ -576,9 +576,9 @@ Joined to thy saints, and near to thee."— *G.R.*
 
 "Why are men saved?" See "Spurgeon's Sermons", No. 115.
 
-1\.The glorious Saviour, "He."
+1\. The glorious Saviour, "He."
 
-2\.The favoured persons, who are they?
+2\. The favoured persons, who are they?
 
 (a) They were a stupid people: "Our fathers understood not", etc., Ps 106:7.
 
@@ -586,19 +586,19 @@ Joined to thy saints, and near to thee."— *G.R.*
 
 (c) A provoking people.
 
-3\.The reason of salvation: "He saved them for his name's sake." The name of God is his person, his attributes, and his nature. We might, perhaps, include this also: "My name is in him"—that is, in Christ; he saves us for the sake of Christ, who is the name of God. He saved them that he might manifest his nature: "God is love." He saved them to vindicate his name.
+3\. The reason of salvation: "He saved them for his name's sake." The name of God is his person, his attributes, and his nature. We might, perhaps, include this also: "My name is in him"—that is, in Christ; he saves us for the sake of Christ, who is the name of God. He saved them that he might manifest his nature: "God is love." He saved them to vindicate his name.
 
-4\.The obstacles removed: "Nevertheless."
+4\. The obstacles removed: "Nevertheless."
 
 **Verse 9.** *Israel at the Red Sea.* See "Spurgeon's Sermons", No. 72.
 
-1\.Israel's three difficulties.
+1\. Israel's three difficulties.
 
 (a) The Red Sea in front of them. This was not put there by an enemy; but by God himself. The Red Sea represents some great and trying providence placed in the path of every newborn child of God, to try his faith, and the sincerity of his trust in God.
 
 b) The Egyptians behind them,—the representatives of the sins which we thought were dead and gone. (c) The third difficulty was faint hearts within them.
 
-2\.Israel's three helps.
+2\. Israel's three helps.
 
 (a) Providence.
 
@@ -606,7 +606,7 @@ b) The Egyptians behind them,—the representatives of the sins which we thought
 
 (c) The man,—Moses. So the believer's hope and help is in the God man Christ Jesus.
 
-3\.God's grand design in it. To give them a thorough baptism into his service, consecrating them for ever to himself (1Co 1-2).
+3\. God's grand design in it. To give them a thorough baptism into his service, consecrating them for ever to himself (1Co 1-2).
 
 **Verse 9.** (*second clause* ). Dangerous and difficult paths rendered safe and easy by God's leadership.
 
@@ -616,25 +616,25 @@ b) The Egyptians behind them,—the representatives of the sins which we thought
 
 **Verses 13-15.** 
 
-1\.Mercies are sooner forgotten than trials: "They soon forgat", etc. We write our afflictions on marble, our mercies upon sand.
+1\. Mercies are sooner forgotten than trials: "They soon forgat", etc. We write our afflictions on marble, our mercies upon sand.
 
-2\.We should wait for God, as well as upon God: "They waited not," etc.
+2\. We should wait for God, as well as upon God: "They waited not," etc.
 
-3\.Immoderate desire for what we have not of worldly goods, tempts God to deprive us of what we have: Ps 106:14.
+3\. Immoderate desire for what we have not of worldly goods, tempts God to deprive us of what we have: Ps 106:14.
 
-4\.Prayer may be answered for evil as well as for good: "He gave them their request", then smote them with a plague.
+4\. Prayer may be answered for evil as well as for good: "He gave them their request", then smote them with a plague.
 
-5\.Carnal indulgence is inimical to spiritual mindedness: Ps 106:15. Better have a lean body and healthy soul, than a healthy body and leanness of soul. "Poor in this world, rich in faith." There are few of whom it can be said, "I wish thou mayest prosper and be in health," etc. (3Jo 2). *G.R.* 
+5\. Carnal indulgence is inimical to spiritual mindedness: Ps 106:15. Better have a lean body and healthy soul, than a healthy body and leanness of soul. "Poor in this world, rich in faith." There are few of whom it can be said, "I wish thou mayest prosper and be in health," etc. (3Jo 2). *G. R.* 
 
 **Verse 14.** The wickedness of inordinate desires.
 
-1\.They are out of place—"in the wilderness."
+1\. They are out of place—"in the wilderness."
 
-2\.They are assaults upon God—"and tempted God."
+2\. They are assaults upon God—"and tempted God."
 
-3\.They are despisers of former mercies—see preceding verses.
+3\. They are despisers of former mercies—see preceding verses.
 
-4\.They involve solemn danger—see following verse.
+4\. They involve solemn danger—see following verse.
 
 **Verse 16.** The sin of envy. Its base nature, its cruel actions its unscrupulous ingratitude, its daring assaults, its abomination before God.
 
@@ -642,7 +642,7 @@ b) The Egyptians behind them,—the representatives of the sins which we thought
 
 **Verses 19-22.** 
 
-1\.The Sin remembered.
+1\. The Sin remembered.
 
 (a) Idolatry: not forgetting God merely, or disowning him, but setting up an idol in his place.
 
@@ -652,7 +652,7 @@ b) The Egyptians behind them,—the representatives of the sins which we thought
 
 (d) Idolatry after many wonderful interpositions of the true God in their behalf.
 
-2\.The Remembrance of Sin.
+2\. The Remembrance of Sin.
 
 (a) For Humiliation. It was the sin of their fathers.
 
@@ -662,55 +662,55 @@ b) The Egyptians behind them,—the representatives of the sins which we thought
 
 **Verse 23.** 
 
-1\.Mediation required: "He said that he would destroy them," etc.
+1\. Mediation required: "He said that he would destroy them," etc.
 
-2\.Mediation offered: "Moses stood before him in the breach."
+2\. Mediation offered: "Moses stood before him in the breach."
 
-3\.Mediation accepted: "To turn away his wrath", etc. Ex 32:1-35. *G.R.* 
+3\. Mediation accepted: "To turn away his wrath", etc. Ex 32:1-35. *G. R.* 
 
 **Verse 24-26.** Murmuring.
 
-1\.Arises from despising our mercies.
+1\. Arises from despising our mercies.
 
-2\.Is fostered by unbelief.
+2\. Is fostered by unbelief.
 
-3\.Is indulged in all sorts of places.
+3\. Is indulged in all sorts of places.
 
-4\.Makes men deaf to the Lord's voice.
+4\. Makes men deaf to the Lord's voice.
 
-5\.Provokes great judgments from the Lord.
+5\. Provokes great judgments from the Lord.
 
 **Verse 24-27.** 
 
-1\.The Rest promised: "The pleasant land."
+1\. The Rest promised: "The pleasant land."
 
-2\.The Refusal of the Rest: "They despised", etc.
+2\. The Refusal of the Rest: "They despised", etc.
 
-3\.The Reason of the Refusal: unbelief. "They could not enter in because of unbelief."— *G.R.* 
+3\. The Reason of the Refusal: unbelief. "They could not enter in because of unbelief."— *G. R.* 
 
 **Verse 30-31.** The effects of one decisive act for God; immediate, personal, and for posterity.
 
 **Verses 32-33.** 
 
-1\.The afflictions of God's people are for the trial of their faith.
+1\. The afflictions of God's people are for the trial of their faith.
 
-2\.The trial of their faith is to bring them from dependence upon circumstances to depend upon God himself.
+2\. The trial of their faith is to bring them from dependence upon circumstances to depend upon God himself.
 
-3\.The forbearance of God with his people is greater than that of the best of men. *G.R.* 
+3\. The forbearance of God with his people is greater than that of the best of men. *G. R.* 
 
 **Verse 33.** 
 
-1\.What it is so to speak unadvisedly.
+1\. What it is so to speak unadvisedly.
 
-2\.What is the great cause of it—"they provoked his spirit."
+2\. What is the great cause of it—"they provoked his spirit."
 
-3\.What the results may be.
+3\. What the results may be.
 
 **Verse 34-42.** 
 
-1\.What Israel did not do. They began well, but did not complete the conquest of their foes: Ps 106:34.
+1\. What Israel did not do. They began well, but did not complete the conquest of their foes: Ps 106:34.
 
-2\.What they did do: Ps 106:35-39.
+2\. What they did do: Ps 106:35-39.
 
 (a) They became friendly with them.
 
@@ -722,47 +722,47 @@ b) The Egyptians behind them,—the representatives of the sins which we thought
 
 (e) They did worse than the heathen (Ps 106:39), they added wicked inventions of their own.
 
-3\.What God did to them: Ps 106:40-42. He gave them into the hands of their enemies, and suffered them to be severely oppressed by them. We must either conquer all our foes or be conquered by them. Bring your shield from the battle or be brought home upon it.— *G.R.* 
+3\. What God did to them: Ps 106:40-42. He gave them into the hands of their enemies, and suffered them to be severely oppressed by them. We must either conquer all our foes or be conquered by them. Bring your shield from the battle or be brought home upon it.— *G. R.* 
 
 **Verse 37.** Moloch worship in modern times. Children sacrificed to fashion, wealth, and loveless marriage among the higher classes. Bad example, drinking customs, etc., among the poorer sort. A needful subject.
 
 **Verse 44-45.** Sin in God's people.
 
-1\.Is very provoking to God.
+1\. Is very provoking to God.
 
-2\.Ensures chastisement.
+2\. Ensures chastisement.
 
-3\.Is to be sincerely mourned—"their cry."
+3\. Is to be sincerely mourned—"their cry."
 
-4\.Will be graciously forgiven, and its effect removed. So the covenant promises.
+4\. Will be graciously forgiven, and its effect removed. So the covenant promises.
 
 **Verse 47.** 
 
-1\.An earnest Prayer: "Save us, O Lord", etc.
+1\. An earnest Prayer: "Save us, O Lord", etc.
 
-2\.A Believing Prayer: "O Lord *our* God."
+2\. A Believing Prayer: "O Lord *our* God."
 
-3\.A humble Prayer: "Gather us from among the heathen."
+3\. A humble Prayer: "Gather us from among the heathen."
 
-4\.A sincere Prayer: "To give thanks unto thy holy name"; to own thy justice and holiness in all thy ways.
+4\. A sincere Prayer: "To give thanks unto thy holy name"; to own thy justice and holiness in all thy ways.
 
-5\.A confident Prayer: "To triumph in thy praise." None but bruised spices give forth such odours.— *G.R.* 
+5\. A confident Prayer: "To triumph in thy praise." None but bruised spices give forth such odours.— *G. R.* 
 
 **Verse 48.** 
 
-1\.God is to be praised as the "God of Israel."
+1\. God is to be praised as the "God of Israel."
 
 (a) Of typical Israel.
 
 (b) Of the true Israel.
 
-2\.He is to be praised as the God of Israel under all circumstances: for his judgments as well as for his mercies.
+2\. He is to be praised as the God of Israel under all circumstances: for his judgments as well as for his mercies.
 
-3\.At all times: "From everlasting to everlasting."
+3\. At all times: "From everlasting to everlasting."
 
-4\.By all people: "Let all the people say, Amen."
+4\. By all people: "Let all the people say, Amen."
 
-5\.As the beginning and end of every song: "Praise ye the Lord."— *G.R.* 
+5\. As the beginning and end of every song: "Praise ye the Lord."— *G. R.* 
 
 **Verse 48.** *Let all the people say, Amen.* The exhortation to universal praise. All men are indebted to the Lord, all have sinned, all hear the gospel, all his people are saved. Unanimity in praise is pleasant, and promotes unity in other matters.
 

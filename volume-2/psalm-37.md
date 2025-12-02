@@ -290,7 +290,7 @@ But if we would be thus delivered, observe: 1. That we must not unthankfully fre
 
 **Verse 5.** *Commit thy way unto the Lord,* is rendered by the Vulgate, *Revela viam Domino*, reveal thy way; and by St. Ambrose, understood of revealing our sins to God. Indeed, since it is impossible to cover, why should we not discover our sins? Conceal not that which God knoweth already, and would have thee to make known. It is a very ill office to be the devil's secretary. Oh, break thy league with Satan be revealing his secrets, thy sins, to God. *Nathaniel Hardy.* 
 
-**Verse 5.** *Commit thy way unto.* Margin and Hebrew, *Roll thy way upon* —as one who lays upon the shoulder of one stronger than himself a burden which he is not able to bear. *William De Burgh, D.D., in "A Commentary on the Book of Psalms. Dublin:"* 1860.
+**Verse 5.** *Commit thy way unto.* Margin and Hebrew, *Roll thy way upon* —as one who lays upon the shoulder of one stronger than himself a burden which he is not able to bear. *William De Burgh, D. D., in "A Commentary on the Book of Psalms. Dublin:"* 1860.
 
 **Verse 5.** Note the double again, *Commit* and *trust*. *C. H. S.* 
 
@@ -402,7 +402,7 @@ Melodious hymns shall chant.
 
 **Verse 7.** *Rest in the Lord, and wait patiently for him.* Take the case of one who, with a load above his strength, has been toiling some steep and broken path, when suddenly he finds it lifted off and transferred to another whose strength he knows to be more than equal to the task, and in whose sympathy he can securely trust. What would his feeling be but one of perfect rest, and calm reliance, and joyous freedom, as they went on their way together? And such is the blessedness of rolling our care upon the Lord—in weakness we are resting on superior strength, in perplexity and doubt we are resting on superior wisdom, in all times of trial and hard service we can stay ourselves on the assurance of his perfect sympathy. The literal meaning of the word *rest*, is *be silent* towards the Lord. With the eye fixed on him let all unbelieving thoughts be stilled, such thoughts as rise and rankle in the querulous spirit when it sees only its troubles, and not God in them, when the mists of earth hide from its sight the eternal stars of heaven. Then like Jacob, it may say morosely, "All these things are against me; "or, like Elijah, despondently, "It is enough now, O Lord, take away my life; "or, like Jonah, fretfully, "I do well to be angry." In regard to all such dark and unbelieving suggestions, the heart is to keep silence, to be still and know that he is God; silent as to murmuring, but not silent as to prayer, for in that holy meditative stillness the heart turns to commune with him. What is "resting in God, "but the instinctive movement and upward glance of the spirit to him; the confiding all one's griefs and fears to him, and feeling strengthened, patient, hopeful in the act of doing so! It implies a willingness that he should choose for us, a conviction that the ordering of all that concerns us is safer in his hands than in our own.
 
-A few practical remarks: 1. Our *"resting patiently"* in the Lord applies only to the trials which he sends, not to the troubles which even Christians often make for themselves. There is a difference in the burdens that come in the way of duty, and those that come through our wandering into other ways. We can roll the one upon the Lord, but with the other our punishment may be to be left to bear them long, and to be bruised in bearing them. 2. The duty here enjoined is to be carried through all our life. We all admit that *patient* waiting is needed for the great trials of life, but may not acknowledge so readily that it is needed as much for little, daily, commonplace vexations. But these are as much a test of Christian principle as the other. 3. This resting in God is a criterion of a man's spiritual state. It needs a special faculty of discernment, a new sense to be opened in the soul, before our fallen nature can understand or desire it. *James D. Burns, M.A.* 
+A few practical remarks: 1. Our *"resting patiently"* in the Lord applies only to the trials which he sends, not to the troubles which even Christians often make for themselves. There is a difference in the burdens that come in the way of duty, and those that come through our wandering into other ways. We can roll the one upon the Lord, but with the other our punishment may be to be left to bear them long, and to be bruised in bearing them. 2. The duty here enjoined is to be carried through all our life. We all admit that *patient* waiting is needed for the great trials of life, but may not acknowledge so readily that it is needed as much for little, daily, commonplace vexations. But these are as much a test of Christian principle as the other. 3. This resting in God is a criterion of a man's spiritual state. It needs a special faculty of discernment, a new sense to be opened in the soul, before our fallen nature can understand or desire it. *James D. Burns, M. A.* 
 
 **Verse 7.** (*first clause* ). *Hold thee still* (so it may be translated). And this is the hardest precept that is given to man; insomuch that the most difficult precept of action sinks into nothing when compared with this command to inaction. *Jerome.* 
 
@@ -424,7 +424,7 @@ A few practical remarks: 1. Our *"resting patiently"* in the Lord applies only t
 
 **Verse 11.** *The meek shall inherit the earth.* In the meantime, they, and they only, possess the present earth, as they go toward the kingdom of heaven, by being humble, and cheerful, and content with what their good God has allotted them. They have no turbulent, repining, vexatious thoughts that they deserve better; nor are vexed when they see others possessed of more honour, or more riches, than their wise God has allotted for their share. But they possess what they have with a meek and contented quietness; such a quietness as makes their very dreams pleasing, both to God and themselves. *Isaak Walton* (1593-1683), *in "The Complete Angler."* 
 
-**Verse 11.** *The meek.* What is thy Beloved more than any other beloved? It is spoken to the spouse. So what is meekness more than any other virtues? We may say, here is *synecdoche speciei,* one particular taken for the general, one virtue for all the rest. Or the effect is put for the cause; because meekness is one of the principal and chiefest parts of holiness. But if you will give me leave to conjecture, the Holy Ghost may seem in this promise at once to show the condition of the church, and to comfort her; and because being laid hard at on every side, she stands in need of this virtue more than any other, to fit and fashion the reward to the virtue, to cherish and exalt it in us with the promise of something beyond our expectation, even the *inheritance of the earth.* And indeed what fitter reward can there be of meekness? What more fit and just than that they who have been made the anvil for injuries to beat on, who have been *viri perpessitii,* as Seneca speaks of Socrates, men of great sufferance, who have suffered not only their goods to be torn from them by oppression and wrong, but their reputations to be wounded with the sharp razor of detraction, and have withstood the shock of all *spectantibus similes,* with the patience of a looker on, should be raised and comforted with a promise of that which their meekness gave up to the spoil; and that by the providence of God which loves to thwart the practice of the world, they should be made heirs even of those possessions which the hand of violence hath snatched from them. *Anthony Farindon, B.D.,* 1596-1658.
+**Verse 11.** *The meek.* What is thy Beloved more than any other beloved? It is spoken to the spouse. So what is meekness more than any other virtues? We may say, here is *synecdoche speciei,* one particular taken for the general, one virtue for all the rest. Or the effect is put for the cause; because meekness is one of the principal and chiefest parts of holiness. But if you will give me leave to conjecture, the Holy Ghost may seem in this promise at once to show the condition of the church, and to comfort her; and because being laid hard at on every side, she stands in need of this virtue more than any other, to fit and fashion the reward to the virtue, to cherish and exalt it in us with the promise of something beyond our expectation, even the *inheritance of the earth.* And indeed what fitter reward can there be of meekness? What more fit and just than that they who have been made the anvil for injuries to beat on, who have been *viri perpessitii,* as Seneca speaks of Socrates, men of great sufferance, who have suffered not only their goods to be torn from them by oppression and wrong, but their reputations to be wounded with the sharp razor of detraction, and have withstood the shock of all *spectantibus similes,* with the patience of a looker on, should be raised and comforted with a promise of that which their meekness gave up to the spoil; and that by the providence of God which loves to thwart the practice of the world, they should be made heirs even of those possessions which the hand of violence hath snatched from them. *Anthony Farindon, B. D.,* 1596-1658.
 
 **Verse 11.** Not the hot stirring spirits who bustle for the world shall have it, but the meek, who are thrust up and down from corner to corner, and hardly suffered to remain anywhere quietly in it. This earth, which they seem most deprived of, they only shall have and enjoy. When the Lord hath made it worth the having, then none shall have it but they. *They shall inherit the earth.* The earth is the Lord's; these are the children of the Lord, and they shall inherit this earth. When the Lord taketh it into his own possession and enjoyment, they shall succeed him in the possession and enjoyment of it. It is their right, and shall descend unto them by right, by inheritance. It is the Lord's right, and by the Lord shall descend to them as their right. They cannot yet have it, for the Lord hath it not yet; but when the Lord hath it, it shall fairly descend to them. This accursed earth they shall never have, but when it is taken into the hands of the Lord, and blessed by the Lord, then it shall be theirs, then it shall be inherited by the children of blessing. *John Pennington.* 
 
@@ -472,7 +472,7 @@ A few practical remarks: 1. Our *"resting patiently"* in the Lord applies only t
 
 **Verse 23.** *He delighteth in his way.* Note that in verse four, we are bidden to delight in the Lord, and here he delights in us, and as here our way is his delight, so in verse thirty-four we are to "keep *his* way." These antitheses are instructive. *C. H. S.* 
 
-**Verses 23-24.** Strange words to us! the very *steps* all *ordered,* and that by an Almighty One, who "delights" in the goodness of the good man's way. And yet the inference so distinctly to be drawn is that the good man *may* fall, and that his God and Guide may stand by and behold and permit! Let us add to the suggestion of these verses, one or two references which may help us to establish the principle in our hearts, that the child of God may fall and still remain the child of God; and also to explain somewhat of the reason why this is part of their lot, whether ordered, or only permitted, at all events, a step of the "right way, "by which God leads them to a "city of habitation." Ps 107:7. It is observed near the close of Hezekiah's good and prosperous life that, "in the business of the ambassadors of the princes of Babylon...God left him *to try him,* that he might know all that was in his heart, " 2Ch 32:31. And again, in Daniel's prophecy regarding the latter days, we find Da 11:35, "And some of them of understanding shall fall, *to try them,* and *to purge,* and *make them white."* In the two preceding verses, we have also some valuable details regarding such falls, such as the help with which God will uphold them, the flatteries with which the world will still beset, and hinder them from rising again; the outward troubles into which their fall shall lead them, as through a furnace; the high position (instructors of many) which yet shall not save them from their needed ordeal—the time appointed—and the end in view. So here. The acknowledgment of the possibility of the good man's fall is accompanied with the precious assurance that *he shall not be utterly cast down. Mary B. M. Duncan, in "Under the Shadow, 1867."* 
+**Verses 23-24.** Strange words to us! the very *steps* all *ordered,* and that by an Almighty One, who "delights" in the goodness of the good man's way. And yet the inference so distinctly to be drawn is that the good man *may* fall, and that his God and Guide may stand by and behold and permit! Let us add to the suggestion of these verses, one or two references which may help us to establish the principle in our hearts, that the child of God may fall and still remain the child of God; and also to explain somewhat of the reason why this is part of their lot, whether ordered, or only permitted, at all events, a step of the "right way, "by which God leads them to a "city of habitation." Ps 107:7. It is observed near the close of Hezekiah's good and prosperous life that, "in the business of the ambassadors of the princes of Babylon... God left him *to try him,* that he might know all that was in his heart, " 2Ch 32:31. And again, in Daniel's prophecy regarding the latter days, we find Da 11:35, "And some of them of understanding shall fall, *to try them,* and *to purge,* and *make them white."* In the two preceding verses, we have also some valuable details regarding such falls, such as the help with which God will uphold them, the flatteries with which the world will still beset, and hinder them from rising again; the outward troubles into which their fall shall lead them, as through a furnace; the high position (instructors of many) which yet shall not save them from their needed ordeal—the time appointed—and the end in view. So here. The acknowledgment of the possibility of the good man's fall is accompanied with the precious assurance that *he shall not be utterly cast down. Mary B. M. Duncan, in "Under the Shadow, 1867."* 
 
 **Verse 24.** *Though he fall, he shall not be utterly cast down,* etc. Thus the Spirit comforts and answers the secret thoughts which everyone might have, saying with himself, I have, however, seen it happen, that the righteous is oppressed, and his cause is trodden in the dust by the wicked. Nay, he replies, dear child, let it be so, that he falls; he still cannot remain lying thus and be cast away; he must be up again, although all the world doubts of it. For God catches him by the hand, and raises him again. *Martin Luther.* 
 
@@ -522,7 +522,7 @@ On the contrary, the good man *is merciful, and lendeth; and his seed is blessed
 
 **Verse 35.** *Green bay tree.* The LXX translate (Nner xrzak) as if it were (Nnbl xrzak), "Like the cedar of Lebanon; "but (Nner xrza) according to Delitzsch, means a noble timber tree, one that in the course of centuries of growth has acquired a gigantic trunk, and an umbrageous, dome like crown.
 
-**Verse 35.** *Green bay tree.* The marginal rendering—"a tree that groweth in his own soil"—is, no doubt, the true one. The idea generally formed of this passage by the reader of the English Bible is that the tree referred to was the bay laurel (*Prunus laurocerasus* ), or cherry laurel of our gardens. But this plant belongs to an entirely different family. The bay and the Portugal laurels, whose forms of growth and evergreen leaves make them highly ornamental in shrubberies, belong to a subfamily (*Drupaceae*, Lind.) of the rose tribe (*Rosaceae* ), but the bay tree proper, which flourisheth luxuriantly in Southern Europe, is the type of the laurel family (*Lauraceae* ). Several circumstances make it unlikely that the true bay tree represents the Hebrew *esrach.* There is no evidence that it was ever so plentiful in Palestine as to be chosen by the psalmist in an illustration in a poem for popular use. It is indeed to be met with, but that chiefly in localities on the borders of the eastern shore of the Great Sea. The chief objection to the supposition that the bay tree was referred to by the royal poet is to be found in the Psalm itself. Having mentioned it in the lines quoted above, he adds, "Yet he passed away, and, lo, he was not: yea, I sought him, but he could not be found." The idea here is not one which could be represented and illustrated by an evergreen plant, slow of growth, and yet reaching in maturity a height of above thirty feet. The words demand a quick growing tree, in a soil more than usually favourable to its growth. Thus planted, and shooting up in calm and sunshine, it would attract every eye; but when the storm broke over it, when the strong wind swept imperiously through its branches, it would not stand. Torn up by the root, and its timber comparatively useless, like Abraham's dead, it would be buried out of sight. And thus with the wicked. He was sought and could not be found. *John Duns, D.D., F.R.S.E., in "Biblical Natural Science."* 
+**Verse 35.** *Green bay tree.* The marginal rendering—"a tree that groweth in his own soil"—is, no doubt, the true one. The idea generally formed of this passage by the reader of the English Bible is that the tree referred to was the bay laurel (*Prunus laurocerasus* ), or cherry laurel of our gardens. But this plant belongs to an entirely different family. The bay and the Portugal laurels, whose forms of growth and evergreen leaves make them highly ornamental in shrubberies, belong to a subfamily (*Drupaceae*, Lind.) of the rose tribe (*Rosaceae* ), but the bay tree proper, which flourisheth luxuriantly in Southern Europe, is the type of the laurel family (*Lauraceae* ). Several circumstances make it unlikely that the true bay tree represents the Hebrew *esrach.* There is no evidence that it was ever so plentiful in Palestine as to be chosen by the psalmist in an illustration in a poem for popular use. It is indeed to be met with, but that chiefly in localities on the borders of the eastern shore of the Great Sea. The chief objection to the supposition that the bay tree was referred to by the royal poet is to be found in the Psalm itself. Having mentioned it in the lines quoted above, he adds, "Yet he passed away, and, lo, he was not: yea, I sought him, but he could not be found." The idea here is not one which could be represented and illustrated by an evergreen plant, slow of growth, and yet reaching in maturity a height of above thirty feet. The words demand a quick growing tree, in a soil more than usually favourable to its growth. Thus planted, and shooting up in calm and sunshine, it would attract every eye; but when the storm broke over it, when the strong wind swept imperiously through its branches, it would not stand. Torn up by the root, and its timber comparatively useless, like Abraham's dead, it would be buried out of sight. And thus with the wicked. He was sought and could not be found. *John Duns, D. D., F. R. S. E., in "Biblical Natural Science."* 
 
 **Verse 35.** We see no force in the observation of Dr. Duns; in fact, if there were not other reasons for preferring the translation given in the following note by Wilson, we should see all the more reason to keep to the bay tree. It was a tree of permanence and of long continued verdure, and so the prosperous wicked seem to be. They look as if their happiness would be eternal; yet, for all that, those who carefully note the dealings of providence, observe with holy wonder that divine justice cuts short their glory, and they perish utterly. *C. H. S.* 
 
@@ -550,7 +550,7 @@ And then he falls, as I do.
 
  *—William Shakespeare, in Henry VIII.* 
 
-**Verses 36-37.** The hawk flies high, and is as highly prized, being set upon a perch, vervelled with the jingling bells of encouragement, and carried on his master's fist; but being once dead and picked over the perch, is cast upon the dunghill as good for nothing. The hen scrapes in the dust, not anything rewarded when she is alive, but being dead, is brought as a choice dish to her master's table. Thus wicked men are commonly set in high places, and prosper in this life; and good men lie grovelling with their mouths in the dust, as the very underlings of the world; but being once dead, the one is cast into the dungeon of hell, the other advanced to the kingdom of heaven: the one is into Abraham's bosom, whilst the other is tormented with the devil and his angels. *Thomas Westfield, D.D.,* 1644.
+**Verses 36-37.** The hawk flies high, and is as highly prized, being set upon a perch, vervelled with the jingling bells of encouragement, and carried on his master's fist; but being once dead and picked over the perch, is cast upon the dunghill as good for nothing. The hen scrapes in the dust, not anything rewarded when she is alive, but being dead, is brought as a choice dish to her master's table. Thus wicked men are commonly set in high places, and prosper in this life; and good men lie grovelling with their mouths in the dust, as the very underlings of the world; but being once dead, the one is cast into the dungeon of hell, the other advanced to the kingdom of heaven: the one is into Abraham's bosom, whilst the other is tormented with the devil and his angels. *Thomas Westfield, D. D.,* 1644.
 
 **Verse 37.** *Mark...and behold.* Herodotus maketh mention of a custom among the Ethiopians to set the dead bodies of their friends in glazed sepulchres, that their proportions might be obvious to the passengers. How needless soever that custom was, it is doubtless no more than just that the pious lineaments of their minds who die in the Lord should be presented to the living in the mirror of art. Indeed, commendation after death is the tribute of a religious life. Good works are jewels not to be locked up in a cabinet, but to be set forth to public view. If Christ would have Mary's name remembered in the gospel until the world's end for one box of ointment poured on his head, we cannot imagine that he would have the many pious and charitable deeds of his servants to be buried in oblivion. Consult the Scriptures and you shall scarce find any godly man laid in his grave without an epitaph of honour. View the fathers, and you shall observe it their practice to honour the death of the good by giving them their deserved praises. *Nathaniel Hardy.* 
 
@@ -568,7 +568,7 @@ Intrinsical perfection, so called because by inhesion, is no less rationally tha
 
 **Verse 37.** Time would fail me to tell how Christians die, nor can anything save the pen of the recording angel who has stood by their bed of death and borne them to Abraham's bosom narrate the unnumbered instances of their delightful departure from the present world, which verify the truth of the Bible. "I could never have believed, "said a dying saint, "that it was so delightful a thing to die, or that it was possible to have such views of the heavenly world as I now enjoy." The memorable Melancthon just before he died, chanted in his sleep the words, "I will not any more eat thereof until it be fulfilled in the kingdom of God." He seemed restless, and on being asked by one near him, "Whether there was anything more that he desired?" replied, *Aliud nihil nisi coelum* —nothing more, unless it be heaven. *Gardiner Spring.* 
 
-**Verse 37.** To die well be sure to live well; we must not think to have Lazarus's death, and Dive's life; like him in Plutarch that would live with Craesus, as he said, but he would die with Socrates. No, Balaam's wishes are foolish and fruitless: If you would die well, Christians, you must have a care to live well: *qualis vita, finis ita,* if you would die quietly, you must live strictly; if you would die comfortably, you must live conformably; if you would die happily, you must live holily. *Mark the perfect man, and behold the upright, for the end of that man is peace. John Kitchin, M.A.*, 1660.
+**Verse 37.** To die well be sure to live well; we must not think to have Lazarus's death, and Dive's life; like him in Plutarch that would live with Craesus, as he said, but he would die with Socrates. No, Balaam's wishes are foolish and fruitless: If you would die well, Christians, you must have a care to live well: *qualis vita, finis ita,* if you would die quietly, you must live strictly; if you would die comfortably, you must live conformably; if you would die happily, you must live holily. *Mark the perfect man, and behold the upright, for the end of that man is peace. John Kitchin, M. A.*, 1660.
 
 **Verse 38.** *The end of the wicked shall be cut off.* The wicked in this world do easily run up without rub or interruption, many times with acclamations and applause, all the golden steps of honours and preferments; but upon the highest stair they find the most slippery standing, and the top of their earthly felicity is the most immediate and certain descent unto the greatest downfall. They are royally mounted here upon earth, and gallop swiftly over the fair and green plains of plenty and pleasures; but at the end of their race they are overturned horse and man, and tumbled headlong into the pit of destruction. They fairly glide over the sea of this world with full sail, with much calmness and serenity, and richly laden; but in the brightest sunshine, and when they least suspect it, they suddenly and without recovery, sink into the gulf of darkness and desolation. *Robert Bolton.* 
 
@@ -588,19 +588,19 @@ Luther closes his Exposition of the Psalm with the words, Oh, shame on our faith
 
 **Verse 3.** 
 
-1\.A combination descriptive of holy living.
+1\. A combination descriptive of holy living.
 
-2\.A combination descriptive of happy living.
+2\. A combination descriptive of happy living.
 
 **Verse 3.** The believer portrayed.
 
-1\.His object of trust.
+1\. His object of trust.
 
-2\.His mode of life.
+2\. His mode of life.
 
-3\.His place of abode.
+3\. His place of abode.
 
-4\.His certainty of provision.
+4\. His certainty of provision.
 
 **Verse 3.** (*last clause* ). Read it in four ways.
 
@@ -616,23 +616,23 @@ Luther closes his Exposition of the Psalm with the words, Oh, shame on our faith
 
 **Verses 5-6.** The higher life.
 
-1\.Based on hearty resignation.
+1\. Based on hearty resignation.
 
-2\.Sustained by faith.
+2\. Sustained by faith.
 
-3\.Constantly unfolded by the Lord.
+3\. Constantly unfolded by the Lord.
 
-4\.Consummated in meridian splendour.
+4\. Consummated in meridian splendour.
 
 **Verses 5-6.** The higher life.
 
-1\.Based on hearty resignation.
+1\. Based on hearty resignation.
 
-2\.Sustained by faith.
+2\. Sustained by faith.
 
-3\.Constantly unfolded by the Lord.
+3\. Constantly unfolded by the Lord.
 
-4\.Consummated in meridian splendour.
+4\. Consummated in meridian splendour.
 
 **Verse 6.** Sweet comfort for slandered saints. Where their character now is. Who shall reveal it. The gradual yet sure manner of the revelation, and the glorious conclusion.
 
@@ -644,17 +644,17 @@ Luther closes his Exposition of the Psalm with the words, Oh, shame on our faith
 
 **Verse 7.** *Rest in the Lord.* 
 
-1\.Rest in the *will* of God, for whatever he wills is for your good, your highest good.
+1\. Rest in the *will* of God, for whatever he wills is for your good, your highest good.
 
-2\.Rest in the *love* of God, and often meditate on the words of Jesus on this point, "Thou hast loved them as thou hast loved me."
+2\. Rest in the *love* of God, and often meditate on the words of Jesus on this point, "Thou hast loved them as thou hast loved me."
 
-3\.Rest in the *mercy* of God.
+3\. Rest in the *mercy* of God.
 
-4\.Rest in the *word* of God.
+4\. Rest in the *word* of God.
 
-5\.Rest in the *relation* thy God fills to thee; he is the Father.
+5\. Rest in the *relation* thy God fills to thee; he is the Father.
 
-6\.Rest in the Lord as he is manifested in Jesus, thy God *in covenant*.
+6\. Rest in the Lord as he is manifested in Jesus, thy God *in covenant*.
 
 James Smith.
 
@@ -670,11 +670,11 @@ James Smith.
 
 **Verse 10.** 
 
-1\.Consider what the departed sinner has left. Possessions, joys, honours, aims, hopes, etc.
+1\. Consider what the departed sinner has left. Possessions, joys, honours, aims, hopes, etc.
 
-2\.Consider where he has gone.
+2\. Consider where he has gone.
 
-3\.Consider whether you will share the same lot.
+3\. Consider whether you will share the same lot.
 
 **Verses 10-11.** Terror to the wicked: comfort for believers. *A. Farindon.* 
 
@@ -682,11 +682,11 @@ James Smith.
 
 **Verse 14.** *Upright conversation.* 
 
-1\.What it excludes. The horizontal or earthly, the crooked or crafty, the slanting or sinister.
+1\. What it excludes. The horizontal or earthly, the crooked or crafty, the slanting or sinister.
 
-2\.What it includes. Motive, object, language, action.
+2\. What it includes. Motive, object, language, action.
 
-3\.What it achieves. It stands like a pillar; it supports like a column; it ascends like a tower; it adorns like a monument; it illuminates like a Pharos.
+3\. What it achieves. It stands like a pillar; it supports like a column; it ascends like a tower; it adorns like a monument; it illuminates like a Pharos.
 
 **Verse 15.** The self destructive nature of evil.
 
@@ -694,33 +694,33 @@ James Smith.
 
 **Verses 16-17.** 
 
-1\.The owners contrasted.
+1\. The owners contrasted.
 
-2\.The possessions compared.
+2\. The possessions compared.
 
-3\.The preference given.
+3\. The preference given.
 
-4\.The reasons declared.
+4\. The reasons declared.
 
 **Verse 17.** (*last clause* ).
 
-1\.The favoured persons.
+1\. The favoured persons.
 
-2\.Their evident need, "upholding."
+2\. Their evident need, "upholding."
 
-3\.Their singular blessedness, "upheld, "above trial, under trial, after trial.
+3\. Their singular blessedness, "upheld, "above trial, under trial, after trial.
 
-4\.Their august Patron.
+4\. Their august Patron.
 
 **Verse 18.** The comforts derivable from a consideration of the divine knowledge. The eternity of the righteous man's possessions.
 
 **Verse 18.** 
 
-1\.The *persons,* "the upright."
+1\. The *persons,* "the upright."
 
-2\.The *period,* "their days." These are known to God. (1) He knows them *kindly* and *graciously;* (2) He knows their *number;* (3) He knows the *nature* of them.
+2\. The *period,* "their days." These are known to God. (1) He knows them *kindly* and *graciously;* (2) He knows their *number;* (3) He knows the *nature* of them.
 
-3\.The *portion,* "their inheritance shall be for ever."
+3\. The *portion,* "their inheritance shall be for ever."
 
 —William Jay.
 
@@ -734,21 +734,21 @@ James Smith.
 
 **Verses 23-24.** 
 
-1\.The divine predestination.
+1\. The divine predestination.
 
-2\.The divine delight.
+2\. The divine delight.
 
-3\.The divine support.
+3\. The divine support.
 
 **Verse 24.** Temporary trials.
 
-1\.To be expected.
+1\. To be expected.
 
-2\.Have their limit.
+2\. Have their limit.
 
-3\.Have their results.
+3\. Have their results.
 
-4\.Our secret comfort under them.
+4\. Our secret comfort under them.
 
 What may be. What cannot be. What shall be.
 
@@ -762,13 +762,13 @@ What may be. What cannot be. What shall be.
 
 **Verse 28.** 
 
-1\.The Lord's love of right.
+1\. The Lord's love of right.
 
-2\.His faithfulness to the righteous.
+2\. His faithfulness to the righteous.
 
-3\.Their sure preservation thus doubly guaranteed.
+3\. Their sure preservation thus doubly guaranteed.
 
-4\.The doom of the wicked thus certified.
+4\. The doom of the wicked thus certified.
 
 **Verse 29.** Canaan as a type of the righteous man's inheritance.
 
@@ -776,19 +776,19 @@ What may be. What cannot be. What shall be.
 
 **Verse 31.** 
 
-1\.The best thing.
+1\. The best thing.
 
-2\.In the best place.
+2\. In the best place.
 
-3\.With the best of results.
+3\. With the best of results.
 
 **Verses 32-33.** Our enemies; their inveterate malice; our safeguard and justification.
 
 **Verse 34.** 
 
-1\.A twofold admonition: (a) *Wait on the Lord.* (b) *And keep his way;* wait and work, wait and walk, get grace and exercise it.
+1\. A twofold admonition: (a) *Wait on the Lord.* (b) *And keep his way;* wait and work, wait and walk, get grace and exercise it.
 
-2\.A twofold promise: (a) *He shall exalt thee to inherit the land;* God is the source of all elevation and honour. (b) *When the wicked are cur off, thou shalt see it;* and they will be cut off. *William Jay.* 
+2\. A twofold promise: (a) *He shall exalt thee to inherit the land;* God is the source of all elevation and honour. (b) *When the wicked are cur off, thou shalt see it;* and they will be cut off. *William Jay.* 
 
 **Verse 34.** Patient faith, persevering holiness, and promised exaltation.
 
@@ -798,27 +798,27 @@ What may be. What cannot be. What shall be.
 
 **Verses 35-37.** Three memorable scenes.
 
-1\.The imposing spectacle.
+1\. The imposing spectacle.
 
-2\.The astounding disappearance.
+2\. The astounding disappearance.
 
-3\.The delightful exit.
+3\. The delightful exit.
 
 **Verses 35-37.** Three memorable scenes.
 
-1\.The imposing spectacle.
+1\. The imposing spectacle.
 
-2\.The astounding disappearance.
+2\. The astounding disappearance.
 
-3\.The delightful exit.
+3\. The delightful exit.
 
 **Verses 39-40.** 
 
-1\.The doctrines of grace condensed.
+1\. The doctrines of grace condensed.
 
-2\.The experience of the gracious epitomised.
+2\. The experience of the gracious epitomised.
 
-3\.The promises of grace summarised.
+3\. The promises of grace summarised.
 
-4\.The grandest evidence of grace declared: *because they trust in him.* 
+4\. The grandest evidence of grace declared: *because they trust in him.* 
 

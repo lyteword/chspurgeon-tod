@@ -60,7 +60,7 @@ Each minute for a year."
 
 **Whole Psalm.** The passionate earnestness of the Psalm is enhanced by the repetition eight times in it of the Divine Name.— *The Speaker's Commentary,* 1873.
 
-**Whole Psalm.** This Psalm, perhaps more than any other, is marked by its mountains: depth; prayer; conviction; light; hope; waiting; watching; longing; confidence; assurance; universal happiness and joy...Just as the barometer marks the rising of the weather, so does this Psalm, sentence by sentence, record the progress of the soul. And you may test yourself by it, as by a rule or measure, and ask yourself at each line, "Have I reached to this? Have I reached to this?" and so take your spiritual gauge.— *James Vaughan, in "Steps to Heaven,"* 1878.
+**Whole Psalm.** This Psalm, perhaps more than any other, is marked by its mountains: depth; prayer; conviction; light; hope; waiting; watching; longing; confidence; assurance; universal happiness and joy... Just as the barometer marks the rising of the weather, so does this Psalm, sentence by sentence, record the progress of the soul. And you may test yourself by it, as by a rule or measure, and ask yourself at each line, "Have I reached to this? Have I reached to this?" and so take your spiritual gauge.— *James Vaughan, in "Steps to Heaven,"* 1878.
 
 **Whole Psalm.** Whosoever he was that wrote this Psalm, he maketh mention and rehearsal of that prayer that he made to his God in the time of his great danger, and this he doth to the fifth verse; then finding in experience a comfortable answer, and how good a thing it was to pray to God, and to wait on him, he professes, that, as before, he had awaited on him, so still in time coming he would await on him, and this he doeth to the seventh verse. In the third and last part, he turneth him to Israel, to the church, and exhorteth them to await on God, as he had done, promising them mercy and redemption from all their iniquities if they would await on him.— *Robert Rollock,* 1555-1599.
 
@@ -138,9 +138,9 @@ Secondly, the word signifieth to keep in mind, to lay up, to have, as it were, a
 
 **Verse 3.** *If thou, LORD.* He here fixes on another name of God, which is Jah: a name, though from the same root as the former, yet seldom used but to intimate and express the terrible majesty of God. "He rideth on the heavens, and is extolled by his name Jail": Ps 68:4. He is to deal now with God about the guilt of sin: and God is represented to the soul as great and terrible, that he may know what to expect and look for, if the matter must be tried out according to the demerit of sin.— *John Owen.* 
 
-**Verse 3.** *If thou, LORD...O Lord.* Mark here that in this third verse he two times nameth God by *the Lord* (as he doth also in the ninth verse), showing to us hereby his earnest desire to take hold of God with both his hands. He nameth him not only *Adonai*, but also *Jah* (which two signify his nature and power); all the qualities of God must be conjoined and concur together for us: although he be *Adonai,* yet if he be not also *Jah* we are undone.— *Archibald Symson.* 
+**Verse 3.** *If thou, LORD... O Lord.* Mark here that in this third verse he two times nameth God by *the Lord* (as he doth also in the ninth verse), showing to us hereby his earnest desire to take hold of God with both his hands. He nameth him not only *Adonai*, but also *Jah* (which two signify his nature and power); all the qualities of God must be conjoined and concur together for us: although he be *Adonai,* yet if he be not also *Jah* we are undone.— *Archibald Symson.* 
 
-**Verse 3.** *LORD...Lord.* If God should show himself as JAH, no creature would be able to stand before him, who is *Adonai*, and can therefore carry out his judicial will or purpose.— *Franz Delitzsch.* 
+**Verse 3.** *LORD... Lord.* If God should show himself as JAH, no creature would be able to stand before him, who is *Adonai*, and can therefore carry out his judicial will or purpose.— *Franz Delitzsch.* 
 
 **Verse 3.** *Iniquities.* The literal meaning of the word *"iniquity"* is "a thing which is not equal", or "not fair." Whatever breaks a command of God is "not equal." It does not match with what man is, nor with what God is. It does not keep the high level of the law. It is altogether out of proportion to all that God has done. It destroys the harmony of creation. It does not rise even to the height of conscience. Still more, it mars and makes a flaw in the divine government. Therefore sin is an unequal thing, fitting nothing, disarranging everything. And it is *not fair*. It is not fair to that God upon whose empire it is a trespass. It is not fair to your fellow creatures, to whom it may be a very great injury. It is not fair to yourself, for your happiness lies in obedience. Therefore we call sin *"iniquity."* Or, as the Prayer Book Version expresses the same idea, "a thing amiss", missing its proper mark. "If thou shouldest be extreme to mark what is *done amiss.* "— *James Vaughan.* 
 
@@ -180,7 +180,7 @@ It is the *posture of rest*. A soul waiting for the Lord is a soul resting in th
 
 **Verse 5.** *I wait for the LORD. Waiting* is a great part of life's discipline, and therefore God often exercises the grace of waiting. *Waiting* has four purposes. It practises the patience of faith. It gives time for preparation for the coming gift. It makes the blessing the sweeter when it arrives. And it shows the sovereignty of God,—to give just when and just as he pleases. It may be difficult to define exactly what the Psalmist had in his mind when he said, "I wait *for the Lord*, my soul doth wait, and in his word do I hope. My soul waiteth *for the Lord* more than they that watch for the morning." It may have been the Messiah, whose coming was a thing close at hand to the mind of the ancient Jews, just as the Second Advent is to us. It may have been some special interposition of Divine Providence. But more probably, looking at the place which it occupies, and at the whole tenor of the Psalm, and its line of thought, "The Lord" he waited for so intently was that full sense of safety, peace, and love which God's felt presence gives, and which is, indeed, nothing else but the coming of the Lord most sensibly and palpably into an anxious and longing heart. The picture of the waiting man is a striking one. It is as of one on the ridge of a journey, looking onward on his way, standing on tiptoe, and therefore needing something to lean on, and to support him. *"I wait for the Lord"* ,—spiritually, with my deepest thoughts—in the very centre of my being— *"I wait for the Lord*, *my soul doth wait."* And I rest, I stay myself on what thou, O Lord, hast said. "My soul doth wait, and in his word do I hope." In all your *waitings* remember two things: Let it not be so much the event which you wait for, as the Lord *of* the event; the Lord in the event. And take care that you have a promise underneath you,—"In his word do I hope",—else "waiting" will be too much for you, and after all it may be in vain.— *James Vaughan.* 
 
-**Verse 5.** *I wait...I hope.* Waiting and hoping ever attend the same thing. No man will wait at all for that which he hath no hope of, and he who hath hope will wait always. He gives not over waiting, till he gives over hoping. The object of hope is some future good, but the act of hoping is at present good, and that is present pay to bear our charges in waiting. The word implies both a patient waiting and a hopeful trusting. So Christ expounds it (Mt 12:21), rendering that of the prophet (Isa 42:1-4), "The isles shall wait for his law", thus, "In his name shall the Gentiles trust."— *Joseph Caryl.* 
+**Verse 5.** *I wait... I hope.* Waiting and hoping ever attend the same thing. No man will wait at all for that which he hath no hope of, and he who hath hope will wait always. He gives not over waiting, till he gives over hoping. The object of hope is some future good, but the act of hoping is at present good, and that is present pay to bear our charges in waiting. The word implies both a patient waiting and a hopeful trusting. So Christ expounds it (Mt 12:21), rendering that of the prophet (Isa 42:1-4), "The isles shall wait for his law", thus, "In his name shall the Gentiles trust."— *Joseph Caryl.* 
 
 **Verses 5-6.** In these two verses he doth four times make mention of his hope, and attendance upon God and his word, to let us see how sure a hold we should take on God, and with how many temptations our faith is assaulted, when we can see no reason thereof. Nothing will bear us up but hope. *Spero meliora*. What encourages husbandmen and mariners against the surges and waves of the sea, and evil weather, but hope of better times? What comforteth a sick man in time of sickness, but hope of health? or a poor man in his distress, but hope of riches? or a prisoner, but hope of liberty? or a banished man, but hope to come home? All these hopes may fail, as oftentimes wanting a warrant. Albeit a physician may encourage a sick man by his fair words, yet he cannot give him an assurance of his recovery, for his health depends on God: friends and courtiers may promise poor men relief, but all men are liars; only God is faithful who hath promised. Therefore let us fix our faith on God, and our hope in God; for he will stand by his promise. No man hath hoped in him in vain, neither was ever any disappointed of his hope.— *Archibald Symson.* 
 
@@ -204,7 +204,7 @@ It is the *posture of rest*. A soul waiting for the Lord is a soul resting in th
 
 **Verse 7.** *Let Israel hope in the LORD.* This title is applied to all the Lord's people; it sets forth *their dignity* —they are PRINCES; it refers to *their experience* —they wrestle with God in prayer, and they prevail. Despondency does not become a prince, much less a Christian. Our God is "THE GOD OF HOPE"; and we should hope in him. Israel should hope in his mercy, in his patience, in his provision, in his plenteous redemption. They should hope for light in darkness; for strength in weakness; for direction in perplexity; for deliverance in danger; for victory in conflict; and for triumph in death. They should hope in God confidently, because he hath promised; prayerfully, for he loves to hear from us; obediently, for his precepts are to be observed by us; and constantly, for he is always the same.— *James Smith* (1802-1862), *in "The Believer's Daily Remembrancer."* 
 
-**Verse 7.** *Let Israel hope in the LORD.* Whereas, in all preceding verses of the Psalm, the thoughts, the sorrows, the prayer, the penitence, the awe, the waiting, the watching, were all personal and confined to himself; here a great change has taken place, and it is no longer *"I"*, but *"Israel"*; all Israel. "Let *Israel* hope in the Lord: for with the Lord there is mercy, and with him is plenteous redemption. And he shall redeem *Israel* from all his iniquities." This is as it always ought to be...It is the genius of our religion to go forth to multitudes.— *James Vaughan.* 
+**Verse 7.** *Let Israel hope in the LORD.* Whereas, in all preceding verses of the Psalm, the thoughts, the sorrows, the prayer, the penitence, the awe, the waiting, the watching, were all personal and confined to himself; here a great change has taken place, and it is no longer *"I"*, but *"Israel"*; all Israel. "Let *Israel* hope in the Lord: for with the Lord there is mercy, and with him is plenteous redemption. And he shall redeem *Israel* from all his iniquities." This is as it always ought to be... It is the genius of our religion to go forth to multitudes.— *James Vaughan.* 
 
 **Verse 7.** *For with the LORD there is mercy.* Mercy has been shown to us, but it dwells in God. It is one of his perfections. The exercise of it is his delight. There is mercy with the Lord in all its *fulness* ;he never was more merciful than now, neither will he ever be. There is mercy with the Lord in all its *tenderness*, he is full of compassion, his bowels are troubled for us, his tender mercies are over us. There is mercy with him in all its *variety*, it suits every case. Here is mercy that receives sinners, mercy that restores backsliders, mercy that keeps believers. Here is the mercy that pardons sin, that introduces to the enjoyment of all gospel privileges, and that blesses the praying soul far beyond its expectations. With the Lord there is mercy, and he loves to display it, he is ready to impart it, he has determined to exalt and glorify it. There is mercy with the Lord; this should encourage the miserable to approach him; this informs the fearful that they need bring nothing to induce him to bless them; this calls upon backsliders to return to him; and this is calculated to cheer the tried Christian, under all his troubles and distresses. Remember, mercy is like God, it is infinite and eternal. Mercy is always on the throne. Mercy may be obtained by any sinner.— *James Smith.* 
 
@@ -226,35 +226,35 @@ It is the *posture of rest*. A soul waiting for the Lord is a soul resting in th
 
 **Verse 1.** The assertion of an experienced believer.
 
-1\.I have cried—that is, I have earnestly, constantly, truthfully prayed.
+1\. I have cried—that is, I have earnestly, constantly, truthfully prayed.
 
-2\.I have cried only unto thee. Nothing could draw me to other confidences, or make me despair of thee.
+2\. I have cried only unto thee. Nothing could draw me to other confidences, or make me despair of thee.
 
-3\.I have cried in distress. At my worst, temporally or spiritually, I have cried out of the depths.
+3\. I have cried in distress. At my worst, temporally or spiritually, I have cried out of the depths.
 
-4\.I therefore infer—that I am thy child, no hypocrite, no apostate; and that thou hast heard and wilt hear me evermore.
-
-**Verse 1.** 
-
-1\.What we are to understand by "the depths." Great misery and distress.
-
-2\.How men get into "the depths." By sin and unbelief.
-
-3\.What gracious souls do when in "the depths." Cry unto the Lord.
-
-4\.How the Lord lifts praying souls out of "the depths"; "He shall redeem, "etc., Ps 130:8.— *W. H. J. P.* 
+4\. I therefore infer—that I am thy child, no hypocrite, no apostate; and that thou hast heard and wilt hear me evermore.
 
 **Verse 1.** 
 
-1\.In the pit.
+1\. What we are to understand by "the depths." Great misery and distress.
 
-2\.The morning star seen: "Thee, O Lord."
+2\. How men get into "the depths." By sin and unbelief.
 
-3\.Prayer flutters up "out of the depths."— *W. B. H.* 
+3\. What gracious souls do when in "the depths." Cry unto the Lord.
+
+4\. How the Lord lifts praying souls out of "the depths"; "He shall redeem, "etc., Ps 130:8.— *W. H. J. P.* 
+
+**Verse 1.** 
+
+1\. In the pit.
+
+2\. The morning star seen: "Thee, O Lord."
+
+3\. Prayer flutters up "out of the depths."— *W. B. H.* 
 
 **Verses 1-2.** 
 
-1\.The depths from which prayer may rise.
+1\. The depths from which prayer may rise.
 
 a) Of affliction.
 
@@ -262,7 +262,7 @@ b) Of conviction.
 
 c) Of desertion.
 
-2\.The height to which it may ascend.
+2\. The height to which it may ascend.
 
 a) To the hearing of God.
 
@@ -272,29 +272,29 @@ c) To an attentive hearing.
 
 Or,
 
-1\.We should pray at all times.
+1\. We should pray at all times.
 
-2\.We should pray that our prayers may be heard.
+2\. We should pray that our prayers may be heard.
 
-3\.We should pray until we know we are heard.
+3\. We should pray until we know we are heard.
 
-4\.We should pray in faith that when heard we have the thing we have asked. "That which thou hast prayed to me against the King of Assyria I have heard." God had heard. That was enough. It was the death of Sennacherib and the overthrow of his host.— *G. R.* 
+4\. We should pray in faith that when heard we have the thing we have asked. "That which thou hast prayed to me against the King of Assyria I have heard." God had heard. That was enough. It was the death of Sennacherib and the overthrow of his host.— *G. R.* 
 
 **Verses 1-2.** Consider,
 
-1\.The Psalmist's condition in the light of a warning. Evidently, through sin, he came into the depths; see Ps 130:3-4. Learn,
+1\. The Psalmist's condition in the light of a warning. Evidently, through sin, he came into the depths; see Ps 130:3-4. Learn,
 
 a) The need of watchfulness on the part of all.
 
 b) That backsliding will, sooner or later, bring great trouble of soul.
 
-2\.His sometime continuance in that condition, in the light of a Divine judgment: "I have cried." Certainly his first cry had not brought deliverance.
+2\. His sometime continuance in that condition, in the light of a Divine judgment: "I have cried." Certainly his first cry had not brought deliverance.
 
 a) The realization of pardon is a Divine work, dependent upon God's pleasure. Ps 85:8.
 
 b) But he will not always nor often speak pardon at the first asking; for He will make His people reverence his holiness, feel the bitterness of sinning, learn caution, etc.
 
-3\.His conduct while in that condition in the light of a direction. He,
+3\. His conduct while in that condition in the light of a direction. He,
 
 a) Seeks deliverance only of God.
 
@@ -304,31 +304,31 @@ c) Is inopportunate in his pleading: "Hear my voice, "etc.— *J. F.*
 
 **Verse 2.** Attention from God to us—how to gain it.
 
-1\.Let us plead the name which commands attention.
+1\. Let us plead the name which commands attention.
 
-2\.Let us ourselves pay attention to God's word.
+2\. Let us ourselves pay attention to God's word.
 
-3\.Let us give earnest attention to what we ask, and how we ask.
+3\. Let us give earnest attention to what we ask, and how we ask.
 
-4\.Let us attentively watch for a reply.
+4\. Let us attentively watch for a reply.
 
 **Verse 2.** *Lord, hear my voice.* 
 
-1\.Though it be faint by reason of distance—hear it.
+1\. Though it be faint by reason of distance—hear it.
 
-2\.Though it be broken because of my distress—hear it.
+2\. Though it be broken because of my distress—hear it.
 
-3\.Though it be unworthy on account of my iniquities—hear it.— *W. H. J. P.* 
+3\. Though it be unworthy on account of my iniquities—hear it.— *W. H. J. P.* 
 
 **Verse 3.** 
 
-1\.The supposition: "If thou, Lord, shouldest mark iniquities"
+1\. The supposition: "If thou, Lord, shouldest mark iniquities"
 
 a) It is scriptural.
 
 b) It is reasonable. If God is not indifferent towards men, he must observe their sins. If he is holy, he must manifest indignation against sin. If he is the Creator of conscience, he must certainly uphold its verdict against sin. If he is not wholly on the side of sin, how can he fail to avenge the mischiefs and miseries sin has caused?
 
-2\.The question it suggests: "Who shall stand?" A question,
+2\. The question it suggests: "Who shall stand?" A question,
 
 a) Not difficult to answer.
 
@@ -336,7 +336,7 @@ b) Of solemn import to all.
 
 c) Which ought to be seriously pondered without delay.
 
-3\.The possibility it hints at. "If thou, Lord." The "if" hints at the possibility that God may not mark sin. The possibility,
+3\. The possibility it hints at. "If thou, Lord." The "if" hints at the possibility that God may not mark sin. The possibility,
 
 a) Is reasonable, providing it can be without damage to God's righteousness; for the Creator and Preserver of men cannot delight in condemning and punishing.
 
@@ -346,23 +346,23 @@ c) Becomes a glorious certainty in the experience of penitent and believing soul
 
 **Verses 3-4.** 
 
-1\.The Confession. He could not stand.
+1\. The Confession. He could not stand.
 
-2\.The Confidence. "There is forgiveness."
+2\. The Confidence. "There is forgiveness."
 
-3\.The Consequence. "That thou mayest be feared."
+3\. The Consequence. "That thou mayest be feared."
 
 **Verses 3-4.** 
 
-1\.The fearful supposition.
+1\. The fearful supposition.
 
-2\.The solemn interrogation.
+2\. The solemn interrogation.
 
-3\.The Divine consolation.— *W. J.* 
+3\. The Divine consolation.— *W. J.* 
 
 **Verse 4.** Forgiveness with God.
 
-1\.The proofs of it.
+1\. The proofs of it.
 
 a) Divine declarations.
 
@@ -370,7 +370,7 @@ b) Invitations and promises, Isa 1:18.
 
 c) The bestowment of pardon so effectually as to give assurance and joy. 2Sa 12:13 Ps 32:5 Lu 7:47-8. 1Jo 2:12.
 
-2\.The reason of it.
+2\. The reason of it.
 
 a) In God's nature there is the desire to forgive; the gift of Christ is sufficient evidence for it.
 
@@ -378,7 +378,7 @@ b) But, the text speaks not so much of a desire as it asserts the existence of a
 
 c) Hence, forgiveness for all who believe is sure: Ro 3:25 1Jo 2:1-2.
 
-3\.The result of its realization: "That thou mayest be feared": with a reverential fear, and spiritual worship.
+3\. The result of its realization: "That thou mayest be feared": with a reverential fear, and spiritual worship.
 
 a) The possibility of forgiveness begets in an anxious soul true penitence, as opposed to terror and despair.
 
@@ -388,17 +388,17 @@ c) A believing reception of it gives peace and rest, and, exciting grateful love
 
 **Verse 4.** *There is forgiveness.* 
 
-1\.It is needed.
+1\. It is needed.
 
-2\.God alone can give it.
+2\. God alone can give it.
 
-3\.It may be had.
+3\. It may be had.
 
-4\.We may know that we have it.
+4\. We may know that we have it.
 
 **Verse 4.** 
 
-1\.A most cheering announcement: "There is forgiveness with thee."
+1\. A most cheering announcement: "There is forgiveness with thee."
 
 a) A fact certain.
 
@@ -410,7 +410,7 @@ d) A fact stated in general terms.
 
 e) A fact to be meditated upon with delight.
 
-2\.A most admirable design: "That thou mayest be feared."
+2\. A most admirable design: "That thou mayest be feared."
 
 a) Very contrary to the abuse made of it by rebels, triflers, and procrastinators.
 
@@ -426,35 +426,35 @@ e) But the means of pardon encourage faith, repentance, prayer; and the receipt 
 
 **Verse 4.** Tender Light.
 
-1\.The Angel by the Throne: "Forgiveness with Thee."
+1\. The Angel by the Throne: "Forgiveness with Thee."
 
-2\.The shadow that enhances his sweet majesty: "If", "But."
+2\. The shadow that enhances his sweet majesty: "If", "But."
 
-3\.The homage resultant from his ministry; universal from highest to least.— *W.B. H.* 
+3\. The homage resultant from his ministry; universal from highest to least.— *W. B. H.* 
 
 **Verses 5-6.** Three postures: Waiting, Hoping, Watching.
 
 **Verses 5-6.** 
 
-1\.The seeking sinner.
+1\. The seeking sinner.
 
-2\.The Christian mourner.
+2\. The Christian mourner.
 
-3\.The loving intercessor.
+3\. The loving intercessor.
 
-4\.The spiritual labourer.
+4\. The spiritual labourer.
 
-5\.The dying believer.— *W. J.* 
+5\. The dying believer.— *W. J.* 
 
 **Verses 5-6.** 
 
-1\.We are to wait on God.
+1\. We are to wait on God.
 
 a) By faith: "In his word do I hope."
 
 b) By prayer. Prayer can wait when it has a promise to rest upon.
 
-2\.We are to wait for God: "I wait for the Lord." "My soul waiteth for the Lord more", etc.
+2\. We are to wait for God: "I wait for the Lord." "My soul waiteth for the Lord more", etc.
 
 a) Because he has his own time for giving.
 
@@ -462,45 +462,45 @@ b) Because what he gives is worth waiting for.— *G. R.*
 
 **Verse 6.** *More than they.* 
 
-1\.For the darker sorrow his absence causes.
+1\. For the darker sorrow his absence causes.
 
-2\.For the richer splendour Iris coming must bring.
+2\. For the richer splendour Iris coming must bring.
 
-3\.For the greater might of our indwelling love.— *W. B. H.* 
+3\. For the greater might of our indwelling love.— *W. B. H.* 
 
 **Verse 6.** 
 
-1\.A long, dark night: The Lord absent.
+1\. A long, dark night: The Lord absent.
 
-2\.An eager, hopeful watcher: Waiting the Lord's return.
+2\. An eager, hopeful watcher: Waiting the Lord's return.
 
-3\.A bright, blessed morning: The time of the Lord's appearing.— *W. H. J. P.* 
+3\. A bright, blessed morning: The time of the Lord's appearing.— *W. H. J. P.* 
 
 **Verse 7.** Redeeming grace the sole hope of the holiest.— *W. B. H.* 
 
 **Verse 7.** 
 
-1\.A divine exhortation: "Let Israel hope in the LORD."
+1\. A divine exhortation: "Let Israel hope in the LORD."
 
-2\.A spiritual reason: "For with the LORD there is mercy", etc.
+2\. A spiritual reason: "For with the LORD there is mercy", etc.
 
-3\.A gracious promise: "He shall redeem Israel from, all his iniquities."— *J. C. Philpot.* 
+3\. A gracious promise: "He shall redeem Israel from, all his iniquities."— *J. C. Philpot.* 
 
 **Verses 7-8.** It is our wisdom to have personal dealings with God.
 
-1\.The first exercise of faith must be upon the Lord himself. This is the natural order, the necessary order, easiest, wisest, and most profitable order. Begin where all begins.
+1\. The first exercise of faith must be upon the Lord himself. This is the natural order, the necessary order, easiest, wisest, and most profitable order. Begin where all begins.
 
-2\.Exercises of faith about other things must still be in connection with the Lord. Mercy—"with the Lord." Plenteous redemption "with him."
+2\. Exercises of faith about other things must still be in connection with the Lord. Mercy—"with the Lord." Plenteous redemption "with him."
 
-3\.Exercises of faith, whatever their object, must all settle on him. "He shall redeem", etc.
+3\. Exercises of faith, whatever their object, must all settle on him. "He shall redeem", etc.
 
 **Verse 8.** 
 
-1\.The Redemption: "From all iniquities."
+1\. The Redemption: "From all iniquities."
 
-2\.The Redeemer: "The Lord." See Tit 2:14.
+2\. The Redeemer: "The Lord." See Tit 2:14.
 
-3\.The Redeemed: "Israel."— *W. H. J. P.* 
+3\. The Redeemed: "Israel."— *W. H. J. P.* 
 
 ## Works Upon The Hundred And Thirtieth Psalm
 
@@ -516,19 +516,19 @@ In "Select Works of Robert Rollock," edited for the Wodrow Society by William M.
 
  *David's Tears*. By Sir John Hayward, Knight, Doctor of Lawe. London. Printed by John Bell, 1623. *4to.* On Psalms 6, 32, and 130.
 
- *The Saints' Comforts*. Being the substance of diverse Sermons. Preached on Psalm 130, the beginning *Ps 130:1-5*...By a Reverend Divine now with God. *Richard Sibbes.* London...1638. *18mo.* Reprinted in Vol. 6 of Sibbes' Works, Nichol's edition, 1863.
+ *The Saints' Comforts*. Being the substance of diverse Sermons. Preached on Psalm 130, the beginning *Ps 130:1-5*... By a Reverend Divine now with God. *Richard Sibbes.* London...1638. *18mo.* Reprinted in Vol. 6 of Sibbes' Works, Nichol's edition, 1863.
 
- *A Godly and Fruitful Exposition on the 130 Psalme*, the sixth of the Penitentials, in A Sacred Septenarie or, A Godly And Fruitful Exposition On The Seven Psalms Of Repentance...By Mr. Archibald Symson, late Pastor of the church at *Dalkeeth* in *Scotland*. London... 1638. *4to.* 
+ *A Godly and Fruitful Exposition on the 130 Psalme*, the sixth of the Penitentials, in A Sacred Septenarie or, A Godly And Fruitful Exposition On The Seven Psalms Of Repentance... By Mr. Archibald Symson, late Pastor of the church at *Dalkeeth* in *Scotland*. London... 1638. *4to.* 
 
 In "Meditations And Disquisitions upon The Three last Psalmes of David. *By* Sir Richard Baker, *Knight* " *4to. 1639*, there is an Exposition of Psalm 130. It will be found in Higham's reprint *1882* of Sir R. Baker's Expositions of the Psalms, pp. 257-271.
 
- *A Practical Exposition upon Psalm 130*; wherein the Nature of the Forgiveness of Sin is declared; the Truth and Reality of it asserted; and the case of a Soul Distressed with the Guilt of Sin, and Relieved by a Discovery of Forgiveness with God, is at large Discoursed By John Owen, D.D., 4to.], 1668, 1669, 1680. There are modern reprints of this Exposition; and it is in Vol. 6 of Owen's Works, edited by W. H. Goold, 1881.
+ *A Practical Exposition upon Psalm 130*; wherein the Nature of the Forgiveness of Sin is declared; the Truth and Reality of it asserted; and the case of a Soul Distressed with the Guilt of Sin, and Relieved by a Discovery of Forgiveness with God, is at large Discoursed By John Owen, D. D., 4to.], 1668, 1669, 1680. There are modern reprints of this Exposition; and it is in Vol. 6 of Owen's Works, edited by W. H. Goold, 1881.
 
-In *"The Whole Works of Robert Leighton*, D.D., Archbishop of Glasgow, 4 vols., 8y D., 1725", there are "Meditations on Psalm 130." Vol. 2. pp. 510-540.
+In *"The Whole Works of Robert Leighton*, D. D., Archbishop of Glasgow, 4 vols., 8y D., 1725", there are "Meditations on Psalm 130." Vol. 2. pp. 510-540.
 
  *Forty Five Sermons upon The 130 Psalme.* 
 
 Preached at IRWIN. By that Eminent Servant of Jesus Christ, Mr. George Hutcheson—1678, Minister of the Gospel. Edinburgh, 1691. 8vo.
 
-In "Sermons preached in Christ Church," Brighton, from October, 1877, to July, 1878, by the Rev. James Vaughan, M.A. London, 1878, there is a Course of Lenten Sermons on the 130th Psalm, entitled "Steps to Heaven."
+In "Sermons preached in Christ Church," Brighton, from October, 1877, to July, 1878, by the Rev. James Vaughan, M. A. London, 1878, there is a Course of Lenten Sermons on the 130th Psalm, entitled "Steps to Heaven."
 

@@ -214,17 +214,17 @@ The second attribute, *"righteous"* or just, (qydu), hath particular relation to
 
 **Verse 7.** *Return unto thy rest.* Consider the variety of aspects of that rest which a good man seeks, and the ground upon which he will endeavour to realize it. It consists in,
 
-1\.Rest from the perplexities of ignorance, and the wanderings of error.
+1\. Rest from the perplexities of ignorance, and the wanderings of error.
 
-2\.Rest from the vain efforts of self righteousness, and the disquietude of a proud and legal spirit.
+2\. Rest from the vain efforts of self righteousness, and the disquietude of a proud and legal spirit.
 
-3\.Rest from the alarms of conscience, and the apprehensions of punishment hereafter.
+3\. Rest from the alarms of conscience, and the apprehensions of punishment hereafter.
 
-4\.Rest from the fruitless struggles of our degenerate nature, and unaided conflicts with indwelling sin.
+4\. Rest from the fruitless struggles of our degenerate nature, and unaided conflicts with indwelling sin.
 
-5\.Rest from the fear of temporal suffering and solicitude arising from the prospect of danger and trial.
+5\. Rest from the fear of temporal suffering and solicitude arising from the prospect of danger and trial.
 
-6\.Rest from the distraction of uncertainty and indecision of mind, and from the fluctuations of undetermined choice. *R. S. M'All.* 
+6\. Rest from the distraction of uncertainty and indecision of mind, and from the fluctuations of undetermined choice. *R. S. M'All.* 
 
 **Verse 7.** *Return,* ykwv. This is the very word which the angel used to Hagar when she fled from her mistress, "Return, "Ge 16:9. As Hagar through her mistress' rough dealing with her fled from her; so the soul of this prophet by reason of affliction fell from its former quiet confidence in God. As the angel therefore biddeth Hagar "return to her mistress, "so the understanding of this prophet biddeth his soul return to its rest. *William Gouge.* 
 
@@ -252,15 +252,15 @@ The second attribute, *"righteous"* or just, (qydu), hath particular relation to
 
 1\. *I shall walk before the Lord in the land of the living*; that is, by continuing in this world, I shall have opportunity of doing God service. It was not because those holy men had less assurance of God's love than we, but because they had greater affections to God's service than we, that this life was so amiable in their eyes. To this purpose the reasonings of David and Hezekiah concerning death and the grave are very observable. "Shall the dust praise thee? shall it declare thy truth"? so David, Ps 30:9. "The grave cannot praise thee, death cannot celebrate thee"; so Hezekiah, Isa 38:18. They saw death would render them useless for God's honour, and therefore they prayed for life. It lets us see why a religious man may desire life, that he may *walk before the LORD,* and minister to him in the place wherein he hath set him. Indeed, that joy, hope, and desire of life which is founded upon this consideration is not only lawful, but commendable; and truly herein is a vast difference between the wicked and the godly. To walk in the land of the living is the wicked man's desire, yea, were it possible he would walk here for ever; but for what end? only to enjoy his lusts, have his fill of pleasure, and increase his wealth: whereas the godly man's aim in desiring to live is that he may *"walk before God, "* advance his glory, and perform his service. Upon this account it is that one hath fitly taken notice how David doth not say, I shall now satiate myself with delights in my royal city, but, *I shall walk before the LORD in the land of the living.* 
 
-2\.And most suitably to this interpretation, this *"before the LORD, "* means *under the Lord's careful eye*. The words according to the Hebrew may be read, *before the face of the LORD*, by which is meant his presence, and that not general, before which all men walk, but special, before which only good men walk. Indeed, in this sense *God's face* is as much as his favour; and as to be cast out of his sight is to be under his anger, so to walk before his face is to be in favour with him: so that the meaning is, as the Psalmist had said, I shall live securely and safely in this world under the careful protection of the Almighty; and this is the confidence which he here seemeth to utter with so much joy, that God's gracious providence should watch over him the remainder of his days. Nathanael Hardy, in a Sermon entitled *"Thankfulness in Grain,"* 1654.
+2\. And most suitably to this interpretation, this *"before the LORD, "* means *under the Lord's careful eye*. The words according to the Hebrew may be read, *before the face of the LORD*, by which is meant his presence, and that not general, before which all men walk, but special, before which only good men walk. Indeed, in this sense *God's face* is as much as his favour; and as to be cast out of his sight is to be under his anger, so to walk before his face is to be in favour with him: so that the meaning is, as the Psalmist had said, I shall live securely and safely in this world under the careful protection of the Almighty; and this is the confidence which he here seemeth to utter with so much joy, that God's gracious providence should watch over him the remainder of his days. Nathanael Hardy, in a Sermon entitled *"Thankfulness in Grain,"* 1654.
 
 **Verse 9.** *In the land of the living.* These words admit of a threefold interpretation, being understood by some, especially for the land of Judea. By others, erroneously for the Jerusalem which is above. By the most, and most probably, for this habitable earth, the present world.
 
-1\.That exposition which Cajetan, Lorinus, with others, give of the words, would not be rejected, who conceive that by *the land of the living* David here meaneth Judea, in which, or rather over which being constituted king, he resolves to walk before God, and do him service. This is not improbably that *"land of the living"* in which the Psalmist when an exile "believed to see the goodness of the Lord"; this is certainly that "land of the living" wherein God promises to "set his glory"; nor was this title without just reason appropriated to that country. (a) *Partly*, because it was a *"land"* which afforded the most plentiful supports and comforts of natural life, in regard of the wholesomeness of the climate, the goodness of the soil, the overflowing of milk and honey, with other conveniences both for food and delight. (b) *Chiefly*, because it was the *"land"* in which the living God was worshipped, and where he vouchsafed to place his name; whereas the other parts of the world worshipped lifeless things, of which the Psalmist saith, "They have mouths, and speak not; eyes, and see not; ears, and hear not."
+1\. That exposition which Cajetan, Lorinus, with others, give of the words, would not be rejected, who conceive that by *the land of the living* David here meaneth Judea, in which, or rather over which being constituted king, he resolves to walk before God, and do him service. This is not improbably that *"land of the living"* in which the Psalmist when an exile "believed to see the goodness of the Lord"; this is certainly that "land of the living" wherein God promises to "set his glory"; nor was this title without just reason appropriated to that country. (a) *Partly*, because it was a *"land"* which afforded the most plentiful supports and comforts of natural life, in regard of the wholesomeness of the climate, the goodness of the soil, the overflowing of milk and honey, with other conveniences both for food and delight. (b) *Chiefly*, because it was the *"land"* in which the living God was worshipped, and where he vouchsafed to place his name; whereas the other parts of the world worshipped lifeless things, of which the Psalmist saith, "They have mouths, and speak not; eyes, and see not; ears, and hear not."
 
 2\. *The land of the living* is construed by the ancients to be that *heavenly country*, the place of the blessed. Indeed, this appellation does most fitly agree with heaven: this world is *desertum mortuorum*, a desert of dead, at least, dying men; that only is *regio virorum*, a region of living saints. "He who is our life" is in heaven, yea, "our life is hid with him in God, "and therefore we cannot be said to live till we come thither. In this sense no doubt that devout bishop and martyr, Babilas, used the words, who being condemned by Numerianus, the emperor, to an unjust death, a little before his execution repeated this and the two preceding verses, with a loud voice. Nor is it unfit for any dying saint to comfort himself with the like application of these words, and say in a confident hope of that blessed sight, *I shall walk before the Lord in the land of the living.* 
 
-3\.But doubtless the literal and proper meaning of these words is of *David's abode in the world* ;during which time, wheresoever he should be, he would *"walk before God"*; for that seems to be the emphasis of the plural number, lands, according to the original. The world consists of many countries, several lands, and it is possible for men either by force, or unwillingly, to remove from one country to another: but a good man when he changeth his country, yet altereth not his religion, yea, wherever he is he resolves to serve his God. *Nathaniel Hardy.* 
+3\. But doubtless the literal and proper meaning of these words is of *David's abode in the world* ;during which time, wheresoever he should be, he would *"walk before God"*; for that seems to be the emphasis of the plural number, lands, according to the original. The world consists of many countries, several lands, and it is possible for men either by force, or unwillingly, to remove from one country to another: but a good man when he changeth his country, yet altereth not his religion, yea, wherever he is he resolves to serve his God. *Nathaniel Hardy.* 
 
 **Verse 9.** *Land of the living.* How unmeet, how shameful, how odious a thing is it that dead men should be here on the face of the earth, which is *"the land of the living."* That there are such is too true. "She that liveth in pleasure is dead while she liveth, "1Ti 5:6; Sardis had a name that she lived, but was dead, Re 3:1; "The dead bury their dead, "Mt 8:22; all natural men are "dead in sins, " Eph 2:1 2Co 5:14. *William Gouge.* 
 
@@ -320,13 +320,13 @@ I have wondered oftentimes, why God will suffer his saints to die; I mean not th
 
 **Verse 15.** *Precious.* Their death is precious (*jakar* ); the word of the text is, *in pretio fuit, magni estimatum est*. See how the word is translated in other texts.
 
-1\.Honourable, Isa 43:4 (*jakarta* ); "thou was precious in my sight, thou hast been honourable."
+1\. Honourable, Isa 43:4 (*jakarta* ); "thou was precious in my sight, thou hast been honourable."
 
-2\.Much set by, 1Sa 18:80: "His name was much set by."
+2\. Much set by, 1Sa 18:80: "His name was much set by."
 
-3\.Dear, Jer 31:20. *An filius (jakkir) pretiosus mihi Ephraim* :"Is Ephraim my dear son?"
+3\. Dear, Jer 31:20. *An filius (jakkir) pretiosus mihi Ephraim* :"Is Ephraim my dear son?"
 
-4\.Splendid, clear, or glorious, Job 31:10. *Si vidi lunam (jaker) pretiosam et abeuntem:* "the moon walking in brightness."
+4\. Splendid, clear, or glorious, Job 31:10. *Si vidi lunam (jaker) pretiosam et abeuntem:* "the moon walking in brightness."
 
 Put all these expressions together, and then we have the strength of David's word, *"The death of the saints is precious"*; that is, (1) honourable; (2) much set by; (3) dear; (4) splendid and glorious in the sight of the Lord. *Samuel Totshell, in "The House of Mourning, "* 1660.
 
@@ -356,9 +356,9 @@ Its transactions are sometimes as fraught with permanent utility as with present
 
 **Verse 15.** *Saints.* The persons among whom implicitly he reckons himself, styled *saints*, are in the original set out by a word (Mydymx) that imports an especial respect of God towards them. The root whence that word issueth signifieth *mercy* (dmx *consecravit, benefecit* ). Whereupon the Hebrews have given such a name to a stork, which kind among fowls is the most merciful; and that not only the old to their young ones, as most are, but also the young ones to the old, which they use to feed and carry when through age they are not able to help themselves. This title is attributed to men in a double respect;
 
-1\.Passively, in regard of God's mind and affection to them;
+1\. Passively, in regard of God's mind and affection to them;
 
-2\.Actively, in regard of their mind and affection to others. God's merciful kindness is great towards them; and their mercy and kindness are great towards their brethren. They are, therefore, by a kind of excellency and property styled "men of mercy." Isa 57:1. In regard of this double acceptation of the word, some translate it, "merciful, tender, or courteous," Ps 18:25. Others with a paraphrase with many words, because they have not one fit word to express the full sense, thus, "Those whom God followeth with bounty, or to whom God extendeth his bounty." This latter I take to be the most proper to this place; for the word being passively taken for such as are made partakers of God's kindness, it sheweth the reason of that high account wherein God hath them, even his own grace and favour. We have a word in English that in this passive signification fitly answereth the Hebrew, which is this, favourite. *William Gouge.* 
+2\. Actively, in regard of their mind and affection to others. God's merciful kindness is great towards them; and their mercy and kindness are great towards their brethren. They are, therefore, by a kind of excellency and property styled "men of mercy." Isa 57:1. In regard of this double acceptation of the word, some translate it, "merciful, tender, or courteous," Ps 18:25. Others with a paraphrase with many words, because they have not one fit word to express the full sense, thus, "Those whom God followeth with bounty, or to whom God extendeth his bounty." This latter I take to be the most proper to this place; for the word being passively taken for such as are made partakers of God's kindness, it sheweth the reason of that high account wherein God hath them, even his own grace and favour. We have a word in English that in this passive signification fitly answereth the Hebrew, which is this, favourite. *William Gouge.* 
 
 **Verse 15.** *Death* now, as he hath done also to mine, has paid full many a visit to your house; and in very deed, he has made fell havoc among our comforts. We shall yet be avenged on this enemy—this King of Terrors. I cannot help at times clenching my fist in his face, and roaring out in my agony and anguish, "Thou shalt be swallowed up in victory!" There is even, too, in the meantime, this consolation; "O Death, where is thy sting?" "Precious in the sight of the Lord is the death *for* his saints, "in the first place; in the second place, and resting on the propitiatory death, "Precious in the sight of the Lord is the death *of* his saints." The Holy Ghost, Ps 116:15, states the first; our translators, honest men, have very fairly and truly inferred the second. We are obliged to them. The death of your lovely child, loveliest in the beauties of holiness, with all that was most afflictive and full of sore trial in it, is nevertheless, among the things in your little family, which are right precious in the sight of the Lord; and this in it, is that which pleases you most; precious, because of the infinite, the abiding, and the unchanging worth of the death of God's own holy child Jesus. The calm so wonderful, the consolation so felt, yea, the joy in tribulation so great, have set before your eves a new testimony, heart touching indeed, that, after eighteen hundred years have passed, *"the death of his saints"* is still precious as ever in the sight of the Lord. Take your book of life, sprinkled with the blood of the covenant, and in your family record, put the death of Rosanna down among the precious things in your sight also—I should rather have said likewise. Present my kindest regards to Miss S—Tell her to wipe that tear away—Rosanna needs it not. I hope they are all well at L—, and that your young men take the way of the Lord in good part. My dear Brother, "Go thy way, thy child liveth, "is still as fresh as ever it was, from the lips of Him that liveth for ever and ever, and rings with a loftier and sweeter sound, even than when it was first heard in the ears and heart of the parent who had brought and laid his sick and dying at the feet of Him who hath the keys of hell and of death. *John Jameson, in "Letters; True Fame," etc.,* 1838.
 
@@ -370,9 +370,9 @@ Its transactions are sometimes as fraught with permanent utility as with present
 
 1\. *A humble sense of his distance from God and his dependence upon him.* This is the first view which a penitent hath of himself when he returns to God. It is the first view which a good man hath of himself in his approaches to, or communion with God. And, indeed, it is what ought to be inseparable from the exercise of every other pious affection. To have, as it were, high and honourable thoughts of the majesty and greatness of the living God, and a deep and awful impression of the immediate and continual presence of the heart searching God, this naturally produces the greatest self abasement, and the most unfeigned subjection of spirit before our Maker. It leads to a confession of him as Lord over all, and having the most absolute right, not only to the obedience, but to the disposal of all his creatures. I cannot help thinking this is conveyed to us in the language of the Psalmist, when he says, *O LORD, truly I am thy servant.* He was a prince among his subjects, and had many other honourable distinctions, both natural and acquired, among men; but he was sensible of his being a servant and subject of the King of kings; and the force of his expression, *"Truly, I am thy servant, "* not only signifies the certainty of the thing, but how deeply and strongly he felt a conviction of its truth.
 
-2\.This declaration of the Psalmist implies *a confession of his being bound by particular covenant and consent unto God*, and a repetition of the same by a new adherence. This, as it was certainly true with regard to him, having often dedicated himself to God, so I take it to be confirmed by the reiteration of the expression here, *O LORD, truly I am thy servant; I am thy servant.* As if he had said, "O Lord, it is undeniable; it is impossible to recede from it. I am thine by many ties. I am by nature thy subject and thy creature; and I have many times confessed thy right and promised my own duty." I need not mention to you, either the example in the Psalmist's writings, or the occasions in his history, on which he solemnly surrendered himself to God. It is sufficient to say, that it was very proper that he should frequently call this to mind, and confess it before God, for though it could not make his Creator's right any stronger, it would certainly make the guilt of his own violation of it so much the greater.
+2\. This declaration of the Psalmist implies *a confession of his being bound by particular covenant and consent unto God*, and a repetition of the same by a new adherence. This, as it was certainly true with regard to him, having often dedicated himself to God, so I take it to be confirmed by the reiteration of the expression here, *O LORD, truly I am thy servant; I am thy servant.* As if he had said, "O Lord, it is undeniable; it is impossible to recede from it. I am thine by many ties. I am by nature thy subject and thy creature; and I have many times confessed thy right and promised my own duty." I need not mention to you, either the example in the Psalmist's writings, or the occasions in his history, on which he solemnly surrendered himself to God. It is sufficient to say, that it was very proper that he should frequently call this to mind, and confess it before God, for though it could not make his Creator's right any stronger, it would certainly make the guilt of his own violation of it so much the greater.
 
-3\.This declaration of the Psalmist is an *expression of his peculiar and special relation to God. I am thy servant, and the son of thine handmaid.* There is another passage of his writings where the same expression occurs: Ps 86:16. "O turn unto me, and have mercy upon me; give thy strength unto thy servant, and save the son of thine handmaid." There is some variation among interpreters in the way of illustrating this phrase. Some take it for a figurative way of affirming, that he was bound in the strongest manner to God, as those children who were born of a maidservant, and born in his own house, were in the most absolute manner their master's property. Others take it to signify his being not only brought up in the visible church of God, but in a pious family, and educated in his fear; and others would have it to signify still more especially that the Psalmist's mother was an eminently pious woman. And indeed I do not think that was a circumstance, if true, either unworthy of him to remember, or of the Spirit of God to put upon record. *John Witherspoon,* 1722-1797.
+3\. This declaration of the Psalmist is an *expression of his peculiar and special relation to God. I am thy servant, and the son of thine handmaid.* There is another passage of his writings where the same expression occurs: Ps 86:16. "O turn unto me, and have mercy upon me; give thy strength unto thy servant, and save the son of thine handmaid." There is some variation among interpreters in the way of illustrating this phrase. Some take it for a figurative way of affirming, that he was bound in the strongest manner to God, as those children who were born of a maidservant, and born in his own house, were in the most absolute manner their master's property. Others take it to signify his being not only brought up in the visible church of God, but in a pious family, and educated in his fear; and others would have it to signify still more especially that the Psalmist's mother was an eminently pious woman. And indeed I do not think that was a circumstance, if true, either unworthy of him to remember, or of the Spirit of God to put upon record. *John Witherspoon,* 1722-1797.
 
 **Verse 16.** O Lord, *I am thy servant*, by a double right; (and, oh, that I could do thee double service;)as thou art the Lord of my life, and I am the son of thy handmaid: not of Hagar, but of Sarah; not of the bondwoman, but of the free; and therefore I serve thee not in fear, but in love; or therefore in fear, because in love: and then is service best done when it is done in love. In love indeed I am bound to serve thee, for, *Thou hast loosed my bonds*; the bonds of death which compassed me about, by delivering me from a dangerous sickness, and restoring me to health: or in a higher kind; thou hast loosed my bonds by freeing me from being a captive to be a servant; and which is more, from being a servant to be a son: and more than this, from being a son of thy handmaid, to be a son of thyself. *Sir Richard Baker.* 
 
@@ -404,21 +404,21 @@ And soar to heaven, a grateful sacrifice." *James Scott.*
 
 **Verses 1-2.** 
 
-1\.Present—"I love."
+1\. Present—"I love."
 
-2\.Past—"He hath."
+2\. Past—"He hath."
 
-3\.Future—"I will."
+3\. Future—"I will."
 
 **Verses 1-2.** Personal experience in reference to prayer.
 
-1\.We have prayed, often, constantly, in different ways, etc.
+1\. We have prayed, often, constantly, in different ways, etc.
 
-2\.We have been heard. A grateful retrospect of usual answers and of special answers.
+2\. We have been heard. A grateful retrospect of usual answers and of special answers.
 
-3\.Love to God has thus been promoted.
+3\. Love to God has thus been promoted.
 
-4\.Our sense of the value of prayer has become so intense that we cannot cease praying.
+4\. Our sense of the value of prayer has become so intense that we cannot cease praying.
 
 **Verses 1, 2, 9.** If you cast your eyes on the first verse of the Psalm, you find a *profession of love* — *I love the Lord*; if on the second, a *promise of prayer* — *I will call on the Lord*; if on the ninth, a *resolve of walking* — *I will walk before the LORD.* There are three things should be the object of a saint's care, the devotion of the soul, profession of the mouth, and conversation of the life: that is the sweetest melody in God's ears, when not only the voice sings, but the heartstrings keep tune, and the hand keepeth time. *Nathanael Hardy.* 
 
@@ -432,119 +432,119 @@ And soar to heaven, a grateful sacrifice." *James Scott.*
 
 **Verses 3-5.** The story of a tried soul.
 
-1\.Where I was. Ps 116:3.
+1\. Where I was. Ps 116:3.
 
-2\.What I did. Ps 116:4.
+2\. What I did. Ps 116:4.
 
-3\.What I learned. Ps 116:5.
+3\. What I learned. Ps 116:5.
 
 **Verses 3-6.** 
 
-1\.The *occasion*. (a) Bodily affliction. (b) Terrors of conscience. (c) Sorrow of heart. (d) Self accusation: "I found, "etc.
+1\. The *occasion*. (a) Bodily affliction. (b) Terrors of conscience. (c) Sorrow of heart. (d) Self accusation: "I found, "etc.
 
-2\.The *petition*. (a) Direct: "I called, "etc. (b) Immediate: "then, "when the trouble came; prayer was the first remedy sought, not the last, as with many. (c) Brief—limited to the due thing needed: "deliver my soul." (d) Importunate: "O Lord, I beseech thee."
+2\. The *petition*. (a) Direct: "I called, "etc. (b) Immediate: "then, "when the trouble came; prayer was the first remedy sought, not the last, as with many. (c) Brief—limited to the due thing needed: "deliver my soul." (d) Importunate: "O Lord, I beseech thee."
 
-3\.The *restoration*. (a) Implied: "gracious, "etc., Ps 116:5. (b) Expressed, Ps 116:6, generally: "The Lord preserveth, "etc.; particularly; "I was brought low, " etc.: helped me to pray, helped me out of trouble in answer to prayer, and helped me to praise him for the mercy, the faithfulness, the grace, shown in my deliverance. God is glorified through the afflictions of his people: the submissive are preserved in them, and the lowly are exalted by them. *G. R.* 
+3\. The *restoration*. (a) Implied: "gracious, "etc., Ps 116:5. (b) Expressed, Ps 116:6, generally: "The Lord preserveth, "etc.; particularly; "I was brought low, " etc.: helped me to pray, helped me out of trouble in answer to prayer, and helped me to praise him for the mercy, the faithfulness, the grace, shown in my deliverance. God is glorified through the afflictions of his people: the submissive are preserved in them, and the lowly are exalted by them. *G. R.* 
 
 **Verse 5.** 
 
-1\.Eternal grace, or the purpose of love.
+1\. Eternal grace, or the purpose of love.
 
-2\.Infinite justice, or the difficulty of holiness.
+2\. Infinite justice, or the difficulty of holiness.
 
-3\.Boundless mercy, or the outcome of atonement.
+3\. Boundless mercy, or the outcome of atonement.
 
 **Verse 6.** 
 
-1\.A singular class—"simple."
+1\. A singular class—"simple."
 
-2\.A singular fact—"the Lord preserveth the simple."
+2\. A singular fact—"the Lord preserveth the simple."
 
-3\.A singular proof of the fact—"I was, "etc.
+3\. A singular proof of the fact—"I was, "etc.
 
 **Verse 7.** *Return unto thy rest, O my soul.* Rest in God may be said to belong to the people of God on a fourfold account.
 
-1\.By designation. The rest which the people of God have in him is the result of his own purpose and design, taken up from his mere good pleasure and love.
+1\. By designation. The rest which the people of God have in him is the result of his own purpose and design, taken up from his mere good pleasure and love.
 
-2\.By purchase. The rest which they wanted as *creatures* they had forfeited as *sinners*. This, therefore, Christ laid down his life to procure.
+2\. By purchase. The rest which they wanted as *creatures* they had forfeited as *sinners*. This, therefore, Christ laid down his life to procure.
 
-3\.By promise. This is God's kind engagement. He has said, "My presence shall go with thee, and I will give thee rest, "Ex 33:14.
+3\. By promise. This is God's kind engagement. He has said, "My presence shall go with thee, and I will give thee rest, "Ex 33:14.
 
-4\.By their own choice gracious souls have a rest in God. *D. Wilcox.* 
+4\. By their own choice gracious souls have a rest in God. *D. Wilcox.* 
 
 **Verse 7.** *Return unto thy rest, O my soul.* When, or upon what occasion a child of God should use the Psalmist's language.
 
-1\.After converse with the world in the business of his calling every day.
+1\. After converse with the world in the business of his calling every day.
 
-2\.When going to the sanctuary on the Lord's day.
+2\. When going to the sanctuary on the Lord's day.
 
-3\.In and under any trouble he may meet with.
+3\. In and under any trouble he may meet with.
 
-4\.When departing from this world at death. *D. Wilcox.* 
+4\. When departing from this world at death. *D. Wilcox.* 
 
 **Verse 7.** 
 
-1\.The rest of the soul: "My rest, "this is in God. (a) The soul was created to find its rest in God. (b) On that account it cannot find rest elsewhere.
+1\. The rest of the soul: "My rest, "this is in God. (a) The soul was created to find its rest in God. (b) On that account it cannot find rest elsewhere.
 
-2\.Its departure from that rest. This is implied in the word "Return."
+2\. Its departure from that rest. This is implied in the word "Return."
 
-3\.Its return. (a) By repentance. (b) By faith, in the way provided for its return. (c) By prayer.
+3\. Its return. (a) By repentance. (b) By faith, in the way provided for its return. (c) By prayer.
 
-4\.Its encouragement to return. (a) Not in itself, but in God. (b) Not in the justice, but in the goodness of God: "for the Lord, "etc. "The goodness of God leadeth thee to repentance." *G.R.* 
+4\. Its encouragement to return. (a) Not in itself, but in God. (b) Not in the justice, but in the goodness of God: "for the Lord, "etc. "The goodness of God leadeth thee to repentance." *G. R.* 
 
 **Verse 8.** The trinity of experimental godliness.
 
-1\.It is a unity—"Thou hast delivered"; all the mercies come from one source.
+1\. It is a unity—"Thou hast delivered"; all the mercies come from one source.
 
-2\.It is a trinity of deliverance, *of* soul, eyes, feet; *from* punishment, sorrow, and sinning; *to* life, joy, and stability.
+2\. It is a trinity of deliverance, *of* soul, eyes, feet; *from* punishment, sorrow, and sinning; *to* life, joy, and stability.
 
-3\.It is a trinity in unity: all this was done for me and in me—"my soul, mine eyes, my feet."
+3\. It is a trinity in unity: all this was done for me and in me—"my soul, mine eyes, my feet."
 
 **Verse 9.** The effect of deliverance upon ourselves: "I will walk, " etc.
 
-1\.Walk by faith in him.
+1\. Walk by faith in him.
 
-2\.Walk in love with him.
+2\. Walk in love with him.
 
-3\.Walk by obedience to him. *G. R.* 
+3\. Walk by obedience to him. *G. R.* 
 
 **Verses 10-11.** 
 
-1\.The rule: "I believed, "etc. In general the Psalmist spoke what he had well considered and tested by his own experience, as when he said, "I was brought low and he helped me." "The Lord hath dealt bountifully with me."
+1\. The rule: "I believed, "etc. In general the Psalmist spoke what he had well considered and tested by his own experience, as when he said, "I was brought low and he helped me." "The Lord hath dealt bountifully with me."
 
-2\.The exception; "I was greatly afflicted, I said, "etc. (a) He spoke wrongfully: he said "All men are liars, " which had some truth in it, but was not the whole truth. (b) Hastily: "I said in my haste, "without due reflection. (c) Angrily, under the influence of affliction, probably from the unfaithfulness of others. Nature acts before grace—the one by instinct, the other from consideration. *G. R.* 
+2\. The exception; "I was greatly afflicted, I said, "etc. (a) He spoke wrongfully: he said "All men are liars, " which had some truth in it, but was not the whole truth. (b) Hastily: "I said in my haste, "without due reflection. (c) Angrily, under the influence of affliction, probably from the unfaithfulness of others. Nature acts before grace—the one by instinct, the other from consideration. *G. R.* 
 
 **Verse 11.** A hasty speech.
 
-1\.There was much truth in it.
+1\. There was much truth in it.
 
-2\.It erred on the right side, for it showed faith in God rather than in the creature.
+2\. It erred on the right side, for it showed faith in God rather than in the creature.
 
-3\.It did err in being too sweeping, too severe, too suspicious.
+3\. It did err in being too sweeping, too severe, too suspicious.
 
-4\.It was soon cured. The remedy for all such hasty speeches is—Get to work in the spirit of Ps 116:12.
+4\. It was soon cured. The remedy for all such hasty speeches is—Get to work in the spirit of Ps 116:12.
 
 **Verse 12.** Overwhelming obligations.
 
-1\.A sum in arithmetic—"all his benefits."
+1\. A sum in arithmetic—"all his benefits."
 
-2\.A calculation of indebtedness—"What shall I render?"
+2\. A calculation of indebtedness—"What shall I render?"
 
-3\.A problem for personal solution—"What shall *I?* " See Spurgeon's Sermon, No. 910.
+3\. A problem for personal solution—"What shall *I?* " See Spurgeon's Sermon, No. 910.
 
-**Verses 12, 14.** Whether well composed religious vows do not exceedingly promote religion. Sermon by Henry Hurst, A.M., in "The Morning Exercises."
+**Verses 12, 14.** Whether well composed religious vows do not exceedingly promote religion. Sermon by Henry Hurst, A. M., in "The Morning Exercises."
 
 **Verse 13.** Sermon on the Lord's supper. We take the cup of the Lord
 
-1\.In memory of him who is our salvation.
+1\. In memory of him who is our salvation.
 
-2\.In token of our trust in him.
+2\. In token of our trust in him.
 
-3\.In evidence of our obedience to him.
+3\. In evidence of our obedience to him.
 
-4\.In type of communion with him.
+4\. In type of communion with him.
 
-5\.In hope of drinking it new with him ere long.
+5\. In hope of drinking it new with him ere long.
 
 **Verse 13.** The various cups mentioned in Scripture would make an interesting subject.
 
@@ -560,39 +560,39 @@ And soar to heaven, a grateful sacrifice." *James Scott.*
 
 **Verse 16.** *Holy Service*.
 
-1\.Emphatically avowed.
+1\. Emphatically avowed.
 
-2\.Honestly rendered—"truly."
+2\. Honestly rendered—"truly."
 
-3\.Logically defended—"son of thine handmaid."
+3\. Logically defended—"son of thine handmaid."
 
-4\.Consistent with conscious liberty.
+4\. Consistent with conscious liberty.
 
 **Verse 17.** This is due to our God, good for ourselves, and encouraging to others.
 
 **Verse 17.** *The sacrifice of thanksgiving.* 
 
-1\.How it may be rendered. In secret love, in conversation, in sacred song, in public testimony, in special gifts and works.
+1\. How it may be rendered. In secret love, in conversation, in sacred song, in public testimony, in special gifts and works.
 
-2\.Why we should render it. For answered prayers (Ps 116:1-2), memorable deliverances (Ps 116:3), choice preservation (Ps 116:6); remarkable restoration (Ps 116:7-8), and for the fact of our being his servants (Ps 116:16).
+2\. Why we should render it. For answered prayers (Ps 116:1-2), memorable deliverances (Ps 116:3), choice preservation (Ps 116:6); remarkable restoration (Ps 116:7-8), and for the fact of our being his servants (Ps 116:16).
 
-3\.When should we render it. *Now*, while the mercy is on the memory, and as often as fresh mercies come to us.
+3\. When should we render it. *Now*, while the mercy is on the memory, and as often as fresh mercies come to us.
 
 **Verse 18.** 
 
-1\.How vows may be paid in public. By going to public worship as the first thing we do when health is restored. By uniting heartily in the song. By coming to the communion. By special thank offering. By using fit opportunities for open testimony to the Lord's goodness.
+1\. How vows may be paid in public. By going to public worship as the first thing we do when health is restored. By uniting heartily in the song. By coming to the communion. By special thank offering. By using fit opportunities for open testimony to the Lord's goodness.
 
-2\.The special difficulty in the matter. To pay them *to the Lord*, and not in ostentation or as an empty form.
+2\. The special difficulty in the matter. To pay them *to the Lord*, and not in ostentation or as an empty form.
 
-3\.The peculiar usefulness of the public act. It interests others, touches their hearts, reproves, encourages, etc.
+3\. The peculiar usefulness of the public act. It interests others, touches their hearts, reproves, encourages, etc.
 
 **Verse 19.** The Christian at home.
 
-1\.In God's house.
+1\. In God's house.
 
-2\.Among the saints.
+2\. Among the saints.
 
-3\.At his favourite work, "Praise."
+3\. At his favourite work, "Praise."
 
 ## Works Upon The Hundred And Sixteenth Psalm
 
@@ -600,11 +600,11 @@ David's Harpe full of most delectable harmony newly stringed and set in tune by 
 
  *AN EXPOSITION upon some select Psalms of David*, containing great store of most excellent and comfortable doctrine, and instruction for all those, that (under the burden of sin) thirst for comfort in Christ Jesus. Written by that faithful servant of God, M. ROBERT ROLLOK, sometime Pastor in the Church of Edinburgh: And translated out of Latin into English, by C. L. CHARLES LUMISDEN Minister of the Gospel of Christ at Dudingstoun. 12mo. EDINBURGH. 1600. Contains an Exposition of this Psalm.
 
- *The Saints' Sacrifice*: or, *A Commentary on Psalm 116*. Which is a gratulatory Psalm, for Deliverance from Deadly Distress. By William Gouge, D.D. London. 1631. Reprinted, with S. Smith, on. Psalm 1, and T. Pierson, on Psalms 27, 84, 87, in Nichol's Series of Commentaries. 1868.
+ *The Saints' Sacrifice*: or, *A Commentary on Psalm 116*. Which is a gratulatory Psalm, for Deliverance from Deadly Distress. By William Gouge, D. D. London. 1631. Reprinted, with S. Smith, on. Psalm 1, and T. Pierson, on Psalms 27, 84, 87, in Nichol's Series of Commentaries. 1868.
 
  *Sermons Experimental: on Psalms 116 and 117.* 
 
-VERY USEFUL for A Wounded Spirit. By William Slater, D.D., sometimes Rector of Linsham, and Vicar of Pitminster, in SOMMERSETSHIRE. Published by his Son WILLIAM SLATER, Mr. of Arts... London: 1638 4to.
+VERY USEFUL for A Wounded Spirit. By William Slater, D. D., sometimes Rector of Linsham, and Vicar of Pitminster, in SOMMERSETSHIRE. Published by his Son WILLIAM SLATER, Mr. of Arts... London: 1638 4to.
 
  *Meditations and Disquisitions upon Seven Consolatory Psalms of David*: namely, The 23. The 27, The 30, The 34, The 84, The 103, The 116.—By *Sir Richard Baker, Knight.* London. 1640. *4to.* 
 

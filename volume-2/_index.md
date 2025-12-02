@@ -18,4 +18,4 @@ More and more is the conviction forced upon my heart that every man must travers
 
 If permitted by the Great Master whom I serve, I shall now proceed with another portion of this Treasury of David; but the labour and research are exceedingly great, and my other occupations are very pressing, and therefore I must crave the patience of the Christian public. 
 
-&ndash; *C.H. Spurgeon*
+&ndash; *C. H. Spurgeon*

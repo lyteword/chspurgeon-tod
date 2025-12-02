@@ -242,7 +242,7 @@ Lastly, it is *specific*: *Who forgiveth all thine iniquities; who healeth all t
 
 {1} We might have filled much of our space with the fables from the rabbis and the fathers in reference to eagles; but they are too absurd, and ought never to be repeated. We hope, therefore, that the reader will excuse if not commend the omission.
 
-**Verse 5.** *Thy youth is renewed like the eagle's.* —The Scripture knows nothing of the idea that the eagle when old renews its youth. That there is nothing of this kind contained in Isa 40:31, which is commonly appealed to, but that it is rather the powerful flight of the eagle that is there referred to, "they mount up on wings like the eagle, they run and are not weary, "is evident from the parallel, *fly, run, march. E.W. Hengstenberg.* 
+**Verse 5.** *Thy youth is renewed like the eagle's.* —The Scripture knows nothing of the idea that the eagle when old renews its youth. That there is nothing of this kind contained in Isa 40:31, which is commonly appealed to, but that it is rather the powerful flight of the eagle that is there referred to, "they mount up on wings like the eagle, they run and are not weary, "is evident from the parallel, *fly, run, march. E. W. Hengstenberg.* 
 
 **Verse 5.** *Thy youth is renewed like the eagle's. Thy activity will renew itself like the eagle*. That is to say, From day to day he will receive and increase his strength and rigour, so that he may thrive and flourish like the eagle. The comparison with the eagle is not drawn in point of *renovation*, but in point of vigour and *activity* continually renewing itself; as Isa 40:31, says, *"They that wait upon the LORD shall renew their strength, they shall mount up with wings as eagles." Venema.* 
 
@@ -250,7 +250,7 @@ Lastly, it is *specific*: *Who forgiveth all thine iniquities; who healeth all t
 
 **Verse 5.** *Thy youth is renewed like the eagle's.* However bold it may sound, we say not too much when we speak of an *eternal youth*, as the glorious privilege of the devout servant of the Lord, but of him alone. All that with reason charms and captivates in the appearance of youth, is seen in heightened measure where the spiritual life develops itself undisturbed in fellowship with God. Does the *innocence* of youth attract you? In the natural life it is but too frequently a misleading appearance; but in the life of the soul it returns to a certain extent when the heart is purified through the power of the Holy Ghost, and the life is renewed in conformity with that of Christ the Lord. Does the *enjoyment* of youth surpass in your estimation that of any other here below? Be it so; yet all too speedily it is driven away by the cares of later years, whilst enjoyment free from care even in the dark days may dwell in the heart whereon has descended the peace of God through faith. The *strength* of youth, seems it to you desirable? Ah! day by day stamps truth upon the words: "Youth shall faint and be weary; "but even when the natural strength has already long attained its zenith, the Christian often feels himself elevated through a power from on high, which lifts him above physical weakness; and what no strength of sinew or muscle could accomplish is attained through the power of implicit faith. Yea, even the beautiful *developement* which the period of youth shows you, ye would not seek in vain in that man who, leaning on God's hand, forgetting the things that are behind, stretches forward from light to light, from strength to strength, from bliss to bliss. How, finally, can *hope*, that makes the youthful heart beat high with throbs of joy, be lacking to him? The fairest part of life the sensual man sees soon behind him, the spiritual man always in prospect; and like the eagle, this last can often from the low atmosphere round him soar to the pure, clear ether, whence already from afar the image, nay, the ineffable reality, shows him a more than earthly joy.
 
-Eternal youth: it may, yet much more than for David, now be the portion of every Christian, but for these alone. Without faith and hope in the heart, even the bravest determination to remain young always, or at least as long as possible, must give away before the first great storm of life. Yet even when faith and hope are not strangers to us, whence is it that in our spiritual life there is frequently so little of the *"eagle"* spoken of here, and so much of the "sparrow alone upon the housetop, "referred to in Ps 102:7 Can it be that we allow ourselves too little to be satisfied with the good things of which David had spoken immediately before; that is to say, that we live so little on the best things which God has to bestow,—his word, his Spirit, his grace? Only through these do we attain that lasting second birth, of which the eagle is the emblem, and an unfading youth of heart the inestimable fruit. Ye who are young in years, seek this undying youth above all the joys of early life! Recover it, ye middle-aged, in living fellowship with him who maketh all things new within! Preserve it, old friends of God and of his Christ, as your fairest crown here on earth, and the earnest of your bliss in heaven. And thou, Christian, who sittest down disconsolate, bethink thyself; the eagle lets his wings hang down, only thereafter to soar with stronger flight! *J.J. Van Oosterzee, in "The Year of Salvation,"* 1874.
+Eternal youth: it may, yet much more than for David, now be the portion of every Christian, but for these alone. Without faith and hope in the heart, even the bravest determination to remain young always, or at least as long as possible, must give away before the first great storm of life. Yet even when faith and hope are not strangers to us, whence is it that in our spiritual life there is frequently so little of the *"eagle"* spoken of here, and so much of the "sparrow alone upon the housetop, "referred to in Ps 102:7 Can it be that we allow ourselves too little to be satisfied with the good things of which David had spoken immediately before; that is to say, that we live so little on the best things which God has to bestow,—his word, his Spirit, his grace? Only through these do we attain that lasting second birth, of which the eagle is the emblem, and an unfading youth of heart the inestimable fruit. Ye who are young in years, seek this undying youth above all the joys of early life! Recover it, ye middle-aged, in living fellowship with him who maketh all things new within! Preserve it, old friends of God and of his Christ, as your fairest crown here on earth, and the earnest of your bliss in heaven. And thou, Christian, who sittest down disconsolate, bethink thyself; the eagle lets his wings hang down, only thereafter to soar with stronger flight! *J. J. Van Oosterzee, in "The Year of Salvation,"* 1874.
 
 **Verse 6.** *The LORD executeth rghteousness,* &c. Rising from personal blessings to general, the comprehensive fact, evermore to the glory of God, is his sympathy with the suffering and oppressed, and his ready and effective interposition in their ease. Who will not praise him that he careth so kindly and so gloriously for those who suffer cruel wrongs from wicked oppressors? *Henry Cowles.* 
 
@@ -372,27 +372,27 @@ Secure in its ambush the worm is at work? **
 
 **Verse 19.** *The Lord hath prepared his Throne.* The word signifies *establisthed* as well as prepared, and might be so rendered. Due preparation is the natural way to the establishment of a thing; hasty resolves break and moulder. This notes,
 
-1\.The peculiarity of his authority. He prepares it, and none else for him. It is a dominion that originally resides in his nature, not derived from any by birth or commission; he alone prepared it. He is the sole cause of his own kingdom; his authority therefore is unbounded, as infinite as his nature. None can set laws to him, because none but himself prepared his throne for him. As he will not impair his own happiness, so he will not abridge himself of his own authority.
+1\. The peculiarity of his authority. He prepares it, and none else for him. It is a dominion that originally resides in his nature, not derived from any by birth or commission; he alone prepared it. He is the sole cause of his own kingdom; his authority therefore is unbounded, as infinite as his nature. None can set laws to him, because none but himself prepared his throne for him. As he will not impair his own happiness, so he will not abridge himself of his own authority.
 
-2\.Readiness to exercise it upon due occasions. He hath prepared his throne, he is not at a loss, he needs not stay for a commission or instructions from any how to act. He hath all things ready for the assistance of his people, he hath rewards and punishments; his treasures trod axes, the great mark of authority lying by him, the one for the good, the other for the wicked. His mercy he keeps by him for thousands, Ex 34:7; his arrows he hath prepared by him for rebels, Ps 7:13.
+2\. Readiness to exercise it upon due occasions. He hath prepared his throne, he is not at a loss, he needs not stay for a commission or instructions from any how to act. He hath all things ready for the assistance of his people, he hath rewards and punishments; his treasures trod axes, the great mark of authority lying by him, the one for the good, the other for the wicked. His mercy he keeps by him for thousands, Ex 34:7; his arrows he hath prepared by him for rebels, Ps 7:13.
 
-3\.Wise management of it. It is prepared: preparations imply prudence; the government of God is not a rash and heady authority. A prince upon his throne, a judge upon the bench, manages things with the greatest discretion, or should be supposed so to do.
+3\. Wise management of it. It is prepared: preparations imply prudence; the government of God is not a rash and heady authority. A prince upon his throne, a judge upon the bench, manages things with the greatest discretion, or should be supposed so to do.
 
-4\.Successfulness and duration of it. He hath prepared or established it. It is fixed, not tottering; it is an unmovable dominion; all the strugglings of men and devils cannot overturn it, nor so much as shake it. It is established above the reach of obstinate rebels; he cannot be deposed from it, he cannot be mated in it. His dominion, as himself abides for ever. And as his counsel, so his authority, shall stand; and "he will do all his pleasure, " Isa 46:10. *Stephen Charnock.* 
+4\. Successfulness and duration of it. He hath prepared or established it. It is fixed, not tottering; it is an unmovable dominion; all the strugglings of men and devils cannot overturn it, nor so much as shake it. It is established above the reach of obstinate rebels; he cannot be deposed from it, he cannot be mated in it. His dominion, as himself abides for ever. And as his counsel, so his authority, shall stand; and "he will do all his pleasure, " Isa 46:10. *Stephen Charnock.* 
 
 **Verse 19.** *His throne in the heavens,* denotes:
 
-1\.The glory of his dominion. The heavens are the most stately and comely pieces of the creation; his majesty is there most visible, his glory most splendid, Ps 19:1. In heaven his dominion is more acknowledged by the angels: his dominion is not disputed there by the angels that attend him, as it is on earth by the rebels that arm themselves against him.
+1\. The glory of his dominion. The heavens are the most stately and comely pieces of the creation; his majesty is there most visible, his glory most splendid, Ps 19:1. In heaven his dominion is more acknowledged by the angels: his dominion is not disputed there by the angels that attend him, as it is on earth by the rebels that arm themselves against him.
 
-2\.The supremacy of his empire. The heavens are the loftiest part of the creation, and the only fit palace for him.
+2\. The supremacy of his empire. The heavens are the loftiest part of the creation, and the only fit palace for him.
 
-3\.Peculiarity of this dominion. He rules in the heavens alone. His authority is not delegated to any creature, he rules the blessed spirits by himself; but he rules men that are on his footstool by others of the same kind, men of their own nature.
+3\. Peculiarity of this dominion. He rules in the heavens alone. His authority is not delegated to any creature, he rules the blessed spirits by himself; but he rules men that are on his footstool by others of the same kind, men of their own nature.
 
-4\.The vastness of his empire. The earth is but a spot to the heavens. What is England in a map to the whole earth, but a spot you may cover with your finger; much less must the whole earth be to the extended heavens. You cannot conceive the many millions of little particles that are in the earth; and if all put together be but one point: to that place where the throne of God is seated, how vast must his empire be! He rules there ovcr the angels, which excel in strength, those hosts of his which do his pleasure, in comparison of whom all the men in the world, and the power of the greatest potentates, is no more than the strength of an ant or fly. And since his throne is in the heavens, it will follow that all things under the heaven are part of his dominion; the inferior things of earth cannot but be subject to him; and it necessarily includes his influence on all things below, because the heavens arc the cause of all the motion in the world. See Ho 2:21-22.
+4\. The vastness of his empire. The earth is but a spot to the heavens. What is England in a map to the whole earth, but a spot you may cover with your finger; much less must the whole earth be to the extended heavens. You cannot conceive the many millions of little particles that are in the earth; and if all put together be but one point: to that place where the throne of God is seated, how vast must his empire be! He rules there ovcr the angels, which excel in strength, those hosts of his which do his pleasure, in comparison of whom all the men in the world, and the power of the greatest potentates, is no more than the strength of an ant or fly. And since his throne is in the heavens, it will follow that all things under the heaven are part of his dominion; the inferior things of earth cannot but be subject to him; and it necessarily includes his influence on all things below, because the heavens arc the cause of all the motion in the world. See Ho 2:21-22.
 
-5\.The easiness of managing this government. His throne being placed on high, he cannot but behold all things that are done below; the height of a place gives advantage to a clear eye to behold things below it. *"The LORD looked down from heaven upon the children of men, to see if there were any that did understand, "* Ps 14:2. He looks not down from heaven as if his presence were confined there, but he looks down majestically, and by way of authority.
+5\. The easiness of managing this government. His throne being placed on high, he cannot but behold all things that are done below; the height of a place gives advantage to a clear eye to behold things below it. *"The LORD looked down from heaven upon the children of men, to see if there were any that did understand, "* Ps 14:2. He looks not down from heaven as if his presence were confined there, but he looks down majestically, and by way of authority.
 
-6\.Duration of it. The heavens are incorruptible, his throne is placed there in an incorruptible state. The throne of God outlives the dissolution of the world. *Condensed from Charnock.* 
+6\. Duration of it. The heavens are incorruptible, his throne is placed there in an incorruptible state. The throne of God outlives the dissolution of the world. *Condensed from Charnock.* 
 
 **Verse 19.** *His kingdom ruleth over all.* His Lordship is universal.
 
@@ -434,23 +434,23 @@ Thirdly, over all *creatures* ;binding the influences of Pleiades, and loosing t
 
 **Verse 1.** 
 
-1\.We should bless the Most High himself. It is possible to fail to bless *him*, while we praise his gifts, his word, his works, his ways.
+1\. We should bless the Most High himself. It is possible to fail to bless *him*, while we praise his gifts, his word, his works, his ways.
 
-2\.We should bless him individually: " *My* soul." Not merely the family through the father, nor the people through the pastor; nor the congregation through the choir; but personally.
+2\. We should bless him individually: " *My* soul." Not merely the family through the father, nor the people through the pastor; nor the congregation through the choir; but personally.
 
-3\.We should bless him spiritually: "soul." Not only with organ, voice, offering, works, &c.
+3\. We should bless him spiritually: "soul." Not only with organ, voice, offering, works, &c.
 
-4\.We should bless him unreservedly: "All that is within me."
+4\. We should bless him unreservedly: "All that is within me."
 
-5\.We should bless him resolutely. David preached self-communion, self-encouragement, and self-command. *W. Jackson.* 
+5\. We should bless him resolutely. David preached self-communion, self-encouragement, and self-command. *W. Jackson.* 
 
 **Verse 1.** Here is,
 
-1\.Self-converse: "Oh my soul." Many talk freely enough to others, but never talk to themselves. They are strangers to themselves—not on speaking terms with themselves—take no interest in their own souls—are dull and melancholy when alone.
+1\. Self-converse: "Oh my soul." Many talk freely enough to others, but never talk to themselves. They are strangers to themselves—not on speaking terms with themselves—take no interest in their own souls—are dull and melancholy when alone.
 
-2\.Self-exhortation: "Bless the Lord, O my soul." Thy Creator, thy Benefactor, thy Redeemer.
+2\. Self-exhortation: "Bless the Lord, O my soul." Thy Creator, thy Benefactor, thy Redeemer.
 
-3\.Self-encouragement: "All that is within me"—every faculty of my mental, moral and spiritual being: with ten strings—every chord in motion. No need for one faculty of the soul to say to another, "know the Lord, for all shall know him from the least even unto the greatest." *G. R.* 
+3\. Self-encouragement: "All that is within me"—every faculty of my mental, moral and spiritual being: with ten strings—every chord in motion. No need for one faculty of the soul to say to another, "know the Lord, for all shall know him from the least even unto the greatest." *G. R.* 
 
 **Verse 1** (*First clause*, and Ps 103:22, *last clause* ). Personal worship the Alpha and Omega of religion. *C. Davis.* 
 
@@ -458,89 +458,89 @@ Thirdly, over all *creatures* ;binding the influences of Pleiades, and loosing t
 
 **Verse 3.** 
 
-1\.Forgiveness is *in* God: "There is forgiveness with thee." It is his nature to forgive as well as to punish sin.
+1\. Forgiveness is *in* God: "There is forgiveness with thee." It is his nature to forgive as well as to punish sin.
 
-2\.It is *from* God. None can forgive sin but God. None can reveal forgiveness but God.
+2\. It is *from* God. None can forgive sin but God. None can reveal forgiveness but God.
 
-3\.It is like God, full, free, and everlasting—"all thine iniquities." *G. R.* 
+3\. It is like God, full, free, and everlasting—"all thine iniquities." *G. R.* 
 
 **Verse 3.** *Who healeth all thy diseases.* 
 
-1\.Why is sin called a disease? (a) As it destroys the moral beauty of the creature. (b) As it excites pain. (c) As it disables from duty. (d) As it leads to death.
+1\. Why is sin called a disease? (a) As it destroys the moral beauty of the creature. (b) As it excites pain. (c) As it disables from duty. (d) As it leads to death.
 
-2\.The variety of sinful diseases to which we are subject. Mr 7:21-23; Gal 5:19, &c.
+2\. The variety of sinful diseases to which we are subject. Mr 7:21-23; Gal 5:19, &c.
 
-3\.The remedy by which God heals these diseases. (a) His pardoning mercy through the redemption of Christ. (b) The sanctifying influences of grace. (c) The means of grace. (d) The resurrection of the body. *From "The Study, "* 1873.
+3\. The remedy by which God heals these diseases. (a) His pardoning mercy through the redemption of Christ. (b) The sanctifying influences of grace. (c) The means of grace. (d) The resurrection of the body. *From "The Study, "* 1873.
 
 **Verse 3** (*last clause* ).—Our diseases by nature, our great Physician, the perfect soundness which he works in us, results of that soundness.
 
 **Verses 3-5.** Mercy's Hexapla.
 
-1\.Three curses removed. (a) Guilt put away. (b) Corruption cured. (c) Destruction averted.
+1\. Three curses removed. (a) Guilt put away. (b) Corruption cured. (c) Destruction averted.
 
-2\.Three blessings, bestowed. (a) Favours that can gratify. (b) Pleasures that can satisfy. (c) Life that can never die.
+2\. Three blessings, bestowed. (a) Favours that can gratify. (b) Pleasures that can satisfy. (c) Life that can never die.
 
 Or
 
-1\.Pardon. (Ps 103:3)
+1\. Pardon. (Ps 103:3)
 
-2\.Purification. (Ps 103:4)
+2\. Purification. (Ps 103:4)
 
-3\.Redemption.
+3\. Redemption.
 
-4\.Coronation. (Ps 103:5)
+4\. Coronation. (Ps 103:5)
 
-5\.Plenty bestowed.
+5\. Plenty bestowed.
 
-6\.Power renewed. *W. Durban.* 
+6\. Power renewed. *W. Durban.* 
 
 **Verse 4.** (*first clause* ). The Redemption of David's life from destruction.
 
-1\.His shepherd life.
+1\. His shepherd life.
 
-2\.His military life.
+2\. His military life.
 
-3\.His persecuted life.
+3\. His persecuted life.
 
-4\.His regal life.
+4\. His regal life.
 
-5\.His spiritual life. *W. J.* 
+5\. His spiritual life. *W. J.* 
 
 **Verse 4.** What is redeemed, and from what? Who are redeemed, and by whom?
 
 **Verse 5.** 
 
-1\.A singular condition—satisfaction.
+1\. A singular condition—satisfaction.
 
-2\.A singular provision—good things.
+2\. A singular provision—good things.
 
-3\.A singular result—youth renewed.
+3\. A singular result—youth renewed.
 
 **Verse 5.** —"Rejuvenescence." See Macmillan's "Ministry of Nature, " pp. 321-347.
 
 **Verse 7.** 
 
-1\.God would have men know him.
+1\. God would have men know him.
 
-2\.He is his own revealer.
+2\. He is his own revealer.
 
-3\.There are degrees in the revelation.
+3\. There are degrees in the revelation.
 
-4\.We may pray for increased knowledge of him.
+4\. We may pray for increased knowledge of him.
 
 **Verse 8.** 
 
-1\.Mercy specified: "Merciful and gracious."
+1\. Mercy specified: "Merciful and gracious."
 
-2\.Mercy qualified: "Slow to anger." Mercy itself may be angered, and then how terrible is the anger.
+2\. Mercy qualified: "Slow to anger." Mercy itself may be angered, and then how terrible is the anger.
 
-3\.Mercy amplified: "Plenteous in mercy." "He will abundantly pardon; "and he only knows what abundant pardon means. *G. R.* 
+3\. Mercy amplified: "Plenteous in mercy." "He will abundantly pardon; "and he only knows what abundant pardon means. *G. R.* 
 
 **Verse 9.** 
 
-1\.What God will do to his people. He will sometimes chide—contend with them. (a) Providentially, by outward trials. (b) Experimentally, by inward conflicts.
+1\. What God will do to his people. He will sometimes chide—contend with them. (a) Providentially, by outward trials. (b) Experimentally, by inward conflicts.
 
-2\.What he will not do to them. (a) Not chide continually in this life. (b) Not chide in the least hereafter. (c) "The days of their mourning shall be ended." *G. R.* 
+2\. What he will not do to them. (a) Not chide continually in this life. (b) Not chide in the least hereafter. (c) "The days of their mourning shall be ended." *G. R.* 
 
 **Verses 11-13.** The height, length and depth of divine love.
 
@@ -548,7 +548,7 @@ Or
 
 **Verse 12.** 
 
-1\.The union implied. Between man and his transgressions.
+1\. The union implied. Between man and his transgressions.
 
 (a) Legally.
 
@@ -558,39 +558,39 @@ Or
 
 (d) Eternally, in themselves considered.
 
-2\.The separation effected.
+2\. The separation effected.
 
 (a) By whom? "He hath, "etc.
 
 (b) How? By his own Son coming between the sinner and his sins.
 
-3\.The Re-union prevented. "As far, "etc. When east and west meet, then, and not till then, will the reunion take place. As the two extremities of a straight line can never meet, and cannot be lengthened without receding further from each other, so it will ever be with a pardoned sinner and his sins. *G. R.* 
+3\. The Re-union prevented. "As far, "etc. When east and west meet, then, and not till then, will the reunion take place. As the two extremities of a straight line can never meet, and cannot be lengthened without receding further from each other, so it will ever be with a pardoned sinner and his sins. *G. R.* 
 
 **Verses 13-14.** "The Tender Pity of the Lord." See "Spurgeon's Sermons, "No. 941.
 
 **Verses 13-14.** 
 
-1\.Whom God pities; "them that fear him."
+1\. Whom God pities; "them that fear him."
 
-2\.How he pities "as a father pitieth his children."
+2\. How he pities "as a father pitieth his children."
 
-3\.Why he pities; "for he knoweth our frame." He hath reason to know out frame, for he framed us, and having himself made man of the dust, "he remembers that we are dust." *Matthew Henry.* 
+3\. Why he pities; "for he knoweth our frame." He hath reason to know out frame, for he framed us, and having himself made man of the dust, "he remembers that we are dust." *Matthew Henry.* 
 
 **Verse 14.** 
 
-1\.Man's Constitution.
+1\. Man's Constitution.
 
-2\.God's Consideration. *W. D.* 
+2\. God's Consideration. *W. D.* 
 
 **Verse 15.** Man's earthly career. His rise, progress, glory, fall, and oblivion.
 
 **Verses 15-18.** 
 
-1\.What man is when left to himself. "As for man, "etc. (a) What here? His days are as grass, his glory as the flower of grass. (b) What hereafter? swept away by a blighting wind, by a blast of divine anger—known no more on the earth, known only in perdition.
+1\. What man is when left to himself. "As for man, "etc. (a) What here? His days are as grass, his glory as the flower of grass. (b) What hereafter? swept away by a blighting wind, by a blast of divine anger—known no more on the earth, known only in perdition.
 
-2\.What the mercy of God does for him. (a) Makes a covenant of grace on his behalf flora everlasting. (b) Makes a covenant of peace with hint in this life. (c) Makes a covenant of promise to him for an eternity to come.
+2\. What the mercy of God does for him. (a) Makes a covenant of grace on his behalf flora everlasting. (b) Makes a covenant of peace with hint in this life. (c) Makes a covenant of promise to him for an eternity to come.
 
-3\.Who are the objects of this mercy? (a) Those who fear God. (b) Who walk in the footsteps of pious ancestors. (c) Who rely upon covenant mercy. (d) Who are faithful to their covenant engagements. *G. R.* 
+3\. Who are the objects of this mercy? (a) Those who fear God. (b) Who walk in the footsteps of pious ancestors. (c) Who rely upon covenant mercy. (d) Who are faithful to their covenant engagements. *G. R.* 
 
 **Verse 18.** The covenant, in what respects we can keep it, in what frame of mind it must be kept, and what is the practical proof of so doing.
 
@@ -598,31 +598,31 @@ Or
 
 **Verse 19.** 
 
-1\.The nature of the throne.
+1\. The nature of the throne.
 
-2\.The extent of the dominion.
+2\. The extent of the dominion.
 
-3\.The character of the monarch.
+3\. The character of the monarch.
 
-4\.The consequent joy of the subjects: "Bless the Lord."
+4\. The consequent joy of the subjects: "Bless the Lord."
 
 **Verse 20.** The angels' service instructive to us.
 
-1\.Their personal strength is excellent. As servants of God we also should see to our own spiritual health and rigour.
+1\. Their personal strength is excellent. As servants of God we also should see to our own spiritual health and rigour.
 
-2\.They are practical in their obedience, not theorists.
+2\. They are practical in their obedience, not theorists.
 
-3\.They are attentive while at work, ready to learn more, and holding fellowship with God, who speaks personally to them.
+3\. They are attentive while at work, ready to learn more, and holding fellowship with God, who speaks personally to them.
 
-4\.They do all in the spirit of joyful praise, blessing the Lord.
+4\. They do all in the spirit of joyful praise, blessing the Lord.
 
 **Verses 20-21.** 
 
-1\.The centre of praise: "Bless the Lord." All praise centres in him.
+1\. The centre of praise: "Bless the Lord." All praise centres in him.
 
-2\.The concert of praise. (a) Angels. (b) The hosts of the redeemed. (c) Ministers in particular. (d) The surrounding creation.
+2\. The concert of praise. (a) Angels. (b) The hosts of the redeemed. (c) Ministers in particular. (d) The surrounding creation.
 
-3\.The climax of praise: "Bless the Lord, O my soul." This has the highest claim upon me for gratitude and praise. Vast as the chorus may be, it will not be perfect without my note of praise. This is the culminating note: "Bless the Lord, O my soul." *G.R.* 
+3\. The climax of praise: "Bless the Lord, O my soul." This has the highest claim upon me for gratitude and praise. Vast as the chorus may be, it will not be perfect without my note of praise. This is the culminating note: "Bless the Lord, O my soul." *G. R.* 
 
 **Verse 21.** Who are God's ministers? What is their business? To do his pleasure. What is their delight? To bless the Lord.
 
@@ -630,9 +630,9 @@ Or
 
 **Verse 22.** 
 
-1\.The Chorus.
+1\. The Chorus.
 
-2\.The Echo. *W.D.* 
+2\. The Echo. *W. D.* 
 
 ## Works Upon The Hundred And Third Psalm
 

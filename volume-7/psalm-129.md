@@ -72,15 +72,15 @@ It is, further, by affliction that the *world* is known to God's children. God's
 
 **Verses 1-2.** 
 
-1\.The visible Church from the beginning of the world is one body, and, as it were, one man, growing up from infancy to riper age; for so speaketh the church here: *Many a time have they afflicted me from my youth.* 
+1\. The visible Church from the beginning of the world is one body, and, as it were, one man, growing up from infancy to riper age; for so speaketh the church here: *Many a time have they afflicted me from my youth.* 
 
-2\.The wicked enemies of the church, they also are one body, one adverse army, from the beginning of the world continuing war against the church: *"Many a time have they afflicted me from my youth."* 
+2\. The wicked enemies of the church, they also are one body, one adverse army, from the beginning of the world continuing war against the church: *"Many a time have they afflicted me from my youth."* 
 
-3\.As the former injuries done to the church are owned by the church, in after ages, as done against the same body, so also the persecution of former enemies is imputed and put upon the score of present persecutors: *"Many a time have they afflicted me from my youth, may Israel now say."* 
+3\. As the former injuries done to the church are owned by the church, in after ages, as done against the same body, so also the persecution of former enemies is imputed and put upon the score of present persecutors: *"Many a time have they afflicted me from my youth, may Israel now say."* 
 
-4\.New experience of persecution, when they call to mind the exercise of the church in former ages, serves much for encouragement and consolation in troubles: *"Many a time have they afflicted me from my youth, may Israel mow say."* 
+4\. New experience of persecution, when they call to mind the exercise of the church in former ages, serves much for encouragement and consolation in troubles: *"Many a time have they afflicted me from my youth, may Israel mow say."* 
 
-5\.Albeit this hath been the endeavour of the wicked in all ages to destroy the church, yet God hath still preserved her iron age to age: *Yet they have not prevailed.* — *David Dickson.* 
+5\. Albeit this hath been the endeavour of the wicked in all ages to destroy the church, yet God hath still preserved her iron age to age: *Yet they have not prevailed.* — *David Dickson.* 
 
 **Verses 1-2.** When the prophet says twice, *"They have afflicted me",* "they have *afflicted me* ", the repetition is not superfluous, it being intended to teach us that the people of God had not merely once or twice to enter the conflict, but that their patience had been tried by continual exercises.— *John Calvin.* 
 
@@ -130,15 +130,15 @@ It is, further, by affliction that the *world* is known to God's children. God's
 
 **Verse 1.** Affliction as it comes to saints from men of the world.
 
-1\.Reason for it—enmity of the serpent's seed.
+1\. Reason for it—enmity of the serpent's seed.
 
-2\.Modes of its display—persecution, ridicule, slander, disdain, etc.
+2\. Modes of its display—persecution, ridicule, slander, disdain, etc.
 
-3\.Comfort under it. So persecuted they the prophets: so the Master. It is their nature. They cannot kill the soul. It is but for a time, etc.
+3\. Comfort under it. So persecuted they the prophets: so the Master. It is their nature. They cannot kill the soul. It is but for a time, etc.
 
 **Verses 1-2.** 
 
-1\.How far persecution for righteousness' sake may go.
+1\. How far persecution for righteousness' sake may go.
 
 a) It may be great: "afflicted", "afflicted."
 
@@ -146,7 +146,7 @@ b) It may be frequent: "Many a time."
 
 c) It may be early: "From my youth."
 
-2\.How far it cannot go.
+2\. How far it cannot go.
 
 a) It may seem to prevail.
 
@@ -158,47 +158,47 @@ d) It shall cause that to which it is opposed increasingly to prevail.— *G. R.
 
 **Verses 1-4.** Israel persecuted but not forsaken. Persecution.
 
-1\.Whence it came: "they."
+1\. Whence it came: "they."
 
-2\.How it came: "Many a time", "from my youth", severely: "afflicted", "ploughed."
+2\. How it came: "Many a time", "from my youth", severely: "afflicted", "ploughed."
 
-3\.Why it came. Human and Satanic hatred, and Divine permission.
+3\. Why it came. Human and Satanic hatred, and Divine permission.
 
-4\.What came of it: "not prevailed"—to destroy, to drive to despair, to lead to sin. God's righteousness manifested in upholding his people, baffling their foes, etc.
+4\. What came of it: "not prevailed"—to destroy, to drive to despair, to lead to sin. God's righteousness manifested in upholding his people, baffling their foes, etc.
 
 **Verses 1-4.** The enemies of God's church.
 
-1\.Their violence: "The plowers plowed", etc.
+1\. Their violence: "The plowers plowed", etc.
 
-2\.Their persistency: "Many a time...from my youth."
+2\. Their persistency: "Many a time...from my youth."
 
-3\.Their failure: "Yet they have not prevailed."
+3\. Their failure: "Yet they have not prevailed."
 
-4\.Their great opponent: "The Lord...hath cut asunder."
+4\. Their great opponent: "The Lord...hath cut asunder."
 
 — *J. F.* 
 
 **Verse 3.** 
 
-1\.Literally fulfilled.
+1\. Literally fulfilled.
 
 a) In Christ. Mt 27:26 20:19 Mr 15:15 Lu 18:33 Joh 19:1.
 
 b) In his followers. Mt 10:17 Ac 16:23 2Co 6:5 2Co 11:23-24 Heb 11:36. And frequently in subsequent persecutions.
 
-2\.Figuratively. In secret calumnies both in Christ and his followers.— *G. R.* 
+2\. Figuratively. In secret calumnies both in Christ and his followers.— *G. R.* 
 
 **Verse 4.** Israel's song of triumph.
 
-1\.The Lord is righteous in permitting these afflictions to come upon his people.
+1\. The Lord is righteous in permitting these afflictions to come upon his people.
 
-2\.He is righteous in keeping his promise of deliverance to his people.
+2\. He is righteous in keeping his promise of deliverance to his people.
 
-3\.He is righteous in visiting the enemies of his people with judgment.— *W. H. J. P.* 
+3\. He is righteous in visiting the enemies of his people with judgment.— *W. H. J. P.* 
 
 **Verse 5.** 
 
-1\.An inexcusable hatred described: "hate Zion", God's church and cause. For,
+1\. An inexcusable hatred described: "hate Zion", God's church and cause. For,
 
 a) Her people are righteous.
 
@@ -208,7 +208,7 @@ c) Her mission is peace.
 
 d) Her very existence is the world's preservation.
 
-2\.An inveterate sinfulness indicated: "Them that hate Zion." For, whatever moral virtues they may boast of, they must be,
+2\. An inveterate sinfulness indicated: "Them that hate Zion." For, whatever moral virtues they may boast of, they must be,
 
 a) Enemies to the human race.
 
@@ -218,7 +218,7 @@ c) Perversely blind, as Saul, or radically vile.
 
 d) Devil like.
 
-3\.An instinctive feeling of a good man expressed: "Let them all be", etc. Prompted by,
+3\. An instinctive feeling of a good man expressed: "Let them all be", etc. Prompted by,
 
 a) His love to God.
 
@@ -228,15 +228,15 @@ c) Love to righteousness. Hence, its existence is in itself a pledge that the ri
 
 **Verses 5-8.** 
 
-1\.The characters described.
+1\. The characters described.
 
 a) They do not love Zion. They say not, "Lord, I have loved the habitation of thine house", etc.
 
 b) They hate Zion—both its King and its subjects.
 
-2\.Their prosperity: "As the grass", etc.
+2\. Their prosperity: "As the grass", etc.
 
-3\.Their end.
+3\. Their end.
 
 a) Shame: "Let them be confounded."
 
@@ -248,13 +248,13 @@ d) Dishonour. Unblessed by others as well as in themselves.— *G. R.*
 
 **Verses 6-9.** The wicked flourishing and perishing.
 
-1\.Eminent in position.
+1\. Eminent in position.
 
-2\.Envied in prosperity.
+2\. Envied in prosperity.
 
-3\.Evanescent in duration.
+3\. Evanescent in duration.
 
-4\.Empty as to solidity.
+4\. Empty as to solidity.
 
-5\.Excepted from blessing.
+5\. Excepted from blessing.
 

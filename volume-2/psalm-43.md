@@ -42,11 +42,11 @@ Why go I mourning because of the oppression of the enemy? Why do I wander hither
 
 ## Explanatory Notes & Quaint Sayings
 
-Whole Psalm. This Psalm is evidently a continuation or supplement to the preceding. In some MSS of Kenicott and de Rossi's, they are united, and make one Psalm. *George Phillips, B.D.* 
+Whole Psalm. This Psalm is evidently a continuation or supplement to the preceding. In some MSS of Kenicott and de Rossi's, they are united, and make one Psalm. *George Phillips, B. D.* 
 
 **Verse 1.** *Judge me, O God, and plead my cause,* etc. Believers may appeal to God's justice, and plead God's righteousness.
 
-1\.Touching suffering wrongs of men. Touching suffering wrongs of men, believers may appeal upon these three grounds:
+1\. Touching suffering wrongs of men. Touching suffering wrongs of men, believers may appeal upon these three grounds:
 
 (a) The injustice that men do to believers, is as well against *God's just nature*, as against the believers' ease. So their appeals to God are agreeable to God's enmity against injustice; therefore, his enmity concurs with their appeals. Ro 1:18.
 
@@ -54,7 +54,7 @@ Whole Psalm. This Psalm is evidently a continuation or supplement to the precedi
 
 (c) Such wrong God who do wrong his people 2Ch 15:11 Zec 2:8 Ac 9:4-5; so that in deliverance God vindicates himself as well as the believers.
 
-2\.Touching sin in relation to God's wrath. Touching sin in relation to God's wrath, a true believer may plead God's justice or righteousness on these three grounds:
+2\. Touching sin in relation to God's wrath. Touching sin in relation to God's wrath, a true believer may plead God's justice or righteousness on these three grounds:
 
 (a) Christ our Advocate or Attorney so pleads. Joh 17:24, etc. Now, the client may plead the same as the advocate, seeing it is in relation to the same party and the same issue.
 
@@ -64,11 +64,11 @@ Whole Psalm. This Psalm is evidently a continuation or supplement to the precedi
 
 Useful is this doctrine two ways.
 
-1\.For terror to the enemies of believers. How many prevailing cries to the justice of God are against such enemies? (a) Their own sins cry. (b) Believers injuries cry. (c) Believer's prayers cry. (d) Christ's intercession cries over against their prayers and desires Re 6:9, compared with Re 8:3.
+1\. For terror to the enemies of believers. How many prevailing cries to the justice of God are against such enemies? (a) Their own sins cry. (b) Believers injuries cry. (c) Believer's prayers cry. (d) Christ's intercession cries over against their prayers and desires Re 6:9, compared with Re 8:3.
 
-2\.The second use is for comfort to believers, that as God's mercy is for them, so his justice to deliver them, not only from *men*, but from *sin;* and in and through Christ they may humbly plead justice as against sinners, so against sin; not only against the guilt but against the power, that seeing Christ died, sin should not live. *Condensed from Nathanael Homes,* 1652.
+2\. The second use is for comfort to believers, that as God's mercy is for them, so his justice to deliver them, not only from *men*, but from *sin;* and in and through Christ they may humbly plead justice as against sinners, so against sin; not only against the guilt but against the power, that seeing Christ died, sin should not live. *Condensed from Nathanael Homes,* 1652.
 
-**Verse 1.** *Ungodly...deceitful...unjust.* There are *ungodly* men who, being destitute of religious principle, will not scruple to injure us, when they can thereby gratify their passions or advance their worldly interests. There are *deceitful* men who will put on the garb of friendship, and acquire our confidence and esteem, and then treacherously cheat us out of our property, or our reputation, or our peace. There are *unjust* men, who by fraud or by violence, would rob us of our dearest rights and most valuable possessions, and not only reduce our powers and opportunities of doing good, but even diminish our means of comfortable subsistence. And there are *oppressors*, who taking advantage of our weakness or dependence, and trampling alike on the maxims of equity and humanity, may exact from us unreasonable services, impose upon us heavy burdens and cruel restraints, and ply us with insults, and harassments, and deprivations, from which we can make no escape, and for which we can find no redress. *Andrew Thomson, D.D., in "Lectures on Portions of the Psalms."* 1826.
+**Verse 1.** *Ungodly...deceitful...unjust.* There are *ungodly* men who, being destitute of religious principle, will not scruple to injure us, when they can thereby gratify their passions or advance their worldly interests. There are *deceitful* men who will put on the garb of friendship, and acquire our confidence and esteem, and then treacherously cheat us out of our property, or our reputation, or our peace. There are *unjust* men, who by fraud or by violence, would rob us of our dearest rights and most valuable possessions, and not only reduce our powers and opportunities of doing good, but even diminish our means of comfortable subsistence. And there are *oppressors*, who taking advantage of our weakness or dependence, and trampling alike on the maxims of equity and humanity, may exact from us unreasonable services, impose upon us heavy burdens and cruel restraints, and ply us with insults, and harassments, and deprivations, from which we can make no escape, and for which we can find no redress. *Andrew Thomson, D. D., in "Lectures on Portions of the Psalms."* 1826.
 
 **Verse 2.** *Thou art the God of my strength.* The godly man hath from God a threefold strength, namely, natural, providential, and spiritual.
 
@@ -76,7 +76,7 @@ Useful is this doctrine two ways.
 
 2\. *Providential* strength, which is threefold: (a) God's donation of strengthening mercies—Corporal: wine to make glad, and bread to strengthen. Ps 104:15, and mental, common gifts; as Paul had a singular gift of language and single life; Apollos of elocution, argument, power of convincing. (b) Providential strength is God's making way for his people to act and put forth their strength. Ps 78:50. (c) Providential strength is God's concurrence with our lawful human acting. Ps 18:29.
 
-3\.The third sort of power is *spiritual:* God is the godly man's spiritual power. 1Jo 2:14: "I have written unto you, young men, because ye are strong, " namely, with spiritual strength, for it follows, "The word of God abideth in you, and ye have overcome the wicked one." This is the main strength of a godly man; as that text hints, namely, young men are naturally strong, but St. John takes no notice of that, but commends them for their spiritual strength. This spiritual strength is from the word of the Spirit, and from the Spirit of the word, that is, from the Spirit accompanying the word.
+3\. The third sort of power is *spiritual:* God is the godly man's spiritual power. 1Jo 2:14: "I have written unto you, young men, because ye are strong, " namely, with spiritual strength, for it follows, "The word of God abideth in you, and ye have overcome the wicked one." This is the main strength of a godly man; as that text hints, namely, young men are naturally strong, but St. John takes no notice of that, but commends them for their spiritual strength. This spiritual strength is from the word of the Spirit, and from the Spirit of the word, that is, from the Spirit accompanying the word.
 
 From *the word of the Spirit*, the word of God. Ps 119:50: "This is my comfort in my affliction: for thy word hath quickened me." To be *"quickened, "i.e.,* enlivened, is to be full of vigour and spirit and to act mightily, and to *"comfort"* is, as the word signifies, to make strong; for when a man is most cheerful with sobriety, he is most strong. St. John in that place fore quoted, saith the young men to whom he wrote were strong because the word of God abode in them. For Pr 12:25 "whereas sorrow in the heart of man maketh it stoop"—makes it sickly, weak, drooping—"a good word maketh it glad, "cheerful, strong, vigorous. And so if the word of a wise friend, how much more the word of God, with its many strengthening promises? Ps 20:2 119:28. The word of God is the very mind and will of God, and power of God, and with the word God created the world, therefore, he that receives this word must needs receive a great deal of strength. Ro 1:16.
 
@@ -106,7 +106,7 @@ From *the word of the Spirit*, the word of God. Ps 119:50: "This is my comfort i
 
 (d) I will go and tell him my *fears;* how greatly I am distressed at times, when I perceive this or the other corruption so strong, which I thought had received its death wound... how I tremble when I have by my folly provoked the Lord to leave me, for fear he will never return again, etc.
 
-(e) I will go and tell him my *hopes,* for some hope I have amidst all my discouragements...I will go and tell him all this; I will unbosom and unburden my whole heart to him; and if my *necessities* did not drive me to him, I should go to him from inclination. *Condensed from Samuel Lavington.* 
+(e) I will go and tell him my *hopes,* for some hope I have amidst all my discouragements... I will go and tell him all this; I will unbosom and unburden my whole heart to him; and if my *necessities* did not drive me to him, I should go to him from inclination. *Condensed from Samuel Lavington.* 
 
 **Verse 4.** *Unto God.* Believers are not satisfied in the use of religious duties, unless they arrive at God himself in those duties. We speak not here of that arrival at God himself which is by and after all duties, to a beatific vision of God in glory, but we speak of that arrival at God himself which is to be had *in* duties, while we are in the exercise of duties; namely, to attain to God's special presence in them, in an actual communion, communication and conversing with God, so that we are spiritually sensible he is with us therein. I say God's *special* presence and actual communion, to distinguish it from that ordinary habitual presence and communion of God's being with a believer at all times. Joh 14:16. *Nathanael Homes.* 
 
@@ -128,11 +128,11 @@ From *the word of the Spirit*, the word of God. Ps 119:50: "This is my comfort i
 
 **Verse 1.** We apply to God—
 
-1\.As our *Judge*: *Judge me*.
+1\. As our *Judge*: *Judge me*.
 
-2\.As our *Advocate*: *Plead my cause*.
+2\. As our *Advocate*: *Plead my cause*.
 
-3\.As our *Deliverer*: *O deliver me*.
+3\. As our *Deliverer*: *O deliver me*.
 
 **Verse 1.** Popular opinion outweighed by divine approbation.
 
@@ -142,25 +142,25 @@ From *the word of the Spirit*, the word of God. Ps 119:50: "This is my comfort i
 
 **Verses 1-2, 4-5.** *Five mys:* 
 
-1\.My cause— *"plead it."* 
+1\. My cause— *"plead it."* 
 
-2\.My strength— *"thou art."* 
+2\. My strength— *"thou art."* 
 
-3\.My joy—God is.
+3\. My joy—God is.
 
-4\.My soul— *"why disquieted."* 
+4\. My soul— *"why disquieted."* 
 
-5\.My God.
+5\. My God.
 
 **Verse 3.** *O send out thy light and thy truth.* 
 
-1\.What is truth?
+1\. What is truth?
 
-2\.How truth is to be diffused.
+2\. How truth is to be diffused.
 
-3\.Why it should be diffused.
+3\. Why it should be diffused.
 
-4\.Who must be the main agent of it. *Varied from Dr. Bogue.* 1800.
+4\. Who must be the main agent of it. *Varied from Dr. Bogue.* 1800.
 
 **Verse 3.** The blessings desired; the guidance sought; the end longed for.
 
@@ -168,9 +168,9 @@ From *the word of the Spirit*, the word of God. Ps 119:50: "This is my comfort i
 
 **Verse 4.** 
 
-1\.The good man's duty—expressed by *going to God.* 
+1\. The good man's duty—expressed by *going to God.* 
 
-2\.His *blessedness* —expressed by *rejoicing in God. Samuel Lavington.* 
+2\. His *blessedness* —expressed by *rejoicing in God. Samuel Lavington.* 
 
 **Verse 4.** *(first clause)*. When? *Then.* Where? *Altar of God.* Who? *I.* Why? *My exceeding joy.* 
 

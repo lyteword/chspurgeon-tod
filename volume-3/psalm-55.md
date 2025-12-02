@@ -130,7 +130,7 @@ For the ungodly a sure, terrible, and fatal overthrow is appointed. Climb as the
 
 **Title &mdash;** Maschil. This is often prefixed to those Psalms in which David speaks of himself as being chastened by God, inasmuch as the end of chastisement is instruction. *Simon de Muis,* 1587-1644.
 
-**Whole Psalm.** A prayer of the Man Christ in his humiliation, despised and rejected of men, when he was made sin for his people, that they might be made the righteousness of God in him, when he was about to suffer their punishment, pay their debt, and discharge their ransom. Utter depravity of the inhabitants of Jerusalem; betrayal of Messiah by one of the twelve whom he had ordained to the apostolical office, and who was Messiah's constant attendant in all his ministerial circuits. Premature and punitive death of the traitor Judas, and of others banded together to crucify the Lord of glory. *John Noble Coleman, M.A., in "A Revision of the authorised English Version of the Book of Psalms, "* 1863.
+**Whole Psalm.** A prayer of the Man Christ in his humiliation, despised and rejected of men, when he was made sin for his people, that they might be made the righteousness of God in him, when he was about to suffer their punishment, pay their debt, and discharge their ransom. Utter depravity of the inhabitants of Jerusalem; betrayal of Messiah by one of the twelve whom he had ordained to the apostolical office, and who was Messiah's constant attendant in all his ministerial circuits. Premature and punitive death of the traitor Judas, and of others banded together to crucify the Lord of glory. *John Noble Coleman, M. A., in "A Revision of the authorised English Version of the Book of Psalms, "* 1863.
 
 **Verse 1.** In the first clause he uses the word ytlkt, that he might indicate that he merely sought justice from God as a Judge; but in the second he implores the *favour of God,* that if perchance the prayer for *justice* be less becoming to himself as a sinner, God may not deny his grace. *Hermann Venema.* 
 
@@ -156,15 +156,15 @@ For the ungodly a sure, terrible, and fatal overthrow is appointed. Climb as the
 
 **Verse 4.** *The terrors of death are fallen upon me. My heart,* said the afflicted psalmist, *is sore pained within me:* and though I am repeatedly assured of my interest in the divine love and favour, yet now *the terrors of death are fallen upon me.* The case of David is so far from being peculiar to himself, that it portrays, in the most striking colours, a state of mind to which many of the most exemplary Christians are frequently, if not constantly subject. Many, whose hopes are placed on the right foundation, even Christ Jesus, and whose conduct is uniform and consistent, are ye harassed almost continually by the tormenting fears of death... It will be an interesting and useful enquiry to examine into the real causes of a fear, which cultivates melancholy and despondency on the one hand and destroys our happiness on the other. To effect this design I shall consider,
 
-1\.The various causes of the fear of death.
+1\. The various causes of the fear of death.
 
-2\.The arguments calculated to remove it. There are few, indeed, so hardened in the slavery of vice, or so utterly regardless of every admonition, as to consider the awful period of dissolution without some emotions of terror and dismay. There is something so peculiarly awful in the idea of a change hitherto unknown, and of a state hitherto untried, that the most hardy veterans have owned its tremendous aspects.
+2\. The arguments calculated to remove it. There are few, indeed, so hardened in the slavery of vice, or so utterly regardless of every admonition, as to consider the awful period of dissolution without some emotions of terror and dismay. There is something so peculiarly awful in the idea of a change hitherto unknown, and of a state hitherto untried, that the most hardy veterans have owned its tremendous aspects.
 
 One of the first causes of the fear of death is *conscious guilt.* The most hardened are conscious of many things which they may not readily confess; and the most self righteous is conscious of many crimes which he artfully studies to conceal. Whilst the Christian is looking only to his own habits and temper, he may and will be always wretched; but if he looks to the great Surety, Christ Jesus, his gloomy prospect will soon be turned to joy. An *attachment to this world* is also a (second) cause of the fear of death. A principal of self preservation is also a (third) cause of the fear of death. That our bodies, which are pampered by pride and nourished by indulgence, should be consigned to the silent grave, and become even the food of worms, is a humbling reflection to the boasted dignity of man. Besides, nature revolts at the idea of its own dissolution; hence a desire of preserving life, evidently implanted in us. The devil is also (fourthly) often permitted to terrify the consciences of men, and thereby increase at least the fear of death. Unbelief is also a (fifth) cause of the fear of death. Were our faith more frequently in exercise, we should be enabled to look beyond the dreary mansions of the grave with a hope full of immortality. Our fears of death may be often caused by looking for that perfection in ourselves, which we shall never easily discover.
 
-Consider the arguments calculated to remove the fear of death. It may be necessary to premise that the consolations of religion belong only to real Christians; for the wicked have just reason to dread the approach of death. But to such as are humbled under a sense of their own unworthiness, and who have fled to Christ for pardon and salvation, they have no cause to apprehend either the pain or the consequences of death; because first, the sting of death is taken away. Secondly, because death is no longer an enemy but a friend. Instead of threatening us with misery, it invites us to happiness. Thirdly, the safety of our state is founded on the oath, the purpose, and the promises of God. A fourth argument calculated to remove the fear of death, is the consideration of the benefits resulting from it. The benefits which believers receive from Christ at the resurrection also, is a fifth argument calculated to remove the fear of death. *Condensed from a Sermon by John Grove, M.A., F.A.S.,* 1802.
+Consider the arguments calculated to remove the fear of death. It may be necessary to premise that the consolations of religion belong only to real Christians; for the wicked have just reason to dread the approach of death. But to such as are humbled under a sense of their own unworthiness, and who have fled to Christ for pardon and salvation, they have no cause to apprehend either the pain or the consequences of death; because first, the sting of death is taken away. Secondly, because death is no longer an enemy but a friend. Instead of threatening us with misery, it invites us to happiness. Thirdly, the safety of our state is founded on the oath, the purpose, and the promises of God. A fourth argument calculated to remove the fear of death, is the consideration of the benefits resulting from it. The benefits which believers receive from Christ at the resurrection also, is a fifth argument calculated to remove the fear of death. *Condensed from a Sermon by John Grove, M. A., F. A. S.,* 1802.
 
-**Verses 4-5.** In the version of the Psalter used in the Prayer book, this verse stands with a more homely and expressive simplicity, "My heart is disquieted within me, and the fear of death is fallen upon me. Fearfulness and trembling are come upon me, and an horrible dread hath overwhelmed me." The fear of death is upon all flesh. It is no sign of manhood to be without it. To overcome it in the way of duty is courage; to meet death with patience is faith; but not to fear it is either a gift of special grace, or a dangerous insensibility. No doubt great saints have been able to say, "I have a desire to depart." And many have rushed to martyrdom as to the love and bosom of their Lord; but for the rest, the multitude of his flock, who are neither wilful sinners nor to be numbered among the saints, the thought of death is a thought of fear. We see that, on the first feeling of their having so much as set foot in the path leading to the grave, even good men feel "the terror of death, ""a horrible dread, "which makes every pulse to beat with a hurried and vehement speed. Their whole nature, both in body and in soul, trembles to its very centre; and their heart is "disquieted, ""sore pained, "within them. Let us see what are the causes or reasons of this "fear of death." The first must needs be a consciousness of personal sinfulness. A sense of unfitness to meet God, our unreadiness to die, a multitude of personal faults, evil tempers, thoughts, and inclinations; the recollection of innumerable sins, of great omissions and lukewarmness in all religious duties, the little love or gratitude we have to God, and the great imperfections of our repentance; all these make us tremble at the thought of going to give up our account. We feel as if it were impossible we could be saved. Shame, fear, and a "horrible dread" fall upon us. *Henry Edward Manning, M.A.,* 1850.
+**Verses 4-5.** In the version of the Psalter used in the Prayer book, this verse stands with a more homely and expressive simplicity, "My heart is disquieted within me, and the fear of death is fallen upon me. Fearfulness and trembling are come upon me, and an horrible dread hath overwhelmed me." The fear of death is upon all flesh. It is no sign of manhood to be without it. To overcome it in the way of duty is courage; to meet death with patience is faith; but not to fear it is either a gift of special grace, or a dangerous insensibility. No doubt great saints have been able to say, "I have a desire to depart." And many have rushed to martyrdom as to the love and bosom of their Lord; but for the rest, the multitude of his flock, who are neither wilful sinners nor to be numbered among the saints, the thought of death is a thought of fear. We see that, on the first feeling of their having so much as set foot in the path leading to the grave, even good men feel "the terror of death, ""a horrible dread, "which makes every pulse to beat with a hurried and vehement speed. Their whole nature, both in body and in soul, trembles to its very centre; and their heart is "disquieted, ""sore pained, "within them. Let us see what are the causes or reasons of this "fear of death." The first must needs be a consciousness of personal sinfulness. A sense of unfitness to meet God, our unreadiness to die, a multitude of personal faults, evil tempers, thoughts, and inclinations; the recollection of innumerable sins, of great omissions and lukewarmness in all religious duties, the little love or gratitude we have to God, and the great imperfections of our repentance; all these make us tremble at the thought of going to give up our account. We feel as if it were impossible we could be saved. Shame, fear, and a "horrible dread" fall upon us. *Henry Edward Manning, M. A.,* 1850.
 
 **Verse 5.** *Fearfulness and trembling are come upon me.* In this pitiful condition of mind, learn, that it is not a thing inconsistent with godliness to be much moved with fear in time of danger; natural affections are not taken away in conversion, but sanctified and moderated. *David Dickson.* 
 
@@ -186,15 +186,15 @@ Consider the arguments calculated to remove the fear of death. It may be necessa
 
 It will then be no news unto you, that here the faithful soul, the spouse, the dove of Christ, when trouble and heaviness take hold upon her, and the floods of Belial compass her about, *Tanquam avis e cave liberari cupit* as St. Austin speaks of the cloistered monks in his time), "Desireth like a bird to be loosed out of her cage." Or, that as Jonas (by interpretation *a dove,* after three days' and three nights' imprisonment in the whale's belly, could not but long after his enlargement. So the dove like soul of man, when not three, but many days, and months, and years, she hath been imprisoned in the body, hath a longing desire to be enlarged, and to fly unto God that made her; and so *mourning* like a dove in devout *supplication,* and *mounting* like a dove in divine *speculation,* breaks forth into these sad elegies: "Oh that I had wings!" and "Alas, that I have not wings! Woe is me that I am constrained to dwell with Mesech, and to have mine habitation among the tents of Kedar. Like as the hart desires the water brook, so longeth my soul to be with thee, O God. I desire to be dissolved and to be with Christ. Who will give me wings?" etc. Which is as if the poor distressed soul, pathetically bemoaning her forlorn estate of pilgrimage, should thus more plentifully enlarge herself. "My spouse is already ascended higher than the winds, than the clouds, than the highest heavens, and I, poor soul, as a husbandless widow, as a tutorless orphan, as a comfortless exile, am left desolate and disconsolate in this valley of tears; none to care for me, none to comfort me, till I have regained him whom I love, and in whom I live. Nay (which worse is), this mine own familiar friend, this nearest and dearest companion of mine, *my body,* is even a burden unto me. The weight of it, and oft the sins that hang so fast on it, doth so clog and shackle me, so glue and nail me to the earth, that I cannot raise or rear up myself towards heaven. Or let him therefore descend to relieve me, being *fila, sponsa, soror,* his daughter, and spouse, and sister; or let him give me wings wherewith I may ascend to him, under the shadow of whose wings I shall surely rest in safety." Ps 16:4. "I must confess it was the very bitterness of extremity that first compelled me to love him, though of himself no less lovely than love itself. It was the sharp sauce of affliction that gave edge to mine affections, and sharpened mine appetite to that `sweet meat that endureth to everlasting life.' But now, having had some little foretaste of him, I am even in an holy ecstasy, so ravished, so transported with a fervent desire of him and of his presence, that *ubi sum, ibi non sum; ubi non sum, ibi animus est:"* "where I am, there I am not; and where I am not, there am I." For, *anima est ubi amat, non ubi animat:* (Erasmus). "The soul is where it loveth, not where it liveth." Now sigh I not so much for the present dangers, I would decline, as because of my absent love, whom I most desire. *Who will give me wings?* etc. In the scanning of which verse, ye will observe with me,
 
-1\.The *efficient* or *author* of these wings—God. *Who will give me?* Who? that it, who but God?
+1\. The *efficient* or *author* of these wings—God. *Who will give me?* Who? that it, who but God?
 
-2\.The *matter* of the wish— *wings.* "Who will give me wings?"
+2\. The *matter* of the wish— *wings.* "Who will give me wings?"
 
-3\.The *form* of those wings— *dove like.* Who will give me wings like unto a dove?
+3\. The *form* of those wings— *dove like.* Who will give me wings like unto a dove?
 
-4\.The *end mediate—flying. Then would I* fly away.
+4\. The *end mediate—flying. Then would I* fly away.
 
-5\.The *end ultimate—resting. And be at* rest.
+5\. The *end ultimate—resting. And be at* rest.
 
 (a) "Who will give me?" There's *Christian humility.* 
 
@@ -358,23 +358,23 @@ His purpose obtained, a fig for his man.
 
  *—L. Wright,* 1616.
 
-**Verse 21.** *The words of his mouth were smoother than butter, but war was in his heart: his words were softer than oil, yet were they drawn swords.* Well, when I came to the justice again, there was Mr. Foster, of Bedford, who coming out of another room, and seeing me by the light of the candle, for it was dark night when I came thither, he said unto me, "Who is there? John Bunyan?" with much seeming affection, as if he would have leaped in my neck and kissed me, (A right Judas.), which made me somewhat wonder that such a man as he, with whom I had so little acquaintance, and, besides, that had ever been a close opposer of the ways of God, should carry himself so full of love to me, but afterwards when I saw what he did, it caused me to remember those sayings, *Their tongues were softer than oil, yet were they drawn swords,* and again, "Beware of men, "etc. When I had answered him that, blessed be God, I was well, he said, "What is the occasion of your being here?" or to that purpose. To whom I answered that I was at a meeting of people a little way off, intending to speak a word of exhortation to them; but the justice hearing thereof (said I) was pleased to send his warrant to fetch me before him, etc.—John Bunyan. In relation to J.B.'s imprisonment: written by *himself. Offor's edit., Vol. 1. p. 52.* 
+**Verse 21.** *The words of his mouth were smoother than butter, but war was in his heart: his words were softer than oil, yet were they drawn swords.* Well, when I came to the justice again, there was Mr. Foster, of Bedford, who coming out of another room, and seeing me by the light of the candle, for it was dark night when I came thither, he said unto me, "Who is there? John Bunyan?" with much seeming affection, as if he would have leaped in my neck and kissed me, (A right Judas.), which made me somewhat wonder that such a man as he, with whom I had so little acquaintance, and, besides, that had ever been a close opposer of the ways of God, should carry himself so full of love to me, but afterwards when I saw what he did, it caused me to remember those sayings, *Their tongues were softer than oil, yet were they drawn swords,* and again, "Beware of men, "etc. When I had answered him that, blessed be God, I was well, he said, "What is the occasion of your being here?" or to that purpose. To whom I answered that I was at a meeting of people a little way off, intending to speak a word of exhortation to them; but the justice hearing thereof (said I) was pleased to send his warrant to fetch me before him, etc.—John Bunyan. In relation to J. B.'s imprisonment: written by *himself. Offor's edit., Vol. 1. p. 52.* 
 
 **Verse 21.** (*first clause* ).—
 
 Smooth are his words, his voice as honey sweet,
 
-Yet war was in his heart, and dark deceit. *Moschus (B.C. 250.)* 
+Yet war was in his heart, and dark deceit. *Moschus (B. C. 250.)* 
 
 **Verse 22.** *Cast thy burden upon the Lord,* etc. The remedy which the Psalm suggests, and, perhaps, the only resource in a difficulty of the kind, where the enemies of true religion are fighting under the semblance of friendship, is announced in an oracular voice from God: "Cast thy care upon Jehovah, for he will sustain thee; he will not suffer the just one to be tossed about for ever." *R. H. Ryland.* 
 
 **Verse 22.** *Cast thy burden upon the Lord,* etc. The best way to ease thyself is to lay thy load upon God; he will take it up and also carry thee. There is many a man would be willing to go of himself if another would but carry his burden for him; but if you throw your burden upon God he will not only carry that, but will also carry you. He cares not how much weight a Christian layeth on his back; a true Israelite may ease himself, and best please his God at once. God delights not to see tears in thine eyes, or paleness in thy countenance; thy groans and sighs make no music in his ears. He had rather that thou wouldst free thyself of thy burden by casting it upon him, that he might rejoice in thy joy and comfort. Now, true confidence in God, and resting upon God, will both free thee of thy burden and also bring in the strength of God to sustain and bear thee up from falling. Wouldst thou, therefore, own God as thy strength, and fetch strength from God to thy soul? rest upon God, roll thyself upon him, and that
 
-1\.In time of greatest weakness.
+1\. In time of greatest weakness.
 
-2\.In time of greatest service.
+2\. In time of greatest service.
 
-3\.In times of greatest trials.
+3\. In times of greatest trials.
 
  *—Samuel Blackerby,* 1674.
 
@@ -394,13 +394,13 @@ And I see the good ship riding, all in a perilous road; The low reef booming on 
 
 **Verse 1.** (*second clause* ).
 
-1\.An evil to be dreaded: *Hide not thyself,* etc.
+1\. An evil to be dreaded: *Hide not thyself,* etc.
 
 (a) By long delay in an urgent case.
 
 (b) In the sinner's case by refusing to hear altogether.
 
-2\.Causes which may produce it.
+2\. Causes which may produce it.
 
 (a) In the man.
 
@@ -408,57 +408,57 @@ And I see the good ship riding, all in a perilous road; The low reef booming on 
 
 (c) In the manner of the prayer.
 
-3\.Evils which will follow a list which the preacher can readily think of.
+3\. Evils which will follow a list which the preacher can readily think of.
 
-4\.Remedies for the evil. There is none of it should continue; but heart searching, repentance, importunity, pleading the name of Jesus, etc., will lead to its removal.
+4\. Remedies for the evil. There is none of it should continue; but heart searching, repentance, importunity, pleading the name of Jesus, etc., will lead to its removal.
 
 **Verse 2.** The Great Hearer.
 
-1\.What address shall we present to him?
+1\. What address shall we present to him?
 
-2\.What sort of attention do we desire?
+2\. What sort of attention do we desire?
 
-3\.How shall we secure it?
+3\. How shall we secure it?
 
-4\.What is the reflex duty on our part? To attend and hear him.
+4\. What is the reflex duty on our part? To attend and hear him.
 
 **Verse 2.** (*second clause* ). Allowable complaining.
 
-1\.Not *of* God but *to* God.
+1\. Not *of* God but *to* God.
 
-2\.Mainly of ourselves.
+2\. Mainly of ourselves.
 
-3\.Of the world as against God and right.
+3\. Of the world as against God and right.
 
-4\.Ever with holy grief, and not selfish vexation.
+4\. Ever with holy grief, and not selfish vexation.
 
 **Verse 4.** The terrors of death. See Sermon by *Grove* in the Notes.
 
 **Verse 7.** Solitude.
 
-1\.Its fancied benefits.
+1\. Its fancied benefits.
 
-2\.Its sore temptations.
+2\. Its sore temptations.
 
-3\.Its occasional benefits.
+3\. Its occasional benefits.
 
-4\.Its sweet solaces.
+4\. Its sweet solaces.
 
 **Verse 8.** Too hasty a flight from trial.
 
-1\.Would show rebellion against God.
+1\. Would show rebellion against God.
 
-2\.Would manifest cowardly want of faith.
+2\. Would manifest cowardly want of faith.
 
-3\.Would involve loss of useful experience.
+3\. Would involve loss of useful experience.
 
-4\.Would land us in other and worse trials.
+4\. Would land us in other and worse trials.
 
-5\.Would prevent our glorifying God.
+5\. Would prevent our glorifying God.
 
-6\.Would mar our conformity to Christ and fellowship with his people.
+6\. Would mar our conformity to Christ and fellowship with his people.
 
-7\.Would lessen the value of heaven.
+7\. Would lessen the value of heaven.
 
 **Verse 9.** (*first clause* ). The Babel of heresies. *Essential,* for truth is one. *Inevitable,* for the motives of heretics clash. *Providential,* for so they weaken each other. *Judicial,* for so they torment each other.
 
@@ -468,33 +468,33 @@ And I see the good ship riding, all in a perilous road; The low reef booming on 
 
 **Verse 14.** The social companionships which grow out of religion.
 
-1\.They are on a good foundation.
+1\. They are on a good foundation.
 
-2\.They yield profit— *counsel.* 
+2\. They yield profit— *counsel.* 
 
-3\.They yield pleasure— *sweet.* 
+3\. They yield pleasure— *sweet.* 
 
-4\.They lead to enthusiasm— *walked in company.* 
+4\. They lead to enthusiasm— *walked in company.* 
 
-5\.They ought to be sacredly maintained.
+5\. They ought to be sacredly maintained.
 
-6\.But they need to be carefully watched.
+6\. But they need to be carefully watched.
 
 **Verse 16.** The contrast.
 
-1\.A child of God will not wrong others as they do him.
+1\. A child of God will not wrong others as they do him.
 
-2\.He will call upon God as they do not.
+2\. He will call upon God as they do not.
 
-3\.God will hear him as he does not the wicked.
+3\. God will hear him as he does not the wicked.
 
-4\.God will deal with him at last otherwise than with them.
+4\. God will deal with him at last otherwise than with them.
 
 **Verse 17.** 
 
-1\.David will pray fervently; *I will pray and cry aloud.* 
+1\. David will pray fervently; *I will pray and cry aloud.* 
 
-2\.He will pray frequently; every day, and three times a day, evening, and morning, and at noon. *Matthew Henry.* 
+2\. He will pray frequently; every day, and three times a day, evening, and morning, and at noon. *Matthew Henry.* 
 
 **Verse 18.** Our battles, our almost rout, our helper, our deliverances, our praise.
 
@@ -502,57 +502,57 @@ And I see the good ship riding, all in a perilous road; The low reef booming on 
 
 **Verse 19.** (*second part* ). Prosperity creating atheism. This involves—
 
-1\.Ingratitude—they ought to be the more devout.
+1\. Ingratitude—they ought to be the more devout.
 
-2\.Impudence—they think themselves as God.
+2\. Impudence—they think themselves as God.
 
-3\.Forgetfulness—they forget that changes will come.
+3\. Forgetfulness—they forget that changes will come.
 
-4\.Ignorance—they know not that unbroken prosperity is often for awhile the portion of the accursed.
+4\. Ignorance—they know not that unbroken prosperity is often for awhile the portion of the accursed.
 
-5\.Insanity—for there is no reason in their conduct.
+5\. Insanity—for there is no reason in their conduct.
 
-6\.Rottenness—preparing them to be cast away for ever.
+6\. Rottenness—preparing them to be cast away for ever.
 
 **Verse 21.** The hypocrite's mouth.
 
-1\.It has many words.
+1\. It has many words.
 
-2\.They are only from his mouth.
+2\. They are only from his mouth.
 
-3\.They are very smooth.
+3\. They are very smooth.
 
-4\.They conceal rather than reveal his purpose.
+4\. They conceal rather than reveal his purpose.
 
-5\.They are cutting and killing.
+5\. They are cutting and killing.
 
-6\.They will kill himself.
+6\. They will kill himself.
 
 **Verse 22.** (*first clause* ). Here we see the believer has—
 
-1\.A *burden* to try him.
+1\. A *burden* to try him.
 
-2\.A *duty* to engage him, "Cast thy burden, "etc.
+2\. A *duty* to engage him, "Cast thy burden, "etc.
 
-3\.A *promise* to encourage him, "He shall sustain, "etc. *Ebenezer Temple,* 1850.
+3\. A *promise* to encourage him, "He shall sustain, "etc. *Ebenezer Temple,* 1850.
 
 **Verse 22.** (*last clause* ). Who are the righteous? What is meant by their being moved? Whose permission is needful to accomplish it? Will he give it? "Never." Why not?
 
 **Verse 23.** (*last clause* ). The grand "I WILL." Sum up the Psalm.—
 
-1\.When I pray, Ps 55:1-3.
+1\. When I pray, Ps 55:1-3.
 
-2\.When I faint, Ps 55:4-7.
+2\. When I faint, Ps 55:4-7.
 
-3\.When I am sore beset, Ps 55:9-11.
+3\. When I am sore beset, Ps 55:9-11.
 
-4\.When I am betrayed, Ps 55:12-14,20-21.
+4\. When I am betrayed, Ps 55:12-14,20-21.
 
-5\.When others perish, Ps 55:15.
+5\. When others perish, Ps 55:15.
 
-6\.After I am delivered, Ps 55:18.
+6\. After I am delivered, Ps 55:18.
 
-7\.In every condition, Ps 55:22.
+7\. In every condition, Ps 55:22.
 
 ## Works Upon The Fifty-Fifth Psalm
 

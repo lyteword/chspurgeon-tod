@@ -56,9 +56,9 @@ There is enough in our holy faith to create and to justify the utmost degree of 
 
 **Verse 1.** *Praise ye the Lord.* Praise God with a strong faith; praise him with holy love and delight; praise him with an entire confidence in Christ; praise him with a believing triumph over the powers of darkness; praise him with an earnest desire towards him, and a full satisfaction in him; praise him by a universal respect to all his commands; praise him by a cheerful submission to all his disposals; praise him by rejoicing in his love, and solacing yourselves in his great goodness; praise him by promoting the interests of the kingdom of his grace; praise him by a lively hope and expectation of the kingdom of his glory.— *Matthew Henry.* 
 
-**Verse 1.** *In his sanctuary.* wvdqb.Many have been the notions of the commentators as to the shade of meaning here; for the word differs from the form in Ps 20:2vdwqm( *from the sanctuary* ). The Vulgate adopts the plural rendering, *in sanctis ejus,* "in his holy places." Campensis renders it, *ob insignem sanctitatem ipsius,* "because of his excellent holiness." Some see under the word an allusion to the holy tabernacle of Deity, the flesh of Christ. Luther, in his German version, translates thus: *in seinem Heiligthum,* "in his holiness." The same harmony of comparative thought appears in the two clauses of this verse as in such passages as 1Ki 8:13,49 Isa 62:15. The place of worship where God specially hears prayer and accepts praise, and the firmament where angels fly at his command, and veil their faces in adoration, are each a sanctuary. The sanctuary is manifestly here looked at as the temple of grace, the firmament as the temple of power. So the verse proclaims both grace and glory.— *Martin Geier.* 
+**Verse 1.** *In his sanctuary.* wvdqb. Many have been the notions of the commentators as to the shade of meaning here; for the word differs from the form in Ps 20:2vdwqm( *from the sanctuary* ). The Vulgate adopts the plural rendering, *in sanctis ejus,* "in his holy places." Campensis renders it, *ob insignem sanctitatem ipsius,* "because of his excellent holiness." Some see under the word an allusion to the holy tabernacle of Deity, the flesh of Christ. Luther, in his German version, translates thus: *in seinem Heiligthum,* "in his holiness." The same harmony of comparative thought appears in the two clauses of this verse as in such passages as 1Ki 8:13,49 Isa 62:15. The place of worship where God specially hears prayer and accepts praise, and the firmament where angels fly at his command, and veil their faces in adoration, are each a sanctuary. The sanctuary is manifestly here looked at as the temple of grace, the firmament as the temple of power. So the verse proclaims both grace and glory.— *Martin Geier.* 
 
-**Verse 1.** *Praise God in his sanctuary.* The Septuagint, Vulgate Latin, and the eastern versions, render it, "in his holy ones"; among his saints, in the assembly of them, where he is to be feared and praised: it may be translated, "in his Holy One", and be understood of Christ, as it is by Cocceius...Some render it, *"for"* or *"because of his holiness."* The perfection of holiness in him; in which he is glorious and fearful in the praises of, and which appears in all his works of providence and grace.— *John Gill.* 
+**Verse 1.** *Praise God in his sanctuary.* The Septuagint, Vulgate Latin, and the eastern versions, render it, "in his holy ones"; among his saints, in the assembly of them, where he is to be feared and praised: it may be translated, "in his Holy One", and be understood of Christ, as it is by Cocceius... Some render it, *"for"* or *"because of his holiness."* The perfection of holiness in him; in which he is glorious and fearful in the praises of, and which appears in all his works of providence and grace.— *John Gill.* 
 
 **Verse 1.** *Praise God.* In many places we have the compound word,xy-wllx, *halelujah,* praise ye Jehovah; but this is the first place in which we findla-wllh, *halelu-el,* praise God, or the strong God. Praise him who is Jehovah, the infinite and self existent Being; and praise him who is God, *El,* or *Elohim,* the great God in covenant with mankind, to bless and save them unto eternal life.— *Adam Clarke.* 
 
@@ -72,7 +72,7 @@ There is enough in our holy faith to create and to justify the utmost degree of 
 
 **Verse 3.** *Trumpets* and *horns* are the only instruments concerning which any directions are given in the law.— *James Anderson.* 
 
-**Verse 3.** *Trumpet.* Of natural horns and of instruments in the shape of horns the antiquity and general use are evinced by every extensive collection of antiquities...The Hebrew word *shophar,* rendered "trumpet", seems, first to denote horns of the straighter kind, including, probably, those of neat cattle, and all the instruments which were eventually made in imitation of and in improvement upon such horns. The name *shophar* means *bright* or *clear,* and the instrument may be conceived to have been so called from its clear and shrill sound, just as we call an instrument a "clarion", and speak of a musical tone as "brilliant" or" clear." In the service of God this *shophar,* or *trumpet,* was only employed in making announcements, and for calling the people together in the time of the holy solemnities, of war, of rebellion, or of any other great occasion. The strong sound of the instrument would have confounded a choir of singers, rather than have elevated their music. (*John Kitto.*) The *shophar* is especially interesting to us as being the only Hebrew instrument whose use on certain solemn occasions seems to be retained to this day. Engel, with his usual trustworthy research, has traced out and examined some of those in modern synagogues. Of those shown in our engraving, one is from the synagogue of Spanish and Portuguese Jews, Bevis Marks, and is, he says, one foot in length; the other is one used in the Great Synagogue, St. James's place, Aldgate, twenty-one inches in length. Both are made of horn.— *James Stainer.* 
+**Verse 3.** *Trumpet.* Of natural horns and of instruments in the shape of horns the antiquity and general use are evinced by every extensive collection of antiquities... The Hebrew word *shophar,* rendered "trumpet", seems, first to denote horns of the straighter kind, including, probably, those of neat cattle, and all the instruments which were eventually made in imitation of and in improvement upon such horns. The name *shophar* means *bright* or *clear,* and the instrument may be conceived to have been so called from its clear and shrill sound, just as we call an instrument a "clarion", and speak of a musical tone as "brilliant" or" clear." In the service of God this *shophar,* or *trumpet,* was only employed in making announcements, and for calling the people together in the time of the holy solemnities, of war, of rebellion, or of any other great occasion. The strong sound of the instrument would have confounded a choir of singers, rather than have elevated their music. (*John Kitto.*) The *shophar* is especially interesting to us as being the only Hebrew instrument whose use on certain solemn occasions seems to be retained to this day. Engel, with his usual trustworthy research, has traced out and examined some of those in modern synagogues. Of those shown in our engraving, one is from the synagogue of Spanish and Portuguese Jews, Bevis Marks, and is, he says, one foot in length; the other is one used in the Great Synagogue, St. James's place, Aldgate, twenty-one inches in length. Both are made of horn.— *James Stainer.* 
 
 **Verse 3.** The *"psaltery"* was a ten stringed instrument. It is constantly mentioned with the *"harp."* The *psaltery* was struck with a plectrum, the *harp* more gently with the fingers. *Psaltery and harp* speak to us in figure of "law and gospel."— *Thomas Le Blanc.* 
 
@@ -86,13 +86,13 @@ There is enough in our holy faith to create and to justify the utmost degree of 
 
 **Verse 4.** *Stringed instruments. Minnim* (which is derived from a root signifying "division", or" distribution", hence *strings*) occurs in Ps 45:8, and Ps 150:4, and is supposed by some to denote a stringed instrument, but it seems merely a poetical allusion to the *strings* of any instrument. Thus, in Ps 45:8, we would read, "Out of the ivory palaces *the strings (i.e.* concerts of music) have made thee glad"; and so in Ps 150:4, "Praise him with *strings* (stringed instruments), and *ugabs."* — *John Kitto.* 
 
-**Verse 4.** *Organs.* bgwe, *'ugab* is the word rendered *"organ"* in our version. The Targum renders the word simply byabwba, *a pipe;* the Septuagint varies, it haskiyarain Genesis,qalmovin Job, andorganon,in the Psalms. The last is the sense which the Arabic, Syriac, Latin, English, and most other versions have adopted. The *organon* simply denotes a double or manifold pipe; and hence, in particular, the Pandaean or shepherd's pipe, which is at this day called a "mouth organ", among ourselves. (*Kitto.*) A collection of tubes of different sizes, stopped at one end and blown at the other, forms the musical instrument known as Pan's pipes, in the Greek *syrinx,* surunx...Was the *'ugab* a *syrinx* or an organ? As the former seems to have been the more ancient of the two, and as *'ugab* is included in the very first allusion to musical instruments in the Bible, it would seem reasonable to say at once that it was a *syrinx,* especially as this instrument was, and is to this day, commonly met with in various parts of Asia. Yet it would, indeed, be strange if such an instrument were selected for use in divine worship; and that the *ugab* was so used is proved beyond a doubt by its mention in Ps 150:1-6: "Praise him with the *minnim* and *ugab."* Its mention here in antithesis to a collective name for stringed instruments, surely points to the fact of its being a more important instrument than a few river reeds fixed together with wax. Let us not forget that we have but one and the same name for the single row of about fifty pipes, placed, perhaps, in a little room, and the mighty instrument of five thousand pipes, occupying as much space as an ordinary dwelling house. Each is an organ. May it not have been the case that the *'ugab,* which in Ge 4:21 is mentioned as the simply constructed *wind* instrument, in contrast to the simple *stringed* instrument, the *kinnor,* was a greatly inferior instrument to that which in Ps 150:1-6 is thought worthy of mention by the side of a term for the whole string power?— *J. Stainer.* 
+**Verse 4.** *Organs.* bgwe, *'ugab* is the word rendered *"organ"* in our version. The Targum renders the word simply byabwba, *a pipe;* the Septuagint varies, it haskiyarain Genesis,qalmovin Job, andorganon,in the Psalms. The last is the sense which the Arabic, Syriac, Latin, English, and most other versions have adopted. The *organon* simply denotes a double or manifold pipe; and hence, in particular, the Pandaean or shepherd's pipe, which is at this day called a "mouth organ", among ourselves. (*Kitto.*) A collection of tubes of different sizes, stopped at one end and blown at the other, forms the musical instrument known as Pan's pipes, in the Greek *syrinx,* surunx... Was the *'ugab* a *syrinx* or an organ? As the former seems to have been the more ancient of the two, and as *'ugab* is included in the very first allusion to musical instruments in the Bible, it would seem reasonable to say at once that it was a *syrinx,* especially as this instrument was, and is to this day, commonly met with in various parts of Asia. Yet it would, indeed, be strange if such an instrument were selected for use in divine worship; and that the *ugab* was so used is proved beyond a doubt by its mention in Ps 150:1-6: "Praise him with the *minnim* and *ugab."* Its mention here in antithesis to a collective name for stringed instruments, surely points to the fact of its being a more important instrument than a few river reeds fixed together with wax. Let us not forget that we have but one and the same name for the single row of about fifty pipes, placed, perhaps, in a little room, and the mighty instrument of five thousand pipes, occupying as much space as an ordinary dwelling house. Each is an organ. May it not have been the case that the *'ugab,* which in Ge 4:21 is mentioned as the simply constructed *wind* instrument, in contrast to the simple *stringed* instrument, the *kinnor,* was a greatly inferior instrument to that which in Ps 150:1-6 is thought worthy of mention by the side of a term for the whole string power?— *J. Stainer.* 
 
 **Verse 5.** *Loud cymbals...high sounding cymbals.* This important passage clearly points to two instruments under the same name, and leaves us to conclude that the Hebrews had both hand cymbals and finger cymbals (or castanets), although it may not in all cases be easy to say which of the two is intended in particular texts.— *John Kitto.* 
 
 **Verse 5.** (Prayer Book Version). *Praise him upon the well tuned cymbals: praise him upon the loud cymbals.* As I have heard these words read monthly in our churches, it has often come into my thoughts that when we intend to glorify God with our cymbals, it should not be our only care to have them loud enough, but our first care should be to have them well tuned, else the louder the worse. Zeal does very well—there is great, yea, necessary use for it in every part of God's service. The cymbal will be flat, it will have no life or spirit in it, it will not be loud enough without it. But if meekness, peaceableness, and moderation do not first put the cymbal into good tune, the loudness will but make it the more ungrateful in the player, the more ungrateful to the hearer.— *Robert Sanderson,* 1587-1662
 
-**Verse 6.** *Praise ye the Lord.* As the life of the faithful, and the history of the church, so also the Psalter, with all its cries from the depths, runs out into a Hallelujah.— *E.W. Hengstenberg.* 
+**Verse 6.** *Praise ye the Lord.* As the life of the faithful, and the history of the church, so also the Psalter, with all its cries from the depths, runs out into a Hallelujah.— *E. W. Hengstenberg.* 
 
 **Verse 6.** *Praise ye the LORD.* When we have said all we are able to say for God's praise, we are but to begin anew; for this are we taught by the renewing of the exhortation, in the close of sundry Psalms, and here also at the end of all the Psalms: *"Praise ye the LORD."* — *David Dickson.* 
 
@@ -102,65 +102,65 @@ There is enough in our holy faith to create and to justify the utmost degree of 
 
 **Verse 1.** *Praise God in his sanctuary.* 
 
-1\.In his personal holiness.
+1\. In his personal holiness.
 
-2\.In the person of his Son.
+2\. In the person of his Son.
 
-3\.In heaven.
+3\. In heaven.
 
-4\.In the assembly of saints.
+4\. In the assembly of saints.
 
-5\.In the silence of the heart.
+5\. In the silence of the heart.
 
-**Verses 1-6.** God should be praised. Where? (Ps 150:1). Wherefore? (Ps 150:2). Wherewith? (Ps 150:3-5). By whom? (Ps 150:6).— *C.A.D.* 
+**Verses 1-6.** God should be praised. Where? (Ps 150:1). Wherefore? (Ps 150:2). Wherewith? (Ps 150:3-5). By whom? (Ps 150:6).— *C. A. D.* 
 
 **Verse 2.** *His excellent greatness.* Wherein the greatness of God is specially excellent, and where it is best seen.
 
 **Verse 2.** *Praise him for his mighty acts.* 
 
-1\.For us. Election. Redemption. Inspiration.
+1\. For us. Election. Redemption. Inspiration.
 
-2\.In us. The work of enlightenment in the understanding; purification in the heart; quickening in the conscience; subjugation in the will.
+2\. In us. The work of enlightenment in the understanding; purification in the heart; quickening in the conscience; subjugation in the will.
 
-3\.By us. Thought through us; felt through us; spoke through us; worked through us. To him be all the glory!— *W.J.* 
+3\. By us. Thought through us; felt through us; spoke through us; worked through us. To him be all the glory!— *W. J.* 
 
 **Verse 2.** *Praise him according to his excellent greatness.* 
 
-1\.Reverently, according to the greatness of his being.
+1\. Reverently, according to the greatness of his being.
 
-2\.Gratefully, according to the greatness of his love.
+2\. Gratefully, according to the greatness of his love.
 
-3\.Retrospectively, according to the greatness of his gifts.
+3\. Retrospectively, according to the greatness of his gifts.
 
-4\.Prospectively, according to the greatness of his promises.— *W.J.* 
+4\. Prospectively, according to the greatness of his promises.— *W. J.* 
 
 **Verse 2.** What the exhortation requires.
 
-1\.That men should study God's works, and observe the glory of God in them.
+1\. That men should study God's works, and observe the glory of God in them.
 
-2\.That they should meditate on his greatness till they realize its excellence.
+2\. That they should meditate on his greatness till they realize its excellence.
 
-3\.That they should openly proclaim the honour due to him.
+3\. That they should openly proclaim the honour due to him.
 
-4\.That they should not contradict in their life the praise they speak.— *J.F.* 
+4\. That they should not contradict in their life the praise they speak.— *J. F.* 
 
 **Verse 3.** *Praise him with the sound of the trumpet.* 
 
-1\.When you fight.
+1\. When you fight.
 
-2\.When you conquer.
+2\. When you conquer.
 
-3\.When you assemble.
+3\. When you assemble.
 
-4\.When you proclaim his Word.
+4\. When you proclaim his Word.
 
-5\.When you welcome Jubilee.
+5\. When you welcome Jubilee.
 
 **Verses 3-6.** 
 
-1\.The variety of the ancient service of worship necessitating serious expenditure; consecration of high talent; hard and constant toil.
+1\. The variety of the ancient service of worship necessitating serious expenditure; consecration of high talent; hard and constant toil.
 
-2\.The lessons of such service.
+2\. The lessons of such service.
 
 a) God should be worshipped royally.
 
@@ -168,25 +168,25 @@ b) The efforts of the best genius are his rightful tribute.
 
 c) All human ability cannot place a worthy offering at his feet.
 
-3\.The soul and essential of true worship.
+3\. The soul and essential of true worship.
 
-4\.God's requirements as to worship in these present times.— *W.B.H.* 
+4\. God's requirements as to worship in these present times.— *W. B. H.* 
 
 **Verse 6.** 
 
-1\.The august Giver of "life, and breath, and all things."
+1\. The august Giver of "life, and breath, and all things."
 
-2\.The due and true use of the gifts of life.
+2\. The due and true use of the gifts of life.
 
-3\.The resultant swathing of earth in consecrated atmosphere, and millennial hallelujahs.— *W.B.H.* 
+3\. The resultant swathing of earth in consecrated atmosphere, and millennial hallelujahs.— *W. B. H.* 
 
 **Verse 6.** A fitting close to the psalter, considered as a desire, a prayer, or an exhortation.
 
-1\.As a desire, it realizes the glory due to God, the worship ennobling to man, the disposition of heart which would make all the world into a holy brotherhood.
+1\. As a desire, it realizes the glory due to God, the worship ennobling to man, the disposition of heart which would make all the world into a holy brotherhood.
 
-2\.As a prayer, it seeks the downfall of every superstition, the universal spread of the truth, the conversion of every soul.
+2\. As a prayer, it seeks the downfall of every superstition, the universal spread of the truth, the conversion of every soul.
 
-3\.As an exhortation, it is plain, pertinent, pure in its piety, perfect in its charity.— *J.F.* 
+3\. As an exhortation, it is plain, pertinent, pure in its piety, perfect in its charity.— *J. F.* 
 
  *HALLELUJAH!* 
 

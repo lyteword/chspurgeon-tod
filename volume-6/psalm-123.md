@@ -66,7 +66,7 @@ Still, it is helpful to the heart to use the tongue, and we do well to address o
 
 **Verse 2.** *As the eyes of servants look unto the hand of their masters,* etc. A traveller says, "I have seen a fine illustration of this passage in a gentleman's house at Damascus. The people of the East do not speak so much or so quick as those in the West, and a sign of the hand is frequently the only instructions given to the servants in waiting. As soon as we were introduced and seated on the divan, a wave of the master's hand indicated that sherbet was to be served. Another wave brought coffee and pipes; another brought sweetmeats. At another signal dinner was made ready. The attendants watched their master's eye and hand, to know his will and do it instantly." Such is the attention with which we ought to wait upon the Lord, anxious to fulfil his holy pleasure,—our great desire being, "Lord, what wilt thou have me to do?" An equally pointed and more homely illustration may be seen any day, on our own river Thames, or in any of our large seaport towns, where the call boy watches attentively the hand of the captain of the boat, and conveys his will to the engine men.— *The Sunday at Home.* 
 
-**Verse 2.** *As the eyes of slaves,* watching anxiously the least movement, the Smallest sign of their master's will. The image expresses complete and absolute dependence. Savary (in his Zetters on Egypt, p. 135), says, "The slaves stand silent at the bottom of the rooms with their hands crossed over their breasts. With their eyes fixed upon their master they seek to anticipate every one of his wishes."...In the Psalm the eye directed to the hand of God is the "oculus sperans", the eye which waits, and hopes, and is patient, looking only to him and none other for help.— *J.J. Stewart Perowne.* 
+**Verse 2.** *As the eyes of slaves,* watching anxiously the least movement, the Smallest sign of their master's will. The image expresses complete and absolute dependence. Savary (in his Zetters on Egypt, p. 135), says, "The slaves stand silent at the bottom of the rooms with their hands crossed over their breasts. With their eyes fixed upon their master they seek to anticipate every one of his wishes."... In the Psalm the eye directed to the hand of God is the "oculus sperans", the eye which waits, and hopes, and is patient, looking only to him and none other for help.— *J. J. Stewart Perowne.* 
 
 **Verse 2.** *As the eyes of servants,* etc. The true explanation, I should apprehend, is this: As a slave, ordered by a master or mistress to be chastised for a fault, turns his or her imploring eyes to that superior, till that motion of the hand appears that puts an end to the bitterness that is felt; so our eyes are up to thee, our God, till thy hand shall give the signal for putting an end to our sorrows: for our enemies, O Lord, we are sensible, are only executing thy orders, and chastening us according to thy pleasure.— *Thomas Harmer.* 
 
@@ -94,7 +94,7 @@ Observe the covenant name, "Jehovah our God": it is sweet to wait upon a covenan
 
 **Verses 3,4.** The second strophe takes up the "have mercy upon us, " as it were in echo. It begins with a "Kyrie eleison", which is confirmed in a crescendo manner after the form of steps.— *Franz Delitszch.* 
 
-**Verse 4.** *Exceedingly filled,* or perhaps, "has long been filled." (Comp. Ps 120:6). This expression, together with the earnestness of the repeated prayer, "Be gracious unto us", shows that the "scorn" and "contempt" have long pressed upon the people, and their faith has accordingly been exposed to a severe trial. The more remarkable is the entire absence of anything like impatience in the language of the psalm.— *J.J. Stewart Perowne.* 
+**Verse 4.** *Exceedingly filled,* or perhaps, "has long been filled." (Comp. Ps 120:6). This expression, together with the earnestness of the repeated prayer, "Be gracious unto us", shows that the "scorn" and "contempt" have long pressed upon the people, and their faith has accordingly been exposed to a severe trial. The more remarkable is the entire absence of anything like impatience in the language of the psalm.— *J. J. Stewart Perowne.* 
 
 **Verse 4.** *The scorning of those that are at ease.* When men go on prosperously, they are apt wrongfully to trouble others, and then to shout at them in their misery, and to despise the person and cause of God's people. This is the sure effect of great arrogancy and pride. They think they may do what they please; they have no changes, therefore they fear not God, but put forth their hands against such as be at peace with them (Ps 4:19,20); whilst they go on prosperously and undisturbed, they cannot abstain from violence and oppression. This is certainly pride, for it is a lifting up of the heart above God and against God and without God. And they do not consider his providence, which alternately lifts up and eases down, that adversity may not be without a cordial, nor prosperity without a curb and bridle. When men sit fast, and are well at ease, they are apt to be insolent and scornful. Riches and worldly greatness make men insolent and despisers of others, and not to care what burdens they impose upon them; they are entrenched within a mass of wealth and power and greatness, and so think none can call them to an account.— *Thomas Manton.* 
 
@@ -106,19 +106,19 @@ Observe the covenant name, "Jehovah our God": it is sweet to wait upon a covenan
 
 **Whole Psalm.** We have here,
 
-1\.The prayer of dependence, Ps 123:2.
+1\. The prayer of dependence, Ps 123:2.
 
-2\.The prayer of apprehension: "Unto thee", etc.
+2\. The prayer of apprehension: "Unto thee", etc.
 
-3\.The spirit of obedience: "As the eyes of servants:" etc.
+3\. The spirit of obedience: "As the eyes of servants:" etc.
 
-4\.The patience of the saints: "Until he have mercy upon us."
+4\. The patience of the saints: "Until he have mercy upon us."
 
 — *R. Nisbet.* 
 
 **Whole Psalm.** Eyes and no eyes.
 
-1\.EYES.
+1\. EYES.
 
 (a) Upward, in confidence, in prayer, in thought.
 
@@ -126,7 +126,7 @@ Observe the covenant name, "Jehovah our God": it is sweet to wait upon a covenan
 
 (c) Inward, producing a cry for mercy.
 
-2\.No EYES.
+2\. No EYES.
 
 (a) NO sight of the excellence of the godly.
 
@@ -138,49 +138,49 @@ Observe the covenant name, "Jehovah our God": it is sweet to wait upon a covenan
 
 **Verse 1.** The eyes of faith.
 
-1\.Need uplifting.
+1\. Need uplifting.
 
-2\.See best upward.
+2\. See best upward.
 
-3\.Have always something to see upward.
+3\. Have always something to see upward.
 
-4\.Let us look up, and so turn our eyes from too much introspection and retrospection.
+4\. Let us look up, and so turn our eyes from too much introspection and retrospection.
 
 **Verse 1.** 
 
-1\.The language of Adoration: "Thou that dwellest in the heavens."
+1\. The language of Adoration: "Thou that dwellest in the heavens."
 
-2\.The language of Confession.
+2\. The language of Confession.
 
 (a) Of need.
 
 (b) Of Helplessness.
 
-3\.The language of Supplication: "Unto thee, "etc.
+3\. The language of Supplication: "Unto thee, "etc.
 
-4\.The language of Expectation; as shown in Ps 123:2.— *G.R.* 
+4\. The language of Expectation; as shown in Ps 123:2.— *G. R.* 
 
 **Verse 2**. (Ps 121:4 with this verse.) Two beholds.
 
-1\.God's watchful eye over us.
+1\. God's watchful eye over us.
 
-2\.The saint's watchful eye upon God.
+2\. The saint's watchful eye upon God.
 
 **Verse 2.** "Our eyes wait upon the Lord our God."
 
-1\.What it is to wait with the eye.
+1\. What it is to wait with the eye.
 
-2\.What peculiar aspect of the Lord suggests such waiting: "Jehovah our God." The covenant God is the trusted God.
+2\. What peculiar aspect of the Lord suggests such waiting: "Jehovah our God." The covenant God is the trusted God.
 
-3\.What comes of such waiting—"mercy."
+3\. What comes of such waiting—"mercy."
 
 **Verse 2.** The guiding hand.
 
-1\.A beckoning hand—to go near.
+1\. A beckoning hand—to go near.
 
-2\.A directing hand—to go here and there.
+2\. A directing hand—to go here and there.
 
-3\.A quiescent hand—to remain where we are.— *G.R.* 
+3\. A quiescent hand—to remain where we are.— *G. R.* 
 
 **Verse 2.** Homely metaphors, or what may be learned from maids and their mistresses.
 
@@ -190,7 +190,7 @@ Observe the covenant name, "Jehovah our God": it is sweet to wait upon a covenan
 
 **Verses 3, 4.** 
 
-1\.The occasion of the prayer: the contempt of men. This is often the most difficult to bear.
+1\. The occasion of the prayer: the contempt of men. This is often the most difficult to bear.
 
 (a) Because it is most unreasonable. Why ridicule men for yielding to their own convictions of what is right?
 
@@ -198,19 +198,19 @@ Observe the covenant name, "Jehovah our God": it is sweet to wait upon a covenan
 
 (c) Most profane. To reproach the people of God because they are his people is to reproach God himself.
 
-2\.The subject of the prayer.
+2\. The subject of the prayer.
 
 (a) The prayer: is not for justice, which might be desired, but for mercy.
 
-(b) The plea: "For we are, "etc. The reproaches of men are an encouragement to look for special help from God. The harp hung upon the willows sends forth its sweetest tones. The less it is in human hands the more freely it is played upon by the Spirit of God.— *G.R.* 
+(b) The plea: "For we are, "etc. The reproaches of men are an encouragement to look for special help from God. The harp hung upon the willows sends forth its sweetest tones. The less it is in human hands the more freely it is played upon by the Spirit of God.— *G. R.* 
 
 **Verse 4.** *Those that are at ease.* 
 
-1\.Explain their state: "at ease."
+1\. Explain their state: "at ease."
 
-2\.Show their ordinary state of mind: "proud."
+2\. Show their ordinary state of mind: "proud."
 
-3\.Denounce their frequent sin: scorn of the godly.
+3\. Denounce their frequent sin: scorn of the godly.
 
-4\.Exhibit their terrible danger.
+4\. Exhibit their terrible danger.
 

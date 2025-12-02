@@ -26,19 +26,19 @@ As to brethren in spirit, they ought to dwell together in church fellowship, and
 
 ## Explanatory Notes & Quaint Sayings
 
-**Whole Psalm.** This Psalm is an effusion of holy joy occasioned by the sight of the gathering of Israel as one great household at the yearly feasts...There might likewise be an allusion to the previous jealousies and alienations in the family of Israel, which seemed to be exchanged for mutual concord and affection, on David's accession to the, throne of the whole nation.— *Joseph Addison Alexander.* 
+**Whole Psalm.** This Psalm is an effusion of holy joy occasioned by the sight of the gathering of Israel as one great household at the yearly feasts... There might likewise be an allusion to the previous jealousies and alienations in the family of Israel, which seemed to be exchanged for mutual concord and affection, on David's accession to the, throne of the whole nation.— *Joseph Addison Alexander.* 
 
 **Verse 1.** *Behold how good and how pleasant it is,* etc. There are three things wherein it is very pleasant to behold the people of God joining in one.
 
-1\.When they join or are *one in opinion* and judgment, when they all think the same thing, and are of one mind in the truth.
+1\. When they join or are *one in opinion* and judgment, when they all think the same thing, and are of one mind in the truth.
 
-2\.When they join together and are *one in affection*, when they are all of one heart, though possibly they are not all of one mind; or, when they meet in affection, though not in opinion. When David had spoken admiringly of this goodly sight, he spoke declaratively concerning the goodness of it (Ps 133:2): *"It is like the precious ointment upon the head."* 'Tis so, first, for the sweetness of it; 'tis so, secondly, for the diffusiveness of it (as followeth), *"that ran down even the beard, even Aaron's beard: that went down to the skirts of his garments."* 
+2\. When they join together and are *one in affection*, when they are all of one heart, though possibly they are not all of one mind; or, when they meet in affection, though not in opinion. When David had spoken admiringly of this goodly sight, he spoke declaratively concerning the goodness of it (Ps 133:2): *"It is like the precious ointment upon the head."* 'Tis so, first, for the sweetness of it; 'tis so, secondly, for the diffusiveness of it (as followeth), *"that ran down even the beard, even Aaron's beard: that went down to the skirts of his garments."* 
 
-3\.It is a blessed thing to see them joining together in duty, either as duty is considered—First, *in doing that which is good;* or, when, as the apostle's word is (2Co 6:1), they are, among themselves, "workers together" in any good work: we say (to fill up the text), "workers together with God." That's a blessed sight indeed, when we join with God, and God joins with us in his work. It is also a blessed sight when all the ministers of Jesus Christ, and many as members of Jesus Christ, join in any good work, in this especially, to beseech all we have to do with "that they receive not the grace of God in vain." Secondly, *in turning from evil*, and putting iniquity far from them; in praying for the pardon of sin, and making their peace with God. 'Tis a good work to turn away from evil, especially when all who are concerned in it join in it...As to join in sin, and to be brethren in iniquity, is the worst of unions, indeed, a combination against God; so to join as brethren in mourning for sin and repenting of our iniquities is a blessed union, and highly pleasing to God.— *Joseph Caryl.* 
+3\. It is a blessed thing to see them joining together in duty, either as duty is considered—First, *in doing that which is good;* or, when, as the apostle's word is (2Co 6:1), they are, among themselves, "workers together" in any good work: we say (to fill up the text), "workers together with God." That's a blessed sight indeed, when we join with God, and God joins with us in his work. It is also a blessed sight when all the ministers of Jesus Christ, and many as members of Jesus Christ, join in any good work, in this especially, to beseech all we have to do with "that they receive not the grace of God in vain." Secondly, *in turning from evil*, and putting iniquity far from them; in praying for the pardon of sin, and making their peace with God. 'Tis a good work to turn away from evil, especially when all who are concerned in it join in it... As to join in sin, and to be brethren in iniquity, is the worst of unions, indeed, a combination against God; so to join as brethren in mourning for sin and repenting of our iniquities is a blessed union, and highly pleasing to God.— *Joseph Caryl.* 
 
 **Verse 1.** *How good and how pleasant it is*, etc. The terms of this praise and commendation, or the particulars whereof it consists, is taken from a twofold qualification.
 
-1\.Brotherly concord and the improvement of it in all occasional expressions is a very great good. This is, and will appear to be so in sundry considerations.
+1\. Brotherly concord and the improvement of it in all occasional expressions is a very great good. This is, and will appear to be so in sundry considerations.
 
 As, *First*, in regard of the *Author* and *owner* of it, which is *God himself*, who lays special claim hereunto. Therefore in Scripture we find him to be from hence denominated and entitled. 1Co 14:33. "God is not the author of confusion (or of noisiness), but the author of peace". 2Co 13:11. "The God of peace and love." Peace is called "the peace of God:" Php 4:7. And God is called the "God of peace; "each of which expressions does refer it and reduce it to him, and does thereby advance it. Look, then, how far forth God himself is said to be good, so far forth is this dwelling in unity good also, as it is commanded and owned by him, as it appears thus to be.
 
@@ -46,7 +46,7 @@ As, *First*, in regard of the *Author* and *owner* of it, which is *God himself*
 
  *Thirdly.* It is good in the *effects* and *consequences* and *concomitants* of it: it has much good. It is *bonum utile*. A great deal of advantage comes by brethren's dwelling together in unity, especially spiritual advantage, and for the doing and receiving of good.
 
-2\.The second qualification is, the sweetness of it, because it is *"pleasant:"* it is not only *bonum utile*, and *bonum honestum*, but it is also *bonum jucundum* ;it has a great deal of pleasure in it. Pleasure is such a kind of goodness, especially to some kind of persons, as that they care not almost what they do or part with to obtain it, and all other good besides is nothing to them, if it be devoid of this. Therefore for the further commendation of this fraternal unity to us, there is this also to be considered, that it is *"pleasant."* Thus it is with respect to all sorts of persons whatsoever, that are made sensible of it.
+2\. The second qualification is, the sweetness of it, because it is *"pleasant:"* it is not only *bonum utile*, and *bonum honestum*, but it is also *bonum jucundum* ;it has a great deal of pleasure in it. Pleasure is such a kind of goodness, especially to some kind of persons, as that they care not almost what they do or part with to obtain it, and all other good besides is nothing to them, if it be devoid of this. Therefore for the further commendation of this fraternal unity to us, there is this also to be considered, that it is *"pleasant."* Thus it is with respect to all sorts of persons whatsoever, that are made sensible of it.
 
  *First.* It is *pleasant to God*, it is such as is very acceptable to him; it is that which he much delights in, wheresoever he observes it; being himself a God of peace, he does therefore so much the more delight in peaceable Christians, and such as do relate to himself. How much do natural parents rejoice in the agreement of their children, to see them loving and friendly and kind and courteous to one another, oh, it pleases them and joys them at their very heart! and so it is likewise with God to those who are truly his.
 
@@ -106,39 +106,39 @@ Pearly gems on Zion light.
 
 **Verse 1.** Christian unity.
 
-1\.Its admirable excellences.
+1\. Its admirable excellences.
 
-2\.The signs of its existence.
+2\. The signs of its existence.
 
-3\.The causes of its decay.
+3\. The causes of its decay.
 
-4\.The means of its renewal.
+4\. The means of its renewal.
 
 **Verse 1.** The saints are here contemplated,
 
-1\.In their brotherhood.
+1\. In their brotherhood.
 
-2\.In their concord.
+2\. In their concord.
 
-3\.In their felicity.— *W. J.* 
+3\. In their felicity.— *W. J.* 
 
 **Verses 1-3.** Six blessings which dwell with unity.
 
-1\.Goodness.
+1\. Goodness.
 
-2\.Pleasure.
+2\. Pleasure.
 
-3\.Anointing.
+3\. Anointing.
 
-4\.Dew.
+4\. Dew.
 
-5\.God's blessing.
+5\. God's blessing.
 
-6\.Eternal life.
+6\. Eternal life.
 
 **Verses 1-3.** 
 
-1\.The contemplation: brethren dwelling together in unity.
+1\. The contemplation: brethren dwelling together in unity.
 
 (a) In a family.
 
@@ -148,7 +148,7 @@ Pearly gems on Zion light.
 
 (d) Of different denominations.
 
-2\.Its commendation.
+2\. Its commendation.
 
 (a) Literally: "good and pleasant."
 
@@ -194,17 +194,17 @@ c) Activity in ministering to others, rather than desiring to be ministered unto
 
 **Verses 2-3.** Christian love scatters blessing by the way of coming down: "ran down", "went down", "descended."
 
-1\.God to his saints.
+1\. God to his saints.
 
-2\.Saint to saint.
+2\. Saint to saint.
 
-3\.Saint to sinner.
+3\. Saint to sinner.
 
 **Verse 3.** The chosen place for blessing. A church; a church united, a church bedewed of the Spirit. What a blessing for the world that there is a commanded place of blessing!
 
 **Verse 3.** (*first clause* ). This should be rendered, "As the dew of Hermon, that cometh down on the mountains of Zion." From the snows upon the lofty Hermon, the moisture raised by the sun is carried in the form of vapour, by the wind towards the lesser elevations of Zion, upon which it falls as a copious dew. Thus, Christian concord in church fellowship—
 
-1\.Despises not the little ones, i.e. the mean, poor, and less gifted. It,
+1\. Despises not the little ones, i.e. the mean, poor, and less gifted. It,
 
 a) Recognises that God is the Father, and Christ is the Redeemer of all believers alike.
 
@@ -214,7 +214,7 @@ c) Believes that the least member is essential to the completeness of Christ's b
 
 d) Realises that everything which renders one in any way superior to another is the gift of God.
 
-2\.Distributes of its abundance to the needy: Ac 4:32-37.
+2\. Distributes of its abundance to the needy: Ac 4:32-37.
 
 a) The wealthy to the poor: 1Jo 3:17.
 
@@ -224,7 +224,7 @@ c) The joyful to the sorrowing.
 
 d) The steadfast to the erring: Jas 5:19.
 
-3\.Displays its value more by loving generosity, than by a conspicuous appearance before the world. As Hermon was more valuable to Zion for its dew than for its adornment of the landscape.
+3\. Displays its value more by loving generosity, than by a conspicuous appearance before the world. As Hermon was more valuable to Zion for its dew than for its adornment of the landscape.
 
 a) A generous activity exhibits and requires more real grace than showy architecture or ornate worship does.
 
@@ -234,9 +234,9 @@ c) By it the heart of Christ is touched and his reward secured: Mr 9:40,42.— *
 
 **Verse 3.** *Commanded Mercy.* Elsewhere goodness is bestowed, but in Zion it is commanded.
 
-1\.Commanded mercy implies that it must necessarily be given.
+1\. Commanded mercy implies that it must necessarily be given.
 
-2\.Commanded mercy attends commanded unity.
+2\. Commanded mercy attends commanded unity.
 
-3\.Commanded mercy secures life more abundantly, "life for evermore."— *W. B. H.* 
+3\. Commanded mercy secures life more abundantly, "life for evermore."— *W. B. H.* 
 

@@ -122,23 +122,23 @@ As Quesnel well observes, these verses explain themselves. They call rather for 
 
 **Title &mdash;** *For Solomon.* I shall but mention a threefold analogy between Christ and Solomon.
 
-1\.In his *personal wisdom* (1Ki 4:29-30); so Christ (Col 2:3); "In him are hid all the treasures of wisdom and knowledge."
+1\. In his *personal wisdom* (1Ki 4:29-30); so Christ (Col 2:3); "In him are hid all the treasures of wisdom and knowledge."
 
-2\.In the *glorious peace and prosperity of his kingdom:* the kingdom was peaceably settled in his hand. 1Ch 22:9 4:24-25. And so he fell to the work of building the temple, as Christ doth the church; so Christ (Isa 9:6); he is the Prince of Peace, the great Peacemaker. Eph 2:14.
+2\. In the *glorious peace and prosperity of his kingdom:* the kingdom was peaceably settled in his hand. 1Ch 22:9 4:24-25. And so he fell to the work of building the temple, as Christ doth the church; so Christ (Isa 9:6); he is the Prince of Peace, the great Peacemaker. Eph 2:14.
 
-3\.In his *marriage with Pharaoh's daughter.* Some observe that the daughter of Pharaoh never seduced him: neither is there any mention made of the Egyptian idols. 1Ki 11:5,7. In his other outlandish marriages he did sin; but *this* is mentioned as by way of special exception (1Ki 11:1); for she was a *proselyte,* and so it was no sin to marry her: and the love between her and Solomon is made a type of the love between Christ and the church. So Christ hath taken us Gentiles to be spouse unto him. Psalm 45. *Samuel Mather (1626-1671), in "The Figures or Types of the Old Testament."* 
+3\. In his *marriage with Pharaoh's daughter.* Some observe that the daughter of Pharaoh never seduced him: neither is there any mention made of the Egyptian idols. 1Ki 11:5,7. In his other outlandish marriages he did sin; but *this* is mentioned as by way of special exception (1Ki 11:1); for she was a *proselyte,* and so it was no sin to marry her: and the love between her and Solomon is made a type of the love between Christ and the church. So Christ hath taken us Gentiles to be spouse unto him. Psalm 45. *Samuel Mather (1626-1671), in "The Figures or Types of the Old Testament."* 
 
 **Whole Psalm.** The Seventy-second Psalm contains a description of an exalted king, and of the blessings of his reign. These blessings are of such a nature as to prove that the subject of the Psalm must be a divine person.
 
-1\.His kingdom is to be everlasting.
+1\. His kingdom is to be everlasting.
 
-2\.Universal.
+2\. Universal.
 
-3\.It secures perfect peace with God and goodwill among men.
+3\. It secures perfect peace with God and goodwill among men.
 
-4\.All men are to be brought to submit to him through love.
+4\. All men are to be brought to submit to him through love.
 
-5\.In him all the nations of the earth are to be blessed; *i.e.,* as we are distinctly taught in Ga 3:16, it is in him that all the blessings of redemption are to come upon the world. *Charles Hodge, in "Systematic Theology."* 1871.
+5\. In him all the nations of the earth are to be blessed; *i.e.,* as we are distinctly taught in Ga 3:16, it is in him that all the blessings of redemption are to come upon the world. *Charles Hodge, in "Systematic Theology."* 1871.
 
 **Whole Psalm.** This Psalm was penned by a king, it is dedicated to a king, and is chiefly intended concerning him who is "King of kings." *Joseph Caryl, in a Sermon entitled "David's Prayer for Solomon."* 
 
@@ -188,27 +188,27 @@ Enduring like the sun and stars. *Martial.* —Bk. 9. Epig. 7.
 
 **Verse 6.** *He shall come down like rain upon the mown grass,* etc. This is spoken and promised of Christ, and serves to teach us that Christ coming to his church and people, by the gracious influences of his Holy Spirit, is most useful and refreshing to their souls, like showers of rain to the dry ground, or a meadow newly cut to make it spring again. Christless souls are like the dry ground; without the moisture of saving grace their hearts are hard; neither rods, mercies, nor sermons, make impression upon them. Why? They are without Christ, the fountain of grace and spiritual influences. Before the fall man's soul was like a well watered garden, beautiful, green, and fragrant; but by his apostasy from God, in Adam our first head, the springs of grace and holiness are quite dried up in his soul; and there is no curing of this drought but by the soul's union with a new head; to wit, Christ our second Adam, who has the Spirit given him without measure for the use of all his members. Now, when we are united by faith to Christ, our Head of influences, the dry land is turned into water springs; Christ "comes down as the rain" by his Spirit of regeneration, and brings the springs of grace into the soul. He is the first and immediate receptacle of the Holy Spirit, and all regenerating and sanctifying influences, and out of his fulness we must by faith receive them. And when at any time the springs of grace are interrupted in the soul by sin or unbelief, so as the ground turns dry, the plants wither, and the things which remain are ready to die, the soul hath need to look up to Jesus Christ to come down with new showers upon the thirsty ground and decayed plants.
 
-1\.As the rain is the free gift of God to the dry ground, it comes free and cheap to poor and rich, small and great, and cost them nothing: so Christ with his blessings is God's free gift to a dry and perishing world; for which we should be continually thankful.
+1\. As the rain is the free gift of God to the dry ground, it comes free and cheap to poor and rich, small and great, and cost them nothing: so Christ with his blessings is God's free gift to a dry and perishing world; for which we should be continually thankful.
 
-2\.As nothing can stop the falling of the rain; so nothing can hinder Christ's gracious influences, when he designs to awake, convince, or soften a hard heart. When those showers do fall on sinners, the most obstinate will must yield, and cry, Lord, what wilt thou have me to do?
+2\. As nothing can stop the falling of the rain; so nothing can hinder Christ's gracious influences, when he designs to awake, convince, or soften a hard heart. When those showers do fall on sinners, the most obstinate will must yield, and cry, Lord, what wilt thou have me to do?
 
-3\.As the rain is most necessary and suitable to the dry ground, and to the various plants it produces, and also to the different parts of every plant or tree—such as the root, trunk, branches, leaves, flowers, and fruit; so Christ is absolutely necessary, and his influence most suitable to all his people's souls, and to every faculty of them—the understanding, will, memory, and affections; and to all their different graces, faith, love, repentance, etc.; to root and establish them, strengthen and confirm them, quicken and increase them, cherish and preserve them.
+3\. As the rain is most necessary and suitable to the dry ground, and to the various plants it produces, and also to the different parts of every plant or tree—such as the root, trunk, branches, leaves, flowers, and fruit; so Christ is absolutely necessary, and his influence most suitable to all his people's souls, and to every faculty of them—the understanding, will, memory, and affections; and to all their different graces, faith, love, repentance, etc.; to root and establish them, strengthen and confirm them, quicken and increase them, cherish and preserve them.
 
-4\.As the rain comes in diverse ways and manners to the earth, sometimes with cold winds and tempests, thunders and lightnings, and at other times with calmness and warmth; so Christ comes to sinners, sometimes with sharp convictions and legal terrors, and sometimes with alluring invitations and promises.
+4\. As the rain comes in diverse ways and manners to the earth, sometimes with cold winds and tempests, thunders and lightnings, and at other times with calmness and warmth; so Christ comes to sinners, sometimes with sharp convictions and legal terrors, and sometimes with alluring invitations and promises.
 
-5\.O how pleasant are the effects of rain to languishing plants, to make them green and beautiful, lively and strong, fragrant and beautiful! So the effects of Christ's influences are most desirable to drooping souls, for enlightening and enlivening them, for confirming and strengthening them, for comforting and enlarging them, for appetizing and satisfying them, transforming and beautifying them. A shower from Christ would soon make the church, though withered, turn green and beautiful, and to send forth a smell as of a field that the Lord hath blessed; and likewise some drops of this shower, falling down upon the languishing graces of communicants, would soon make them vigorous and lively in showing forth their Saviour's death at his table. *John Willison.* 
+5\. O how pleasant are the effects of rain to languishing plants, to make them green and beautiful, lively and strong, fragrant and beautiful! So the effects of Christ's influences are most desirable to drooping souls, for enlightening and enlivening them, for confirming and strengthening them, for comforting and enlarging them, for appetizing and satisfying them, transforming and beautifying them. A shower from Christ would soon make the church, though withered, turn green and beautiful, and to send forth a smell as of a field that the Lord hath blessed; and likewise some drops of this shower, falling down upon the languishing graces of communicants, would soon make them vigorous and lively in showing forth their Saviour's death at his table. *John Willison.* 
 
 **Verse 6.** There cannot be a more lively image of a flourishing condition than what is conveyed to us in these words. The grass which is forced by the heat of the sun, before the ground is well prepared by rains, is weak and languid, and of a faint complexion; but when clear shining succeeds the gentle showers of spring, the field puts forth its best strength, and is more beautifully arrayed than ever Solomon in all his glory. *Thomas Sherlock.* 1678.
 
 **Verse 6.** *He shall come down,* dry There is a fourfold descending of Christ which the Scripture mentions.
 
-1\.His incarnation, the manifestation of himself in the flesh.
+1\. His incarnation, the manifestation of himself in the flesh.
 
-2\.The abasing himself in condition; he did not only assume human flesh, but all the natural infirmities of our flesh.
+2\. The abasing himself in condition; he did not only assume human flesh, but all the natural infirmities of our flesh.
 
-3\.The subjecting of himself to death.
+3\. The subjecting of himself to death.
 
-4\.The distillations of his grace and spiritual blessings upon his church. *Ralph Robinson.* 
+4\. The distillations of his grace and spiritual blessings upon his church. *Ralph Robinson.* 
 
 **Verse 6.** (*first clause* ). Some render this "like dew on the fleece." The mysterious fleece of Gideon, which on being exposed to the air, is first of all filled with the dew of heaven, while all the ground around it is quite dry, and which afterwards becomes dry while the earth is watered, pictures to us, according to the old divines, that the dew of Heaven's grace was poured out upon Judaea at the time when all the rest of the world remained in barrenness and ignorance of God; but that now, by a strange alteration, this same Judaea lies in dryness and forgetfulness of God, while on the contrary, all the other nations of the earth are inundated with the dew of heavenly grace. *Pasquier Quesnel.* 
 
@@ -262,9 +262,9 @@ Enduring like the sun and stars. *Martial.* —Bk. 9. Epig. 7.
 
 **Verse 15.** *Prayer also shall be made for him continually; and daily shall he be praised.* In all conquered countries, *two* things marked the subjection of the people:
 
-1\.Their money was stamped with the name of the conqueror.
+1\. Their money was stamped with the name of the conqueror.
 
-2\.They were obliged to pray for him in their acts of public worship. *Adam Clarke.* 
+2\. They were obliged to pray for him in their acts of public worship. *Adam Clarke.* 
 
 **Verse 16.** *An handful of corn in the earth upon the top of the mountains.* Not only would the soil be likely to lack depth of earth, but the seed itself would be apt to be blown away by the winds of heaven, or washed down by the teeming rain to the base beneath. *Peter Grant.* 1867.
 
@@ -332,19 +332,19 @@ Finished are the prayers of David, the son of Jesse.
 
 **Whole Psalm.** 
 
-1\.He shall.
+1\. He shall.
 
-2\.They shall. Ring the changes on these, as the Psalm does.
+2\. They shall. Ring the changes on these, as the Psalm does.
 
 **Verse 1.** The prayer of the ancient church now fulfilled.
 
-1\.Our Lord's titles.
+1\. Our Lord's titles.
 
 (a) King, by divine nature.
 
 (b) King's Son, in both natures. Thus we see his power innate and derived.
 
-2\.Our Lord's authority: "Judgments."
+2\. Our Lord's authority: "Judgments."
 
 (a) To rule his people.
 
@@ -354,21 +354,21 @@ Finished are the prayers of David, the son of Jesse.
 
 (d) To judge devils.
 
-3\.Our Lord's character. He is righteous in rewarding and punishing, righteous towards God and man.
+3\. Our Lord's character. He is righteous in rewarding and punishing, righteous towards God and man.
 
-4\.Our loyal prayer. This asks for his rule over ourselves and the universe.
+4\. Our loyal prayer. This asks for his rule over ourselves and the universe.
 
 **Verse 2.** The rule of Christ in his church.
 
-1\.The subjects.
+1\. The subjects.
 
 (a) Thy people, the elect, called, etc.
 
 (b) Thy poor, through conviction and consciousness of sin.
 
-2\.The ruler. He, only, truly, constantly, etc.
+2\. The ruler. He, only, truly, constantly, etc.
 
-3\.The rule.—Righteous, impartial, gentle, prudent, etc. Lesson. Desire this rule.
+3\. The rule.—Righteous, impartial, gentle, prudent, etc. Lesson. Desire this rule.
 
 **Verse 3.** Mountains of divine decree, of immutable truth, of almighty power, of eternal grace, etc. These mountains of God are securities of peace.
 
@@ -380,11 +380,11 @@ Finished are the prayers of David, the son of Jesse.
 
 **Verse 7.** 
 
-1\.The righteous flourish more at one season than another.
+1\. The righteous flourish more at one season than another.
 
-2\.They flourish most when Jesus is with them: *in his days, etc.* 
+2\. They flourish most when Jesus is with them: *in his days, etc.* 
 
-3\.The fruit of their growth is proportionately abundant: *and abundance,* etc. *G. Rogers.* 
+3\. The fruit of their growth is proportionately abundant: *and abundance,* etc. *G. Rogers.* 
 
 **Verse 7.** *Abundance of peace.* Abundant overtures of peace, abundant redemption making peace, abundant pardon conferring peace, abundant influences of the Spirit sealing peace, abundant promises guaranteeing peace, abundant love spreading peace, etc.
 
@@ -398,35 +398,35 @@ Finished are the prayers of David, the son of Jesse.
 
 **Verse 12.** 
 
-1\.Pitiable characters.
+1\. Pitiable characters.
 
-2\.Abject conditions: "cry; ""no helper."
+2\. Abject conditions: "cry; ""no helper."
 
-3\.Natural resort: "crieth."
+3\. Natural resort: "crieth."
 
-4\.Glorious interposition. *G. Rogers.* 
+4\. Glorious interposition. *G. Rogers.* 
 
 **Verse 14.** The martyr's hope in life and comfort in death. *G. Rogers.* 
 
 **Verse 14** *(last clause)*. The martyr's blood.
 
-1\.Seen of God when shed.
+1\. Seen of God when shed.
 
-2\.Remembered by him.
+2\. Remembered by him.
 
-3\.Honoured by being a benefit to the church.
+3\. Honoured by being a benefit to the church.
 
-4\.Rewarded especially in heaven.
+4\. Rewarded especially in heaven.
 
 **Verse 15.** *Prayer shall be made for him.* We are to pray for Jesus Christ. Owing to the interest he has in certain objects, what is done for them is done for himself and so he esteems it. We, therefore, pray for him when we pray for his ministers, his ordinances, his gospel, his church—in a word, his *cause.* But what should we pray for on his behalf?
 
-1\.The degree of its resources; that there be always a sufficiency of suitable and able instruments to carry on the work.
+1\. The degree of its resources; that there be always a sufficiency of suitable and able instruments to carry on the work.
 
-2\.The freedom of its administration; that whatever opposes or hinders its progress may be removed.
+2\. The freedom of its administration; that whatever opposes or hinders its progress may be removed.
 
-3\.The diffusion of its principles; that they may become general and universal.
+3\. The diffusion of its principles; that they may become general and universal.
 
-4\.The increase of its glory, as well as its extent. *W. Jay.* 
+4\. The increase of its glory, as well as its extent. *W. Jay.* 
 
 **Verse 15.** Prayer for Jesus, a suggestive topic. Daily praise, a Christian duty.
 
@@ -434,55 +434,55 @@ Finished are the prayers of David, the son of Jesse.
 
 **Verse 16.** 
 
-1\.A happy description of the gospel: it is *a handful of corn.* 
+1\. A happy description of the gospel: it is *a handful of corn.* 
 
-2\.The places where it is sown.
+2\. The places where it is sown.
 
-3\.The blessed effects which this gospel, when thus sown, will produce in the world. *J. Sherman.* 
-
-**Verse 16.** 
-
-1\.Commencement.
-
-2\.Publicity.
-
-3\.Growth.
-
-4\.Result.
+3\. The blessed effects which this gospel, when thus sown, will produce in the world. *J. Sherman.* 
 
 **Verse 16.** 
 
-1\.What? *Corn.* 
+1\. Commencement.
 
-2\.How much? *A handful.* 
+2\. Publicity.
 
-3\.Where? *In the earth upon the top of the mountains.* 
+3\. Growth.
 
-4\.Will it grow? *The fruits,* etc.
+4\. Result.
 
-5\.What then? *They of the city,* etc.
+**Verse 16.** 
+
+1\. What? *Corn.* 
+
+2\. How much? *A handful.* 
+
+3\. Where? *In the earth upon the top of the mountains.* 
+
+4\. Will it grow? *The fruits,* etc.
+
+5\. What then? *They of the city,* etc.
 
 **Verse 17.** 
 
-1\.Christ glorified in the Church: *men shall be* blessed, etc.
+1\. Christ glorified in the Church: *men shall be* blessed, etc.
 
-2\.Glorified in the world: *all nations,* etc.
+2\. Glorified in the world: *all nations,* etc.
 
-3\.Glorified in worlds to come: *endure, be continued, etc.* 
+3\. Glorified in worlds to come: *endure, be continued, etc.* 
 
-4\.Glorified for ever. *G. Rogers.* 
+4\. Glorified for ever. *G. Rogers.* 
 
 **Verses 17-19.** The Four Blesseds, their meaning and order.
 
 **Verse 20.** 
 
-1\.Prayer should be frequent: *The prayers.* 
+1\. Prayer should be frequent: *The prayers.* 
 
-2\.Should be individual: *Of David.* 
+2\. Should be individual: *Of David.* 
 
-3\.Should be early commenced: *the son of Jesse.* 
+3\. Should be early commenced: *the son of Jesse.* 
 
-4\.Should be continued till they are no more needed.
+4\. Should be continued till they are no more needed.
 
 **HERE ENDETH THE SECOND BOOK OF THE PSALMS.** 
 

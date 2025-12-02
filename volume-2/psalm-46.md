@@ -150,7 +150,7 @@ On the rock of heavenly love.
 
 **Verse 4.** *The city.* The church of God is like a city, 1. Because a city is a place of *security.* 2. A place of *society:* what one wants another supplies; they have mutual fellowship. 3. A place of *unity,* that people may therein live in peace and concord. 4. A place of *trade* and *traffic.* Here is the market of free grace: "Ho, every one that thirsteth, "etc. Here is the *pearl of great price* exposed for sale. 5. A place of *freedom* and *liberty,* freedom from the guilt of sin, wrath of God, curse of the law, present evil world, bondage to Satan, etc., etc. 6. A place of *order* and *regularity;* it hath its constitutions and ordinances. 7. A place of *rest,* and commodious to live in, and thus it is opposed to the wilderness. 8. A place of *privileges.* 9. A place of *pomp* and *splendour;* there is the king, the court, the throne. 10. A place of *pleasure* and *beauty;* Ps 48:2.—Ralph Erskine.
 
-**Verse 5.** *God is in the midst of her.* It is the real presence of Christ, and the supernatural power of his Spirit, which makes the church mighty to the conquest of souls. The church spreads because her *God is in the midst of her.* When at any time she has forgotten her dependence on the invisible intercession of her Head, and the gracious energy of his Spirit, she has found herself shorn of the locks of her great strength, and has become the laughing stock of the Philistines. *William Binnie, D.D.* 
+**Verse 5.** *God is in the midst of her.* It is the real presence of Christ, and the supernatural power of his Spirit, which makes the church mighty to the conquest of souls. The church spreads because her *God is in the midst of her.* When at any time she has forgotten her dependence on the invisible intercession of her Head, and the gracious energy of his Spirit, she has found herself shorn of the locks of her great strength, and has become the laughing stock of the Philistines. *William Binnie, D. D.* 
 
 **Verse 5.** *God is in the midst of her,* etc. The enemies of the church may toss her as waves, but they shall not split her as rocks. She may be dipped in water as a *feather,* but shall not sink therein as *lead.* He that is a well of water within her to keep her from fainting, will also prove a wall of fire about her to preserve her from falling. *Tried* she may be, but *destroyed* she cannot be. Her foundation is the Rock of Ages, and her defence the everlasting Arms. It is only such fabrics as are bottomed upon the *sand,* that are overthrown by the *wind.* The adversaries of God's people will push at them as far as their horns will go, but when they have scoured them by persecution, as tarnished vessels, then God will throw such wisps into the fire. *William Secker.* 
 
@@ -160,7 +160,7 @@ On the rock of heavenly love.
 
 **Verse 5.** *Right early.* Rather, with the margin, *when the morning appeareth.* The restoration of the Jews will be one of the first things at the season of the second advent. It will be accomplished in the very dawning of that day, "when the Sun of Righteousness will rise with healing on his wings." *Samuel Horsley.* 
 
-**Verse 7.** *The Lord of hosts is with us.* There be three sorts of God's special presence, all which may be justly accounted the church's privilege. First, his *glorious* presence, or his presence testified by eminent glory, and the residence thereof. Thus God is said to be in heaven differentially, so as he is not anywhere else; and heaven is therefore called his throne or dwelling place 1Ki 8:39; as a king is nowhere so majestically as upon his throne, or in his chair of state; and this is so great a privilege of the church as that she comes not to enjoy it, unless she be triumphant in heaven, and therefore is not the presence here intended. Secondly, his *gracious* presence, or his presence testified by tokens of his grace and favour toward a people, whether visible as in the temple where he chose to place his name, and wherein above all places he would be worshipped, in which respect he is said to dwell between the cherubim 2Sa 6:2; or spiritual tokens of his grace, as assistance and acceptance in the duties of his worship, together with enjoyment and benefit of his ordinances. Thus he is present with his church and people in times of the gospel: "Where two or three are gathered together in my name, there am I in the midst of them." Mt 18:20. This kind of presence is a privilege of the church militant, that he will be with her in holy and spiritual administrations and ordinances; yet this is not the presence principally intended here. Thirdly, the *providential* presence, or his presence testified by acts of special providence, wherein the power, wisdom or any other of God's attributes are eminently put forth, either by way of assistance or defence fro a people. Thus the Lord was present with Israel in the wilderness by the pillar of fore and of a cloud Ex 13:21; "And the Lord went before them by day in a pillar of cloud, to lead them the way; and by night in a pillar of fire, to give them light." And as this presence was intended for a guide, so was it also for a defence to his people against their enemies, and at which their enemies the Egyptians were troubled. Ex 15:20. By this kind of presence the Lord is with his church militant, in reference to her external regiment, and more especially in her warfare, standing up for her and with her against her enemies; and this is the church's privilege in these words, *The Lord of hosts is with us. John Strickland, B.D. (1601-1670), in a Sermon, entitled, "Immanuel, "* 1644.
+**Verse 7.** *The Lord of hosts is with us.* There be three sorts of God's special presence, all which may be justly accounted the church's privilege. First, his *glorious* presence, or his presence testified by eminent glory, and the residence thereof. Thus God is said to be in heaven differentially, so as he is not anywhere else; and heaven is therefore called his throne or dwelling place 1Ki 8:39; as a king is nowhere so majestically as upon his throne, or in his chair of state; and this is so great a privilege of the church as that she comes not to enjoy it, unless she be triumphant in heaven, and therefore is not the presence here intended. Secondly, his *gracious* presence, or his presence testified by tokens of his grace and favour toward a people, whether visible as in the temple where he chose to place his name, and wherein above all places he would be worshipped, in which respect he is said to dwell between the cherubim 2Sa 6:2; or spiritual tokens of his grace, as assistance and acceptance in the duties of his worship, together with enjoyment and benefit of his ordinances. Thus he is present with his church and people in times of the gospel: "Where two or three are gathered together in my name, there am I in the midst of them." Mt 18:20. This kind of presence is a privilege of the church militant, that he will be with her in holy and spiritual administrations and ordinances; yet this is not the presence principally intended here. Thirdly, the *providential* presence, or his presence testified by acts of special providence, wherein the power, wisdom or any other of God's attributes are eminently put forth, either by way of assistance or defence fro a people. Thus the Lord was present with Israel in the wilderness by the pillar of fore and of a cloud Ex 13:21; "And the Lord went before them by day in a pillar of cloud, to lead them the way; and by night in a pillar of fire, to give them light." And as this presence was intended for a guide, so was it also for a defence to his people against their enemies, and at which their enemies the Egyptians were troubled. Ex 15:20. By this kind of presence the Lord is with his church militant, in reference to her external regiment, and more especially in her warfare, standing up for her and with her against her enemies; and this is the church's privilege in these words, *The Lord of hosts is with us. John Strickland, B. D. (1601-1670), in a Sermon, entitled, "Immanuel, "* 1644.
 
 **Verse 7.** *The God of Jacob.* If any shall ask me, Why then the God of Jacob more than the God of Isaac? Though it might suffice that the Spirit of God is pleased so to speak, yet Mr. Calvin gives this reason, the covenant of grace was more solemnly made and publicly ratified with Abraham and Jacob, than it was with Isaac, and therefore when he will be looked upon as a God in covenant with his people, he holds forth himself more frequently by the name of the God of Abraham, and the God of Jacob, than of the God of Isaac; albeit sometimes he is pleased to take upon him that style also. *John Strickland.* 
 
@@ -186,7 +186,7 @@ On the rock of heavenly love.
 
 **Verse 10.** *Be still, and know,* etc. As you must come and *see* Ps 46:8, so come and *hear* what the Lord saith to those enemies of yours. *John Trapp.* 
 
-**Verse 11.** *The Lord of hosts is with us.* On Tuesday Mr. Wesley could with difficulty be understood, though he often attempted to speak. At last, with all the strength he had, he cried out, "The best of all is, God is with us." Again, raising his hand, and waving it in triumph, he exclaimed with thrilling effect, "The best of all is, God is with us." These words seem to express the leading feature of his whole life, God had been with him from early childhood; his providence had guided him through all the devious wanderings of human life; and now, when he was entering the "valley of the shadow of death, "the same hand sustained him. *From "Wesley and his Coadjutors. By Rev. W. C. Larrabee, A.M. Edited by Rev. B. F. Tefft, D.D. Cincinnati. 1851."* 
+**Verse 11.** *The Lord of hosts is with us.* On Tuesday Mr. Wesley could with difficulty be understood, though he often attempted to speak. At last, with all the strength he had, he cried out, "The best of all is, God is with us." Again, raising his hand, and waving it in triumph, he exclaimed with thrilling effect, "The best of all is, God is with us." These words seem to express the leading feature of his whole life, God had been with him from early childhood; his providence had guided him through all the devious wanderings of human life; and now, when he was entering the "valley of the shadow of death, "the same hand sustained him. *From "Wesley and his Coadjutors. By Rev. W. C. Larrabee, A. M. Edited by Rev. B. F. Tefft, D. D. Cincinnati. 1851."* 
 
 ## Hints to the Village Preacher
 
@@ -204,37 +204,37 @@ On the rock of heavenly love.
 
 **Verses 2-3.** 
 
-1\.The great and many causes for fear.
+1\. The great and many causes for fear.
 
 (a) What might come—mountains, waters, etc., persecution, pestilence, etc.
 
 (b) What must come—afflictions, death, judgment.
 
-2\.The great and one cause for not fearing. Fearlessness under such circumstances should be well grounded. God himself is our refuge, and we confiding in him are fearless. *G. Rogers.* 
+2\. The great and one cause for not fearing. Fearlessness under such circumstances should be well grounded. God himself is our refuge, and we confiding in him are fearless. *G. Rogers.* 
 
 **Verse 4.** Glad tidings in sad times; or, the city of God in the times of trouble and confusion, watered with the river of consolation. *Ralph Erskine.* 
 
-**Verse 4.** What can this *river* be but that blessed covenant to which David himself repaired in the time of trouble?...And what are *the streams* of this river, but the outgoings and effects of this divine constitution?
+**Verse 4.** What can this *river* be but that blessed covenant to which David himself repaired in the time of trouble?... And what are *the streams* of this river, but the outgoings and effects of this divine constitution?
 
-1\.The blood of Jesus.
+1\. The blood of Jesus.
 
-2\.The influences of the Holy Spirit.
+2\. The influences of the Holy Spirit.
 
-3\.The doctrines and promises of the gospel.
+3\. The doctrines and promises of the gospel.
 
-4\.The ordinances of religion.
+4\. The ordinances of religion.
 
-5\.All the means of grace. *W. Jay.* 
+5\. All the means of grace. *W. Jay.* 
 
 **Verse 4.** *Make glad the city of God.* There are four ways in which the streams of a river would gladden the citizens.
 
-1\.The first regards *prospect.* 
+1\. The first regards *prospect.* 
 
-2\.The second regards *traffic.* 
+2\. The second regards *traffic.* 
 
-3\.The third regards *fertility.* 
+3\. The third regards *fertility.* 
 
-4\.The fourth regards *supply. W. Jay.* 
+4\. The fourth regards *supply. W. Jay.* 
 
 **Verse 4.** *City of God.* The church may be called "the city *of God* " because, 1. He dwells in it (see Ps 44:5). 2. He *founded* it and *built* it. 3. It derives all *privileges* and *immunities* from him. 4. He is the chief Ruler or Governor there. 5. It is his property. 6. He draws the *rent* of it. *Ralph Erskine.* 
 
@@ -244,21 +244,21 @@ On the rock of heavenly love.
 
 **Verse 8.** *Behold the works of the Lord.* 
 
-1\.They are worth beholding, for they are like himself; well becoming his infinite power, wisdom, justice,
+1\. They are worth beholding, for they are like himself; well becoming his infinite power, wisdom, justice,
 
-2\.Our eyes were given us for this very purpose—not for the beholding of vanity, not for the ensnaring or wounding of the soul; but for the use and honour of the Creator.
+2\. Our eyes were given us for this very purpose—not for the beholding of vanity, not for the ensnaring or wounding of the soul; but for the use and honour of the Creator.
 
-3\.The Lord delights to have his works beheld; ** he knows their excellency and perfection, and that the more they are seen and noted the more honour will accrue to the Maker of them.
+3\. The Lord delights to have his works beheld; ** he knows their excellency and perfection, and that the more they are seen and noted the more honour will accrue to the Maker of them.
 
-4\.None but we can do it; there is great reason then that we should carefully *behold,* etc.
+4\. None but we can do it; there is great reason then that we should carefully *behold,* etc.
 
-5\.This shall be of great benefit to ourselves. *Bishop Hall.* 
+5\. This shall be of great benefit to ourselves. *Bishop Hall.* 
 
 **Verse 8.** The desolations of the Lord, the consolation of his saints.
 
-1\.A declaration of what has happened.
+1\. A declaration of what has happened.
 
-2\.A promise of what shall be achieved. *Spurgeon's Sermons, No. 190.* 
+2\. A promise of what shall be achieved. *Spurgeon's Sermons, No. 190.* 
 
 **Verse 9.** The Great Peacemaker, or the principle of the gospel our only hope, for the total abolition of war.
 

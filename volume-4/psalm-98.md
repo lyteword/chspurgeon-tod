@@ -106,7 +106,7 @@ Shall have his attribute to sing."
 
 Martin Luther was thus wont to praise the Lord, whom he loved so well. God's praises should be performed in the best possible manner, but their sweetness mainly lies in spiritual qualities. The concords of faith and repentance, the harmonies of obedience and love are true music in the ear of the Most High, and better please him than "heaving bellows taught to blow, "though managed by the noblest master of human minstrelsy. With the harp. A very sweet instrument of music, and capable of great expression. The repetition of the word is highly poetical, and shows that the daintiest expressions of poetry are none too rich for the praise of God. His worship should be plain, but not uncouth, if we can compass elegancies of expression there are occasions upon which they will be most appropriate; God, who accepts the unlettered ditty of a ploughman, does not reject the smooth verse of a Cowper, or the sublime strains of a Milton. All repetitions are not vain repetitions, in sacred song there should be graceful repeats, they render the sense emphatic, and help to fire the soul; even preachers do not amiss when they dwell on a word and sound it out again and again, till dull ears feel its emphasis.
 
-And the voice of a Psalm, or with a musical voice, as distinguished from common speech. Our voice has in it many modulations; there is the voice of conversation, the voice of complaint, the voice of pleading, the voice of command, and there ought to be with each of us the voice of a Psalm. Man's voice is at its best when it sings the best words in the best spirit to the best of Beings. Love and war must not monopolise the lyric muse; the love of God and the conquests of Immanuel should win to themselves man's sweetest strains. Do we sing enough unto the Lord? May not the birds of the air rebuke our sullen and ungrateful silence? in their brave struggles to achieve their country's independence, and were the repeated expression of their thanksgivings. The Lord of Psalmists and the Son of David, by the words of a Psalm proved himself to be higher than David; and sang Psalms with his apostles on the night before he suffered, when he instituted the holy supper of his love. With Psalms Paul and Silas praised God in the prison at midnight when their feet were made fast in the stocks, and sang so loud that the prisoners heard them. And after his own example the apostle exhorts the Christians at Ephesus and Colossae to teach and admonish one another with Psalms anti hymns and spiritual songs. Jerome tells us that in his day the Psalms were to be heard in the fields and vineyards of Palestine, and that they fell sweetly on the ear, mingling with the songs of birds, and the scent of flowers in spring. The ploughman as he guided his plough chanted the hallelujah, and the reaper, the vine dresser, and the shepherd sang the songs of David. "These, "he says, "are our love songs, these the instruments of our agriculture." Sidonins Apollinaris makes his boatmen, as they urge their heavily laden barge up stream, sing Psalms, till the river banks echo again with the hallelujah, and beautifully applies the custom, in a figure, to the voyage of the Christian life. *J.J.S. Perowne.* 
+And the voice of a Psalm, or with a musical voice, as distinguished from common speech. Our voice has in it many modulations; there is the voice of conversation, the voice of complaint, the voice of pleading, the voice of command, and there ought to be with each of us the voice of a Psalm. Man's voice is at its best when it sings the best words in the best spirit to the best of Beings. Love and war must not monopolise the lyric muse; the love of God and the conquests of Immanuel should win to themselves man's sweetest strains. Do we sing enough unto the Lord? May not the birds of the air rebuke our sullen and ungrateful silence? in their brave struggles to achieve their country's independence, and were the repeated expression of their thanksgivings. The Lord of Psalmists and the Son of David, by the words of a Psalm proved himself to be higher than David; and sang Psalms with his apostles on the night before he suffered, when he instituted the holy supper of his love. With Psalms Paul and Silas praised God in the prison at midnight when their feet were made fast in the stocks, and sang so loud that the prisoners heard them. And after his own example the apostle exhorts the Christians at Ephesus and Colossae to teach and admonish one another with Psalms anti hymns and spiritual songs. Jerome tells us that in his day the Psalms were to be heard in the fields and vineyards of Palestine, and that they fell sweetly on the ear, mingling with the songs of birds, and the scent of flowers in spring. The ploughman as he guided his plough chanted the hallelujah, and the reaper, the vine dresser, and the shepherd sang the songs of David. "These, "he says, "are our love songs, these the instruments of our agriculture." Sidonins Apollinaris makes his boatmen, as they urge their heavily laden barge up stream, sing Psalms, till the river banks echo again with the hallelujah, and beautifully applies the custom, in a figure, to the voyage of the Christian life. *J. J. S. Perowne.* 
 
 ### Verse 5
 
@@ -144,7 +144,7 @@ And with light heart, that wants no wing,
 
 Sing! from this holy songbook, sing!"
 
-The singing of these Psalms became so popular that D'lsraeli suggests that "it first conveyed to the sullen fancy of the austere Calvin the project" of introducing the singing of Psalms into his Genevan discipline. "This infectious frenzy of Psalm singing, "as Warton almost blasphemously describes it, rapidly propagated itself through Germany as well as France, and passed over to England. D'Israeli says, with a sneer, that in the time of the Commonwealth, "Psalms were now sung at Lord Mayor's dinners and city feasts; soldiers sang them on their march and at parade; and few houses which had windows fronting the streets, but had their evening Psalms." We can only add, would to God it were so again. *C.H.S.* 
+The singing of these Psalms became so popular that D'lsraeli suggests that "it first conveyed to the sullen fancy of the austere Calvin the project" of introducing the singing of Psalms into his Genevan discipline. "This infectious frenzy of Psalm singing, "as Warton almost blasphemously describes it, rapidly propagated itself through Germany as well as France, and passed over to England. D'Israeli says, with a sneer, that in the time of the Commonwealth, "Psalms were now sung at Lord Mayor's dinners and city feasts; soldiers sang them on their march and at parade; and few houses which had windows fronting the streets, but had their evening Psalms." We can only add, would to God it were so again. *C. H. S.* 
 
 ### Verse 5-6
 
@@ -156,7 +156,7 @@ It is evident that the Psalmist here expresses the vehement and ardent affection
 
 ### Verse 5-6
 
-The song and the stringed instruments belonged to the Levites, and the trumpets to the priests alone. Kitto says the trumpets did not join in the concert, but were sounded during certain regulated pauses in the vocal and instrumental music. The harps and voices made the sweetness, while the trumpets and horns added the strength; melody and energy should combine in the worship of God. *C.H.S.*
+The song and the stringed instruments belonged to the Levites, and the trumpets to the priests alone. Kitto says the trumpets did not join in the concert, but were sounded during certain regulated pauses in the vocal and instrumental music. The harps and voices made the sweetness, while the trumpets and horns added the strength; melody and energy should combine in the worship of God. *C. H. S.*
 
 ### Verse 6
 
@@ -230,7 +230,7 @@ Do right to realm and throne."
 
 ## Explanatory Notes & Quaint Sayings
 
-**Title &mdash;** The inscription of the psalm in Hebrew is only the single word rwmzm *Mizmor*, "Psalm" (whence probably the title "orphan Mizmor" in the Talmudic treatise Avodah Zara). *J.J.S. Perowne.* 
+**Title &mdash;** The inscription of the psalm in Hebrew is only the single word rwmzm *Mizmor*, "Psalm" (whence probably the title "orphan Mizmor" in the Talmudic treatise Avodah Zara). *J. J. S. Perowne.* 
 
 **Title &mdash;** Hengstenberg remarks, "This is the only psalm which is entitled simply `a psalm.' This common name of all the psalms cannot be employed here in its general sense, but must have a peculiar meaning." He considers that it indicates that this is the lyric accompaniment of the more decidedly prophetical psalm which precedes it,—in fact, the psalm of that prophecy. He also notes that in the original we have in Ps 98:5-6 words akin to the title brought into great prominence, and perhaps this may have suggested it.
 
@@ -242,15 +242,15 @@ Do right to realm and throne."
 
 **Whole Psalm.** This psalm is an evident prophecy of Christ's coming to save the world; and what is here *foretold* by David is, in the Blessed Virgin's Song chanted forth as being *accomplished*. David is the *Voice*, and Mary is the *Echo.* 
 
-1\.DAVID. "O sing unto the Lord a new song." (The *Voice*.) MARY. "My soul doth magnify the Lord." (The *Echo*.)
+1\. DAVID. "O sing unto the Lord a new song." (The *Voice*.) MARY. "My soul doth magnify the Lord." (The *Echo*.)
 
-2\.DAVID. "He hath done marvellous things." (The *Voice*.) MARY. "He that is mighty hath done great things." (The *Echo*.)
+2\. DAVID. "He hath done marvellous things." (The *Voice*.) MARY. "He that is mighty hath done great things." (The *Echo*.)
 
-3\.DAVID. "With his own right hand and holy arm hath he gotten himself the victory." (The *Voice*.) MARY. "He hath showed strength with his arm, and scattered the proud in the imagination of their hearts." (The *Echo*.)
+3\. DAVID. "With his own right hand and holy arm hath he gotten himself the victory." (The *Voice*.) MARY. "He hath showed strength with his arm, and scattered the proud in the imagination of their hearts." (The *Echo*.)
 
-4\.DAVID. "The Lord hath made known his salvation; his righteousness hath he openly showed, "&c. (The *Voice*.) MARY. "His mercy is on them that fear him, from generation to generation." (The *Echo*.)
+4\. DAVID. "The Lord hath made known his salvation; his righteousness hath he openly showed, "&c. (The *Voice*.) MARY. "His mercy is on them that fear him, from generation to generation." (The *Echo*.)
 
-5\.DAVID. "He hath remembered his mercy and his truth toward the house of Israel." (The *Voice*.) MARY. "He hath holpen his servant Israel, in remembrance of his mercy." (The *Echo*.)
+5\. DAVID. "He hath remembered his mercy and his truth toward the house of Israel." (The *Voice*.) MARY. "He hath holpen his servant Israel, in remembrance of his mercy." (The *Echo*.)
 
 These parallels are very striking; and it seems as if Mary had this psalm in her eye when she composed her song of triumph. And this is a farther argument that the whole psalm, whether it record the deliverance of Israel from Egypt, or the Jews from the Babylonish captivity, is yet to be ultimately understood of the redemption of the world by Jesus Christ, and the proclamation of his gospel through all the nations of the earth: and taken in this view, no language can be too strong, nor poetic imagery too high, to point out the unsearchable riches of Christ. *Adam Clarke.* 
 
@@ -264,25 +264,25 @@ Or, because this Psalm is prophetical, a new song, that is, the song of the glor
 
 **Verse 1.** *He hath done marvellous things.* He has opened his greatness and goodness in the work of redemption. What marvels has not Christ done?
 
-1\.He was conceived by the Holy Ghost.
+1\. He was conceived by the Holy Ghost.
 
-2\.Born of a virgin.
+2\. Born of a virgin.
 
-3\.Healed all manner of diseases.
+3\. Healed all manner of diseases.
 
-4\.Fed thousands with a few loaves and fishes.
+4\. Fed thousands with a few loaves and fishes.
 
-5\.Raised the dead.
+5\. Raised the dead.
 
-6\.And what was more marvellous, died himself.
+6\. And what was more marvellous, died himself.
 
-7\.Rose again by his own power.
+7\. Rose again by his own power.
 
-8\.Ascended to heaven.
+8\. Ascended to heaven.
 
-9\.Sent down the Holy Ghost.
+9\. Sent down the Holy Ghost.
 
-10\.And made his apostles and their testimony the instruments of enlightening, and ultimately converting, the world.
+10\. And made his apostles and their testimony the instruments of enlightening, and ultimately converting, the world.
 
 — *Adam Clarke.* 
 
@@ -366,19 +366,19 @@ And joyful ages, from behind, in crowding ranks appear.
 
 **Verse 1.** *He hath done marvellous things.* 
 
-1\.He hath created a marvellous universe.
+1\. He hath created a marvellous universe.
 
-2\.He has established a marvellous government.
+2\. He has established a marvellous government.
 
-3\.He hath bestowed a marvellous gift.
+3\. He hath bestowed a marvellous gift.
 
-4\.He hath provided a marvellous redemption.
+4\. He hath provided a marvellous redemption.
 
-5\.He hath inspired a marvellous book.
+5\. He hath inspired a marvellous book.
 
-6\.He hath opened a marvellous fulness.
+6\. He hath opened a marvellous fulness.
 
-7\.He hath effected a marvellous transformation. ** 
+7\. He hath effected a marvellous transformation. ** 
 
 — *W. Jackson.* 
 
@@ -386,29 +386,29 @@ And joyful ages, from behind, in crowding ranks appear.
 
 **Verse 2.** *The Lord hath made known his salvation.* 
 
-1\.The contents of which it is composed.
+1\. The contents of which it is composed.
 
-2\.The reasons for which it has been provided.
+2\. The reasons for which it has been provided.
 
-3\.The price at which it has been procured.
+3\. The price at which it has been procured.
 
-4\.The terms on which it shall be imparted.
+4\. The terms on which it shall be imparted.
 
-5\.The way in which it must be propagated.
+5\. The way in which it must be propagated.
 
-6\.The manner in which its neglect will be punished. *W. J.* 
+6\. The manner in which its neglect will be punished. *W. J.* 
 
 **Verse 2.** (*first clause* ).
 
-1\.What is salvation?
+1\. What is salvation?
 
-2\.Why it is called the Lord's: "Salvation is of the Lord."
+2\. Why it is called the Lord's: "Salvation is of the Lord."
 
-3\.How he has made it known.
+3\. How he has made it known.
 
-4\.For what purpose.
+4\. For what purpose.
 
-5\.With what results. *E.G. Gange.* 
+5\. With what results. *E. G. Gange.* 
 
 **Verse 2.** The great privilege of knowing the gospel.
 
@@ -418,31 +418,31 @@ And joyful ages, from behind, in crowding ranks appear.
 
 **Verse 2.** Salvation's glory.
 
-1\.It is divine—"his salvation."
+1\. It is divine—"his salvation."
 
-2\.It is consistent with justice—"his righteousness."
+2\. It is consistent with justice—"his righteousness."
 
-3\.It is plain and simple—"openly showed."
+3\. It is plain and simple—"openly showed."
 
-4\.It is meant for all sorts of men—"heathen."
+4\. It is meant for all sorts of men—"heathen."
 
 **Verse 3.** (*first clause* ). The Lord's memory of his covenant. Times in which he seems to forget it; ways in which even in those times he proves his faithfulness; great deeds of grace by which at other times he shows his memory of his promises; and reasons why he must ever be mindful of his covenant.
 
 **Verse 3.** (*last clause* ). *All the ends of the earth.* 
 
-1\.Literally. Missionaries have visited every land.
+1\. Literally. Missionaries have visited every land.
 
-2\.Spiritually. Men ready to despair, to perish.
+2\. Spiritually. Men ready to despair, to perish.
 
-3\.Prophetically. Dwell on the grand promises concerning the future, and the triumphs of the church. *E.G.G.* 
+3\. Prophetically. Dwell on the grand promises concerning the future, and the triumphs of the church. *E. G. G.* 
 
 **Verse 3.** *All the ends of the earth have seen,* &c.
 
-1\.The greatest foreigners have seen it; many have "come from the east and the west; "Greeks, Peter's hearers, the Eunuch, Greenlanders, South Sea Islanders, Negroes, Red Indians, &c., &c.
+1\. The greatest foreigners have seen it; many have "come from the east and the west; "Greeks, Peter's hearers, the Eunuch, Greenlanders, South Sea Islanders, Negroes, Red Indians, &c., &c.
 
-2\.The ripest saints have seen it; they are at the light end of the earth, stepping out of the wilderness into Canaan, &c.
+2\. The ripest saints have seen it; they are at the light end of the earth, stepping out of the wilderness into Canaan, &c.
 
-3\.The vilest sinners have seen it; those who have wandered so far that they could get no farther without stepping into hell. The dying thief. The woman who was a sinner. Those whom Whitefield called "the devil's castaways." *W. J.* 
+3\. The vilest sinners have seen it; those who have wandered so far that they could get no farther without stepping into hell. The dying thief. The woman who was a sinner. Those whom Whitefield called "the devil's castaways." *W. J.* 
 
 **Verse 4.** The right use of noise.
 
@@ -452,17 +452,17 @@ And joyful ages, from behind, in crowding ranks appear.
 
 3\."Make a loud noise, all the earth." Nature with her ten thousand voices. The church with myriad saints.
 
-4\."Make a joyful noise unto God." Praise him alone. Praise him for ever. *E.G.G.* 
+4\."Make a joyful noise unto God." Praise him alone. Praise him for ever. *E. G. G.* 
 
 **Verse 6.** Joy a needful ingredient of praise. The Lord as King, an essential idea in adoration. Expression in various ways incumbent upon us, when praising joyfully such a King.
 
 **Verses 7-8.** Nature at worship. The congregation is
 
-1\.Vast. Sea, earth, rivers, hills.
+1\. Vast. Sea, earth, rivers, hills.
 
-2\.Varied. Diverse in character, word, aspect, each from each other, constant and alike in this alone, that *all, always* worship God.
+2\. Varied. Diverse in character, word, aspect, each from each other, constant and alike in this alone, that *all, always* worship God.
 
-3\.Happy. In this like the worshippers in heaven, and for the same reason—sin is absent. *E.G.G.* 
+3\. Happy. In this like the worshippers in heaven, and for the same reason—sin is absent. *E. G. G.* 
 
 **Verse 8.** The song of the sea, and the hallelujah of the hills.
 

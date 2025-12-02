@@ -152,9 +152,9 @@ This is the summing up of the entire imprecation, and fixes it upon the persons 
 
 **Whole Psalm.** We may consider Judas, at the same time, as the virtual head of the Jewish nation in their daring attempt to dethrone the Son of God. The doom pronounced, and the reasons for it, apply to the Jews as a nation, as well as to the leader of the band who took Jesus.— *Andrew A. Bonar.* 
 
-**Whole Psalm.** Is it possible that this perplexing and distressing Psalm presents us after all, not with David's maledictions upon his enemies, but with their maledictions upon him? Not only do I hold this interpretation to be quite legitimate, I hold it to be by far the more natural and reasonable interpretation.— *Joseph Hammond.* (In Dr. Cox's *Expositor,* Vol. 2. pg 225, this theory is well elaborated by Mr. Hammond, but we cannot for an instant accept it.— *C.H.S.* )
+**Whole Psalm.** Is it possible that this perplexing and distressing Psalm presents us after all, not with David's maledictions upon his enemies, but with their maledictions upon him? Not only do I hold this interpretation to be quite legitimate, I hold it to be by far the more natural and reasonable interpretation.— *Joseph Hammond.* (In Dr. Cox's *Expositor,* Vol. 2. pg 225, this theory is well elaborated by Mr. Hammond, but we cannot for an instant accept it.— *C. H. S.* )
 
-**The Imprecations of the Psalm.** The language has been justified, not as the language of David, but as the language of Christ, exercising his office of Judge, or, in so far as he had laid aside that office during his earthly life, calling upon his Father to accomplish the curse. It has been alleged that this is the prophetic foreshadowing of the solemn words, "Woe unto that man by whom the Son of Man is betrayed! It had been good for that man if he had not been born" (Mt 26:24). The curse in the words of Chrysostom is, "a prophecy in the form of a curse", (profhteia en eidei arav). The strain which such a view compels us to put on much of the language ought to have led long since to its abandonment. Not even the words denounced by our Lord against the Pharisees can really be compared to the anathemas which are here strung together. Much less is there any pretence for saying that those words so full of deep and holy sorrow, addressed to the traitor in the gospels, are merely another expression of the appalling denunciations of the psalm. But terrible as these undoubtedly are, to be accounted for by the spirit of the Old Dispensation, not to be defended by that of the New, still let us learn to estimate them aright.— *J.J. Stewart Perowne.* 
+**The Imprecations of the Psalm.** The language has been justified, not as the language of David, but as the language of Christ, exercising his office of Judge, or, in so far as he had laid aside that office during his earthly life, calling upon his Father to accomplish the curse. It has been alleged that this is the prophetic foreshadowing of the solemn words, "Woe unto that man by whom the Son of Man is betrayed! It had been good for that man if he had not been born" (Mt 26:24). The curse in the words of Chrysostom is, "a prophecy in the form of a curse", (profhteia en eidei arav). The strain which such a view compels us to put on much of the language ought to have led long since to its abandonment. Not even the words denounced by our Lord against the Pharisees can really be compared to the anathemas which are here strung together. Much less is there any pretence for saying that those words so full of deep and holy sorrow, addressed to the traitor in the gospels, are merely another expression of the appalling denunciations of the psalm. But terrible as these undoubtedly are, to be accounted for by the spirit of the Old Dispensation, not to be defended by that of the New, still let us learn to estimate them aright.— *J. J. Stewart Perowne.* 
 
 **The Imprecations.** These imprecations are not appropriate in the mouth of the suffering Saviour. It is not the spirit of Zion but of Sinai which here speaks out of the mouth of David; the spirit of Elias, which, according to Lu 9:58, is not the spirit of the New Testament. This wrathful spirit is overpowered by the spirit of love. But these anathemas are still not on this account so many beatings of the air. There is in them a divine energy, as in the blessing and cursing of every man who is united to God, and more especially of a man whose temper of mind is such as David's. They possess the same power as the prophetical threatenings, and in this sense they are regarded in the New Testament as fulfilled in the son of perdition (Joh 17:12). To the generation of the time of Jesus they were a deterrent warning not to offend against the Holy One of God, and this *Psalmus Ischarioticus* (Ac 1:20) will ever be such a mirror of warning to the enemies and persecutors of Christ and his church.— *Franz Delitzsch.* 
 
@@ -168,7 +168,7 @@ This is the summing up of the entire imprecation, and fixes it upon the persons 
 
 **Imprecations.** That explanation which regards the "enemies" as spiritual foes has a large measure of truth. It commended itself to a mind so far removed from mysticism as Arnold's. It is most valuable for devout private use of the Psalter. For, though we are come to Mount Sion, crested with the eternal calm, the opened ear can hear the thunder rolling along the peaks of Sinai. In the Gospel, the wrath of God is revealed from heaven against all ungodliness and unrighteousness. Sin is utterly hateful to God. The broad gates are flung wide open of the city that lies foursquare towards all the winds of heaven; for its ruler is divinely tolerant. But there shall in no wise enter it anything that defileth, neither whatever worketh abomination; for he is divinely intolerant too. And thus when, in public or private, we read these Psalms of imprecation, there is a lesson that comes home to us. We must read them, or dishonour God's word. Reading them, we must depart from sin, or pronounce judgment upon ourselves. Drunkenness, impurity, hatred, every known sin of flesh or spirit—these, and not mistaken men, are the worst enemies of God and of his Christ. Against these we pray in our Collects for Peace at Morning and Evening prayer—"Defend us in all assaults of our enemies, that by thee we being defended from the fear of our enemies, may pass our time in rest and quietness." These were the dark hosts which swept through the Psalmist's vision when he cried, "Let all mine enemies be ashamed and sore vexed", Ps 6:10.— *William Alexander, in "The Witness of the Psalms to Christ and Christianity",* 1877.
 
-**Imprecations.** I cannot forbear the following little incident that occurred the other morning at family worship. I happened to be reading one of the imprecatory psalms, and as I paused to remark, my little boy, a lad of ten years, asked with some earnestness: "Father, do you think it right for a good man to pray for the destruction of his enemies like that?" and at the same time referred me to Christ as praying for his enemies. I paused a moment to know how to shape the reply so as to fully meet and satisfy his enquiry, and then said, "My son, if an assassin should enter the house by night, and murder your mother, and then escape, and the sheriff and citizens were all out in pursuit, trying to catch him, would you not pray to God that they might succeed and arrest him, and that he might be brought to justice?" "Oh, yes!" said he, "but I never saw it so before. I did not know that that was the meaning of these Psalms." "Yes", said I, "my son, the men against whom David plays were bloody men, men of falsehood and crime, enemies to the peace of society, seeking his own life, and unless they were arrested and their wicked devices defeated, many innocent persons must suffer." The explanation perfectly satisfied his mind.— *F.G. Hibbard, in "The Psalms chronologically arranged",* 1856.
+**Imprecations.** I cannot forbear the following little incident that occurred the other morning at family worship. I happened to be reading one of the imprecatory psalms, and as I paused to remark, my little boy, a lad of ten years, asked with some earnestness: "Father, do you think it right for a good man to pray for the destruction of his enemies like that?" and at the same time referred me to Christ as praying for his enemies. I paused a moment to know how to shape the reply so as to fully meet and satisfy his enquiry, and then said, "My son, if an assassin should enter the house by night, and murder your mother, and then escape, and the sheriff and citizens were all out in pursuit, trying to catch him, would you not pray to God that they might succeed and arrest him, and that he might be brought to justice?" "Oh, yes!" said he, "but I never saw it so before. I did not know that that was the meaning of these Psalms." "Yes", said I, "my son, the men against whom David plays were bloody men, men of falsehood and crime, enemies to the peace of society, seeking his own life, and unless they were arrested and their wicked devices defeated, many innocent persons must suffer." The explanation perfectly satisfied his mind.— *F. G. Hibbard, in "The Psalms chronologically arranged",* 1856.
 
 **Title &mdash;** It is worth noting, that the superscription, *to the chief Musician*, to the precentor (xunml), proves it to have been designed, such as it is, for the Tabernacle or Temple service of song.— *Joseph Hammond, in "The Expositor,"* 1875.
 
@@ -264,7 +264,7 @@ As one who had a deadly moral plague.
 
 **Verse 4.** *For my love they are my adversaries*; that's an ill requital; but how did David requite them? We may take his own word for it; he tells us how, *"But I give myself unto prayer";* yea, he seemed a man wholly given unto prayer. The elegant conciseness of the Hebrew is, *"But I prayer";* we supply it thus, *"But I give myself unto prayer."* They are sinning against me, requiting my love with hatred, *"But I give myself unto prayer."* But for whom did he pray? Doubtless he prayed and prayed much for himself; he prayed also for them. We may understand these words, *"I give myself unto prayer",* two ways. First I pray against their plots and evil dealings with me (prayer was David's best strength always against his enemies), yet that was not all. But, secondly, *"I give myself unto prayer",* that the Lord would pardon their sin, and turn their hearts, when they are doing me mischief; or, though they have done me mischief, I am wishing them the best good. David (in another place) showed what a spirit of charity he was clothed with, when no reproof could hinder him from praying for others, Ps 141:5.— *Joseph Caryl.* 
 
-**Verse 4.** The translator of the Syriac version has inserted in Ps 109:4 *Arabic "and I have prayed for them",* as if he had copied them from the words of our Lord in Mt 5:44, where in the Syriac version of the New Testament we have exactly the same construction. It is in keeping with the inscription of the Psalm, which applies it directly to Christ. It would seem as if the Translator understood this verse of the crucifixion and of the Redeemer's prayer for his murderers, or as if the only way to understand the elliptical language of the Psalmist was from the teaching and example of our Lord.— *E.T. Gibson, of Crayford.* 
+**Verse 4.** The translator of the Syriac version has inserted in Ps 109:4 *Arabic "and I have prayed for them",* as if he had copied them from the words of our Lord in Mt 5:44, where in the Syriac version of the New Testament we have exactly the same construction. It is in keeping with the inscription of the Psalm, which applies it directly to Christ. It would seem as if the Translator understood this verse of the crucifixion and of the Redeemer's prayer for his murderers, or as if the only way to understand the elliptical language of the Psalmist was from the teaching and example of our Lord.— *E. T. Gibson, of Crayford.* 
 
 **Verse 4.** *I prayer.* The Messiah says in this prophetic psalm, "I am prayer." During his pilgrimage on earth, his whole life was communion with God; and now in his glory, he is constantly making intercession for us. But this does not exhaust the idea, *"I am prayer."* He not merely prayed and is now praying, he not merely teaches and influences us to pray, but he is prayer, the fountain and source of all prayer, as well as the foundation and basis of all answers to our petitions. He is the Word in this sense also. From all eternity his Father heard him, heard him as interceding for that world which, created through him, he represented, and in which, through him, divine glory was to be revealed. In the same sense, therefore, in which he is light and gives light, in which he is life and resurrection, and therefore quickens, Jesus *is* prayer.— *Adolph Saphir, in Lectures on the Lord's Prayer,* 1870.
 
@@ -320,9 +320,9 @@ As one who had a deadly moral plague.
 
 **Verse 10.** *Let them seek*, etc. Horsley renders this clause, *Let them be driven out from the very ruins of their dwellings*, and remarks that the image is that of "vagabonds seeking a miserable shelter among the ruins of decayed or demolished buildings, and not suffered to remain even in such places undisturbed."
 
-**Verses 9-10.** When we consider of whom this Psalm is used there will be no difficulty about it. No language could be more awful than that of Ps 109:6-19. It embraces almost every misery we can think of. But could any man be in a more wretched condition than Judas was? Could any words be too severe to express the depth of his misery—of him, who, for three whole years, had been the constant attendant of the Saviour of mankind; who had witnessed his miracles, and had shared his miraculous powers; who had enjoyed all the warnings, all the reproofs of his love, and then had betrayed him for thirty pieces of silver? Can we conceive a condition more miserable than that of Judas? And this Psalm is *a prophecy of the punishment* that should overtake him for his sin. S. Peter, in the Acts of the Apostles, quotes part of this psalm, and applies it to Judas: he applies it as a prophecy of the punishment he should suffer on the betrayal of the Son of God. It is probable that in this psalm, when it uses the word children, it does not mean those who are his offspring by natural descent, but those *who resemble him,* and *who partake with him in his wickedness.* This is a common meaning of the word sons, or children, in Holy Scripture. As where our blessed Lord tells the Jews, *Ye are of your father the devil*, he could not mean that the Jews were the natural descendants of the devil, but that they were his children because they did his works. Again, when they are called Abraham's children, it means those who do the works of Abraham. So in this psalm, where it is foretold that fearful punishment should happen to Judas for the betrayal of his Lord, and should be extended to his children, it means *his associates, his companions, and imitators in wickedness.* — *F.H. Dunwell, in "A Tract on the Commination Service,"* 1853.
+**Verses 9-10.** When we consider of whom this Psalm is used there will be no difficulty about it. No language could be more awful than that of Ps 109:6-19. It embraces almost every misery we can think of. But could any man be in a more wretched condition than Judas was? Could any words be too severe to express the depth of his misery—of him, who, for three whole years, had been the constant attendant of the Saviour of mankind; who had witnessed his miracles, and had shared his miraculous powers; who had enjoyed all the warnings, all the reproofs of his love, and then had betrayed him for thirty pieces of silver? Can we conceive a condition more miserable than that of Judas? And this Psalm is *a prophecy of the punishment* that should overtake him for his sin. S. Peter, in the Acts of the Apostles, quotes part of this psalm, and applies it to Judas: he applies it as a prophecy of the punishment he should suffer on the betrayal of the Son of God. It is probable that in this psalm, when it uses the word children, it does not mean those who are his offspring by natural descent, but those *who resemble him,* and *who partake with him in his wickedness.* This is a common meaning of the word sons, or children, in Holy Scripture. As where our blessed Lord tells the Jews, *Ye are of your father the devil*, he could not mean that the Jews were the natural descendants of the devil, but that they were his children because they did his works. Again, when they are called Abraham's children, it means those who do the works of Abraham. So in this psalm, where it is foretold that fearful punishment should happen to Judas for the betrayal of his Lord, and should be extended to his children, it means *his associates, his companions, and imitators in wickedness.* — *F. H. Dunwell, in "A Tract on the Commination Service,"* 1853.
 
-**Verses 10, 12-13.** It is for public ends that the psalmist prayed that the families of the wicked might be involved in their ruin. These are very terrible petitions; but it is God, not man, who has appointed these calamities as the ordinary consequences of persistence in wickedness. It is God, not man, who visits the iniquity of the fathers upon the children, to the third and fourth generations. It is because this is the ordinary portion of the transgressors, and *that thus in God's wonted way his abhorrence of the transgressions* of his enemies might be marked, that the psalmist prays for these calamities. He asks God to do what he had declared he would do, and this for public ends, for he says: "I will greatly praise the Lord with my mouth; yea, I will praise him *among the multitude.* For he shall stand at the right hand of the poor, to save him from those that condemn his soul", Ps 109:30-31.— *R.A. Bertram, in "The Imprecatory Psalms,"* 1867.
+**Verses 10, 12-13.** It is for public ends that the psalmist prayed that the families of the wicked might be involved in their ruin. These are very terrible petitions; but it is God, not man, who has appointed these calamities as the ordinary consequences of persistence in wickedness. It is God, not man, who visits the iniquity of the fathers upon the children, to the third and fourth generations. It is because this is the ordinary portion of the transgressors, and *that thus in God's wonted way his abhorrence of the transgressions* of his enemies might be marked, that the psalmist prays for these calamities. He asks God to do what he had declared he would do, and this for public ends, for he says: "I will greatly praise the Lord with my mouth; yea, I will praise him *among the multitude.* For he shall stand at the right hand of the poor, to save him from those that condemn his soul", Ps 109:30-31.— *R. A. Bertram, in "The Imprecatory Psalms,"* 1867.
 
 **Verses 10-13.** Many penurious fathers are so scraping for their children, that they ravish the poor children of God; but the hand of the Lord shall be against their young lions. Na 2:13. They join house to house, and field to field, but their children shall be *"vagabonds and beg", "seeking their bread out of their desolate places."* How many a covetous mole is now digging a house in the earth for his posterity, and never dreams of this sequel, that God should make those children beggars, for whose sake their fathers had made so many beggars! This is a quittance which the sire will not believe, but as sure as God is just the son shall feel. Now if he had but leave to come out of hell for an hour, and see this, how should he curse his folly! Sure, if possible, it would double the pain of his infernal torture. Be moderate, then, ye that so insatiately devour, as if you had an infinite capacity: you overload your stomachs, it is fit they should be disburdened in shameful spewing. How quickly doth a worldly minded man grow a defrauder, from a defrauder to a usurer, from a usurer to an oppressor, from an oppressor to an extortioner! If his eyes do but tell his heart of a booty, his heart will charge his hand, and he must have it, Mic 2:2. They do but see it, like it, and take it. Observe their due payment. *Let the extortioner catch all that he hath*: they got all by extortion, they shall lose all by extortion. They spoiled their neighbours, strangers shall spoil them. How often hath the poor widow and orphan cried, wept, groaned to them for mercy, and found none! They have taught God how to deal with themselves; *let there be none to extend mercy to them.* They have advanced houses for a memorial, and dedicated lands to their own names, Ps 49:11; all to get them a name; and even in this they shall be crossed: *In the next generation their name shall be quite put out.* — *Thomas Adams.* 
 
@@ -338,7 +338,7 @@ As one who had a deadly moral plague.
 
 **Verse 15.** *Let them be before the Lord continually.* Lafayette, the friend and ally of Washington, was in his youth confined in a French dungeon. In the door of his ceil there was cut a small hole, just big enough for a man's eye; at that hole a sentinel was placed, whose duty it was to watch, moment by moment, till he was relieved by a change of guard. All Lafayette saw was the winking eye, but the eye was always there; look when he would, it met his gaze. In his dreams, he was conscious it was staring at him. "Oh", he says, "it was horrible; there was no escape; when he lay down and when he rose up, when he ate and when he read, that eye searched him."— *"New Cyclopaedia of Illustrative Anecdote",* 1875.
 
-**Verse 15-19, 29.** Strict justice, and nothing more, breathes in every petition. Cannot you say, Amen! to all these petitions? Are you not glad when the wicked man falls into the ditch he has made for another's destruction, and when his mischief returns upon his own head? But you say, "These petitions are unquestionably just, but why did not the psalmist ask, not for justice, but for *mercy?"* The answer is, that in his public capacity, he was bound to think first about justice. No government could stand upon the basis of forgiveness, justice must always go before mercy. Suppose that in the course of the next session Parliament should decree that henceforth, instead of justice being shown to thieves, by sending them to prison, they should be treated charitably, and compelled to restore *one half* of what they stole, what would honest men say about the government? The thieves would doubtless be very complimentary, but what would honest men say? Why, they would say the government had altogether failed of its function, and it would not live to be a week older. And just so, the psalmists were bound first of all to seek for the vindication and establishment of justice and truth. Like the magistrates of today, they considered first the well being of the community. This they had in view in all the calamities they sought to bring upon wrong doers.— *R.A. Bertram.* 
+**Verse 15-19, 29.** Strict justice, and nothing more, breathes in every petition. Cannot you say, Amen! to all these petitions? Are you not glad when the wicked man falls into the ditch he has made for another's destruction, and when his mischief returns upon his own head? But you say, "These petitions are unquestionably just, but why did not the psalmist ask, not for justice, but for *mercy?"* The answer is, that in his public capacity, he was bound to think first about justice. No government could stand upon the basis of forgiveness, justice must always go before mercy. Suppose that in the course of the next session Parliament should decree that henceforth, instead of justice being shown to thieves, by sending them to prison, they should be treated charitably, and compelled to restore *one half* of what they stole, what would honest men say about the government? The thieves would doubtless be very complimentary, but what would honest men say? Why, they would say the government had altogether failed of its function, and it would not live to be a week older. And just so, the psalmists were bound first of all to seek for the vindication and establishment of justice and truth. Like the magistrates of today, they considered first the well being of the community. This they had in view in all the calamities they sought to bring upon wrong doers.— *R. A. Bertram.* 
 
 **Verse 16.** *Because.* Why, what is the crime? *Because that he remembered not to shew mercy*, etc. See what a long vial full of the plagues of God is poured out upon the unmerciful man!— *Thomas Watson.* 
 
@@ -384,9 +384,9 @@ Waiting the coming of the Son of Man!
 
 **Verses 17-19.** As the loss of the soul is a loss peculiar to itself, and a loss double, so it is a loss most fearful, because it is attended with the most heavy curse of God. This curse lieth in a deprivation of all good, and in a being swallowed up of all the most fearful miseries that a holy and just and eternal God can righteously inflict, or lay upon the soul of a sinful man. Now let reason here come in and exercise itself in the most exquisite manner; yea, let him now count up all, and all manner of curses and torments that a reasonable and an immortal soul is, or can be made capable of, and able to suffer, and when he has done, he shall come infinitely short of this great anathema, this master curse which God has reserved amongst his treasuries, and intends to bring out in that day of battle and war, which he proposes to make upon damned souls in that day. And this God will do, partly as a retaliation, as the former, and partly by way of revenge.
 
-1\.By way of retaliation: *As he loved cursing, so let it come unto him: as he delighted not in blessing, so let it be far from him.* Again, *"As he clothed himself with cursing like as with his garment, so let it come into his bowels like water, and like oil it, to his bones. Let it be unto him as the garment which covereth him, and for a girdle wherewith he is girded continually." "Let this",* saith Christ, *"be the reward of wine adversaries from the Lord,"* etc.
+1\. By way of retaliation: *As he loved cursing, so let it come unto him: as he delighted not in blessing, so let it be far from him.* Again, *"As he clothed himself with cursing like as with his garment, so let it come into his bowels like water, and like oil it, to his bones. Let it be unto him as the garment which covereth him, and for a girdle wherewith he is girded continually." "Let this",* saith Christ, *"be the reward of wine adversaries from the Lord,"* etc.
 
-2\.As this curse comes by way of retaliation, so it cometh by way of revenge. God will right the wrongs that sinners have done him, will repay vengeance for the despite and reproach wherewith they have affronted him, and will revenge the quarrel of his covenant. As the beginnings of revenges are terrible (De 32:41-42); what, then, will the whole execution be, when he shall come in flaming fire, taking vengeance on them that know not God, and that obey not the gospel of Jesus Christ? And, therefore, this curse is executed in wrath, in jealousy, in anger, in fury; yea, the heavens and the earth shall be burned up with the fire of that jealousy in which the great God will come when he cometh to curse the souls of sinners, and when he cometh to defy the ungodly, 2Th 1:7-9.— *John Bunyan.* 
+2\. As this curse comes by way of retaliation, so it cometh by way of revenge. God will right the wrongs that sinners have done him, will repay vengeance for the despite and reproach wherewith they have affronted him, and will revenge the quarrel of his covenant. As the beginnings of revenges are terrible (De 32:41-42); what, then, will the whole execution be, when he shall come in flaming fire, taking vengeance on them that know not God, and that obey not the gospel of Jesus Christ? And, therefore, this curse is executed in wrath, in jealousy, in anger, in fury; yea, the heavens and the earth shall be burned up with the fire of that jealousy in which the great God will come when he cometh to curse the souls of sinners, and when he cometh to defy the ungodly, 2Th 1:7-9.— *John Bunyan.* 
 
 **Verse 18.** The three figures in this verse are climatic: he has clothed himself in cursing, he has drunk it in like water (Job 15:16, 34:7), it has penetrated to the marrow of his bones, like the oily preparations which are rubbed in and penetrate to the bones.— *Franz Delitzsch.* 
 
@@ -408,9 +408,9 @@ Waiting the coming of the Son of Man!
 
 **Verse 23.** *I am gone like the shadow when it declineth.* —Bishop Horsley renders, *"I am just gone, like the shadow stretched to its utmost length";* and remarks:—"The state of the shadows of terrestrial objects at sunset, lengthening every instant, and growing faint as they lengthen; and in the instant that they shoot to an immeasurable length disappearing."
 
-**Verse 23.** *I am tossed up and down as the locust.* Although the locusts have sufficient strength of flight to remain on the wing for a considerable period, and to pass over great distances, they have little or no command over the direction of their flight, always travel with the wind, in the same way as the quail. So entirely are they at the mercy of the wind, that if a sudden gust arises the locusts are tossed about in the most helpless manner; and if they should happen to come across one of the circular air currents that are so frequently found in the countries which they inhabit, they are whirled round and round without the least power of extricating themselves.— *J.G. Wood.* 
+**Verse 23.** *I am tossed up and down as the locust.* Although the locusts have sufficient strength of flight to remain on the wing for a considerable period, and to pass over great distances, they have little or no command over the direction of their flight, always travel with the wind, in the same way as the quail. So entirely are they at the mercy of the wind, that if a sudden gust arises the locusts are tossed about in the most helpless manner; and if they should happen to come across one of the circular air currents that are so frequently found in the countries which they inhabit, they are whirled round and round without the least power of extricating themselves.— *J. G. Wood.* 
 
-**Verse 23.** *I am tossed up and down as the locust.* This reference is to the flying locust. I have had frequent opportunities to notice how these squadrons are tossed up and down, and whirled round and round by the ever varying currents of the mountain winds.— *W.M. Thomson.* 
+**Verse 23.** *I am tossed up and down as the locust.* This reference is to the flying locust. I have had frequent opportunities to notice how these squadrons are tossed up and down, and whirled round and round by the ever varying currents of the mountain winds.— *W. M. Thomson.* 
 
 **Verse 28.** *Let them curse, but bless thou.* Fear not thou, who art a saint, their imprecations; this is but like false fire in the pan of an uncharged gun, it gives a crack, but hurts not; God's blessings will cover thee from their curse.— *William Gurnall.* 
 
@@ -430,17 +430,17 @@ Waiting the coming of the Son of Man!
 
 **Verses 1-3.** 
 
-1\.God is for his people when the wicked are against them (Ps 109:1);
+1\. God is for his people when the wicked are against them (Ps 109:1);
 
 (a) for his people's sake;
 
 (b) for his own sake.
 
-2\.The wicked are against his people when he is for them (Ps 109:2-3);
+2\. The wicked are against his people when he is for them (Ps 109:2-3);
 
 (a) from hatred to God;
 
-(b) from hatred to his people.— *G.R.* 
+(b) from hatred to his people.— *G. R.* 
 
 **Verse 2.** Slander. Its cause—wickedness and malice. Its instruments—deceit and lies. Its frequency—Jesus and the saints slandered. Its punishment. Our resort when tried by it—prayer to God.
 
@@ -450,17 +450,17 @@ Waiting the coming of the Son of Man!
 
 **Verses 4-5.** 
 
-1\.David's spirit and conduct towards his enemies.
+1\. David's spirit and conduct towards his enemies.
 
 (a) His spirit is love—love for hatred; hence his denunciations are against their sins, rather than against them.
 
 (b) His conduct. He returned good for evil; he interceded for them.
 
-2\.Their spirit and conduct towards him.
+2\. Their spirit and conduct towards him.
 
 (a) Hatred for love.
 
-(b) Evil for good.— *G.R.* 
+(b) Evil for good.— *G. R.* 
 
 **Verse 5.** *Evil for good.* This is devil like. Have not men been guilty of this to parents, to those who have warned them, to saints and ministers, and especially to the Lord himself?
 
@@ -474,9 +474,9 @@ Waiting the coming of the Son of Man!
 
 **Verse 20-21.** 
 
-1\.David leaves his enemies in the hand of God (Ps 109:20).
+1\. David leaves his enemies in the hand of God (Ps 109:20).
 
-2\.He puts himself into the same hands (Ps 109:21).— *G.R.* 
+2\. He puts himself into the same hands (Ps 109:21).— *G. R.* 
 
 **Verse 21.** The plea of a believer must be drawn from his God, his "name" and "mercy." The opposite habit of searching for arguments in self very common and very disappointing.
 
@@ -486,21 +486,21 @@ Waiting the coming of the Son of Man!
 
 **Verses 26-27.** 
 
-1\.The Prayer.
+1\. The Prayer.
 
-2\.The Believing Title: "O Lord my God."
+2\. The Believing Title: "O Lord my God."
 
-3\.The attribute relied upon.
+3\. The attribute relied upon.
 
-4\.The motive for the petition.
+4\. The motive for the petition.
 
 **Verse 28.** The divine cure for human ill will; and the saint's temper when he trusts therein—"let thy servant rejoice."
 
 **Verse 29.** 
 
-1\.A prayer for the repentance of David's adversaries.
+1\. A prayer for the repentance of David's adversaries.
 
-2\.A prophecy for their confusion if they remain impenitent.— *G.R.* 
+2\. A prophecy for their confusion if they remain impenitent.— *G. R.* 
 
 **Verse 29.** The sinner's last mantle.
 
@@ -508,33 +508,33 @@ Waiting the coming of the Son of Man!
 
 **Verses 30-31.** 
 
-1\.David's *will* with respect to himself: "I will... yea, I will" etc. (Ps 109:30).
+1\. David's *will* with respect to himself: "I will... yea, I will" etc. (Ps 109:30).
 
-2\.His *shall* with respect to God: "he shall", etc. (Ps 109:31).— *G.R.* 
+2\. His *shall* with respect to God: "he shall", etc. (Ps 109:31).— *G. R.* 
 
 **Verses 30-31.** He promises God that he will praise him, Ps 109:30. He promises himself that he shall have cause to praise God, Ps 109:31.— *Matthew Henry.* 
 
 **Verse 31.** 
 
-1\.The character to whom the promise is made—the poor.
+1\. The character to whom the promise is made—the poor.
 
-2\.The danger to which he is exposed—those that condemn his soul.
+2\. The danger to which he is exposed—those that condemn his soul.
 
-3\.The deliverance which is promised to him—divine, opportune, efficient, complete, everlasting.
+3\. The deliverance which is promised to him—divine, opportune, efficient, complete, everlasting.
 
 ## Works Upon The Hundred And Ninth Psalm
 
-In "The Expositor", vol. 2. (1875), edited by the Rev. Samuel Cox, there is "An Apology for the Vindictive Psalm" (Ps 109:1-31), by Joseph Hammond, L.L.B. In volume 3 of the same magazine are four articles from the pen of the same writer, on "The Vindictive Psalms vindicated." "The Imprecatory Psalms." Six Lectures. By the Rev. R.A. Bertram. 1867. (12 mo.)
+In "The Expositor", vol. 2. (1875), edited by the Rev. Samuel Cox, there is "An Apology for the Vindictive Psalm" (Ps 109:1-31), by Joseph Hammond, L. L. B. In volume 3 of the same magazine are four articles from the pen of the same writer, on "The Vindictive Psalms vindicated." "The Imprecatory Psalms." Six Lectures. By the Rev. R. A. Bertram. 1867. (12 mo.)
 
 In Dr. Thomas Randolph's Works, entitled "A View of our Blessed Saviour's Ministry...together with a Charge, Dissertations, Sermons, and Theological Lectures," 2 vols., 8vo., Oxford, 1784, there is a comment on Ps 109:1-31, vol. 2, p. 315.
 
-The Sermons of Charles Peters, A.M., 8vo., London, 1776, contain "The Curses of Psalm the 109th explained, with practical instructions," pp. 348-378.
+The Sermons of Charles Peters, A. M., 8vo., London, 1776, contain "The Curses of Psalm the 109th explained, with practical instructions," pp. 348-378.
 
 W. Keate's Sermon, entitled, "The 109th, commonly called the Imprecating Psalm, considered, on a principle by which the Psalm explains itself." 4to., London, 1794.
 
-F.H. Dunwell. A Tract on the Commination Service of the Church of England. 12 mo. 1853.
+F. H. Dunwell. A Tract on the Commination Service of the Church of England. 12 mo. 1853.
 
-In the "Bibliotheca Sacra and Theological Review," vol. 1., 1844, pp. 97-110, there is an article on "The Imprecations in the Scriptures," by B.B. Edwards, Professor in the Theological Seminary, Andover.
+In the "Bibliotheca Sacra and Theological Review," vol. 1., 1844, pp. 97-110, there is an article on "The Imprecations in the Scriptures," by B. B. Edwards, Professor in the Theological Seminary, Andover.
 
-There is also an article on "The Imprecatory Psalms", in "Bibliotheca Sacra and American Biblical Repository," for July, 1856, pp. 551-563, by John J. Owen, D.D., Professor in the Free Academy, New York.
+There is also an article on "The Imprecatory Psalms", in "Bibliotheca Sacra and American Biblical Repository," for July, 1856, pp. 551-563, by John J. Owen, D. D., Professor in the Free Academy, New York.
 

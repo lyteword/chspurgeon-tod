@@ -140,7 +140,7 @@ Seventh doctrine: That God may be angry with his people, so sore, and so long, t
 
 **Verse 4.** *They set up their ensigns for signs.* The meaning is, that the enemy, having abolished the signs of the true God, of his people and religion, such as circumcision, the feasts, sacrifices, the other ordinances of religion, and other marks of liberty, substituted his own idolatrous signs, as the signs of his authority and religion. *Hermann Venema.* 
 
-**Verses 4-7.** (The persecution under *Antiochus.* B.C. 168.) Athenaeus proceeded to Jerusalem, where, with the assistance of the garrison, he prohibited and suppressed every observance of the Jewish religion, forced the people to profane the Sabbath, to eat swine's flesh, and other unclean food, and expressly forbade the national rite of circumcision. The Temple was dedicated to Jupiter Olympus: the statue of that deity was erected on part of the altar of burnt offerings, and sacrifice duly performed... As a last insult, the feasts of the Bacchanalia, the license of which, as they were celebrated in the later ages of Greece, shocked the severe virtue of the older Romans, were substituted for the national festival of Tabernacles. The reluctant Jews were forced to join in these riotous orgies, and to carry the ivy, the insignia of the god. So near was the Jewish nation, and the worship of Jehovah, to total extermination. *Henry Hart Milman (1791-1868), in "A History of the Jews."* 
+**Verses 4-7.** (The persecution under *Antiochus.* B. C. 168.) Athenaeus proceeded to Jerusalem, where, with the assistance of the garrison, he prohibited and suppressed every observance of the Jewish religion, forced the people to profane the Sabbath, to eat swine's flesh, and other unclean food, and expressly forbade the national rite of circumcision. The Temple was dedicated to Jupiter Olympus: the statue of that deity was erected on part of the altar of burnt offerings, and sacrifice duly performed... As a last insult, the feasts of the Bacchanalia, the license of which, as they were celebrated in the later ages of Greece, shocked the severe virtue of the older Romans, were substituted for the national festival of Tabernacles. The reluctant Jews were forced to join in these riotous orgies, and to carry the ivy, the insignia of the god. So near was the Jewish nation, and the worship of Jehovah, to total extermination. *Henry Hart Milman (1791-1868), in "A History of the Jews."* 
 
 ( *Under Titus.*) And now the Romans, upon the flight of the seditious into the city, and upon the burning of the holy house itself, and of all the buildings lying round about it, brought their ensigns to the temple, and set them over against its eastern gate; and there did they offer sacrifices to them, and there did they make Titus imperator, with the greatest acclamation of joy. *Josephus.* 
 
@@ -150,7 +150,7 @@ Seventh doctrine: That God may be angry with his people, so sore, and so long, t
 
 **Verse 8.** *Synagogues.* The assertion of those who are in favour of the Maccabean origin of the Psalm, that these words describe the destruction of the *synagogues,* is met by the remark, that in all the copious accounts which we have of the transactions of these times, there is nothing said of any such work of destruction. *E. W. Hengstenberg.* 
 
-**Verse 8.** *Synagogues.* In the Old Testament we find no traces of meetings for worship in synagogues. Temporary altars, groves, and high places were used alike by the Jewish saints and sinners for the worship of God and idols. The only pre-exile instance which seems to indicate that the devout in Israel were in the habit of resorting to pious leaders for blessings and instruction on stated occasions, is to be found in 2Ki 4:23, where the Shunammite's husband asks, "Wherefore wilt thou go to him (Elisha) today? It is neither new moon nor Sabbath." Yet 2Ki 22:8, etc.; 2Ch 34:14, etc., testify undoubtedly against the existence of places of worship under the monarchy. It is during the exile, whilst the temple worship was in abeyance, that we find indubitable proof of the systematic meetings on fasts for devotion and instruction (Zec 7:3-5 8:19). Religious meetings were also held on Sabbaths and fasts, to instruct the exiles in the divine law, and to admonish them to obey the divine precepts, (Ezr 10:1-9 Ne 8:1-3 9:1-3 13:1-3). These meetings, held near the temple and in other localities, were the origin of the *synagogue,* and the place in which the people assembled was denominated *the house of assembly.* Hence, also, the synagogue in the temple itself... These synagogues soon became very popular, so that the psalmist in depicting worship in the time of the Maccabees declares that the many meeting places of God—or *the Synagogues of God* as the A.V. rightly renders it—have been laid waste. *Christian D. Ginsburg, in Cyclopaedia of Biblical Literature.* 
+**Verse 8.** *Synagogues.* In the Old Testament we find no traces of meetings for worship in synagogues. Temporary altars, groves, and high places were used alike by the Jewish saints and sinners for the worship of God and idols. The only pre-exile instance which seems to indicate that the devout in Israel were in the habit of resorting to pious leaders for blessings and instruction on stated occasions, is to be found in 2Ki 4:23, where the Shunammite's husband asks, "Wherefore wilt thou go to him (Elisha) today? It is neither new moon nor Sabbath." Yet 2Ki 22:8, etc.; 2Ch 34:14, etc., testify undoubtedly against the existence of places of worship under the monarchy. It is during the exile, whilst the temple worship was in abeyance, that we find indubitable proof of the systematic meetings on fasts for devotion and instruction (Zec 7:3-5 8:19). Religious meetings were also held on Sabbaths and fasts, to instruct the exiles in the divine law, and to admonish them to obey the divine precepts, (Ezr 10:1-9 Ne 8:1-3 9:1-3 13:1-3). These meetings, held near the temple and in other localities, were the origin of the *synagogue,* and the place in which the people assembled was denominated *the house of assembly.* Hence, also, the synagogue in the temple itself... These synagogues soon became very popular, so that the psalmist in depicting worship in the time of the Maccabees declares that the many meeting places of God—or *the Synagogues of God* as the A. V. rightly renders it—have been laid waste. *Christian D. Ginsburg, in Cyclopaedia of Biblical Literature.* 
 
 **Verse 8.** *(second clause)*. The sense seems to be, *they* (the Chaldaean invaders) *have abolished all the solemnities in the land.* They have taken away the daily sacrifice; they have put an end to the festivals and feasts of our holy ritual. Compare La 2:6: "He hath violently taken away his tabernacle; he hath destroyed his places of the assembly, "(or rather, his assembly, his *moed* ). "The Lord hath caused the solemn feasts and sabbaths to be forgotten in Zion." *Christopher Wordsworth.* 
 
@@ -234,13 +234,13 @@ Is the gate that leads to Him.
 
 **Verse 19.** *Thy turtledove.* This expression may, perhaps, be further illustrated from the custom, ancient and modern, of keeping doves as favourite birds (see *Theocritus* v. 96, and *Virgil* Eclog. 3. v 68, 69), and from the care taken to secure them from such animals as are dangerous to them. *James Merrick.* 
 
-**Verse 19.** *Turtle Doves,* of whatever species they be, whether travellers or domesticated, are equally preserved by the inhabitants of Egypt: they do not kill, and never eat them. Wishing to know the motive of this abstinence among people who possess so little in the greater part of their action, I learnt that it was for the honour of humanity. It is a consequence of the respect due to hospitality, which the Arabs hold in such high estimation, and of which they have communicated some shades to the people who dwell among them. They would regard it as a violation of this hospitality not to spare those birds, which come with a perfect confidence to live amongst them, and there to become skilful but useless receptors of love and tenderness. The very farmer, who sees his harvest a prey for the flights of turtle doves which alight on his fields, neither destroys nor harasses them, but suffers them to multiply in tranquillity. *C. N.S. de M. Sonnini.* 1775-1811.
+**Verse 19.** *Turtle Doves,* of whatever species they be, whether travellers or domesticated, are equally preserved by the inhabitants of Egypt: they do not kill, and never eat them. Wishing to know the motive of this abstinence among people who possess so little in the greater part of their action, I learnt that it was for the honour of humanity. It is a consequence of the respect due to hospitality, which the Arabs hold in such high estimation, and of which they have communicated some shades to the people who dwell among them. They would regard it as a violation of this hospitality not to spare those birds, which come with a perfect confidence to live amongst them, and there to become skilful but useless receptors of love and tenderness. The very farmer, who sees his harvest a prey for the flights of turtle doves which alight on his fields, neither destroys nor harasses them, but suffers them to multiply in tranquillity. *C. N. S. de M. Sonnini.* 1775-1811.
 
 **Verse 19.** *Forget not the congregation of thy poor. Thy* poor, by way of discrimination. There may be a greater distance between poor and poor, than there is between poor and rich. There are many "ragged regiments, ""congregations of poor, "whom the Lord will forget for ever; but *his* poor shall be saved. And these poor are of two sorts; either poor in regard of wealth and outward substance, or poor in regard of friends or outward assistance. A rich man, especially a godly rich man, may be in a poor case, destitute and forsaken, wanting patronage and protection. God saveth the poor in both notions, both those that have no friends, and those that have no estates. *Joseph Caryl.* 
 
 **Verse 20.** *Have respect.* The word, in the original signification of it, imports a fastening of the eyes upon some object, that a man desires to look into. Hence, by a metaphor, it is transferred to the eyes of the mind, and signifies a serious weighing and consideration of a thing. God is said to "wink at the times of ignorance, "or not to regard it, Ac 17:30. God's people here look at God, as if he did wink at his covenant, and neither look at it, nor them in their miseries. The psalmist desires him that he would be mindful of it for his people's deliverance. *Francis Taylor, in "A Sermon preached before the House of Commons, " entitled "God's Covenant the Churches Plea."* 1645.
 
-**Verse 20.** *Have respect unto the covenant.* This presseth the Lord more than the former; this is the close grappling, as it were, with him in the words of Jacob: "I will not let thee go till thou hast blessed me." This is the throwing out of the greatest sheet anchor in the tempest, for it lays hold on God's faithfulness, and truth, and fatherly goodness. If they be not in covenant with God, it may be charged upon them.—"You have violated my holy law, you have incensed my wrath against you by your perverse ways, therefore I will not help you, but give you up; "but now the souls that be in covenant with God will not be put off so (be it spoken with holy reverence), but will cry out, O Lord, though our iniquities testify against us, yet *have respect unto thy covenant.* Yet be sure you walk uprightly before the Lord...With what face can any one say, *Lord, have respect unto thy covenant,* when he casts his own covenant behind his back, and cannot say with the prophet David, "I have a respect to all thy commandments"? How canst thou say, "Deliver me not up to the many beasts without, "when thou art not afraid to be delivered up to thy vile, bestial lusts and affections that are within? Thou hypocrite, first labour the subduing of the monsters that are within thee, then a fair way will be open to have thine enemies subdued round about thee. *John Langley.* 
+**Verse 20.** *Have respect unto the covenant.* This presseth the Lord more than the former; this is the close grappling, as it were, with him in the words of Jacob: "I will not let thee go till thou hast blessed me." This is the throwing out of the greatest sheet anchor in the tempest, for it lays hold on God's faithfulness, and truth, and fatherly goodness. If they be not in covenant with God, it may be charged upon them.—"You have violated my holy law, you have incensed my wrath against you by your perverse ways, therefore I will not help you, but give you up; "but now the souls that be in covenant with God will not be put off so (be it spoken with holy reverence), but will cry out, O Lord, though our iniquities testify against us, yet *have respect unto thy covenant.* Yet be sure you walk uprightly before the Lord... With what face can any one say, *Lord, have respect unto thy covenant,* when he casts his own covenant behind his back, and cannot say with the prophet David, "I have a respect to all thy commandments"? How canst thou say, "Deliver me not up to the many beasts without, "when thou art not afraid to be delivered up to thy vile, bestial lusts and affections that are within? Thou hypocrite, first labour the subduing of the monsters that are within thee, then a fair way will be open to have thine enemies subdued round about thee. *John Langley.* 
 
 **Verse 20.** *Have respect unto the covenant.* Those persons and preachers who decline to think and speak of gospel mercies and free salvation as secured by *covenant,* deprive themselves and others of much of the blessed comforts of God's word. Such was not the manner of the inspired psalmist. *William S. Plumer.* 
 
@@ -260,31 +260,31 @@ Is the gate that leads to Him.
 
 **Verse 1.** 
 
-1\.The divine displeasure a fact.
+1\. The divine displeasure a fact.
 
-2\.It is but in measure, and we are very liable to exaggerate it.
+2\. It is but in measure, and we are very liable to exaggerate it.
 
-3\.Even while it lasts our relation to him is unaffected: *Sheep of thy pasture.* 
+3\. Even while it lasts our relation to him is unaffected: *Sheep of thy pasture.* 
 
-4\.Our business is to enquire the reason of it, and act accordingly.
+4\. Our business is to enquire the reason of it, and act accordingly.
 
 **Verse 1.** *(second clause)*. The Lord's anger with his people compared to smoke.
 
-1\.It is not a consuming fire.
+1\. It is not a consuming fire.
 
-2\.It suggests fear of the fire.
+2\. It suggests fear of the fire.
 
-3\.It darkens the light of joy.
+3\. It darkens the light of joy.
 
-4\.It blinds the eyes of faith.
+4\. It blinds the eyes of faith.
 
-5\.It checks the breath of life.
+5\. It checks the breath of life.
 
-6\.It blackens the beauty of our worldly comforts.
+6\. It blackens the beauty of our worldly comforts.
 
 **Verse 2.** 
 
-1\.The Lord's relation to his people.
+1\. The Lord's relation to his people.
 
 (a) Election.
 
@@ -292,21 +292,21 @@ Is the gate that leads to Him.
 
 (c) Indwelling.
 
-2\.The prayer arising from it: *Remember.* 
+2\. The prayer arising from it: *Remember.* 
 
 **Verse 3.** Church mischief.
 
-1\.The church has enemies.
+1\. The church has enemies.
 
-2\.Wickedness in the church is their great weapon.
+2\. Wickedness in the church is their great weapon.
 
-3\.This causes much desolation to weak saints, to enquirers, to peace, to prayer, to usefulness.
+3\. This causes much desolation to weak saints, to enquirers, to peace, to prayer, to usefulness.
 
-4\.The cure for it is God's interposition.
+4\. The cure for it is God's interposition.
 
 **Verses 3-4.** The power of prayer.
 
-1\.On one side were,
+1\. On one side were,
 
 (a) Desolation: *perpetual,* etc.
 
@@ -316,7 +316,7 @@ Is the gate that leads to Him.
 
 (d) Demonstration: *they set up.* 
 
-2\.On the other side is,
+2\. On the other side is,
 
 (a) Supplication.
 
@@ -330,49 +330,49 @@ Is the gate that leads to Him.
 
 **Verses 6-7.** Things feared by a church.
 
-1\.Injury to her doctrines or ordinances: *carved work.* 
+1\. Injury to her doctrines or ordinances: *carved work.* 
 
-2\.The fire of strife, division, etc.
+2\. The fire of strife, division, etc.
 
-3\.The defilement of sin. Either of these three will throw a church down; let her guard and pray against them.
+3\. The defilement of sin. Either of these three will throw a church down; let her guard and pray against them.
 
 **Verse 8.** The destruction of rural churches, the aim of our enemies: the injury they would so do, and our duty to prevent it: the means the destroyers use: bribery, oppression, etc. Our proper method for sustaining such churches.
 
 **Verse 9.** (*first clause* ).
 
-1\.There are such things as *signs,* that is, tokens and marks of God's special favour to the soul.
+1\. There are such things as *signs,* that is, tokens and marks of God's special favour to the soul.
 
-2\.There is also *a seeing* those signs when God, the Holy Ghost, is pleased to shine upon them.
+2\. There is also *a seeing* those signs when God, the Holy Ghost, is pleased to shine upon them.
 
-3\.There is a third state, where there is *not seeing* the signs, those signs being enveloped in darkness, dimness, and obscurity. *J. C. Philpot.* 
+3\. There is a third state, where there is *not seeing* the signs, those signs being enveloped in darkness, dimness, and obscurity. *J. C. Philpot.* 
 
 **Verse 10.** A prayer for revival.
 
-1\.How God is reproached.
+1\. How God is reproached.
 
-2\.What are the ill effects of it.
+2\. What are the ill effects of it.
 
-3\.When we may expect him to arise.
+3\. When we may expect him to arise.
 
 **Verse 11.** 
 
-1\.The patience of God with man: He 'withdraws his hand, even,' etc., he hesitates to strike.
+1\. The patience of God with man: He 'withdraws his hand, even,' etc., he hesitates to strike.
 
-2\.The impatience of man with God: "pluck it, "etc. *G. R.* 
+2\. The impatience of man with God: "pluck it, "etc. *G. R.* 
 
 **Verse 12.** 
 
-1\.The sovereignty of God.
+1\. The sovereignty of God.
 
-2\.Its antiquity.
+2\. Its antiquity.
 
-3\.Our loyalty to it.
+3\. Our loyalty to it.
 
-4\.The practical character of his reign: *working.* 
+4\. The practical character of his reign: *working.* 
 
-5\.The graciousness of it: *working salvation.* 
+5\. The graciousness of it: *working salvation.* 
 
-6\.The place of its operation: *in the midst of the* earth.
+6\. The place of its operation: *in the midst of the* earth.
 
 **Verse 14.** God's defeat of our enemies, and the benefit accruing to ourselves.
 
@@ -382,23 +382,23 @@ Is the gate that leads to Him.
 
 **Verses 16-17.** 
 
-1\.The God of grace is the God of nature: *The day in thine,* etc.
+1\. The God of grace is the God of nature: *The day in thine,* etc.
 
-2\.The God of nature is the God of grace: the wisdom, the power, the faithfulness the same. See Psalm 19. *G. R.* 
+2\. The God of nature is the God of grace: the wisdom, the power, the faithfulness the same. See Psalm 19. *G. R.* 
 
 **Verse 19.** The soul of the believer compared to a turtledove.
 
 **Verse 20.** 
 
-1\.The title given to heathen nations: *dark places of the earth.* 
+1\. The title given to heathen nations: *dark places of the earth.* 
 
 Not without the light of nature, or of reason, or of natural conscience, or of philosophy, as of Greece and Rome; but without the light of revelation.
 
-2\.Their condition: *full of,* etc.: cruelty in their public, social, and private relationships. See Romans 1: "without natural affection, implacable, unmerciful."
+2\. Their condition: *full of,* etc.: cruelty in their public, social, and private relationships. See Romans 1: "without natural affection, implacable, unmerciful."
 
-3\.Their part in the covenant. This is known from their part in its promises, and in prophecies: *I will give thee the heathen,* etc.
+3\. Their part in the covenant. This is known from their part in its promises, and in prophecies: *I will give thee the heathen,* etc.
 
-4\.The prayer of others on their behalf: *Have respect,* etc.; *Oh send forth thy light,* etc.
+4\. The prayer of others on their behalf: *Have respect,* etc.; *Oh send forth thy light,* etc.
 
 The conversion of the world will be in answer to the prayers of the church.
 
@@ -406,9 +406,9 @@ The conversion of the world will be in answer to the prayers of the church.
 
 **Verse 22.** 
 
-1\.The glory of our cause: it is the Lord's own.
+1\. The glory of our cause: it is the Lord's own.
 
-2\.The hope of our cause: he will plead it himself.
+2\. The hope of our cause: he will plead it himself.
 
-3\.The hope thus derivable from the violence of man: it will move the Lord to arise.
+3\. The hope thus derivable from the violence of man: it will move the Lord to arise.
 

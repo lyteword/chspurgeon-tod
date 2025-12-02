@@ -244,7 +244,7 @@ lase having gods that are both deaf and dumb.
 
 **Verses 1-4.** 
 
-1\.The Employment. Praise three times commended, and in three respects.
+1\. The Employment. Praise three times commended, and in three respects.
 
 a) With respect to God: not his works merely, but himself.
 
@@ -252,9 +252,9 @@ b) With respect to ourselves: it is pleasant and profitable.
 
 c) With respect to others: it best recommends our religion to all who hear it. All others are religions of fear, ours of joy and praise.
 
-2\.The Persons: servants in attendance at his house, who stand there by appointment, ready to hear, ready to obey.
+2\. The Persons: servants in attendance at his house, who stand there by appointment, ready to hear, ready to obey.
 
-3\.The Motives.
+3\. The Motives.
 
 a) In general. It is due to God, because he is good; and it is pleasant to us: Ps 135:3.
 
@@ -262,25 +262,25 @@ b) In particular. Those who are specially privileged by God should specially pra
 
 **Verse 1.** *Praise ye the LORD.* 
 
-1\.The Lord ought to be praised.
+1\. The Lord ought to be praised.
 
-2\.He ought to be praised *by you*.
+2\. He ought to be praised *by you*.
 
-3\.He ought to be praised *now* :let us remember his present favours.
+3\. He ought to be praised *now* :let us remember his present favours.
 
-4\.He ought to be praised in everything for ever.
+4\. He ought to be praised in everything for ever.
 
 **Verse 1.** *Praise him, O ye servants of the LORD.* 
 
-1\.Praise him for the privilege of serving him.
+1\. Praise him for the privilege of serving him.
 
-2\.Praise him for the power to serve him.
+2\. Praise him for the power to serve him.
 
-3\.Praise him for the acceptance of your service.
+3\. Praise him for the acceptance of your service.
 
-4\.Praise him as the chief part of your service.
+4\. Praise him as the chief part of your service.
 
-5\.Praise him that others may be induced to engage in his service.
+5\. Praise him that others may be induced to engage in his service.
 
 — *W. H. J. P.* 
 
@@ -292,11 +292,11 @@ b) In particular. Those who are specially privileged by God should specially pra
 
 **Verse 3.** Praise the Lord,
 
-1\.For the excellence of his nature.
+1\. For the excellence of his nature.
 
-2\.For the revelation of his name.
+2\. For the revelation of his name.
 
-3\.For the pleasantness of his worship.
+3\. For the pleasantness of his worship.
 
 **Verse 4.** It is a song of praise, and therefore election is mentioned because it is a motive for song.
 
@@ -310,19 +310,19 @@ b) In particular. Those who are specially privileged by God should specially pra
 
 **Verse 5.** *I know that the LORD is great.* 
 
-1\.By observing nature and providence.
+1\. By observing nature and providence.
 
-2\.By reading his word.
+2\. By reading his word.
 
-3\.By my own conversion, comfort, and regeneration.
+3\. By my own conversion, comfort, and regeneration.
 
-4\.By my after experience.
+4\. By my after experience.
 
-5\.By my overpowering communion with him.
+5\. By my overpowering communion with him.
 
 **Verse 5.** Delicious dogmatism. *"I know,"* etc.
 
-1\.What I know.
+1\. What I know.
 
 a) The Lord,
 
@@ -330,13 +330,13 @@ b) That he is great.
 
 c) That he is above all.
 
-2\.Why I know it.
+2\. Why I know it.
 
 a) Because he is "our Lord."
 
 b) By his operations in nature, providence, and grace (Ps 135:6-13).
 
-3\.My incorrigible obstinacy in this regard is proof against worshippers of all other gods: which gods are effeminate; without sovereignty; no god, or any god.— *W. B. H.* 
+3\. My incorrigible obstinacy in this regard is proof against worshippers of all other gods: which gods are effeminate; without sovereignty; no god, or any god.— *W. B. H.* 
 
 **Verse 6.** *Whatsoever the LORD pleased, that did he.* God's good pleasure in the work of grace. Seen, not in the death of the wicked, Eze 33:11; but in the election of his people, 1Sa 12:22; in the infliction of suffering on the substitute, Isa 53:10; in the provision of all fulness for his people in Christ, Col 1:19; in the arrangement of salvation by faith in Christ, Joh 6:39; in instituting preaching as the means of salvation, 1Co 1:21; in the adoption of believers as his children, Eph 1:5; in their sanctification, 1Th 4:3; in their ultimate triumph and reign, Lu 12:32.— *C. A. D.* 
 
@@ -344,7 +344,7 @@ b) By his operations in nature, providence, and grace (Ps 135:6-13).
 
 **Verses 6-12.** The Resistless Pleasure of Jehovah.
 
-1\.Behold it as here exemplified:
+1\. Behold it as here exemplified:
 
 a) Ruling all nature.
 
@@ -354,7 +354,7 @@ c) Making sport of kings and crowns.
 
 d) Laying a fertile country at the feet of the chosen.
 
-2\.Be wise in view thereof.
+2\. Be wise in view thereof.
 
 a) Submit to it: it sweeps the seas, and lays hands on earth and heaven.
 
@@ -368,45 +368,45 @@ e) Let the Lord's people fear not with so great a God, and so exhaustless an arm
 
 **Verse 13.** *Thy name, O LORD, endureth for ever.* 
 
-1\.As *the embodiment of perfection* :God's attributes and glory.
+1\. As *the embodiment of perfection* :God's attributes and glory.
 
-2\.As *the object of veneration* :"Holy and reverent is his name."
+2\. As *the object of veneration* :"Holy and reverent is his name."
 
-3\.As *the cause of salvation* :"For my name's sake", etc.
+3\. As *the cause of salvation* :"For my name's sake", etc.
 
-4\.As *the centre of attraction* :"In his name shall the Gentiles trust." "Our desire is to the remembrance of thy name." "Where two or three are gathered in my name", etc.
+4\. As *the centre of attraction* :"In his name shall the Gentiles trust." "Our desire is to the remembrance of thy name." "Where two or three are gathered in my name", etc.
 
-5\.As *a plea in supplication* :"For thy name's sake, pardon", etc. "Hitherto ye have asked nothing in my name."
+5\. As *a plea in supplication* :"For thy name's sake, pardon", etc. "Hitherto ye have asked nothing in my name."
 
-6\.As *a warrant for action* :"Whatsoever ye do, do all in the name", etc.
+6\. As *a warrant for action* :"Whatsoever ye do, do all in the name", etc.
 
-7\.As *a refuge in tribulation* :"The name of the Lord is a strong tower: the righteous runneth into it, and is safe." "I have kept them in thy name."
+7\. As *a refuge in tribulation* :"The name of the Lord is a strong tower: the righteous runneth into it, and is safe." "I have kept them in thy name."
 
-8\.As *a mark of glorification* :"I will write upon him the name of my God."
+8\. As *a mark of glorification* :"I will write upon him the name of my God."
 
-9\.As *a terror to transgressors* :"My name is dreadful among the heathen."— *W. J.* 
+9\. As *a terror to transgressors* :"My name is dreadful among the heathen."— *W. J.* 
 
 **Verse 14.** *The LORD will judge his people.* Others would like to do it, but must not. The world has seven judgment days in every week, but shall not be able to condemn the saints. He himself will judge. How will he judge them
 
-1\.Their persons, as to whether they are in or out of Christ.
+1\. Their persons, as to whether they are in or out of Christ.
 
-2\.Their principles, as to whether they are genuine or spurious.
+2\. Their principles, as to whether they are genuine or spurious.
 
-3\.Their prayers, as to whether they are availing or useless.
+3\. Their prayers, as to whether they are availing or useless.
 
-4\.Their profession, as to whether it is true or false.
+4\. Their profession, as to whether it is true or false.
 
-5\.Their procedure, as to whether it is good or bad.— *W. J.* 
+5\. Their procedure, as to whether it is good or bad.— *W. J.* 
 
 **Verse 14.** 
 
-1\.The position of believers his people.
+1\. The position of believers his people.
 
-2\.The discipline of God's family.
+2\. The discipline of God's family.
 
-3\.The tenderness of the Lord to them.
+3\. The tenderness of the Lord to them.
 
-4\.The safety of believers: they are still the Lord's.
+4\. The safety of believers: they are still the Lord's.
 
 **Verse 15.** *Silver and gold.* These are idols in our own land, among worldlings, and with some professors. Show the folly and wickedness of loving riches, and the evils which come of it.
 
@@ -422,9 +422,9 @@ e) Let the Lord's people fear not with so great a God, and so exhaustless an arm
 
 **Verse 18.** 
 
-1\.Men make idols like themselves.
+1\. Men make idols like themselves.
 
-2\.The idols make their makers like themselves. Describe both processes.
+2\. The idols make their makers like themselves. Describe both processes.
 
 **Verse 19.** *House of Israel.* The Lord's great goodness to all his people, perceived and proclaimed, and the Lord praised for it.
 
@@ -432,13 +432,13 @@ e) Let the Lord's people fear not with so great a God, and so exhaustless an arm
 
 **Verses 19-21.** 
 
-1\.The Exhortation.
+1\. The Exhortation.
 
 a) To bless the Lord.
 
 b) To bless him in his own house.
 
-2\.To whom it is addressed.
+2\. To whom it is addressed.
 
 a) To the house of Israel, or the whole church.
 
@@ -452,19 +452,19 @@ d) To all who fear God, wherever they may be. Even they who fear God are invited
 
 **Verse 20.** (*second clause* ).
 
-1\.The fear of God includes all religion.
+1\. The fear of God includes all religion.
 
-2\.The fear of the Lord suggests praise.
+2\. The fear of the Lord suggests praise.
 
-3\.The fear of the Lord renders praise acceptable.
+3\. The fear of the Lord renders praise acceptable.
 
 **Verse 21.** 
 
-1\.The double fact.
+1\. The double fact.
 
 a) Blessing perpetually ascending from Zion to God.
 
 b) God perpetually blessing his people by dwelling with them in Zion.
 
-2\.The double reason for praise, which is found in the double fact, and concerns every member of the church.
+2\. The double reason for praise, which is found in the double fact, and concerns every member of the church.
 

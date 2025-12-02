@@ -106,7 +106,7 @@ David committed himself to him that judgeth righteously, and so in patience was 
 
 ## Explanatory Notes & Quaint Sayings
 
-**Title &mdash;** The first word, MIZMOR, or Psalm, is the designation of forty-four sacred poems, thirty-two of which are ascribed to David. The English reader must observe, that this word is not the same in the original Hebrew as that which forms the general title of the book of Psalms; the latter expressing a Hymn of Praise. The word *Psalm,* however, as used both in the context and in the titles of the individual compositions, is uniformly *Mizmor* in the original; a term which accurately defines their poetical character. To explain its proper meaning I must have recourse to the beautiful and accurate definition of Bishop Lowth. "The word *Mizmor* signifies a composition, which in a peculiar manner is cut up into sentences, short, frequent, and measured by regular intervals."...He adds that *Zamar* means to cut or prune, as applied to the removing superfluous branches from trees; and, after mentioning the secondary sense of the word, "to sing with a voice or instrument, "gives it as his opinion, that *Mizmar* may be more properly referred to the primary sense of the root, so as to mean a poem cut up into short sentences, and pruned from all superfluity of words, which is the peculiar characteristic of the Hebrew poetry. *John Jebb.* 
+**Title &mdash;** The first word, MIZMOR, or Psalm, is the designation of forty-four sacred poems, thirty-two of which are ascribed to David. The English reader must observe, that this word is not the same in the original Hebrew as that which forms the general title of the book of Psalms; the latter expressing a Hymn of Praise. The word *Psalm,* however, as used both in the context and in the titles of the individual compositions, is uniformly *Mizmor* in the original; a term which accurately defines their poetical character. To explain its proper meaning I must have recourse to the beautiful and accurate definition of Bishop Lowth. "The word *Mizmor* signifies a composition, which in a peculiar manner is cut up into sentences, short, frequent, and measured by regular intervals."... He adds that *Zamar* means to cut or prune, as applied to the removing superfluous branches from trees; and, after mentioning the secondary sense of the word, "to sing with a voice or instrument, "gives it as his opinion, that *Mizmar* may be more properly referred to the primary sense of the root, so as to mean a poem cut up into short sentences, and pruned from all superfluity of words, which is the peculiar characteristic of the Hebrew poetry. *John Jebb.* 
 
 **Title &mdash;** The title that David gives this Psalm is worth your notice. *A Psalm of David to bring to remembrance.* David was on his deathbed as he thought, and he said it shall be a Psalm of remembrance, to bring sin to remembrance, to confess to God my uncleannesses with Bathsheba, to bring to my remembrance the evils of my life. Whenever God brings thee under affliction, thou art then in a fit plight to confess sin to God, and call to remembrance thy sins. *Christopher Love.* 
 
@@ -124,7 +124,7 @@ David committed himself to him that judgeth righteously, and so in patience was 
 
 **Verse 2.** *Thine arrows.* Arrows are (1) swift, (2) secret, (3) sharp (4) killing instruments. They are instruments drawing blood and drinking blood, even unto drunkenness De 32:42; afflictions are like arrows in all these properties. 1. Afflictions often come very speedily, with a glance as an arrow, quick as a thought. 2. Afflictions come suddenly, unexpectedly; an arrow is upon a man afore he is aware, so are afflictions. Though Job saith, the thing he feared came upon him, he looked for this arrow before it came; yet usually afflictions are unlooked for guests, they thrust in upon us when we dream not of them. 3. They come with little noise; an arrow is felt before, or, as soon as it is heard; an arrow flies silently and secretly, stealing upon and wounding a man, unobserved and unseen. Lastly, all afflictions are sharp, and in their own nature killing and deadly. That any have good from them, is from the grace of God, not from their nature. *Joseph Caryl.* 
 
-**Verse 2.** Let no one think these expressions of penitence Ps 38:1-4 overstrained or excessive. They are the words of the Holy Spirit of God, speaking by the mouth of the man after God's own heart. If we were as repentant as David, we should bring home to ourselves his language; as it is, our affections are chilled, and therefore we do not enter into his words...And let us observe how all the miseries are referred to their proper end. The sin is not bewailed merely on account of its ill effect on the guilty one, but on account of the despite done to God. The psalmist's first thought is the *"anger"* of the Lord, and his *hot displeasure.* It is not the "arrows" that afflict him so much as that they are God's. " *Thine arrows stick fast in me, and thy hand presseth me.* " The reason why there is no health in his flesh is because of God's displeasure. Such is true contrition, "not the sorrow of the world which worketh death, but the sorrow that worketh repentance not to be repented of." *A Commentary on the Seven Penitential Psalms. Chiefly from Ancient Sources, (by A.P.F.)* 1847.
+**Verse 2.** Let no one think these expressions of penitence Ps 38:1-4 overstrained or excessive. They are the words of the Holy Spirit of God, speaking by the mouth of the man after God's own heart. If we were as repentant as David, we should bring home to ourselves his language; as it is, our affections are chilled, and therefore we do not enter into his words... And let us observe how all the miseries are referred to their proper end. The sin is not bewailed merely on account of its ill effect on the guilty one, but on account of the despite done to God. The psalmist's first thought is the *"anger"* of the Lord, and his *hot displeasure.* It is not the "arrows" that afflict him so much as that they are God's. " *Thine arrows stick fast in me, and thy hand presseth me.* " The reason why there is no health in his flesh is because of God's displeasure. Such is true contrition, "not the sorrow of the world which worketh death, but the sorrow that worketh repentance not to be repented of." *A Commentary on the Seven Penitential Psalms. Chiefly from Ancient Sources, (by A. P. F.)* 1847.
 
 **Verse 2.** *Thy hand presseth me sore.* Not the hand of Egypt or Ashur; then it were hand for hand, a duel of some equality: hand to hand; here forces and stratagems might achieve a victory: but *Thy hand.* The weight of a man's blow is but weak, according to the force and pulse of his arm; as the princes of Midian answered Gideon, when he bade his son try the dint of his sword upon them; "Rise thou, and fall upon us: for as the man is, so is his strength." Jud 8:21. But "it is a fearful thing to fall into the hands of the living God." Heb 10:31. As Homer called the hands of Jupiter *ceirez aeptoi,* hands whose praise could not be sufficiently spoken; which some read *ceires aaptoii,* hands inaccessible, irresistible for strength: all the gods in heaven could not ward a blow of Jupiter's hand. This hand never strikes but for sin; and where sin is mighty his blow is heavy. *Thomas Adams.* 
 
@@ -132,7 +132,7 @@ David committed himself to him that judgeth righteously, and so in patience was 
 
 **Verse 3.** *My flesh...my bones.* I know by the unsoundness of my flesh that God is angry with me; for if it were not for his anger my flesh would be sound: but what soundness can there be in it now, when God's angry hand lies beating upon it continually, and never ceaseth? I know by the unquietness of my bones that I have sin in my bosom; for if it were not for sin my bones would be quiet. But what quietness can be in them now, when sin lies gnawing upon them incessantly with the worm of remorse? One would think my bones were far enough removed and closely enough hidden from sins doing them any hurt: yet see the searching nature, the venomous poison of sin, which pierceth through my flesh, and makes unquietness in my very bones. I know my flesh is guilty of many faults, by which it justly deserves unsoundness; but what have my bones done? for they minister no fuel to the flames of my flesh's sensuality; and why then should they be troubled? But are not my bones supporters of my flesh, and are they not by this at least accessory to my flesh's faults? As accessories, then, they are subject to the same punishment the flesh itself is, which is the principal. *Sir Richard Baker.* 
 
-**Verse 3.** *neither is there any rest in my bones because of my sin.* A Christian in this life is like quicksilver, which hath a principle of motion in itself, but not of rest: we are never quiet, but as the ball upon the racket, or the ship upon the waves. As long as we have sin, this is like quicksilver: a child of God is full of motion and disquiet...We are here in a perpetual hurry, in a constant fluctuation; our life is like the tide; sometimes ebbing, sometimes flowing; here is no rest; and the reason is because we are out of centre. Everything is in motion till it comes at the centre; Christ is the centre of the soul; the needle of the compass trembles till it comes to the North Pole. *Thomas Watson.* 
+**Verse 3.** *neither is there any rest in my bones because of my sin.* A Christian in this life is like quicksilver, which hath a principle of motion in itself, but not of rest: we are never quiet, but as the ball upon the racket, or the ship upon the waves. As long as we have sin, this is like quicksilver: a child of God is full of motion and disquiet... We are here in a perpetual hurry, in a constant fluctuation; our life is like the tide; sometimes ebbing, sometimes flowing; here is no rest; and the reason is because we are out of centre. Everything is in motion till it comes at the centre; Christ is the centre of the soul; the needle of the compass trembles till it comes to the North Pole. *Thomas Watson.* 
 
 **Verse 3.** Learn here of beggars how to procure succour and relief. Lay open thy sores, make known thy need, discover all thy misery, make not thy case better than it is. Beggars by experience find that the more miserable they appear to be, the more they are pitied, the more succoured; and yet the mercies of the most merciful men are but as drops in comparison of the oceans of God's mercies; and among men there are many, like the priest and Levite in the parable Lu 10:30-32, that can pass by a naked, wounded man, left half dead, and not pity him nor succour him. But God, like the merciful Samaritan, hath always compassion on such as with sense of their misery are forced to cry out and crave help. Read how Job, Job 6:1-30 and Job 7:1-21; David, Ps 38:3, etc., Hezekiah, Isa 38:10, etc., and other like saints poured out their complaints before the Lord, and withal observe what mercy was showed them of the Lord, and you may have in them both good patterns how to behave yourselves in like cases, and good encouragement so to do. This is it which God expects of us, and whereunto he desireth to bring us, that seeing our own emptiness and insufficiency, and the impotency and disability of others to help us, we should in all humility fly to his mercy. *William Gouge.* 
 
@@ -140,7 +140,7 @@ David committed himself to him that judgeth righteously, and so in patience was 
 
 **Verse 4.** *As an heavy burden they are too heavy for me.* No strength is so great but it may be overburdened; though Samson went light away with the gates of Gaza, yet when a whole house fell upon him it crushed him to death. And such, alas! am I; I have had sin as a burden upon me ever since I was born, but bore it a long time as light as Samson did the gates of Gaza; but now that I have pulled a whole house of sin upon me, how can I choose but be crushed to death with so great a weight? And crushed, O my soul, thou shouldest be indeed, if God for all his anger did not take some pity on thee, and for all his displeasure did not stay his hand from further chastening thee. *Sir Richard Baker.* 
 
-**Verse 4.** It is of singular use to us, that the backslidings of the holy men of God are recorded in Holy Writ. Spots appear nowhere more disagreeable than when seen in a most beautiful face, or on the cleanest garment. And it is expedient to have a perfect knowledge of the filthiness of sin. We also learn from them to think humbly of ourselves, to depend on the grace of God, to keep a stricter eye upon ourselves, lest perhaps we fall into the same or more grievous sins. Ga 6:1. *Herman Witsius, D.D.,* 1636-1708.
+**Verse 4.** It is of singular use to us, that the backslidings of the holy men of God are recorded in Holy Writ. Spots appear nowhere more disagreeable than when seen in a most beautiful face, or on the cleanest garment. And it is expedient to have a perfect knowledge of the filthiness of sin. We also learn from them to think humbly of ourselves, to depend on the grace of God, to keep a stricter eye upon ourselves, lest perhaps we fall into the same or more grievous sins. Ga 6:1. *Herman Witsius, D. D.,* 1636-1708.
 
 **Verses 4-5.** It is only when we can enter into *all* that is implied here that we begin to see our exceeding sinfulness. There is a certain feeling of sin which does not interfere with our pride, and self respect. We can have that sort of feeling, and say pretty earnestly, *Mine iniquities are gone over mine head: as an heavy burden they are too heavy for me.* But it is otherwise with us when we get to know ourselves better, and to feel ourselves *loathsome* in our wickedness, when our folly and meanness and ingratitude oppress us, and we begin to loathe ourselves, and can enter into verse five. Our wounds, once an object of self pity, and something in which we could claim sympathy and healing from our friends, have become *corrupt*, because of the meanness and folly we feel to be in us. We hide them now, for if they were seen, would not "lovers and friends stand aloof from our sore"? Then we are silent except to God, "For in *thee,* O Lord, do I hope; *thou* wilt hear, O Lord my God, "Ps 38:15. O love of God that turns not away! O blessed Jesus, that turneth not away from the leprous man that fell upon his face and said, "If thou wilt, thou canst make me clean, but put forth thine hand and *touched* him, saying, `I will: be thou clean, 'to whom *can* we go but unto thee!" *Mary B. M. Duncan.* 
 
@@ -190,7 +190,7 @@ David committed himself to him that judgeth righteously, and so in patience was 
 
 **Verse 17.** *For I am ready to halt:* to show my infirmity in my trials and afflictions; as Jacob halted after his wrestling with God. Ge 32:31. In the Greek, *I am ready for scourges,* that is, to suffer correction and punishment for my sins: so the Chaldee saith, *for calamity. Henry Ainsworth.* 
 
-**Verse 18.** Pliny writeth of some families that had private marks on their bodies peculiar to those of that line, and every man hath, as it were, a private sin, which is most justly called his; but if we will confess our sins aright, we must not leave out that sin; nay, our chiefest spite must be against it, according to David's resolve: *I will declare mine iniquity; I will be sorry for my sin.*...David doth not only say, *I will declare,* but, *I will be sorry for my sin.* The people of God 1Sa 7:6 in the day of their confession not only say, "We have sinned, "but draw water, and pour it out before the Lord in token of contrition. We should, in confessing sin, have our hearts so affected, that our eyes, with Job, may "pour tears before God" Job 16:20; that, with David, "rivers of tears may run down our eyes" Ps 119:136; yea, we should wish with Jeremiah, that "our head were waters, and our eyes a fountain of tears." Jer 9:1. But, however, *nonne stillabit oculus noster?* if we cannot pour out, shall we not drop a tear? or at least, if we cannot shed a tear, let us breathe forth a sigh for our sins. It is only the heart broken with godly sorrow that sends forth a true confession. *Nathanael Hardy.* 
+**Verse 18.** Pliny writeth of some families that had private marks on their bodies peculiar to those of that line, and every man hath, as it were, a private sin, which is most justly called his; but if we will confess our sins aright, we must not leave out that sin; nay, our chiefest spite must be against it, according to David's resolve: *I will declare mine iniquity; I will be sorry for my sin.*... David doth not only say, *I will declare,* but, *I will be sorry for my sin.* The people of God 1Sa 7:6 in the day of their confession not only say, "We have sinned, "but draw water, and pour it out before the Lord in token of contrition. We should, in confessing sin, have our hearts so affected, that our eyes, with Job, may "pour tears before God" Job 16:20; that, with David, "rivers of tears may run down our eyes" Ps 119:136; yea, we should wish with Jeremiah, that "our head were waters, and our eyes a fountain of tears." Jer 9:1. But, however, *nonne stillabit oculus noster?* if we cannot pour out, shall we not drop a tear? or at least, if we cannot shed a tear, let us breathe forth a sigh for our sins. It is only the heart broken with godly sorrow that sends forth a true confession. *Nathanael Hardy.* 
 
 **Verse 20.** *They are mine enemies because I follow the thing that good is.* It is a bold attempt to ding Satan out of his nest. If we conform us to the men of this world we find peace with them; they will not discord with us so long as we go their way; but to shame them by a godly life is an affront they cannot digest; and to rebuke their sin, findeth at their hand all that Satan disappointed or corruption provoked can devise. A sleeping dog is quiet, but being stirred, turneth all in barking and biting. Not to do as they do is matter enough of anger, but a reproof is the highest degree of disgrace in their account. All that hatred which they ought to bear to Satan and his instruments, is turned upon God in his rebuking and reclaiming servants. That anger that in remorse should burn against their own sin is set against their reprovers. *William Struther.* 
 
@@ -202,11 +202,11 @@ David committed himself to him that judgeth righteously, and so in patience was 
 
 **Verse 1.** The rebuke of God's wrath.
 
-1\.Richly deserved.
+1\. Richly deserved.
 
-2\.Reasonably dreaded.
+2\. Reasonably dreaded.
 
-3\.Earnestly deprecated.
+3\. Earnestly deprecated.
 
  *—B. Daries.* 
 
@@ -224,25 +224,25 @@ David committed himself to him that judgeth righteously, and so in patience was 
 
 **Verse 4.** (*last clause* ). Sin.
 
-1\.Heavy— *a burden*.
+1\. Heavy— *a burden*.
 
-2\.Very heavy— *A heavy burden*.
+2\. Very heavy— *A heavy burden*.
 
-3\.Superlatively heavy— *too heavy for me*.
+3\. Superlatively heavy— *too heavy for me*.
 
-4\.Not immoveable, for though too heavy *for me*, yet Jesus bore it.
+4\. Not immoveable, for though too heavy *for me*, yet Jesus bore it.
 
 **Verse 5.** *Foolishness.* The folly of sin. Everything that a man has to do with sin shows his folly.
 
-1\.Dallying with sin.
+1\. Dallying with sin.
 
-2\.Committing it.
+2\. Committing it.
 
-3\.Continuing in it.
+3\. Continuing in it.
 
-4\.Hiding it.
+4\. Hiding it.
 
-5\.Palliating it.
+5\. Palliating it.
 
  *—B. Davies.* 
 
@@ -250,11 +250,11 @@ David committed himself to him that judgeth righteously, and so in patience was 
 
 **Verse 6.** *I go mourning.* 
 
-1\.Unlawful reasons for mourning.
+1\. Unlawful reasons for mourning.
 
-2\.Legitimate themes for sorrow.
+2\. Legitimate themes for sorrow.
 
-3\.Valuable alleviations of grief.
+3\. Valuable alleviations of grief.
 
 **Verse 9.** The many desires of God's children: the fact that God understands them even when unexpressed; and the certainty that he will grant them.
 

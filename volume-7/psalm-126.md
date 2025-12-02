@@ -182,7 +182,7 @@ This Negeb, or South Country, the region stretching below Hebron, being comparat
 
 **Verses 4-6.** The saints are oft feeding their hopes on the carcases of their slain fears. The time which God chose and the instrument he used to give the captive Jews their gaol delivery and liberty to return home were so incredible to them when it came to pass (like Peter whom the angel had carried out of prison, Ac 12:1-25), it was some time before they could come to themselves and resolve whether it was a real truth, or but a pleasing dream. Now see, what effect this strange disappointment of their fears had upon their hope for afterward. It sends them to the throne of grace for the accomplishment of what was so marvellously begun. "The Lord hath done great things for us; whereof we are glad. Turn again our captivity, O Lord": Ps 126:3-4. They have got a handhold by this experiment of his power and mercy, and they will not now let him go till they have more; yea, their hope is raised to such a pitch of confidence, that they draw a general conclusion from this particular experience for the comfort of themselves or others in any future distress: "They that sow in tears shall reap in joy", etc., Ps 126:5-6.— *William Gumall*, 1617-1679.
 
-**Verse 5.** *They that sow in tears.* I never saw people sowing in tears exactly, but have often known them to do it in fear and distress sufficient to draw them from any eye. In seasons of great scarcity, the poor peasants part in sorrow with every measure of precious seed cast into the ground. It is like taking bread out of the mouths of their children; and in such times many bitter tears are actually shed over it. The distress is frequently so great that government is obliged to furnish seed, or none would be sown. Ibrahim Pasha did this more than once within my remembrance, copying the example, perhaps, of his great predecessor in Egypt when the seven years famine was ended. The thoughts of this psalm may likewise have been suggested by the extreme danger which frequently attends the farmer in his ploughing and sowing. The calamity which fell upon the husbandmen of Job when the oxen were ploughing, and the asses feeding beside them, and the Sabeans fell upon them and took them away, and slew the servants with the edge of the sword (Job 1:14-15), is often repeated in our day. To understand this you must remember what I have just told you about the situation of the arable lands in the open country; and here again we meet that verbal accuracy: the sower *"goes forth"* —that is, from the village. The people of Ibel and Khiem, in Merj' Aiyun, for example, have their best grain growing fields down in the 'Ard Hfileh, six or eight miles from their homes, and just that much nearer the lawless border of the desert. When the country is disturbed, or the government weak, they cannot sow these lands except at the risk of their lives. Indeed, they always *go forth* in large companies, and completely armed, ready to drop the plough and seize the musket at a moment's warning; and yet, with all this care, many sad and fatal calamities overtake the men who must thus sow in tears. And still another origin may be found for the thoughts of the psalm in the extreme difficulty of the work itself in many places. The soil is rocky, impracticable, overgrown with sharp thorns; and it costs much painful toil to break up and gather out the rock, cut and burn the briars, and to subdue the stubborn soil, especially with their feeble oxen and insignificant ploughs. Join all these together, and the sentiment is very forcibly brought out, that he who labours hard, in cold and rain, in fear and danger, in poverty and in want, casting his precious seed into the ground, will surely come again, at harvest time, with rejoicing, and bearing his sheaves with him.— *W.M. Thomson.* 
+**Verse 5.** *They that sow in tears.* I never saw people sowing in tears exactly, but have often known them to do it in fear and distress sufficient to draw them from any eye. In seasons of great scarcity, the poor peasants part in sorrow with every measure of precious seed cast into the ground. It is like taking bread out of the mouths of their children; and in such times many bitter tears are actually shed over it. The distress is frequently so great that government is obliged to furnish seed, or none would be sown. Ibrahim Pasha did this more than once within my remembrance, copying the example, perhaps, of his great predecessor in Egypt when the seven years famine was ended. The thoughts of this psalm may likewise have been suggested by the extreme danger which frequently attends the farmer in his ploughing and sowing. The calamity which fell upon the husbandmen of Job when the oxen were ploughing, and the asses feeding beside them, and the Sabeans fell upon them and took them away, and slew the servants with the edge of the sword (Job 1:14-15), is often repeated in our day. To understand this you must remember what I have just told you about the situation of the arable lands in the open country; and here again we meet that verbal accuracy: the sower *"goes forth"* —that is, from the village. The people of Ibel and Khiem, in Merj' Aiyun, for example, have their best grain growing fields down in the 'Ard Hfileh, six or eight miles from their homes, and just that much nearer the lawless border of the desert. When the country is disturbed, or the government weak, they cannot sow these lands except at the risk of their lives. Indeed, they always *go forth* in large companies, and completely armed, ready to drop the plough and seize the musket at a moment's warning; and yet, with all this care, many sad and fatal calamities overtake the men who must thus sow in tears. And still another origin may be found for the thoughts of the psalm in the extreme difficulty of the work itself in many places. The soil is rocky, impracticable, overgrown with sharp thorns; and it costs much painful toil to break up and gather out the rock, cut and burn the briars, and to subdue the stubborn soil, especially with their feeble oxen and insignificant ploughs. Join all these together, and the sentiment is very forcibly brought out, that he who labours hard, in cold and rain, in fear and danger, in poverty and in want, casting his precious seed into the ground, will surely come again, at harvest time, with rejoicing, and bearing his sheaves with him.— *W. M. Thomson.* 
 
 **Verse 5.** *They that sow in tears shalt reap in joy*, etc. This promise is conveyed under images borrowed from the instructive scenes of agriculture. In the sweat of his brow the husbandman tills his land, and casts the seed into the ground, where for a time it lies dead and buried. A dark and dreary winter succeeds, and all seems to be lost; but at the return of spring universal nature revives, and the once desolate fields are covered with corn which, when matured by the sun's heat, the cheerful reapers cut down, and it is brought home with triumphant shouts of joy. Here, O disciple of Jesus, behold an emblem of lily present labour and thy future reward! Thou "sowest", perhaps, in "tears"; thou doest thy duty amidst persecution, and affliction, sickness, pain, and sorrow; you labour in the Church, and no account is made of thy labours, no profit seems likely to arise from them. Say, thou must thyself drop into the dust of death, and all the storms of that winter must pass over thee, until thy form shall be perished, and thou shalt see corruption. Yet the day is coming when thou shalt "reap in joy", and plentiful shall be thy harvest. For thus thy blessed Master "went forth weeping", a man of sorrows and acquainted with grief, "bearing precious seed" and sowing it around him, till at length his own body was buried, like a grain of wheat, in the furrow of the grave. But he arose, and is now in heaven, from whence he shall "doubtless come again with rejoicing", with the voice of the archangel and the trump of God, "bringing his sheaves with him". Then shall every man receive the fruit of his works, and have praise of God.— *George Horne* (1730-1792), *in "A Commentary on the Psalms."* 
 
@@ -190,7 +190,7 @@ This Negeb, or South Country, the region stretching below Hebron, being comparat
 
 They sow *in obedience* :this is also a blessed seed, that will not fail to prosper Wheresoever it is cast. "If ye keep my commandments"; this is the seed: "ye shall abide in my love" (Joh 15:10); this is the harvest. (Ro 6:22), "Ye are become servants to God, and have your fruit unto holiness"; this is the sowing: "and the end everlasting life"; this is the reaping. *Obedientia in tetris, regnabit in coelis* ,—he that serves God on earth, and sows the seed of obedience, shall in heaven reap the harvest of a kingdom.
 
-They sow *in repentance* ;and this seed must needs grow up to blessedness...Many saints have now reaped their crop in heaven, that sowed their seed in tears. David, Mary Magdalene, Peter: as if they had made good the proverb, "No coming to heaven with dry eyes." Thus nature and God differ in their proceedings. To have a good crop on earth, we desire a fair seedtime; but here a wet time of sowing shall bring the best harvest in the barn of heaven. "Blessed are they that mourn"; this is the seeding: "for they shall be comforted" (Mt 5:4); this is the harvest.
+They sow *in repentance* ;and this seed must needs grow up to blessedness... Many saints have now reaped their crop in heaven, that sowed their seed in tears. David, Mary Magdalene, Peter: as if they had made good the proverb, "No coming to heaven with dry eyes." Thus nature and God differ in their proceedings. To have a good crop on earth, we desire a fair seedtime; but here a wet time of sowing shall bring the best harvest in the barn of heaven. "Blessed are they that mourn"; this is the seeding: "for they shall be comforted" (Mt 5:4); this is the harvest.
 
 They sow in renouncing the world, and adherence to Christ; and they reap a great harvest. "Behold", saith Peter to Christ, "we have forsaken all, and followed thee" (Mt 19:27); this is the seeding. "What shall we have therefore?" What? "You shall sit on twelve thrones, judging the twelve tribes of Israel" (Mt 19:28-29); all that you have lost shall be centupled to you: "and you shall inherit everlasting life"; this is the harvest. "Sow to yourselves in righteousness, and reap in mercy": Ho 10:12.
 
@@ -198,7 +198,7 @@ They sow *in charity*. He that sows this seed shall be sure of a plentiful crop.
 
 **Verse 5.** *They that sow in tears,* etc. Observe two things here.
 
-1\.That the afflictions of God's people are as sowing in tears.
+1\. That the afflictions of God's people are as sowing in tears.
 
 (a) In sowing ye know there is great pains. The land must be first tilled and dressed; and there is pains in casting the seed into it; and then it takes a great dressing all the year, before it be set in the barnyard.
 
@@ -206,7 +206,7 @@ They sow *in charity*. He that sows this seed shall be sure of a plentiful crop.
 
 (c) There is also great hazard; for corn, after it is sown, is subject to many dangers. And so it is with the children of God in a good cause.
 
-2\.Then after the seed time follows the harvest, and that comes with joy. There be three degrees of the happiness of God's children, in reaping of fruits.
+2\. Then after the seed time follows the harvest, and that comes with joy. There be three degrees of the happiness of God's children, in reaping of fruits.
 
 (a) In the first fruits. Even when they are enduring anything for the Gospel of Christ, it carries contentment and fruit with it.
 
@@ -214,7 +214,7 @@ They sow *in charity*. He that sows this seed shall be sure of a plentiful crop.
 
 (c) And lastly, they get the full harvest; and that is gotten at the great and last day. Then we get peace without trouble, joy without grief, profit without loss, pleasure without pain; and then we have a full sight of the face of God.— *Alexander Henderson.* 
 
-**Verse 5.** *They that sow in tears shall reap in joy.* Gospel tears are not lost; they are seeds of comfort: while the penitent doth pour out tears, God pours in joy. If thou wouldst be cheerful, saith Chrysostom, be sad. It was the end of Christ's anointing and coming into the world, that he might comfort them that mourn: Isa 61:3. Christ had the oil of gladness poured on him, as Chrysostom saith, that he might pour it on the mourner; well then might the apostle call it "a repentance not to be repented of": 2Co 7:10...Here is sweet fruit from a bitter stock: Christ caused the earthen vessels to be filled with water, and then turned the water into wine: Joh 2:9. So when the eye, that earthen vessel, hath been filled with water brim full, then Christ will turn the water of tears into the wine of joy. Holy mourning, saith St. Basil, is the seed out of which the flower of eternal joy doth grow.— *Thomas Watson* (-1690?), *in "The Beatitudes."* 
+**Verse 5.** *They that sow in tears shall reap in joy.* Gospel tears are not lost; they are seeds of comfort: while the penitent doth pour out tears, God pours in joy. If thou wouldst be cheerful, saith Chrysostom, be sad. It was the end of Christ's anointing and coming into the world, that he might comfort them that mourn: Isa 61:3. Christ had the oil of gladness poured on him, as Chrysostom saith, that he might pour it on the mourner; well then might the apostle call it "a repentance not to be repented of": 2Co 7:10... Here is sweet fruit from a bitter stock: Christ caused the earthen vessels to be filled with water, and then turned the water into wine: Joh 2:9. So when the eye, that earthen vessel, hath been filled with water brim full, then Christ will turn the water of tears into the wine of joy. Holy mourning, saith St. Basil, is the seed out of which the flower of eternal joy doth grow.— *Thomas Watson* (-1690?), *in "The Beatitudes."* 
 
 **Verse 5.** *They that sow in tears shall reap.* We must take notice of the reapers: "They shall reap." Which *they?* They that did sow; they shall, and none but they shall. They shall; and good reason they should, because it was they that did sow. And though some that have sown in tears do complain of the lateness or thinness of the harvest, that they have not reaped in joy, as is here promised; know that some grounds are later than others, and in some years the harvest falleth later than in others, and that God, who is the Lord of the harvest, in his good time will ripen thy joy, and thou shalt reap it: and in the meantime, if we try it narrowly, we shall find the cause in ourselves, both of the lateness of our joy, because we were too late in sowing our tears; and of the thinness of our joy, because we did sow our tears too thin. And if after our sowing of tears we find no harvest of joy at all, we may be well assured that either our seed was not good, or else some of the mischances are come upon them, which came upon the seed that came to no good in the thirteenth of Matthew.— *Walter Balcanqual, in "a Sermon preached at St. Marice Spittle,"* 1623.
 
@@ -268,91 +268,91 @@ While bearing his plentiful sheaves."
 
 **Verse 1.** 
 
-1\.Sunny memories of what the Lord did, "he turned again the captivity", etc.
+1\. Sunny memories of what the Lord did, "he turned again the captivity", etc.
 
-2\.Singular impressions,—we could not believe it to be true.
+2\. Singular impressions,—we could not believe it to be true.
 
-3\.Special discoveries—it was true, abiding, etc.
+3\. Special discoveries—it was true, abiding, etc.
 
 **Verse 1.** A comparison and a contrast.
 
-1\.The saved like them that dream.
+1\. The saved like them that dream.
 
 a) In the strangeness of their experience.
 
 b) In the ecstasy of their joy.
 
-2\.The saved unlike them that dream.
+2\. The saved unlike them that dream.
 
 a) In the reality of their experience. Dreams are unsubstantial things, but "the Lord turned"—an actual fact.
 
 b) In their freedom from disappointment. No awakening to find it "but a dream": see Isa 29:8.
 
-3\.In the endurance of their joy. The joy of dreams is soon forgotten, but this is "everlasting joy."— *W. H. J. P.* 
+3\. In the endurance of their joy. The joy of dreams is soon forgotten, but this is "everlasting joy."— *W. H. J. P.* 
 
 **Verse 2.** Saintly laughter. What creates it, and how it is justified.
 
 **Verse 2.** *Recipe for holy laughter*.
 
-1\.Lie in prison a few weeks.
+1\. Lie in prison a few weeks.
 
-2\.Hear the Lord turning the key.
+2\. Hear the Lord turning the key.
 
-3\.Follow him into the high road.
+3\. Follow him into the high road.
 
-4\.Your sky will burst with sunshine, and your heart with song and laughter.
+4\. Your sky will burst with sunshine, and your heart with song and laughter.
 
-5\.If this recipe is thought too expensive, try *keeping in the high road.* — *W. B. H.* 
-
-**Verses 2-3.** 
-
-1\.Reports of God's doings.
-
-2\.Experience of God's doings.
+5\. If this recipe is thought too expensive, try *keeping in the high road.* — *W. B. H.* 
 
 **Verses 2-3.** 
 
-1\.The Lord does great things for his people.
+1\. Reports of God's doings.
 
-2\.These great things command the attention of the world.
+2\. Experience of God's doings.
 
-3\.They inspire the joyful devotion of the saints.— *W. H. J. P.* 
+**Verses 2-3.** 
+
+1\. The Lord does great things for his people.
+
+2\. These great things command the attention of the world.
+
+3\. They inspire the joyful devotion of the saints.— *W. H. J. P.* 
 
 **Verse 3.** *The LORD hath done great things for us.* In this acknowledgment and confession there are three noteworthy points of thankfulness.
 
-1\.That they were *"great things"* which were done.
+1\. That they were *"great things"* which were done.
 
-2\.Who it was who did them: *"the Lord."* 
+2\. Who it was who did them: *"the Lord."* 
 
-3\.That they are done: not against us, but *"for us."* 
+3\. That they are done: not against us, but *"for us."* 
 
 — *Alexander Henderson*, 1583-1646.
 
 **Verse 4.** Believers, rejoicing in their own deliverance, solicitous for a flood of prosperity to overflow the church. See the connection, Ps 126:1-3. Remark,
 
-1\.The doubting and despondent are too concerned about themselves, and too busy seeking comfort, to have either solicitude or energy to spare for the church's welfare; but the joyful heart is free to be earnest for the church's good.
+1\. The doubting and despondent are too concerned about themselves, and too busy seeking comfort, to have either solicitude or energy to spare for the church's welfare; but the joyful heart is free to be earnest for the church's good.
 
-2\.Joyful believers, other things being equal, know more of the constraining power of Christ's love, which makes them anxious for his glory and the success of his cause.
+2\. Joyful believers, other things being equal, know more of the constraining power of Christ's love, which makes them anxious for his glory and the success of his cause.
 
-3\.The joyful can appreciate more fully the contrast of their condition to that of the undelivered, and for their sake cannot fail to be anxious for the church through whose ministry their deliverance comes.
+3\. The joyful can appreciate more fully the contrast of their condition to that of the undelivered, and for their sake cannot fail to be anxious for the church through whose ministry their deliverance comes.
 
-4\.The joyful are, in general, the most believing and the most hopeful; their expectation of success leads them to prayer, and impels them to effort.— *J. F.* 
+4\. The joyful are, in general, the most believing and the most hopeful; their expectation of success leads them to prayer, and impels them to effort.— *J. F.* 
 
 **Verse 4.** 
 
-1\.The dried up Christian.
+1\. The dried up Christian.
 
-2\.His unhappy condition.
+2\. His unhappy condition.
 
-3\.His one hope.
+3\. His one hope.
 
-4\.Result when realized.
+4\. Result when realized.
 
 **Verse 5.** *The Christian Husbandman.* 
 
-1\.Illustrate the metaphor. The husbandman has a great variety of work before him; every season and every day brings its proper business. So the Christian has duties in the closet, in the family, in the church, in the world, etc., etc.
+1\. Illustrate the metaphor. The husbandman has a great variety of work before him; every season and every day brings its proper business. So the Christian has duties in the closet, in the family, in the church, in the world, etc., etc.
 
-2\.Whence it is that many Christians sow in tears.
+2\. Whence it is that many Christians sow in tears.
 
 a) It may be owing to the badness of the soil.
 
@@ -362,13 +362,13 @@ c) The malice and opposition of enemies.
 
 d) Past disappointments.
 
-3\.What connection there is between sowing in tears and reaping in joy.
+3\. What connection there is between sowing in tears and reaping in joy.
 
 a) A joyful harvest, by God's blessing, is the natural consequence of a dripping seed time.
 
 b) God, who cannot lie, hath promised it.
 
-4\.When this joyful harvest may be expected. It must not be expected in our wintry world, for there is not sun enough to ripen it. Heaven is the Christian's summer. When you come to reap the fruits of your present trials, you will bless God, who made you sow in tears. *Improvement*.
+4\. When this joyful harvest may be expected. It must not be expected in our wintry world, for there is not sun enough to ripen it. Heaven is the Christian's summer. When you come to reap the fruits of your present trials, you will bless God, who made you sow in tears. *Improvement*.
 
 a) How greatly are they to blame who in this busy time stand all the day idle!
 
@@ -380,29 +380,29 @@ c) Let the hope and prospect of this joyful harvest support us under all the glo
 
 **Verse 5.** 
 
-1\.There must be sowing before reaping.
+1\. There must be sowing before reaping.
 
-2\.What men sow they will reap. If they sow precious seed, they will reap precious seed.
+2\. What men sow they will reap. If they sow precious seed, they will reap precious seed.
 
-3\.In proportion as they sow they will reap. "He that soweth sparingly", etc.
+3\. In proportion as they sow they will reap. "He that soweth sparingly", etc.
 
-4\.The sowing may be with sorrow, but the reaping will be with joy.
+4\. The sowing may be with sorrow, but the reaping will be with joy.
 
-5\.In proportion to the sorrow of sowing will be the joy of reaping.— *G. R.* 
+5\. In proportion to the sorrow of sowing will be the joy of reaping.— *G. R.* 
 
 **Verse 6.** In the two parts of this verse we may behold a threefold antithesis or opposition; in the *progress* ,
 
-1\.A sojourning: "He that now goeth on his way."
+1\. A sojourning: "He that now goeth on his way."
 
-2\.A sorrowing: "weeping."
+2\. A sorrowing: "weeping."
 
-3\.A sowing: "and beareth forth good seed." In the regress there are three opposites unto these.
+3\. A sowing: "and beareth forth good seed." In the regress there are three opposites unto these.
 
-1\.Returning: "He shall doubtless come again."
+1\. Returning: "He shall doubtless come again."
 
-2\.A Rejoicing: "with joy."
+2\. A Rejoicing: "with joy."
 
-3\.A Reaping: "and bring his sheaves with him."
+3\. A Reaping: "and bring his sheaves with him."
 
 — *John Hume.* 
 
@@ -414,7 +414,7 @@ c) Let the hope and prospect of this joyful harvest support us under all the glo
 
 **Verse 6.** 
 
-1\.The sorrowful sower.
+1\. The sorrowful sower.
 
 a) His activity—"he goeth forth."
 
@@ -422,7 +422,7 @@ b) His humility—"and weepeth."
 
 c) His fidelity—"bearing precious seed."
 
-2\.The joyful reaper.
+2\. The joyful reaper.
 
 a) His certain harvest time—"shall doubtless come again."
 
@@ -434,5 +434,5 @@ c) His rich rewards—"bringing his sheaves with him."
 
 ## Works Upon The Hundred And Twenty-Sixth Psalm
 
-The Jews' deliverance out of Babylon, and the mystery of our Redemption: *Plainely demonstrated in ten Sermons upon the 126.* Psalme....Preached in Yorkshire, By John Hume, Minister of the Word... London...1628 *4to*.
+The Jews' deliverance out of Babylon, and the mystery of our Redemption: *Plainely demonstrated in ten Sermons upon the 126.* Psalme.... Preached in Yorkshire, By John Hume, Minister of the Word... London...1628 *4to*.
 

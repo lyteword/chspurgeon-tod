@@ -30,15 +30,15 @@ weight: 131
 
 Firstly. He could in truth of heart appeal to God: "LORD, *my heart is not haughty.* " He appeals to him who knoweth all things. "Lord, from whom nothing is hid, thou knowest that this is the very disposition of my soul. If I have anything, it is from thee; it is thy providence which brought me from following the ewes great with young to feed and govern thy people." Such a holy man would not rashly invoke God, and take his holy name in vain; but knowing his integrity, durst call God to witness. The saints are wont to do so upon like occasions; as Peter (Joh 21:17); "Lord, thou knowest all things; thou knowest that I love thee." They know they have a God that will not be deceived with any shows, and that he knoweth and approveth them for such as he findeth them to be.
 
-Secondly. From those that are affected like David, God will accept the appeal; for in the account of God we are that which we sincerely desire and endeavour to be, and that which is the general course and tenor of our lives, though there be some intermixture of failing. David saith, *"LORD, my heart is not haughty"*; and yet he was not altogether free from pride. His profession respecteth his sincere purpose and constant endeavour, and the predominant disposition of his soul. God himself confirmeth such appeals by his own testimony: 1Ki 15:5, "My servant David did that which was right in the eyes of the Lord, neither departed from all that which he had commanded him, save only in the matter of Uriah."...By all this it is shown that the plea of sincerity is allowed by God, though there be some mixture of failings and weaknesses.
+Secondly. From those that are affected like David, God will accept the appeal; for in the account of God we are that which we sincerely desire and endeavour to be, and that which is the general course and tenor of our lives, though there be some intermixture of failing. David saith, *"LORD, my heart is not haughty"*; and yet he was not altogether free from pride. His profession respecteth his sincere purpose and constant endeavour, and the predominant disposition of his soul. God himself confirmeth such appeals by his own testimony: 1Ki 15:5, "My servant David did that which was right in the eyes of the Lord, neither departed from all that which he had commanded him, save only in the matter of Uriah."... By all this it is shown that the plea of sincerity is allowed by God, though there be some mixture of failings and weaknesses.
 
 Thirdly. Is not this boasting like the Pharisee? Lu 18:9, "God, I thank thee, I am not like other men." If David were thus humble, why doth he speak of it? Is he not guilty of pride while he seemeth to speak against pride?
 
 This is spoken either as,
 
-1\.A necessary vindication; or
+1\. A necessary vindication; or
 
-2\.A necessary instruction.
+2\. A necessary instruction.
 
 (a) As a necessary vindication against the censures and calumnies of his adversaries. Saul's courtiers accused him as aspiring after the kingdom; yea, his own brother taxed him with pride when he came first abroad: 1Sa 17:28, "I know thy pride, and the naughtiness of thine heart; for thou art come down that thou mightest see the battle." If his brother would calumniate his actions, much more might others. Now it is for the honour of God that his children, as they would not commit a fault, so they should not be under the suspicion of it; therefore he appeals to God.
 
@@ -46,7 +46,7 @@ This is spoken either as,
 
 **Verse 1.** *My heart is not haughty.* Albeit pride is a common vice, which attends vain man in every degree of excellency and supposed worth in him, yet the grace of God is able to keep humble a wise, rich, and potent man, yea, to keep humble a king and conqueror; for it is no less a person than David who saith here, *"Lord, my heart is not haughty."* — *David Dickson.* 
 
-**Verse 1.** Nor mine eyes lofty. Pride has its seat in the heart; but its principal expression is in the eye. The eye is the mirror of the soul; and from it mental and moral characteristics may be ascertained, with no small degree of precision. What a, world of meaning is sometimes concentrated in a single glance! But of all the passions, pride is most clearly revealed in the eyes. There can scarcely be a mistake here. We are all familiar with a class of phrases, which run in pairs. We speak of sin and misery; holiness and happiness; peace and prosperity, war and desolation. Among these may be numbered, the proud heart and the haughty look. "There is a generation, Oh, how lofty are their eyes! and their eyelids are lifted up." "Him that hath an high look and a proud heart I will not suffer."...A proud look is one of the seven things which are an abomination unto the Lord. It is said of him, "Thou wilt save the afflicted people; but wilt bring down high looks." And hence David makes the acknowledgment: Lord, thou knowest all things; thou knowest that pride has no existence in my heart. Thou knowest that no pride flashes forth from mine eyes.— *N. M'Michael.* 
+**Verse 1.** Nor mine eyes lofty. Pride has its seat in the heart; but its principal expression is in the eye. The eye is the mirror of the soul; and from it mental and moral characteristics may be ascertained, with no small degree of precision. What a, world of meaning is sometimes concentrated in a single glance! But of all the passions, pride is most clearly revealed in the eyes. There can scarcely be a mistake here. We are all familiar with a class of phrases, which run in pairs. We speak of sin and misery; holiness and happiness; peace and prosperity, war and desolation. Among these may be numbered, the proud heart and the haughty look. "There is a generation, Oh, how lofty are their eyes! and their eyelids are lifted up." "Him that hath an high look and a proud heart I will not suffer."... A proud look is one of the seven things which are an abomination unto the Lord. It is said of him, "Thou wilt save the afflicted people; but wilt bring down high looks." And hence David makes the acknowledgment: Lord, thou knowest all things; thou knowest that pride has no existence in my heart. Thou knowest that no pride flashes forth from mine eyes.— *N. M'Michael.* 
 
 **Verse 1.** *Nor mine eyes lofty.* He had neither a scornful nor an aspiring look. *"My eyes are not lofty"*, either to look with envy upon those that are above me, or to look with disdain upon those that are below me. Where there is a proud heart, there is commonly a proud look (Pr 6:17); but the humble publican will not so much as lift up his eyes.— *Matthew Henry.* 
 
@@ -62,7 +62,7 @@ This is spoken either as,
 
 **Verse 2.** (*first clause* ). *If I have not restrained*, or quieted, and compelled to silence, *my soul.* It is a Hebrew phrase of asseveration and of swearing: as if he would say, I have thoroughly imposed silence on my soul, that it should be tranquil, and should bear patiently the divinely imposed cross. Just as in the following Psalm we hear a like form of asseveration: "If I will come into the tabernacle of my house", meaning "I will not come", etc.— *Solomon Gesner.* 
 
-**Verse 2.** *I have behaved and quieted myself, as a child that is weaned.* Weaned from what? Self sufficiency, self will, self seeking. From creatures and the things of the world—not; indeed, as to their use, but as to any dependence upon them for his happiness and portion...Yet this experience is no easy attainment. The very form of expression—"I have behaved and *quieted* myself", reminds us of some risings which were with difficulty subdued. There is a difference here between Christ and Christians. In him the exercise of grace encountered no adverse principles; but in them it meets with constant opposition. The flesh lusteth against the spirit, and when we would do good evil is present with us; hence the warfare within. So it is with "the child that is weaned." The task to the mother is trying and troublesome. The infant cries, and seems to sob out his heart. He thinks it very hard in her, and knows not what she means by her seeming cruelty, and the mother's fondness renders all her firmness necessary to keep her at the process; and sometimes she also weeps at the importunity of his dear looks, and big tears, and stretched out hands. But it must be done, and therefore, though she pities, she perseveres; and after a while he is soothed and satisfied, forgets the breast, and no longer feels even a hankering after his former pleasure. But how is the weaning of the child accomplished? By embittering the member to his lips; by the removal of the object in the absence and concealment of the mother; by the substitution of other food; by the influence of time. So it is with us. We love the world, and it deceives us. We depend on creatures, and they fail us, and pierce us through with many sorrows. We enter forbidden paths, and follow after our lovers; and our way is hedged up with thorns; and we then say, "Return unto thy rest, O my soul; and now, Lord, what wait I for? My hope is in thee." The enjoyment of a greater good subdues the relish of a less. What are the indulgences of sin, or the dissipations of the world to one who is abundantly satisfied with the goodness of God's house, and is made to drink of the river of his pleasures?— *William Jay* (1769-1853), *in "Evening Exercises for the Closet."* 
+**Verse 2.** *I have behaved and quieted myself, as a child that is weaned.* Weaned from what? Self sufficiency, self will, self seeking. From creatures and the things of the world—not; indeed, as to their use, but as to any dependence upon them for his happiness and portion... Yet this experience is no easy attainment. The very form of expression—"I have behaved and *quieted* myself", reminds us of some risings which were with difficulty subdued. There is a difference here between Christ and Christians. In him the exercise of grace encountered no adverse principles; but in them it meets with constant opposition. The flesh lusteth against the spirit, and when we would do good evil is present with us; hence the warfare within. So it is with "the child that is weaned." The task to the mother is trying and troublesome. The infant cries, and seems to sob out his heart. He thinks it very hard in her, and knows not what she means by her seeming cruelty, and the mother's fondness renders all her firmness necessary to keep her at the process; and sometimes she also weeps at the importunity of his dear looks, and big tears, and stretched out hands. But it must be done, and therefore, though she pities, she perseveres; and after a while he is soothed and satisfied, forgets the breast, and no longer feels even a hankering after his former pleasure. But how is the weaning of the child accomplished? By embittering the member to his lips; by the removal of the object in the absence and concealment of the mother; by the substitution of other food; by the influence of time. So it is with us. We love the world, and it deceives us. We depend on creatures, and they fail us, and pierce us through with many sorrows. We enter forbidden paths, and follow after our lovers; and our way is hedged up with thorns; and we then say, "Return unto thy rest, O my soul; and now, Lord, what wait I for? My hope is in thee." The enjoyment of a greater good subdues the relish of a less. What are the indulgences of sin, or the dissipations of the world to one who is abundantly satisfied with the goodness of God's house, and is made to drink of the river of his pleasures?— *William Jay* (1769-1853), *in "Evening Exercises for the Closet."* 
 
 **Verse 2.** *As a child that is weaned of his mother.* Though the weaned child has not what it would have, or what it naturally most desireth, the milk of the breast—yet it is contented with what the mother giveth—it rests upon her love and provision. So are we to be content with what providence alloweth us: Heb 13:5, "Let your conversation be without covetousness, and be content with such things as ye have"; and Php 4:11, "I have learned, in whatsoever state I am, therewith to be content." Whatever pleaseth our heavenly Father should please us. The child that is put from the breast to a harder diet is yet contented at last. The child doth not prescribe what it will eat, drink, or put on. Children are in no care for enlarging possessions, heaping up riches, aspiring after dignities and honours; but meekly take what is provided for them. The child, when it has lost the food which nature provideth for it, is not solicitous, but wholly refers itself to the mother, hangeth upon the mother. So for everything whatsoever should we depend upon God, refer ourselves to God, and expect all things from him: Ps 62:5, "My soul, wait thou only upon God; for my expectation is from him." With such a simplicity of submission should we rest and depend upon God. Let us take heed of being over wise and provident for ourselves, but let us trust our Father which is in heaven, and refer ourselves to his wise and holy government.— *Thomas Manton.* 
 
@@ -72,7 +72,7 @@ This is spoken either as,
 
 **Verse 2.** *As a weaned child.* That is, meek, modest, humble, submissive, simple, etc. See Mt 18:1-4.— *Henry Ainsworth.* —1622.
 
-**Verse 2.** Here is David's picture of himself...Observe, the *"child"* —which is drawn for us to copy—is *"weaned"*: the process is complete; it has been truly disciplined; the lesson is learned; and now it rests in its "weaning." The whole image expresses a repose which follows a struggle. *Surely I have behaved and quieted myself, as a child that is weaned of his mother*; or, more literally, " *on* his mother"; now content to lie still on the very place of its privation, "—as a child that is weaned on his mother." That obedience would be a tame and valueless thing, which was not the consequence of quiet control. A mere apathetic state is the very opposite of obedience that may be truly so called. But this is the point of the similitude,—there has been a distress, and a battle, and a self victory; and now the stilled will is hushed into submission and contentment; ready to forego what is most liked, and to take just whatever is given it— *"a weaned child."* 
+**Verse 2.** Here is David's picture of himself... Observe, the *"child"* —which is drawn for us to copy—is *"weaned"*: the process is complete; it has been truly disciplined; the lesson is learned; and now it rests in its "weaning." The whole image expresses a repose which follows a struggle. *Surely I have behaved and quieted myself, as a child that is weaned of his mother*; or, more literally, " *on* his mother"; now content to lie still on the very place of its privation, "—as a child that is weaned on his mother." That obedience would be a tame and valueless thing, which was not the consequence of quiet control. A mere apathetic state is the very opposite of obedience that may be truly so called. But this is the point of the similitude,—there has been a distress, and a battle, and a self victory; and now the stilled will is hushed into submission and contentment; ready to forego what is most liked, and to take just whatever is given it— *"a weaned child."* 
 
 I do not believe that it was ever the intention of God that any man should so merge and lose his will in the Divine, that he should have no distinct will of his own. There have been many who have tried to attain this annihilation of will; and they have made it the great aim and end of life. But the character of the dispensation does not allow it. I do not believe it to be a possible thing; and if it were possible, I do not believe that it would be after the mind of God. It is not man's present relation to his Maker. None of the saints in the Bible did more than submit a strong existing will. The Lord Jesus Christ himself did no more. "What shall I say? Father, save me from this hour; but for this cause came I unto this hour. Father, glorify thy name. Not my will, but thine be done." Evidently two things—"My will", "Thy will." It was an instantly and perfectly subjugated will,—nevertheless, a will. And this is what is required of us; and what the nature of our manhood, and the provisions of our religion have to assume. A will, decidedly a will: the more decided the will, the stronger the character, and the greater the man. But a will that is always being given up, separated, conformed, constantly, increasingly conformed. The unity of the two wills is heaven.— *Condensed from a Sermon by James Vaughan.* 
 
@@ -82,25 +82,25 @@ I do not believe that it was ever the intention of God that any man should so me
 
 **Verse 3.** *Let Israel hope in the LORD.* etc. Remember that he is Jehovah.
 
-1\.Wise to plan.
+1\. Wise to plan.
 
-2\.Good to purpose.
+2\. Good to purpose.
 
-3\.Strong to execute, and that he will withhold no good thing from them that walk uprightly.
+3\. Strong to execute, and that he will withhold no good thing from them that walk uprightly.
 
-4\.Trust *"from henceforth."* If you have not begun before, begin now.
+4\. Trust *"from henceforth."* If you have not begun before, begin now.
 
-5\.And do not be weary; trust *"for ever."* Your case can never be out of the reach of God's power and mercy.— *Adam Clarke.* 
+5\. And do not be weary; trust *"for ever."* Your case can never be out of the reach of God's power and mercy.— *Adam Clarke.* 
 
 ## Hints to the Village Preacher
 
 **Verse 1.** *Humility*.
 
-1\.A profession which ought to befit every child of God.
+1\. A profession which ought to befit every child of God.
 
-2\.A profession which nevertheless many children of God cannot truthfully make. Point out the prevalence of pride and ambition even in the church.
+2\. A profession which nevertheless many children of God cannot truthfully make. Point out the prevalence of pride and ambition even in the church.
 
-3\.A profession which can only be justified through the possession of the spirit of Christ (Mt 11:29-30 Mt 18:1-5).— *C.A. D.* 
+3\. A profession which can only be justified through the possession of the spirit of Christ (Mt 11:29-30 Mt 18:1-5).— *C. A. D.* 
 
 **Verse 2.** *Surely I have behaved and quieted myself.* The original bears somewhat of the form of an oath, and therefore our translators exhibited great judgment in introducing the word "surely"; it is not a literal version, but it correctly gives the meaning. The Psalmist had been upon his best behaviour, and had smoothed down the roughnesses of his self will; by holy effort he had mastered his own spirit, so that towards God he was not rebellious, even as towards man he was not haughty. It is no easy thing to quiet yourself: sooner may a man calm the sea, or rule the wind, or tame a tiger, than quiet himself. We are clamorous, uneasy, petulant; and nothing but grace can make us quiet under afflictions, irritations, and disappointments. *As a child that is weaned of afflictions mother.* He had become as subdued and content as a child whose weaning is fully accomplished. The Easterners put off the time of weaning far later than we do, and we may conclude that the process grows none the easier by being postponed. At last there must be an end to the suckling period, and then a battle begins: the child is denied his comfort, and therefore frets and worries, flies into pets, or sinks into sulks. It is facing its first great sorrow and it is in sore distress. Yet time brings not only alleviations, but the ending of the conflict; the boy ere long is quite content to find his nourishment at the table with his brothers, and he feels no lingering, wish to return to those dear fountains from which he once sustained his life. He is no longer angry with his mother, but buries his head in that very bosom after which he pined so grievously: he is weaned *on* his mother rather than *from* her.
 
@@ -116,25 +116,25 @@ To the weaned child his mother is his comfort though she has denied him comfort.
 
 **Verse 2.** The soul is as a weaned child:
 
-1\.In conversion.
+1\. In conversion.
 
-2\.In sanctification, which is a continual weaning from the world and sin.
+2\. In sanctification, which is a continual weaning from the world and sin.
 
-3\.In bereavement.
+3\. In bereavement.
 
-4\.In affliction of every kind.
+4\. In affliction of every kind.
 
-5\.In death.— *G. R.* 
+5\. In death.— *G. R.* 
 
 **Verse 2.** 
 
-1\.The soul has to be weaned as well as the body.
+1\. The soul has to be weaned as well as the body.
 
 a) It is first nourished by others.
 
 b) It is afterward thrown upon its own resources.
 
-2\.The soul is weaned from one thing by giving its attention to another.
+2\. The soul is weaned from one thing by giving its attention to another.
 
 a) From worldly things by heavenly.
 
@@ -144,45 +144,45 @@ c) From sin to holiness.
 
 d) From the world to Christ.
 
-e) From self to God.— *G.R.* 
+e) From self to God.— *G. R.* 
 
 **Verse 2.** 
 
-1\.A desirable condition: "As a weaned child."
+1\. A desirable condition: "As a weaned child."
 
-2\.A difficult task—to subdue and quiet self.
+2\. A difficult task—to subdue and quiet self.
 
-3\.A delightful result: "Surely... my soul is as a weaned child."— *W. H. J. P.* 
+3\. A delightful result: "Surely... my soul is as a weaned child."— *W. H. J. P.* 
 
 **Verse 2.** 
 
-1\.Soul fretfulness: weak, dishonourable, rebellious.
+1\. Soul fretfulness: weak, dishonourable, rebellious.
 
-2\.Soul government; throne often abdicated; God gives each the sceptre of self rule; necessary to successful life.
+2\. Soul government; throne often abdicated; God gives each the sceptre of self rule; necessary to successful life.
 
-3\.Soul quiet: its sweetness; its power. Come, Holy Spirit, breathe it upon us!— *W. B. H.* 
+3\. Soul quiet: its sweetness; its power. Come, Holy Spirit, breathe it upon us!— *W. B. H.* 
 
 **Verse 2.** See "Spurgeon's Sermons", No. 1210: "The Weaned Child."
 
 **Verses 2-3.** The weaned child hoping in the Lord:
 
-1\.The first weaning of the soul, the grand event of a man's history.
+1\. The first weaning of the soul, the grand event of a man's history.
 
-2\.The joy in the Lord that springs up in every weaned soul: "My soul is even as a weaned child; let Israel hope in the Lord from henceforth and for ever."
+2\. The joy in the Lord that springs up in every weaned soul: "My soul is even as a weaned child; let Israel hope in the Lord from henceforth and for ever."
 
-3\.The daily weaning of the soul through life.
+3\. The daily weaning of the soul through life.
 
-4\.The earnest desires and the fruitful work of every weaned soul.— *A. Moody Stuart.* 
+4\. The earnest desires and the fruitful work of every weaned soul.— *A. Moody Stuart.* 
 
 **Verse 3.** 
 
-1\.The encouragement to hope in God.
+1\. The encouragement to hope in God.
 
 a) As a covenant God, "the God of Israel."
 
 b) As a covenant keeping God: "From henceforth", etc.
 
-2\.The effect of this hope.
+2\. The effect of this hope.
 
 a) The humility and dependence in the first verse.
 
@@ -190,21 +190,21 @@ b) The contentment and weaning in the second verse. Would Israel be thus humble 
 
 **Verse 3.** *The Voice of Hope heard in the Calm.* 
 
-1\.Calmed souls appreciate God. Quiet favours contemplation. God's majesty, perfection, and praise so discovered.
+1\. Calmed souls appreciate God. Quiet favours contemplation. God's majesty, perfection, and praise so discovered.
 
-2\.Calmed souls confide in God; seen to be so worthy of trust.
+2\. Calmed souls confide in God; seen to be so worthy of trust.
 
-3\.Calmed souls look fearlessly into eternity; "from henceforth and for ever."— *W. B. H.* 
+3\. Calmed souls look fearlessly into eternity; "from henceforth and for ever."— *W. B. H.* 
 
 **Verse 3.** *Hope on, hope ever.* 
 
-1\.For the past warrants such confidence.
+1\. For the past warrants such confidence.
 
-2\.For the present demands such confidence.
+2\. For the present demands such confidence.
 
-3\.For the future will justify confidence.— *W. H. J. P.* 
+3\. For the future will justify confidence.— *W. H. J. P.* 
 
 ## Works Upon The Hundred And Thirty-First Psalm
 
-"Several *five* Sermons Upon Psalm 131," in the Works of Manton, D.D. Vol. 5., folio, pp. 961-1007; they may also be found in 21. pp. 406-462 of the new edition of Manton's Works, published by Nisbet and Co., 1874.
+"Several *five* Sermons Upon Psalm 131," in the Works of Manton, D. D. Vol. 5., folio, pp. 961-1007; they may also be found in 21. pp. 406-462 of the new edition of Manton's Works, published by Nisbet and Co., 1874.
 

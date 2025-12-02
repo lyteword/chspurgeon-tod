@@ -242,77 +242,77 @@ And terrors of a God." *George Rogers.*
 
 **Verses 1, 3, 5, 10.** Note the wise man's progress out of his soul trouble.
 
-1\.I cried.
+1\. I cried.
 
-2\.I remembered.
+2\. I remembered.
 
-3\.I considered.
+3\. I considered.
 
-4\.I said.
+4\. I said.
 
 **Verse 2.** See "Spurgeon's Sermons, "No. 853. "A Sermon for the Most Miserable of Men."
 
 **Verse 2.** 
 
-1\.Special prayer: *In the days,* etc.
+1\. Special prayer: *In the days,* etc.
 
-2\.Persevering prayer: hands lifted up to God by night as well as by day.
+2\. Persevering prayer: hands lifted up to God by night as well as by day.
 
-3\.Agonizing prayer: *my soul refused to be comforted, until the answer came*. "Being in an agony, he prayed, "etc.
+3\. Agonizing prayer: *my soul refused to be comforted, until the answer came*. "Being in an agony, he prayed, "etc.
 
 **Verse 2.** (*last clause* ). When this is wise, and when it is censurable.
 
 **Verse 4.** 
 
-1\.A good man cannot rest on his bed until his soul rests on God.
+1\. A good man cannot rest on his bed until his soul rests on God.
 
-2\.He cannot speak freely to others until God speaks peace to his soul. *G. R.* 
+2\. He cannot speak freely to others until God speaks peace to his soul. *G. R.* 
 
 **Verse 4.** Occupation for the sleepless, and consolation for the speechless.
 
 **Verses 5-6.** There are four rules for obtaining comfort in affliction.
 
-1\.The consideration of God's goodness to his people of old.
+1\. The consideration of God's goodness to his people of old.
 
-2\.Remembrance of our own past experience.
+2\. Remembrance of our own past experience.
 
-3\.Self examination.
+3\. Self examination.
 
-4\.The diligent study of the word. *G. R.* 
+4\. The diligent study of the word. *G. R.* 
 
 **Verse 6.** *Remembrance.* A good memory is very helpful and useful.
 
-1\.It is a great means of *knowledge:* for what signifies your reading or hearing, if you remember nothing?
+1\. It is a great means of *knowledge:* for what signifies your reading or hearing, if you remember nothing?
 
-2\.It is a means of *faith:* 1Co 15:2.
+2\. It is a means of *faith:* 1Co 15:2.
 
-3\.It is a means of *comfort.* If a poor Christian in distress could remember God's promises they would inspire him with new life; but when they are forgotten, his spirits sink.
+3\. It is a means of *comfort.* If a poor Christian in distress could remember God's promises they would inspire him with new life; but when they are forgotten, his spirits sink.
 
-4\.It is a means of *thankfulness.* 
+4\. It is a means of *thankfulness.* 
 
-5\.It is a means of *hope;* for "experience worketh hope" (Ro 5:4), and the memory is the storehouse of experience.
+5\. It is a means of *hope;* for "experience worketh hope" (Ro 5:4), and the memory is the storehouse of experience.
 
-6\.It is a means of *repentance;* for, how can we repent or mourn for that which we have forgotten?
+6\. It is a means of *repentance;* for, how can we repent or mourn for that which we have forgotten?
 
-7\.It is a means of *usefulness.* When one spark of grace is truly kindled in the heart, it will quickly endeavour to heat others also. *R. Steele.* 
+7\. It is a means of *usefulness.* When one spark of grace is truly kindled in the heart, it will quickly endeavour to heat others also. *R. Steele.* 
 
 **Verse 7.** (*first clause* ). To place the question in a strong light, let us consider,
 
-1\.Of whom is the question raised? *the Lord.* 
+1\. Of whom is the question raised? *the Lord.* 
 
-2\.What course of action is in question? *cast off for ever.* 
+2\. What course of action is in question? *cast off for ever.* 
 
-3\.Towards whom would the action be performed?
+3\. Towards whom would the action be performed?
 
 **Verse 8.** These questions,
 
-1\.Suppose a change in the immutable Jehovah in two glorious attributes.
+1\. Suppose a change in the immutable Jehovah in two glorious attributes.
 
-2\.Are contrary to all past evidence.
+2\. Are contrary to all past evidence.
 
-3\.Can only arise from the flesh and Satan; and, therefore,
+3\. Can only arise from the flesh and Satan; and, therefore,
 
-4\.Are to be met in the power of the Spirit, with strong faith in the Eternal God.
+4\. Are to be met in the power of the Spirit, with strong faith in the Eternal God.
 
 **Verse 10.** A confession applicable to many other matters. Such as, fear of death, fear of desertion, dread of public service, sensitiveness of neglect, etc.
 
@@ -322,19 +322,19 @@ And terrors of a God." *George Rogers.*
 
 **Verses 11-12.** 
 
-1\.Consolation derived from the remembrance of the past.
+1\. Consolation derived from the remembrance of the past.
 
-2\.Consolation increased by meditation.
+2\. Consolation increased by meditation.
 
-3\.Consolation strengthened by communication: "and talk," etc. *G. R.* 
+3\. Consolation strengthened by communication: "and talk," etc. *G. R.* 
 
 **Verses 11-12.** 
 
-1\.Consolation derived from the remembrance of the past.
+1\. Consolation derived from the remembrance of the past.
 
-2\.Consolation increased by meditation.
+2\. Consolation increased by meditation.
 
-3\.Consolation strengthened by communication: "and talk," etc. *G. R.* 
+3\. Consolation strengthened by communication: "and talk," etc. *G. R.* 
 
 **Verse 12.** Themes for thought and topics for conversation. Creation, Providence, Redemption, etc.
 
@@ -348,47 +348,47 @@ And terrors of a God." *George Rogers.*
 
 **Verse 15.** 
 
-1\.The redeemed: *thy people; the sons of,* etc.
+1\. The redeemed: *thy people; the sons of,* etc.
 
 (a) In captivity though they are his people.
 
 (b) His people though they are in captivity.
 
-2\.The redemption: from Egyptian bondage.
+2\. The redemption: from Egyptian bondage.
 
-3\.The Redeemer: *Thou, with thine arm,* etc. God by Christ, his arm: *Mine own arm brought,* etc. *To whom is the arm of the Lord revealed? G. R.* 
+3\. The Redeemer: *Thou, with thine arm,* etc. God by Christ, his arm: *Mine own arm brought,* etc. *To whom is the arm of the Lord revealed? G. R.* 
 
 **Verses 16-18.** 
 
-1\.The homage of nature to the God of grace.
+1\. The homage of nature to the God of grace.
 
-2\.Its subserviency to his designs. *G. R.* 
+2\. Its subserviency to his designs. *G. R.* 
 
 **Verse 19.** 
 
-1\.The ways of God to men are peculiar: *In the sea: thy path, etc.* 
+1\. The ways of God to men are peculiar: *In the sea: thy path, etc.* 
 
-2\.They are uniform, they lie in regular *footsteps.* 
+2\. They are uniform, they lie in regular *footsteps.* 
 
-3\.They are inscrutable: like the path of the ship upon the waters, not of the ploughshare on the land.
+3\. They are inscrutable: like the path of the ship upon the waters, not of the ploughshare on the land.
 
 **Verse 19.** God's way is in the sea. In things changeable, ungovernable, vast, unfathomable, terrible, overwhelming, the Lord has the ruling power.
 
 **Verse 20.** 
 
-1\.The subjects of divine guidance: *thy people.* 
+1\. The subjects of divine guidance: *thy people.* 
 
-2\.The manner of their guidance: *like a flock* —separated, united, dependent.
+2\. The manner of their guidance: *like a flock* —separated, united, dependent.
 
-3\.The agents employed: *by the hand;* the Great Shepherd leads by the hand of under shepherds. "May every under shepherd keep his eye intent on Thee."
+3\. The agents employed: *by the hand;* the Great Shepherd leads by the hand of under shepherds. "May every under shepherd keep his eye intent on Thee."
 
 **Verse 20.** Church history.
 
-1\.The church a flock.
+1\. The church a flock.
 
-2\.God seen as leading it on.
+2\. God seen as leading it on.
 
-3\.Instrumentality always used.
+3\. Instrumentality always used.
 
 ## Works Upon The Seventy-Seventh Psalm
 

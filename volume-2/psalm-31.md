@@ -170,9 +170,9 @@ If not to thee, where, whither shall I go?
 
 **Verse 5.** *Into thine hand I commit my spirit,* etc. For what are the saints to commit their spirits into the hands of God by Jesus Christ? 1. That they may be safe; *i.e.,* preserved in their passage to heaven, from all the enemies and dangers that may stand in the way. When saints die, the powers of darkness would, doubtless, if possible, hinder the ascending of their souls to God. As they are cast out of heaven, they are filled with rage to see any out of our world going thither. One thing, therefore, which the saint means in committing his spirit into the hands of God, is, that the precious *depositum* may be kept from all that wish or would attempt its ruin. And they are sure that almighty power belongs to God: and if this is engaged for their preservation, none can pluck them out of his hand. The Redeemer hath spoiled principalities and powers, and proved it by his triumphant ascension to glory; and hath all his and the believer's enemies in a chain, so that they shall be more than conquerors in and through him. Angels, for order's sake, are sent forth to minister to them and be their guard, who will faithfully attend them their charge, till they are brought to the presence of the common Lord of both. "I know, "saith the apostle, "whom I have believed; and I am persuaded that he is able to keep that which I have committed unto him against that day."
 
-2\.They commit their soul into the hands of God, that they may be admitted to dwell with him, even in that presence of his where there is fulness of joy, and where there are pleasures for evermore: where all evil is excluded, and all good present, to fill their desires, and find them matter of praise to all eternity.
+2\. They commit their soul into the hands of God, that they may be admitted to dwell with him, even in that presence of his where there is fulness of joy, and where there are pleasures for evermore: where all evil is excluded, and all good present, to fill their desires, and find them matter of praise to all eternity.
 
-3\.They commit their departing spirits into the hands of God, that their bodies may be at length raised and reunited to them, and that so they may enter at last into the blessedness prepared for them that love him...The grounds on which they may do this with comfort, *i.e.,* with lively hopes of being happy for ever, are many. To mention only two:
+3\. They commit their departing spirits into the hands of God, that their bodies may be at length raised and reunited to them, and that so they may enter at last into the blessedness prepared for them that love him... The grounds on which they may do this with comfort, *i.e.,* with lively hopes of being happy for ever, are many. To mention only two:
 
 (a) God's interest in them, and upon the most endearing foundation, that of redemption. *Into thine hand I commit my spirit; for thou hast redeemed me.* Redeemed me from hell and the wrath to come, by giving thy Son to die for me. Lord, I am not only thy creature, but thy redeemed creature, bought with a price, saith the saint. Redeemed me from the power of my inward corruption, and from love to it, and delight in it; and with my consent hast drawn me to be thine, and thine for ever. *Lord, I am thine,* save me unchangeably.
 
@@ -182,7 +182,7 @@ If not to thee, where, whither shall I go?
 
 O hands of the Eternal God, who made and still preserve the heavens and earth for my sake, and who made me for yourselves, suffer me not ever to stray from you. In those hands I possess my Lamb, and all I love; in them therefore must I be also, together with him. Together with him, in these loving hands shall I sleep and rest in peace, since he in dying left me hope in them and in their infinite mercies, placed me within them, as my only and my special refuge. Since by these hands I live and am what I am, make me continually to live through them, and in them to die; in them to live in the love of our Lord, and from them only to desire and look for every good; that from them I may at last, together with the Lord, receive the crown. *Fra Thome de Jesu.* 
 
-**Verse 5.** *Into thine hand I commit my spirit.* No shadowy form of a dark destiny stands before him at the end of his career, although he must die on the cross, the countenance of his Father shines before him. He does not behold his life melting away into the gloomy floods of mortality. He commends it into the hands of his Father. It is not alone in the general spirit of humanity, that he will continue to live. He will live on in the definite personality of his own spirit, embraced by the special protection and faithfulness of his Father. Thus he does not surrender his life despondingly to death for destruction, but with triumphant consciousness to the Father for resurrection. It was the very centre of his testament: assurance of life; surrender of his life into the hand of a living Father. With loud voice he exclaimed it to the world, which will for ever and ever sink into the heathenish consciousness of death, of the fear of death, of despair of immortality and resurrection, because it for ever and ever allows the consciousness of the personality of God, and of personal union with him, to be obscured and shaken. With the heart of a lion, the dying Christ once more testified of life with an expression which was connected with the word of the Old Testament Psalm, and testified that the Spirit of eternal life was already operative, in prophetic anticipation, in the old covenant. Thus living as ever, he surrendered his life, through death, to the eternally living One. His death was the last and highest fact, the crown of his holy life. *J.P. Lange, D.D., in* "The Life of the Lord Jesus Christ." 1864.
+**Verse 5.** *Into thine hand I commit my spirit.* No shadowy form of a dark destiny stands before him at the end of his career, although he must die on the cross, the countenance of his Father shines before him. He does not behold his life melting away into the gloomy floods of mortality. He commends it into the hands of his Father. It is not alone in the general spirit of humanity, that he will continue to live. He will live on in the definite personality of his own spirit, embraced by the special protection and faithfulness of his Father. Thus he does not surrender his life despondingly to death for destruction, but with triumphant consciousness to the Father for resurrection. It was the very centre of his testament: assurance of life; surrender of his life into the hand of a living Father. With loud voice he exclaimed it to the world, which will for ever and ever sink into the heathenish consciousness of death, of the fear of death, of despair of immortality and resurrection, because it for ever and ever allows the consciousness of the personality of God, and of personal union with him, to be obscured and shaken. With the heart of a lion, the dying Christ once more testified of life with an expression which was connected with the word of the Old Testament Psalm, and testified that the Spirit of eternal life was already operative, in prophetic anticipation, in the old covenant. Thus living as ever, he surrendered his life, through death, to the eternally living One. His death was the last and highest fact, the crown of his holy life. *J. P. Lange, D. D., in* "The Life of the Lord Jesus Christ." 1864.
 
 **Verse 5.** *Into thine hand I commit my spirit.* David committed his spirit to God that he might not die, but Christ and all Christians after him, commit their spirit to God, that they may live for ever by death, and after death. This Psalm is thus connected with the twenty-second Psalm. Both of these Psalms were used by Christ on the cross. From the twenty-second he derived those bitter words of anguish, "Eloi, Eloi, lama sabachthani?" From the present Psalm he derived those last words of love and trust which he uttered just before his death. The Psalter was the hymn book and prayer book of Christ. *Christopher Wordsworth.* 
 
@@ -190,9 +190,9 @@ O hands of the Eternal God, who made and still preserve the heavens and earth fo
 
 **Verse 6.** *They that regard lying vanities.* The Romanists feign miracles of the saints to make them, as they suppose, the more glorious. They say that the house wherein the Virgin Mary was when the angel Gabriel came unto her was, many hundred years after, translated, first, out of Galilee into Dalmatia, above 2,000 miles, and thence over the sea into Italy, where also it removed from one place to another, till at length it found a place where to abide, and many most miraculous cures, they say, were wrought by it, and that the very trees when it came, did bow unto it. Infinite stories they have of this nature, especially in the Legend of Saints, which they call "The Golden Legend, "a book so full of gross stuff that Ludovicus Vives, a Papist, but learned and ingenuous, with great indignations cried out, "What can be more abominable than that book?" and he wondered why they should call it "golden, "when as he that wrote it was a man "of an iron mouth and of a leaden heart." And Melchior Canus, a Romish bishop, passed the same censure upon that book, and complains (as Vives also had done before him), that Laertius wrote the lives of philosophers, and Suetonius the lives of the Caesars, more sincerely than some did the lives of the saints and martyrs. They are most vain and superstitious in the honour which they give to the relics of the saints; as their dead bodies, or some parts of them; their bones, flesh, hair; yea, their clothes that they wore, or the like. "You may now, everywhere, "saith Erasmus, "see held out for gain, "Mary's milk, which they honour almost as much as Christ's consecrated body; prodigious oil; so many pieces of the cross, that if they were all gathered together a great ship would scarce carry them. Here Francis's hood set forth to view; there the innermost garment of the Virgin Mary; in one place, Anna's comb; in another place, Joseph's stocking; in another place, Thomas of Canterbury's shoe; in another place, Christ's foreskin, which, though it be a thing uncertain, they worship more religiously than Christ's whole person. Neither do they bring forth these things as things that may be tolerated, and to please the common people, but all religion almost is placed in them. (Erasmus, on Mt 23:5). *Christopher Cartwright.* 
 
-**Verse 6.** The sense lies thus, that heathen men, when any danger or difficulty approacheth them, are solemnly wont to apply themselves to auguries and divinations, and so to false gods, to receive advice and direction from them: but doing so and observing their responses most superstitiously, they yet gain nothing at all by it. These David detests, and keeps close to God, hoping for no aid but from him. *H. Hammond, D.D.* 
+**Verse 6.** The sense lies thus, that heathen men, when any danger or difficulty approacheth them, are solemnly wont to apply themselves to auguries and divinations, and so to false gods, to receive advice and direction from them: but doing so and observing their responses most superstitiously, they yet gain nothing at all by it. These David detests, and keeps close to God, hoping for no aid but from him. *H. Hammond, D. D.* 
 
-**Verse 7.** *I will be glad and rejoice in thy mercy.* In the midst of trouble faith will furnish matter of joy, and promise to itself gladness, especially from the memory of by past experiences of God's mercy; as here, *I will be glad and rejoice in thy mercy.*...The ground of our gladness, when we have found a proof of God's kindness to us should not be in the benefit so much as in the fountain of the benefit; for this giveth us hope to drink again of the like experience from the fountain which did send forth that benefit. Therefore David says, *I will be glad and rejoice in thy mercy. David Dickson.* 
+**Verse 7.** *I will be glad and rejoice in thy mercy.* In the midst of trouble faith will furnish matter of joy, and promise to itself gladness, especially from the memory of by past experiences of God's mercy; as here, *I will be glad and rejoice in thy mercy.*... The ground of our gladness, when we have found a proof of God's kindness to us should not be in the benefit so much as in the fountain of the benefit; for this giveth us hope to drink again of the like experience from the fountain which did send forth that benefit. Therefore David says, *I will be glad and rejoice in thy mercy. David Dickson.* 
 
 **Verse 7.** *Thou hast considered my trouble:* 
 
@@ -226,13 +226,13 @@ Add but a faith, and say as beggars say: *Master, I am poor, and blind, in great
 
 **Verse 10.**. I find that when the saints are under trial and well humbled, little sins raise great cries in the conscience; but in prosperity, conscience is a pope that gives dispensations and great latitude to our hearts. The cross is therefore as needful as the crown is glorious. *Samuel Rutherford.* 
 
-**Verse 11.** *I was a reproach among all mine enemies.* If anyone strives after patience and humility, he is a hypocrite. If he allows himself in the pleasures of this world, he is a glutton. If he seeks justice, he is impatient; if he seeks it not, he is a fool. If he would be prudent, he is stingy; if he would make others happy, he is dissolute. If he gives himself up to prayer, he is vainglorious. And this is the great loss of the church, that by means like these many are held back from goodness! which the psalmist lamenting says, *I became a reproof among all mine enemies. Chrysostom, quoted by J.M. Neale.* 
+**Verse 11.** *I was a reproach among all mine enemies.* If anyone strives after patience and humility, he is a hypocrite. If he allows himself in the pleasures of this world, he is a glutton. If he seeks justice, he is impatient; if he seeks it not, he is a fool. If he would be prudent, he is stingy; if he would make others happy, he is dissolute. If he gives himself up to prayer, he is vainglorious. And this is the great loss of the church, that by means like these many are held back from goodness! which the psalmist lamenting says, *I became a reproof among all mine enemies. Chrysostom, quoted by J. M. Neale.* 
 
 **Verse 11.** *They that did see me without fled from me.* I once heard the following relation from an old man of the world, and it occurs to me, as illustrative of what we are now considering. He was at a public assembly, and saw there an individual withdrawing herself from the crowd, and going into a corner of the room. He went up to her, she was an old and intimate friend of his; he addressed himself to her—she, with a sigh, said, "Oh, I have seen many days of trouble since we last met." What does the man of the world do? Immediately he withdrew himself from his sorrow stricken friend and hid himself in the crowd. Such is the sympathy of the world with Christ or his servants. *Hamilton Verschoyle.* 
 
 **Verse 12.** *I am forgotten as a dead man out of mind.* A striking instance of how the greatest princes are forgotten in death is found in the deathbed of Louis XIV. "The Louis that was, lies forsaken, a mass of abhorred clay; abandoned `to some poor persons, and priests of the *Chapelle Ardente, '* who make haste to put him `in two lead coffins, pouring in abundant spirits of wine.' The new Louis with his court is rolling towards Choisy, through the summer afternoon: the royal tears still flow; but a word mispronounced by Monseigneur d'Artois sets them all laughing, and they weep no more." *Thomas Carlyle in "The French Revolution."* 
 
-**Verse 12.** *I am forgotten,* etc. As a dying man with curtains drawn, whom friends have no hope of, and therefore look off from; or rather like a dead man laid aside out of sight and out of mind altogether, and buried more in oblivion than in his grave; when the news is, "she is dead, trouble not the Master." Lu 8:49. *Anthony Tuckney, D.D.,* 1599-1670.
+**Verse 12.** *I am forgotten,* etc. As a dying man with curtains drawn, whom friends have no hope of, and therefore look off from; or rather like a dead man laid aside out of sight and out of mind altogether, and buried more in oblivion than in his grave; when the news is, "she is dead, trouble not the Master." Lu 8:49. *Anthony Tuckney, D. D.,* 1599-1670.
 
 **Verse 12.** *I am like a broken vessel.* As a vessel, how profitable soever it hath been to the owner, and how necessary for his turn, yet, when it is broken is thrown away, and regarded no longer: even so such is the state of a man forsaken of those whose friend he hath been so long as he was able to stand them in stead to be of advantage to them. *Robert Cawdray.* 
 
@@ -294,13 +294,13 @@ They say that he is a Vaudes, and worthy of punishment."
 
 **Verse 19.** *Oh how great is thy goodness.* Let me, to set the crown on the head of the *duty of meditation,* add one thing over and above—let meditation be *carried up to admiration:* not only should we be affected, but transported, rapt up and ravished with the beauties and transcendencies of heavenly things; act meditation to admiration, endeavour the highest pitch, coming the nearest to the highest patterns, the patterns of saints and angels in heaven, whose actings are the purest, highest ecstasies and admirations. Thus were these so excellent artists in meditation, David, an high actor of admiration in meditation, as often we see it in the psalms; so in Ps 8:1,9 31:19; *"Oh how great is thy goodness, "* etc.: Ps 104:24 "O Lord, how manifold are thy works, "etc; and in other places David's meditation and admiration were as his harp, well tuned, and excellently played on, in rarest airs and highest strains; as the precious gold, and the curious burnishing; or the richest stone, and the most exquisite polishing and setting of it. So blessed Paul, who was a great artist in musing, acted high in admiration, his soul was very warm and flaming up in it: it was as a bird with a strong and long wing that soars and towers up aloft, and gets out of sight. *Nathanael Ranew.* 
 
-**Verse 19.** *Before the sons of men,* i.e., *openly.* The psalmist here perhaps refers to temporal blessings conferred on the pious, and evident to all. Some, however, have supposed the reference to be to the reward of the righteous, bestowed with the utmost publicity on the day of judgment; which better agrees with our interpretation of the former part of the verse. *Daniel Cresswell, D.D., F.R.S.* (1776-1844), *in loc.* 
+**Verse 19.** *Before the sons of men,* i.e., *openly.* The psalmist here perhaps refers to temporal blessings conferred on the pious, and evident to all. Some, however, have supposed the reference to be to the reward of the righteous, bestowed with the utmost publicity on the day of judgment; which better agrees with our interpretation of the former part of the verse. *Daniel Cresswell, D. D., F. R. S.* (1776-1844), *in loc.* 
 
 **Verse 19.** Believe it, Sirs, you cannot conceive what a friend you shall have of God, would you be but persuaded to enter into covenant with him, to be his, wholly his. I tell you, many that sometimes thought and did as you do now, that is, set light by Christ and hate God, and see no loveliness in him, are now quite of another mind; they would not for ten thousand worlds quit their interest in him. Oh, who dare say that he is a hard Master? Who that knows him will say that he is an unkind friend? Oh, what do poor creatures all, that they do entertain such harsh sour thoughts of God? What, do they think that there is nothing in that scripture, *Oh how great is thy goodness, which thou hast laid up for them that fear thee!* Doth the psalmist speak too largely? Doth he say more than he and others could prove? Ask him, and he will tell you in verse 21, that he blesseth God. These were things he could speak to, from his own personal experience; and many thousands as well as he, to whom the Lord had showed his marvellous kindness, and therefore he doth very passionately plead with the people of God to love him, and more highly to express their sense of his goodness, that the world might be encouraged also to have good thoughts of him. *James Janeway.* 
 
 **Verse 19.** Very observable is that expression of the psalmist, *Oh how great is thy goodness which thou hast laid up for them that fear thee; which thou hast wrought before the sons of men for them that trust in thee.* In the former clause, God's goodness is said to be *laid up;* in the latter, to be *wrought.* Goodness is laid up in the promise, wrought in the performance; and that goodness which is laid up is wrought for them that trust in God; and thus, as God's faithfulness engages us to believe, so our faith, as it were, engages God's faithfulness to perform the promise. *Nathanael Hardy.* 
 
-**Verse 20.** *Thou shalt keep them secretly in a pavilion from the strife of tongues.* This our beloved God does secretly, so that no human eyes may or can see, and the ungodly do not know that a believer is, in God, and in the presence of God, so well protected, that no reproach or contempt, and no quarrelsome tongue can do him harm. *Arndt, quoted by W. Wilson, D.D.* 
+**Verse 20.** *Thou shalt keep them secretly in a pavilion from the strife of tongues.* This our beloved God does secretly, so that no human eyes may or can see, and the ungodly do not know that a believer is, in God, and in the presence of God, so well protected, that no reproach or contempt, and no quarrelsome tongue can do him harm. *Arndt, quoted by W. Wilson, D. D.* 
 
 **Verse 22.** *I said in my haste, I am cut off from before thine eyes: nevertheless thou heardest the voice of my supplications.* Who would have thought those prayers should ever have had any prevalence in God's ears which were mixed with so much infidelity in the petitioner's heart! *William Secker.* 
 
@@ -318,15 +318,15 @@ They say that he is a Vaudes, and worthy of punishment."
 
 **Verse 22.** David vents his astonishment at the Lord's condescension in hearing his prayer. How do we wonder at the goodness of a petty man in granting our desires! How much more should we at the humility and goodness of the most sovereign Majesty of heaven and earth! *Stephen Charnock.* 
 
-**Verse 23.** *O love the Lord, all ye his saints.* The holy psalmist in the words does, with all the warmth of an affectionate zeal, incite us to the love of God, which is the incomparably noblest passion of a reasonable mind, its brightest glory and most exquisite felicity; and it is, as appears evident from the nature of the thing, and the whole train of divine revelation, the comprehensive sum of that duty which we owe to our Maker, and the very soul which animates a religious life, that we "love the Lord with all our heart, and strength, and mind." *William Dunlap. A.M.,* 1692-1720.
+**Verse 23.** *O love the Lord, all ye his saints.* The holy psalmist in the words does, with all the warmth of an affectionate zeal, incite us to the love of God, which is the incomparably noblest passion of a reasonable mind, its brightest glory and most exquisite felicity; and it is, as appears evident from the nature of the thing, and the whole train of divine revelation, the comprehensive sum of that duty which we owe to our Maker, and the very soul which animates a religious life, that we "love the Lord with all our heart, and strength, and mind." *William Dunlap. A. M.,* 1692-1720.
 
 **Verse 23.** *O love the Lord, all ye his saints,* etc. Some few words are to be attended in the clearing of the sense. *Saints* here in the text is or may be read, *ye that feel mercies*. *"Faithful, "* the word is sometimes taken for *persons,* sometimes *things;* and so the Lord is said to preserve true men, and truths, faithful men, and faithfulnesses. *He plenteously rewardeth the proud doer;* or, the Lord rewardeth plenteously; *the Lord,* who doth wonderful things. *Plenteously* is either *in cumulum, abunde,* or *in nepotes,* as some would have it; but I would rather *commend,* than go about to *amend* translations: though I could wish some of my learned brethren's quarrelling hours were spent rather upon clearing the originals, and so conveying over pure Scripture to posterity, than in scratching others with their sharpened pens, and making cockpits of pulpits. *Hugh Peter's* "Sermon preached before both Houses of Parliament, "the Lord Mayor and Aldermen of the City of London, and the Assembly of Divines, at the last Thanksgiving Day, April 2. For the recovering of the West, and disbanding of 5,000 of the King's Horse, etc., 1645.
 
 **Verse 23.** *And plentifully rewardeth the proud doer.* The next query is, *how God rewardeth the proud doer?* in which, though the Lord's proceedings be diverse, and many times his paths in the clouds, and his judgments in the deep, and the uttermost farthing shall be paid the proud doer at the great day; yet so much of his mind he hath left unto us, that even in this life he gives out something to the proud which he calls "the day of recompense, "which he commonly manifests in these particulars:
 
-1\.By way of *retaliation* —for *Adonibezek* that would be cutting off thumbs, had his thumbs cut off. Jud 1:7. So the poor Jews that cried so loud, "Crucify him, crucify him, "were so many of them crucified, that if you believe Josephus, there was not wood enough to make crosses, nor in the usual place room enough to set up the crosses when they were made. Snares are made and pits are digged by the proud for *themselves* commonly, to which the Scripture throughout gives abundant testimony.
+1\. By way of *retaliation* —for *Adonibezek* that would be cutting off thumbs, had his thumbs cut off. Jud 1:7. So the poor Jews that cried so loud, "Crucify him, crucify him, "were so many of them crucified, that if you believe Josephus, there was not wood enough to make crosses, nor in the usual place room enough to set up the crosses when they were made. Snares are made and pits are digged by the proud for *themselves* commonly, to which the Scripture throughout gives abundant testimony.
 
-2\.By shameful *disappointments,* seldom reaping what they sow, nor eating what they catch in hunting, which is most clear in the Jewish State when Christ was amongst them. *Judas* betrays him to get money, and hardly lived long enough to spend it. *Pilate,* to please Caesar, withstands all counsels against it, and gives way to that murder, by which he ruined both himself and Caesar. The Jewish priests, to maintain that domination and honour (which they thought the son of Joseph and Mary stole from them) cried loud for his death, which proved a sepulchre to them and their glory. And the poor people that crucified him (through fear of the *Romans* taking their city) by his death had their gates opened to the *Romans* —yea, *Caesar* himself, fearing a great change in his government by Christ living near him (which today sets all the king craft in the world to work) met such a change that shortly he had neither crown nor sceptre to boast of, if you read the story of Titus and Vespasian, all which dealings of God with the proud is most elegantly set forth unto us by the psalmist. "Behold, he travaileth with iniquity, and hath conceived mischief, and brought forth falsehood. He made a pit, and digged it, and is fallen into the ditch which he made." *Hugh Peters.* 
+2\. By shameful *disappointments,* seldom reaping what they sow, nor eating what they catch in hunting, which is most clear in the Jewish State when Christ was amongst them. *Judas* betrays him to get money, and hardly lived long enough to spend it. *Pilate,* to please Caesar, withstands all counsels against it, and gives way to that murder, by which he ruined both himself and Caesar. The Jewish priests, to maintain that domination and honour (which they thought the son of Joseph and Mary stole from them) cried loud for his death, which proved a sepulchre to them and their glory. And the poor people that crucified him (through fear of the *Romans* taking their city) by his death had their gates opened to the *Romans* —yea, *Caesar* himself, fearing a great change in his government by Christ living near him (which today sets all the king craft in the world to work) met such a change that shortly he had neither crown nor sceptre to boast of, if you read the story of Titus and Vespasian, all which dealings of God with the proud is most elegantly set forth unto us by the psalmist. "Behold, he travaileth with iniquity, and hath conceived mischief, and brought forth falsehood. He made a pit, and digged it, and is fallen into the ditch which he made." *Hugh Peters.* 
 
 **Verse 24.** *Be of good courage.* Christian courage may thus be described. It is the undaunted audacity of a sanctified heart in adventuring upon difficulties and undergoing hardships for a good cause upon the call of God. The *genus,* the common nature of it is an undaunted audacity. This animosity, as some phrase it, is common both unto men and to some brutes. The lion is said to be the strongest among beasts, that turneth not away from any. Pr 30:30. And there is an elegant description of the war horse in regard of boldness. Job 39:19, etc. And this boldness that is in brutes is spoken of as a piece of this same *courage* that God is pleased to give to men. Eze 3:9. This is the Lord's promise—"As an adamant harder than flint have I made thy forehead." The word "harder" is the same in the Hebrew that is here in my text— *fortiorem petra* —the rock that is not afraid of any weather, summer or winter, sun and showers, heat and cold, frost and snow; it blushes not, shrinks not, it changes not its complexion, it is still the same. Such a like thing is *courage,* in the common nature of it. Secondly, consider the subject, it is the *heart,* the castle where courage commands and exerciseth military discipline; (shall I so say) it's within the bosom, it is the soul of a valiant soldier. Some conceive our English word *courage* to be derived from *cordis actio,* the very acting of the heart. A valiant man is described 2Sa 17:10 for to be a man whose heart is as the heart of a lion. And sometimes the original translated *courageous,* as Am 2:16, may most properly be rendered *a man of heart.* Beloved, valour doth not consist in a piercing eye, in a terrible look, in big words; but it consists in the mettle, the vigour that is within the bosom. Sometimes a coward may dwell at the sign of a roaring voice and of a stern countenance; whereas true fortitude may be found within his breast whose outward deportment promises little or nothing in that kind. Thirdly, note the qualification of this same subject; I said a sanctified heart; for I am not now speaking of fortitude as a moral virtue, whereof heathens that have not God are capable, and for which many among them that are not Christians, have been worthily commended. But I am now discoursing of courage as a virtue theological, as a gracious qualification, put upon the people of God by special covenant. And there are three things that do characterize it, and which do distinguish it from the moral virtue of fortitude. (1) The *root,* whence it ariseth; (2) the *rule,* whereby it is directed; (3) the *end,* to which it is referred. The *root,* whence it ariseth, is *love to God:* all the saints of God that love the Lord be of good courage. The love of Christ constraineth me to make these bold and brave adventures, saith the apostle. 2Co 5:14. The *rule,* whereby it is directed, is the *word of God* —what the Lord hath pleased to leave on record for a Christian's guidance in holy pages. 1Ch 22:12-13. "Only the Lord give thee wisdom and understanding, and give thee charge concerning Israel, that thou mayest keep the law of the Lord thy God. Then shalt thou prosper, if thou takest heed to fulfil the statutes and judgments which the Lord charged Moses with concerning Israel: be strong, and of good courage; dread not, nor be dismayed." Be a man of mettle, but let thy mettle be according to my mind, according to this rule. And the *end,* to which it refers, is *God.* For every sanctified man being a self denying and a God advancing man, his God is his centre, wherein his actings, his undertakings rest; and his soul is not, yea, it cannot be satisfied but in God. *Simeon Ash's "Sermon preached before the Commanders of the Military Forces of the renowned Citie of London,* 1642."
 
@@ -340,9 +340,9 @@ They say that he is a Vaudes, and worthy of punishment."
 
 **Verse 1.** (*first clause* ). *Open avowal of faith*. 1. Duties which precede it, self examination, etc.
 
-2\.Modes of making the confession.
+2\. Modes of making the confession.
 
-3\.Conduct incumbent on those who have made the profession.
+3\. Conduct incumbent on those who have made the profession.
 
 **Verse 1.** (*last clause* ). How far the righteousness of God is involved in the salvation of a believer.
 
@@ -358,43 +358,43 @@ They say that he is a Vaudes, and worthy of punishment."
 
 **Verse 3.** (*last clause* ). 1. A blessing needed, *lead me*.
 
-2\.A blessing obtainable.
+2\. A blessing obtainable.
 
-3\.An argument for its being granted, *for thy name's sake*.
+3\. An argument for its being granted, *for thy name's sake*.
 
 **Verse 4.** *The rescue of the ensnared.* 
 
-1\.The fowlers.
+1\. The fowlers.
 
-2\.The laying of the net.
+2\. The laying of the net.
 
-3\.The capture of the bird.
+3\. The capture of the bird.
 
-4\.The cry of the captive.
+4\. The cry of the captive.
 
-5\.The rescue.
+5\. The rescue.
 
 **Verse 4.** (*last clause* ). The weak one girt with omnipotence.
 
 **Verse 5.** 1. Dying, in a saint's account, is a difficult work.
 
-2\.The children of God, when considering themselves as dying, are chiefly concerned for their departing immortal spirits.
+2\. The children of God, when considering themselves as dying, are chiefly concerned for their departing immortal spirits.
 
-3\.Such having chosen God for their God, have abundant encouragement when dying, to commit their departing spirits into his hand, with hopes of their being safe and happy for ever with him. *—Daniel Wilcox.* 
+3\. Such having chosen God for their God, have abundant encouragement when dying, to commit their departing spirits into his hand, with hopes of their being safe and happy for ever with him. *—Daniel Wilcox.* 
 
 **Verse 5.** The believer's requiem. Redemption the foundation of our repose in God.
 
-1\.What we do— *commit ourselves to God.* 
+1\. What we do— *commit ourselves to God.* 
 
-2\.What God has done— *redeemed us.* 
+2\. What God has done— *redeemed us.* 
 
 **Verse 6.** Holy detestation, as a virtue discriminated from bigotry: or, the good hater.
 
 **Verse 7.** 1. An endearing attribute rejoiced in.
 
-2\.An interesting experience related.
+2\. An interesting experience related.
 
-3\.A directly personal favour from God delighted in.
+3\. A directly personal favour from God delighted in.
 
 **Verse 7.** (*centre clause* ). *Consider* the measure, the effects, the time, the tempering, the ending, and the recompense.
 
@@ -442,7 +442,7 @@ And those who persecute my soul withstand.
 
 **Verse 15.** (*first clause* ). 1. The character of the earthly experience of the saints, "My times, "that is, the changes I shall pass through, etc.
 
-2\.The advantage of this variety.
+2\. The advantage of this variety.
 
 (a) Changes reveal the various aspects of the Christian character.
 
@@ -450,7 +450,7 @@ And those who persecute my soul withstand.
 
 (c) Changes lead us to admire an unchanging God.
 
-3\.Comfort for all seasons.
+3\. Comfort for all seasons.
 
 (a) This implies the changes of life are subject to the divine control.
 
@@ -458,17 +458,17 @@ And those who persecute my soul withstand.
 
 (c) And, consequently, they shall result in our being abundantly profited.
 
-4\.The deportment which should characterise us. Courageous devotion to God in times of persecution; resignation and contentment in times of poverty and suffering; zeal and hope in times of labour. *—From Stems and Twigs, or Sermon Framework.* 
+4\. The deportment which should characterise us. Courageous devotion to God in times of persecution; resignation and contentment in times of poverty and suffering; zeal and hope in times of labour. *—From Stems and Twigs, or Sermon Framework.* 
 
 **Verse 16.** A sense of divine favour.
 
-1\.Its value.
+1\. Its value.
 
-2\.How to lose it.
+2\. How to lose it.
 
-3\.How to obtain a renewal of it.
+3\. How to obtain a renewal of it.
 
-4\.How to retain it.
+4\. How to retain it.
 
 The heavenly servant's best reward.
 
@@ -488,11 +488,11 @@ The heavenly servant's best reward.
 
 **Verse 23.** An exhortation to love the Lord. 1. The matter of it, *love the Lord.* 
 
-2\.To whom addressed, *all ye his saints.* 
+2\. To whom addressed, *all ye his saints.* 
 
-3\.By whom spoken.
+3\. By whom spoken.
 
-4\.With what arguments supported, *for the Lord preserveth*, etc.
+4\. With what arguments supported, *for the Lord preserveth*, etc.
 
 **Verse 24.** Holy courage. Its excellences, difficulties, encouragements, and triumphs.
 

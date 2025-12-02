@@ -102,7 +102,7 @@ Life spent in happiness is the desire of all, and he who can give the young a re
 
 **Title &mdash;** *Abimelech* was king of Gath, the same with Achish, 1Sa 21:20: who either had two names, or this of Abimelech, as it should seem, was a common name to all the kings of the Philistines (see Ge 20:2 26:8); as Pharaoh was to the Egyptian kings and Caesar to the Roman emperors: the name signifies a *father king,* or *my father king,* or a *royal father;* as kings should be the fathers of their country: before him *David changed his behaviour,* his taste, sense, or reason; he imitated a madman. *John Gill.* 
 
-**Whole Psalm.** (This Psalm is alphabetical.) The Alphabetical Psalms, the *psalmi abcedarii,* as the Latin fathers called them, are nine in number; and I cannot help thinking it is a pity that, except in the single instance of the hundred and nineteenth, no hint of their existence should have been suffered to appear in our authorised version. I will not take it upon me to affirm, with Ewald, that no version is faithful in which the acrostic is suppressed; but I do think that the existence of such a remarkable style of composition ought to be indicated in one way or another, and that some useful purposes are served by its being actually reproduced in the translation. No doubt there are difficulties in the way. The Hebrew alphabet differs widely from any of those now employed in Europe. Besides differences of a more fundamental kind, the Hebrew has only twenty-two letters, for our twenty-six; and of the twenty-two, a considerable number have no fellows in ours. An exact reproduction of a Hebrew acrostic in English version is therefore impossible. *William Binnie, D.D.* 
+**Whole Psalm.** (This Psalm is alphabetical.) The Alphabetical Psalms, the *psalmi abcedarii,* as the Latin fathers called them, are nine in number; and I cannot help thinking it is a pity that, except in the single instance of the hundred and nineteenth, no hint of their existence should have been suffered to appear in our authorised version. I will not take it upon me to affirm, with Ewald, that no version is faithful in which the acrostic is suppressed; but I do think that the existence of such a remarkable style of composition ought to be indicated in one way or another, and that some useful purposes are served by its being actually reproduced in the translation. No doubt there are difficulties in the way. The Hebrew alphabet differs widely from any of those now employed in Europe. Besides differences of a more fundamental kind, the Hebrew has only twenty-two letters, for our twenty-six; and of the twenty-two, a considerable number have no fellows in ours. An exact reproduction of a Hebrew acrostic in English version is therefore impossible. *William Binnie, D. D.* 
 
 **Whole Psalm.** Mr. Hapstone has endeavoured to imitate the alphabetical character of this Psalm in his metrical version. The letter answering to F is wanting, and the last stanza begins with the letter answering to R. One verse of his translation may suffice—
 
@@ -122,7 +122,7 @@ Hear it, ye meek ones, and exult with mirth."
 
 **Verse 2.** *My soul shall make her boast in the Lord.* Not like the boasting of the Pharisee, so hateful in the eyes of God, so offensive in the ears of the humble; for *the humble can hear this boasting and be glad,* which they would never do if it were not conformable to the rules of humility. Can any boasting be greater than to say, "I can do all things"? Yet in this boasting there is humility when I add, "In him that strengtheneth me." For though God likes not of boasting, yet he likes of this boasting, which arrogates nothing to ourselves, but ascribes all to him. *Sir Richard Baker.* 
 
-**Verses 2-6.** There is somewhat very striking and pleasing in the sudden transitions, and the change of persons, that is observable in these few verses. *"My soul shall boast; ""The humble shall hear; " "I sought the Lord; ""They looked to him; ""This poor man cried."* There is a force and elegance in the very unconnectedness of the expressions, which, had they been more closely tied by the proper particles, would have been in a great measure lost. Things thus separated from each other, and yet accelerated, discover, as Longinus observes, the earnestness and the vehemency of the inward working of the mind; and though it may seem to interrupt, or disturb the sentence, yet quickens and enforces it. *Samuel Chandler, D.D.* 
+**Verses 2-6.** There is somewhat very striking and pleasing in the sudden transitions, and the change of persons, that is observable in these few verses. *"My soul shall boast; ""The humble shall hear; " "I sought the Lord; ""They looked to him; ""This poor man cried."* There is a force and elegance in the very unconnectedness of the expressions, which, had they been more closely tied by the proper particles, would have been in a great measure lost. Things thus separated from each other, and yet accelerated, discover, as Longinus observes, the earnestness and the vehemency of the inward working of the mind; and though it may seem to interrupt, or disturb the sentence, yet quickens and enforces it. *Samuel Chandler, D. D.* 
 
 **Verse 3.** Venema remarks that after the affair with Achish, we are told in 1Sa 22:1, "His brethren, and all his father's house went down to the cave Adullam unto him, "and these, together with those who were in debt, and discontented with Saul's government, formed a band of four hundred men. To these his friends and comrades, he relates the story of his escape, and bids them with united hearts and voices extol the Lord. *C. H. S.* 
 
@@ -140,7 +140,7 @@ Hear it, ye meek ones, and exult with mirth."
 
 **Verse 7.** *The angel of the Lord encampeth round about them that fear him,* etc. By whom may be meant, either the uncreated Angel, the Lord Jesus Christ, the Angel of God's presence, and of the covenant, the Captain of salvation, the Leader and Commander of the people; and whose salvation is as walls and bulwarks about them, or as an army surrounding them; or a created angel may be intended, even a single one, which is sufficient to guard a multitude of saints, since one could destroy at once such a vast number of enemies, as in 2Ki 19:35; or one may be put for more, since they are an innumerable company that are on the side of the Lord's people, and to whom they are joined; and these may be said to encamp about them, because they are an host or army (see Ge 32:1-2 Lu 2:13); and are the guardians of the saints, that stand up for them and protect them, as well as minister to them. *John Gill.* 
 
-**Verse 7.** *The angel of the Lord* is represented in his twofold character in this pair of Psalms, as an angel of mercy, and also as an angel of judgment, Ps 35:6. This pair of Psalms (the thirty-fourth and thirty-fifth), may in this respect be compared with the twelfth chapter of the Acts of the Apostles, where the angel of the Lord is displayed as encamping about St. Peter, and delivering him, and also as smiting the persecutor, Herod Agrippa. *Christopher Wordsworth, D.D.* 
+**Verse 7.** *The angel of the Lord* is represented in his twofold character in this pair of Psalms, as an angel of mercy, and also as an angel of judgment, Ps 35:6. This pair of Psalms (the thirty-fourth and thirty-fifth), may in this respect be compared with the twelfth chapter of the Acts of the Apostles, where the angel of the Lord is displayed as encamping about St. Peter, and delivering him, and also as smiting the persecutor, Herod Agrippa. *Christopher Wordsworth, D. D.* 
 
 **Verse 7.** *Round about.* In illustration of this it may be observed, that according to D'Arvieux, it is the practice of the Arabs to pitch their tents in a circular form; the prince being in the middle, and the Arabs about him, but so as to leave a respectful distance between them. And Thevenot, describing a Turkish encampment near Cairo, having particularly; noticed the spaciousness, decorations, and conveniences of the Bashaw's tent, or pavilion, adds, "Round the pale of his tent, within a pistol shot, were above two hundred tents, pitched in such a manner that the doors of them all looked towards the Bashaw's tent; and it ever is so, that they may have their eye always upon their master's lodging, and be in readiness to assist him if he be attacked." *Richard Mant.* 
 
@@ -212,9 +212,9 @@ The man that trusts in him lives still in bliss.
 
 **Verse 14.** *See peace and pursue it.* The most desirable things are not the easiest to be obtained. What is more lovely to the imagination than the tranquillity of peace? But this great blessing does not voluntarily present itself: it must be *sought.* Even when sought it often eludes the grasp: it flies away, and must be *pursued.* 
 
-1\.The man of a peaceable carriage must be cautious not to give offence when needless, or, when it may innocently be spared.
+1\. The man of a peaceable carriage must be cautious not to give offence when needless, or, when it may innocently be spared.
 
-2\.Another part of the peaceable man's character is, not to take offence; especially in small matters, which are hardly worth a wise man's notice. 3. If any needless offence has been either given or taken, we must endeavour to put a stop to it as soon as may be. If a difference is already begun, stifle it in the birth, and suffer it not to proceed farther. *Condensed from Dr. Waterland's Sermon, in J. R. Pitman's Course of Sermons on the Psalms,* 1846.
+2\. Another part of the peaceable man's character is, not to take offence; especially in small matters, which are hardly worth a wise man's notice. 3. If any needless offence has been either given or taken, we must endeavour to put a stop to it as soon as may be. If a difference is already begun, stifle it in the birth, and suffer it not to proceed farther. *Condensed from Dr. Waterland's Sermon, in J. R. Pitman's Course of Sermons on the Psalms,* 1846.
 
 **Verse 15.** *His ears are open unto their cry.* The word "open" is not in the original, but the meaning is that the ear of God is propense, and in a leaning kind of posture, towards the cries of the righteous; the word may here be taken emphatically, as many times in Scripture it is, for some worthy, choice, and excellent strain of righteousness. Those who are worthy and righteous indeed, the ear of God, I say, is propense, and leans and hangs towards them and their prayers, according to that of So 2:14, "Let me hear thy voice, for sweet is thy voice." There is a kind of naturalness and pleasantness between the ear of God and the prayers, and petitions, and cries of such a righteous man. Joh 15:7. *John Goodwin.* 
 
@@ -234,7 +234,7 @@ The man that trusts in him lives still in bliss.
 
 **Verse 19.** *Many are the afflictions of the righteous,* etc. Be our troubles many in number, strange in nature, heavy in measure; yet God's mercies are more numerous, his wisdom more wondrous, his power more miraculous; he will deliver us out of all. *Thomas Adams.* 
 
-**Verse 19.** *Many are the afflictions of the righteous,* etc. When David did behold his trouble, like the host of the Aramites 2Ki 6:16, he looked back unto God like Elisha, and spied one with him stronger than all against him. Therefore, respecting his afflictions he crieth, *Many are the troubles of the righteous;* respecting the promise he says, *The Lord delivereth him out of all.* Thus, by his own foot, David measures the condition of the righteous, and saith, *Many are the troubles of the righteous;* and then, by his own cure, he showeth how they should be healed, saying, *The Lord will deliver him out of them all.*...The lawyer can deliver his client but from strife, the physician can deliver his patient but from sickness, the master can deliver his servant but from bondage, but the Lord delivereth us from *all.* As when Moses came to deliver the Israelites, he would not leave a hoof behind him, so when the Lord cometh to deliver the righteous he will not leave a trouble behind him. He who saith, "I put away all thine iniquities," will also say, "I put away all thine infirmities." *Henry Smith.* 
+**Verse 19.** *Many are the afflictions of the righteous,* etc. When David did behold his trouble, like the host of the Aramites 2Ki 6:16, he looked back unto God like Elisha, and spied one with him stronger than all against him. Therefore, respecting his afflictions he crieth, *Many are the troubles of the righteous;* respecting the promise he says, *The Lord delivereth him out of all.* Thus, by his own foot, David measures the condition of the righteous, and saith, *Many are the troubles of the righteous;* and then, by his own cure, he showeth how they should be healed, saying, *The Lord will deliver him out of them all.*... The lawyer can deliver his client but from strife, the physician can deliver his patient but from sickness, the master can deliver his servant but from bondage, but the Lord delivereth us from *all.* As when Moses came to deliver the Israelites, he would not leave a hoof behind him, so when the Lord cometh to deliver the righteous he will not leave a trouble behind him. He who saith, "I put away all thine iniquities," will also say, "I put away all thine infirmities." *Henry Smith.* 
 
 **Verse 20.** *He keepeth all his bones,* which were very many. Perhaps (saith Abenezra here), David had been scourged by the Philistines, but his bones were not broken, nor were our Saviour's. Joh 19:36. *John Trapp.* 
 
@@ -250,7 +250,7 @@ The man that trusts in him lives still in bliss.
 
 **Verse 21.** Conscience self the culprit tortures, gnawing him with pangs unknown; For that now amendment's season is for ever past and gone, And that late repentance findeth pardon none for all her moan. *S. Peter Damiano, 988-1072.* 
 
-**Verse 21.** *Shall be desolate.* In the margin it is, *shall be guilty.* And this is the proper meaning of the original word, (wmvay). They are guilty, and liable to punishment. Thus the word is frequently rendered in our version (see Le 4:13,22); and generally includes it in the idea of guilt, and the punishment incurred by it. *Samuel Chandler, D.D.* 
+**Verse 21.** *Shall be desolate.* In the margin it is, *shall be guilty.* And this is the proper meaning of the original word, (wmvay). They are guilty, and liable to punishment. Thus the word is frequently rendered in our version (see Le 4:13,22); and generally includes it in the idea of guilt, and the punishment incurred by it. *Samuel Chandler, D. D.* 
 
 **Verse 22.** The promises of God to his church, and his threatenings of sin recorded in the living book of his word, are not antiquate; no age shall ever superannuate them, or put them out of full force and virtue. What if good persons and good causes do suffer oppression? The poet is a divine in that case—
 
@@ -286,13 +286,13 @@ After foul weather comes fair; though it be ill with us now, it will not be alwa
 
 **Verse 6.** 
 
-1\.The poor man's heritage, "troubles."
+1\. The poor man's heritage, "troubles."
 
-2\.The poor man's friend.
+2\. The poor man's friend.
 
-3\.The poor man's cry.
+3\. The poor man's cry.
 
-4\.The poor man's salvation.
+4\. The poor man's salvation.
 
 **Verse 6.** The poor man's wealth.
 
@@ -312,11 +312,11 @@ The position of prayer in the economy of grace, or the natural history of mercy 
 
 **Verse 10.** Lions lacking, but the children satisfied. See "Spurgeon's Sermons, "No. 65.
 
-1\.Description of a true Christian, "seek the Lord."
+1\. Description of a true Christian, "seek the Lord."
 
-2\.The promise set forth by a contract.
+2\. The promise set forth by a contract.
 
-3\.The promise fulfilled.
+3\. The promise fulfilled.
 
 **Verse 10.** What is a good thing?
 
@@ -338,11 +338,11 @@ The position of prayer in the economy of grace, or the natural history of mercy 
 
 **Verse 17.** *Afflictions and their threefold blessing.* 
 
-1\.They make us pray.
+1\. They make us pray.
 
-2\.They bring us the Lord's hearing ear.
+2\. They bring us the Lord's hearing ear.
 
-3\.They afford room for joyful experience of deliverance.
+3\. They afford room for joyful experience of deliverance.
 
 **Verse 18.** The nearness of God to broken hearts, and the certainty of their salvation.
 

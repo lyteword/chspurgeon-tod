@@ -72,11 +72,11 @@ These words are no vain repetition, but are a chorus worthy to be sung again and
 
 **Verse 3.** This verse is exceedingly emphatic.
 
-1\.First, by an apostrophe to God, in the pronoun, Thee. As if he said: Let the people praise *thee,* not strange gods; for thou art the only true God.
+1\. First, by an apostrophe to God, in the pronoun, Thee. As if he said: Let the people praise *thee,* not strange gods; for thou art the only true God.
 
-2\.Secondly, inasmuch as it is not said, Let *us* praise thee, O God; but let the *people* praise thee, and let *all* the people. For here is expressed the longing of the pious heart, and its fond desire that God should be praised and magnified throughout all lands and by all people of the round earth.
+2\. Secondly, inasmuch as it is not said, Let *us* praise thee, O God; but let the *people* praise thee, and let *all* the people. For here is expressed the longing of the pious heart, and its fond desire that God should be praised and magnified throughout all lands and by all people of the round earth.
 
-3\.Thirdly, by the iteration, in which the same particle is repeated in this and the fifth verse no less than four times, as if the duty could not be sufficiently inculcated. It is not enough to have said it once; it is delightful to repeat it again. *Wolfgang Musculus (1497-1563).* 
+3\. Thirdly, by the iteration, in which the same particle is repeated in this and the fifth verse no less than four times, as if the duty could not be sufficiently inculcated. It is not enough to have said it once; it is delightful to repeat it again. *Wolfgang Musculus (1497-1563).* 
 
 **Verse 4.** *For thou shalt judge the people righteously,* etc. The Psalmist may here seem to contradict himself; for if mercy make men rejoice, then judgment occasions men to tremble. Answer is made, that all such as have known the ways of the Lord, and rejoice in the strength of his salvation, all such as have the pardon of their sins assured and sealed, fear not that dreadful assize, because they know the judge is their advocate. Or, (as Jerome,)let all nations rejoice, because God doth judge righteously, being the God of the Gentiles as well as of the Jews. Ac 10:34. Or, *let all nations rejoice,* because God doth govern all nations; that whereas theretofore they wandered in the fond imaginations of their own hearts, in wry ways, in byways; now they are directed by the Spirit of truth to walk in God's highway, which leads unto the celestial Jerusalem; now they shall know Christ, the way, the truth, and the life. For judging is often used for ruling. 1Sa 7:15 2Co 1:10. So David doth here expound himself: *thou shalt judge.* that is, thou shalt *govern the nations. John Boys.* 
 
@@ -126,11 +126,11 @@ II. THE INCREASE ITSELF. This increase has many aspects. Let us view them in a c
 
 **Verse 1.** 
 
-1\.Here is mercy in God the Father.
+1\. Here is mercy in God the Father.
 
-2\.Here is blessing as the fruit of that mercy in God the Son.
+2\. Here is blessing as the fruit of that mercy in God the Son.
 
-3\.Here is the experience of that blessing in the comfort of the Holy Ghost.
+3\. Here is the experience of that blessing in the comfort of the Holy Ghost.
 
 **Verse 1.** The need of seeking a blessing for ourselves.
 
@@ -138,7 +138,7 @@ II. THE INCREASE ITSELF. This increase has many aspects. Let us view them in a c
 
 **Verse 2.** 
 
-1\.The way of God towards the earth.
+1\. The way of God towards the earth.
 
 (a) A way of mercy.
 
@@ -146,31 +146,31 @@ II. THE INCREASE ITSELF. This increase has many aspects. Let us view them in a c
 
 (c) Of comfort.
 
-2\.The knowledge of that way.
+2\. The knowledge of that way.
 
 (a) By outward means.
 
 (b) By inward teaching.
 
-3\.The effect of that knowledge. Salvation among all nations.
+3\. The effect of that knowledge. Salvation among all nations.
 
 **Verse 2.** What is the true health of men?
 
 **Verse 3.** Viewed,
 
-1\.As the desire of every renewed heart.
+1\. As the desire of every renewed heart.
 
-2\.As a prayer.
+2\. As a prayer.
 
-3\.As a prophecy.
+3\. As a prophecy.
 
 **Verse 4.** 
 
-1\.The reign of God in the world: it is not left to itself.
+1\. The reign of God in the world: it is not left to itself.
 
-2\.The joy of the world on that account: *Let the* nations, etc.
+2\. The joy of the world on that account: *Let the* nations, etc.
 
-3\.The reason of that joy: *He will judge righteously.* 
+3\. The reason of that joy: *He will judge righteously.* 
 
 (a) As faithful to his law.
 
@@ -178,23 +178,23 @@ II. THE INCREASE ITSELF. This increase has many aspects. Let us view them in a c
 
 **Verses 5-7.** 
 
-1\.The prayer (Ps 67:5).
+1\. The prayer (Ps 67:5).
 
-2\.The promise (Ps 67:6).
+2\. The promise (Ps 67:6).
 
 (a) Of temporal good.
 
 (b) Of spiritual good.
 
-3\.The prediction (Ps 67:7).
+3\. The prediction (Ps 67:7).
 
 **Verses 6-7.** See "Spurgeon's Sermons, "No. 819: "The Minstrelsy of Hope."
 
 **Verse 7.** 
 
-1\.God to man: *shall bless us.* 
+1\. God to man: *shall bless us.* 
 
-2\.Man to God: *shall fear him.* 
+2\. Man to God: *shall fear him.* 
 
 ## Works Upon The Sixty-Seventh Psalm
 

@@ -132,21 +132,21 @@ The holy poet here reviews his inward struggle and awards himself censure for hi
 
 **Whole Psalm.** In this Psalm, the psalmist (Asaph) relates the great difficulty which existed in his own mind, from the consideration of the wicked. He observes (Ps 73:2-3), *As for me, my feet were almost gone; my steps had well nigh slipped. For I was envious at the foolish, when I saw the prosperity of the wicked.* In the fourth and following verses he informs us what, in the wicked, was his temptation. In the first place, he observed, that they were *prosperous,* and all things went well with them. He then observed their *behaviour* in their prosperity, and the use which they made of it; and that God, notwithstanding such abuse, *continued* their prosperity. Then he tells us by what means he was helped out of this difficulty, viz., by going into the *sanctuary* (Ps 73:16-17), and proceeds to inform us what considerations they were which helped him, viz.,—
 
-1\.The consideration of the *miserable end* of wicked men. However they prosper for the present, yet they come to a woeful end at last (Ps 73:18-20).
+1\. The consideration of the *miserable end* of wicked men. However they prosper for the present, yet they come to a woeful end at last (Ps 73:18-20).
 
-2\.The consideration of the *blessed end* of the saints. Although the saints, while they live, may be afflicted, yet they come to a happy end at last (Ps 73:21-24).
+2\. The consideration of the *blessed end* of the saints. Although the saints, while they live, may be afflicted, yet they come to a happy end at last (Ps 73:21-24).
 
-3\.The consideration that the godly have a much *better portion* than the wicked, even though they have no other portion but God; as in Ps 73:25-26.
+3\. The consideration that the godly have a much *better portion* than the wicked, even though they have no other portion but God; as in Ps 73:25-26.
 
 Though the wicked are in prosperity, and are not in trouble as other men; yet the godly, though in affliction, are in a state infinitely better, because they have God for their portion. They need desire nothing else: he that hath God hath all. Thus the psalmist professes the sense and apprehension which he had of things: *Whom have I in heaven but thee? and there is none upon earth that I desire beside thee.* In the twenty-fourth verse the psalmist takes notice how the saints are happy in God, both when they are in this world and also when they are taken to another. They are blessed in God in this world, in that *he guides them by his counsel;* and when he takes them out of it they are still happy, in that *he receives them to glory.* This probably led him to declare that he desired *no other portion,* either in this world or in that to come, either in heaven or upon earth. *Jonathan Edwards.* 
 
 **Verse 1.** *Truly:* it's but a particle; but the smallest filings of gold are gathered up. Little pearls are of great price. And this small particle is not of small use, being rightly applied and improved. First, take it (as our translators gave it us) as *a note of asseveration. Truly.* It's a word of faith, opposite to the psalmist's sense and Satan's injections. Whatsoever sense sees or feels, whatsoever Satan insinuates and says; yet precious faith with confidence asserts, *Truly, verily God is good.* He is not only good in word, but in deed also. Not only seemingly good, but certainly good. Secondly, consider it as *an adversative particle, Yet, * so our old translation. Ainsworth renders it, *yet surely;* taking in the former and this together. And then the sense runs thus: How ill soever things go in the world, how ill soever it fares with God's church and people amongst men, *yet God is good* to Israel. Thirdly, some conceive that the word carries *admiration.* Oh, how good is God to Israel. Where expressions and apprehensions fail, there the psalmist takes up God's providence with admiration. Oh, how wonderfully, how transcendently good is God to Israel! This *yet* (as I conceive) hath a threefold reference to the body of the Psalm. For as interpreters observe, though these words are set in the beginning, yet they suggest the conclusion of the psalmist's conflict. And the psalmist seems to begin somewhat abruptly. *Yet God is good.* But having filled his thoughts with his former follies and fears, and now seeing himself in a safe condition both for the present and the future, he is full of confidence and comfort; and that which was the strongest and chiefest in his heart now breaks our first: *Yet God is good.* 
 
-1\.This *yet* relates unto his sufferings, Ps 73:14: *All the day long have I been plagued, and chastened every morning.* Notwithstanding the variety and frequency of the saint's sufferings, *yet God is good.* Though sorrow salutes them every morning at their first awaking, and trouble attends them to bed at night, *yet God is good.* Though temptations many and terrible make batteries and breeches upon their spirits, *yet God is good to Israel.* 
+1\. This *yet* relates unto his sufferings, Ps 73:14: *All the day long have I been plagued, and chastened every morning.* Notwithstanding the variety and frequency of the saint's sufferings, *yet God is good.* Though sorrow salutes them every morning at their first awaking, and trouble attends them to bed at night, *yet God is good.* Though temptations many and terrible make batteries and breeches upon their spirits, *yet God is good to Israel.* 
 
-2\.This *yet* reflects upon his sinning, the fretting and wrangling of his distempered heart (Ps 73:2-3,21). Though sinful motions do mutiny in the soul against God's wise administration, though there be foolish, proud quarrelling with divine providence, and inexcusable distrust of his faithful promises; though fretfulness at others prosperity and discontent at their own adversity, *yet God is good.* Israel's sinful distempers cause not the Almighty to change the course of his accustomed goodness. While corruptions are kept from breaking out into scandal, while the soul contends against them, and is humbled for them (as the psalmist was), this conclusion must be maintained: *yet God is good.* 
+2\. This *yet* reflects upon his sinning, the fretting and wrangling of his distempered heart (Ps 73:2-3,21). Though sinful motions do mutiny in the soul against God's wise administration, though there be foolish, proud quarrelling with divine providence, and inexcusable distrust of his faithful promises; though fretfulness at others prosperity and discontent at their own adversity, *yet God is good.* Israel's sinful distempers cause not the Almighty to change the course of his accustomed goodness. While corruptions are kept from breaking out into scandal, while the soul contends against them, and is humbled for them (as the psalmist was), this conclusion must be maintained: *yet God is good.* 
 
-3\.This *yet* looks back upon his misgivings. There had been distrustful despondency upon the good man's heart. For from both the premises (viz., his sufferings and sinning) he had inferred this conclusion, Ps 73:13, *Verily I have cleansed my heart in vain, and washed my hands in innocency.* As if he had said, "I have kept fasts, observed Sabbaths, heard sermons, made prayers, received sacraments, given alms, avoided sins, resisted temptations, withstood lusts, appeared for Christ and his cause and servants in vain": yea, his heart had added an asseveration (*verily*) to this faithless opinion, but now he is of another mind: *Yet God is good.* The administrations of God are not according to the sad surmises of his people's misgiving hearts. For, though they through diffidence are apt to give up their holy labours as lost, and all their conscientious care and carriage as utterly cast away; *yet God is good to Israel. Simeon Ash, in a Sermon entitled "God's Incomparable Goodness unto Israel."* 1647.
+3\. This *yet* looks back upon his misgivings. There had been distrustful despondency upon the good man's heart. For from both the premises (viz., his sufferings and sinning) he had inferred this conclusion, Ps 73:13, *Verily I have cleansed my heart in vain, and washed my hands in innocency.* As if he had said, "I have kept fasts, observed Sabbaths, heard sermons, made prayers, received sacraments, given alms, avoided sins, resisted temptations, withstood lusts, appeared for Christ and his cause and servants in vain": yea, his heart had added an asseveration (*verily*) to this faithless opinion, but now he is of another mind: *Yet God is good.* The administrations of God are not according to the sad surmises of his people's misgiving hearts. For, though they through diffidence are apt to give up their holy labours as lost, and all their conscientious care and carriage as utterly cast away; *yet God is good to Israel. Simeon Ash, in a Sermon entitled "God's Incomparable Goodness unto Israel."* 1647.
 
 **Verse 1.** David opens the Psalm abruptly, and from this we learn what is worthy of particular notice, that, before he broke forth into this language, his mind had been agitated with many doubts and conflicting suggestions. As a brave and valiant champion, he had been exercised in very painful struggles and temptations; but, after long and arduous exertion, he at length succeeded in shaking off all perverse imaginations, and came to the conclusion that *yet* God is gracious to his servants, and the faithful guardian of their welfare. Thus these words contain a tacit contrast between the unhallowed imaginations suggested to him by Satan, and the testimony in favour of true religion with which he now strengthens himself, denouncing, as it were, the judgment of the flesh, in giving place to misgiving thoughts with respect to the providence of God. We see, then, how emphatic is this exclamation of the psalmist. He does not ascend into the chair to dispute after the manner of the philosophers, and to deliver his discourse in a style of studied oratory; but as if he had escaped from hell, he proclaims with a loud voice, and with impassioned feeling, that he had obtained the victory. *John Calvin.* 
 
@@ -166,9 +166,9 @@ Make atheists of mankind. *Dryden.*
 
 **Verse 1.** *Even to such as are of a clean heart.* Purity of heart is the characteristic note of God's people. Heart purity denominates us the Israel of God; it makes us of Israel indeed; "but all are not Israel which are of Israel." Ro 9:6. Purity of heart is the jewel which is hung only upon the elect. As chastity distinguishes a virtuous woman from an harlot, so the true saint is distinguished from the hypocrite by his heart purity. This is like the nobleman's star or garter, which is a peculiar ensign of honour, differing him from the vulgar; when the bright star of purity shineth in a Christian's heart it doth distinguish him from the formal professor.... God *is good* to the pure in heart. We all desire that God should be good to us; it is the sick man's prayer: "The Lord be good to me." But how is God good to them? Two ways.
 
-1\.To them that are pure all things are sanctified, Tit 1:15: "To the pure all things are pure; " estate is sanctified, relations are sanctified; as the temple did sanctify the gold and the altar did sanctify the offering. To the unclean nothing is clean; their table is a snare, their temple devotion a sin. There is a curse entailed upon a wicked man (De 28:16), but holiness removeth the curse, and cuts off the entail: "to the pure all things are pure."
+1\. To them that are pure all things are sanctified, Tit 1:15: "To the pure all things are pure; " estate is sanctified, relations are sanctified; as the temple did sanctify the gold and the altar did sanctify the offering. To the unclean nothing is clean; their table is a snare, their temple devotion a sin. There is a curse entailed upon a wicked man (De 28:16), but holiness removeth the curse, and cuts off the entail: "to the pure all things are pure."
 
-2\.The clean hearted have all things work for their good. Ro 8:28. Mercies and afflictions shall turn to their good; the most poisonous drugs shall be medicinal; the most cross providence shall carry on the design of their salvation. Who, then, would not be clean on heart? *Thomas Watson.* 
+2\. The clean hearted have all things work for their good. Ro 8:28. Mercies and afflictions shall turn to their good; the most poisonous drugs shall be medicinal; the most cross providence shall carry on the design of their salvation. Who, then, would not be clean on heart? *Thomas Watson.* 
 
 **Verse 2.** *But as for me.* Literally, it is, *And I,* which ought to be read with emphasis; for David means that those temptations which cast an affront upon the honour of God, and overwhelm faith, not only assail the common class of men, or those who are endued only with some small measure of the fear of God, but that he himself, who ought to have profited above all others in the school of God, had experienced his own share of them. By thus setting himself forth as an example, he designed the more effectually to arouse and incite us to take great heed to ourselves. *John Calvin.* 
 
@@ -224,7 +224,7 @@ For as it is the inertness of the sleeper's will and intellect that gives realit
 
 **Verse 22.** *I was as a beast before thee.* I permitted my mind to be wholly occupied with *sensible things,* like the beasts that perish, and did not look into a future state, nor did I consider nor submit to the wise designs of an unerring providence. *Adam Clarke.* 
 
-**Verse 22.** *I was as a beast before thee.* The original has in it no word of comparison; it ought to be rather translated, *I was a very beast before thee,* and we are told that the Hebrew word being in the plural number, gives it a peculiar emphasis, indicating some monstrous or astonishing beast. It is the word used by Job which is interpreted "behemoth, "—"I was a very monster before thee, "not only a beast, but one of the most brutish of all beasts, one of the most stubborn and intractable of all beasts. I think no man can go much lower than this in humble confession. This is a description of human nature, and of the old man in the renewed saint which is not to be excelled. *C.H.S.* 
+**Verse 22.** *I was as a beast before thee.* The original has in it no word of comparison; it ought to be rather translated, *I was a very beast before thee,* and we are told that the Hebrew word being in the plural number, gives it a peculiar emphasis, indicating some monstrous or astonishing beast. It is the word used by Job which is interpreted "behemoth, "—"I was a very monster before thee, "not only a beast, but one of the most brutish of all beasts, one of the most stubborn and intractable of all beasts. I think no man can go much lower than this in humble confession. This is a description of human nature, and of the old man in the renewed saint which is not to be excelled. *C. H. S.* 
 
 **Verse 22.** Among the many arguments to prove the penman of the Scripture inspired by the Spirit of God, this is not the last and least—that the penmen of holy writ do record their own faults and the faults of their dearest and nearest relatives. For instance hereof, how coarsely doth David speak of himself: *So foolish was I, and ignorant: I was as a beast before thee.* And do you think that the face of St. Paul did look the more foul by being drawn with his own pencil, when he says, "I was a murderer, a persecutor, the greatest of sinners, "etc? This is not usual in the writings of human authors, who praise themselves to the utmost of what they could, and rather than lose a drop of applause they will lick it up with their own tongues. Tully writes very copiously in setting forth the good service which he did the Roman state, but not a word of his covetousness, of his affecting popular applause, of his pride and vain glory, of his mean extraction and the like. Whereas, clean contrary, Moses sets down the sin and punishment of his own sister, the idolatry and superstition of Aaron his brother, and his own fault in his preposterous striking the rock, for which he was excluded the land of Canaan. *Thomas Fuller.* 
 
@@ -244,29 +244,29 @@ For as it is the inertness of the sleeper's will and intellect that gives realit
 
 **Verse 26.** *My flesh and my heart faileth; but God is the strength of my heart, and my portion for ever.* In which words we may take notice of five things.
 
-1\.The order inverted. When he mentions his malady he begins with the failing of the flesh, and then of the heart; but when he reports the relief he begins with that of the heart. From hence observe *that when* God works a cure in man (out of love) he begins with the heart—he cures that first. And there may be these reasons for it.
+1\. The order inverted. When he mentions his malady he begins with the failing of the flesh, and then of the heart; but when he reports the relief he begins with that of the heart. From hence observe *that when* God works a cure in man (out of love) he begins with the heart—he cures that first. And there may be these reasons for it.
 
-1\.Because the sin of the heart is often the procuring cause of the malady of body and soul.
+1\. Because the sin of the heart is often the procuring cause of the malady of body and soul.
 
-2\.The body ever fares the better for the soul, but not the soul for the body.
+2\. The body ever fares the better for the soul, but not the soul for the body.
 
-3\.The cure of the soul is the principal cure.
+3\. The cure of the soul is the principal cure.
 
-2\.The suitableness of the remedy to the malady. Strength of heart for failing of heart, and a blessed portion for the failing of the flesh. Observe, *that there is a proportionate remedy and relief in God for all maladies and afflictions whatsoever, both within and without. If your hearts fail you, God is strength; if your flesh fails you, or comforts fail you, God is a portion.* 
+2\. The suitableness of the remedy to the malady. Strength of heart for failing of heart, and a blessed portion for the failing of the flesh. Observe, *that there is a proportionate remedy and relief in God for all maladies and afflictions whatsoever, both within and without. If your hearts fail you, God is strength; if your flesh fails you, or comforts fail you, God is a portion.* 
 
-3\.The prophet's interest; he calls God his portion. Observe, *that true Israelites have an undoubted interest in God:—He is theirs.* 
+3\. The prophet's interest; he calls God his portion. Observe, *that true Israelites have an undoubted interest in God:—He is theirs.* 
 
-4\.The prophet's experience in the worst time. He finds this to be true, that when communicated strength fails, there is a never failing strength in God. Observe, *that Christians' experiences of God's all sufficiency are then fullest and highest when created comforts fail them.* 
+4\. The prophet's experience in the worst time. He finds this to be true, that when communicated strength fails, there is a never failing strength in God. Observe, *that Christians' experiences of God's all sufficiency are then fullest and highest when created comforts fail them.* 
 
-5\.There is the prophet's improvement of his experience for support and comfort against future trials and temptations. Observe, *that a saint's consideration of his experience of God's all sufficiency in times of exigency, is enough to bear up and to fortify his spirit against all trials and temptations for the time to come.* 
+5\. There is the prophet's improvement of his experience for support and comfort against future trials and temptations. Observe, *that a saint's consideration of his experience of God's all sufficiency in times of exigency, is enough to bear up and to fortify his spirit against all trials and temptations for the time to come.* 
 
 Thus you may improve the text by way of observation; but there are two principal doctrines to be insisted on. First, that God is the rock of a saint's heart, his strength, and his portion for ever. Secondly, that divine influence and relief passeth from God to his people when they stand in most need thereof.
 
 First. God is the rock of a saint's heart, strength, and portion for ever. Here are two members or branches in this doctrine.
 
-1\.That God is the rock of a saint's heart, strength.
+1\. That God is the rock of a saint's heart, strength.
 
-2\.That God is the portion of a saint. Branch 1. God is the rock of a saint's heart, strength. He is not only strength, and the strength of their hearts, but the rock of their strength; so Isa 17:10. Ps 62:7, rwu, the same word that is used in the text, from hence comes our English word *"sure."* Explication. God is the rock of our strength, both in respect of our naturals and also of our spirituals: he is the strength of nature and of grace (Ps 27:1); the strength of my life natural and spiritual. God is the strength of thy natural faculties—of reason and understanding, of wisdom and prudence, of will and affections. He is the strength of all thy graces, faith, patience, meekness, temperance, hope, and charity; both as to their being and exercise. He is the strength of all thy comfort and courage, peace and happiness, salvation and glory. Ps 140:7. "O God, the rock of my salvation." In three respects. First. He is the author and giver of all strength. Ps 18:32: "It is God that girdeth me with strength." Ps 24:11: "He will give strength to his people." Ps 138:3 68:35. Secondly. He is the increaser and perfecter of a saint's strength; it is God that makes a saint strong and mighty both to do and suffer, to bear and forbear, to believe and to hope to the end; so Heb 11:34: *"Out of weakness they were made strong; "* so 1Jo 2:14. And therefore is that prayer of Peter, 1Pe 5:10. Thirdly. He is the preserver of your strength; your life is laid up in God. Col 3:3. Your strength is kept by the strength of God; so Ps 91:1. God doth overshadow the strength of saints, that no breach can be made upon it. Ps 63:7. *"In the shadow of thy wings will I rejoice." Samuel Blackerby.* 1673.
+2\. That God is the portion of a saint. Branch 1. God is the rock of a saint's heart, strength. He is not only strength, and the strength of their hearts, but the rock of their strength; so Isa 17:10. Ps 62:7, rwu, the same word that is used in the text, from hence comes our English word *"sure."* Explication. God is the rock of our strength, both in respect of our naturals and also of our spirituals: he is the strength of nature and of grace (Ps 27:1); the strength of my life natural and spiritual. God is the strength of thy natural faculties—of reason and understanding, of wisdom and prudence, of will and affections. He is the strength of all thy graces, faith, patience, meekness, temperance, hope, and charity; both as to their being and exercise. He is the strength of all thy comfort and courage, peace and happiness, salvation and glory. Ps 140:7. "O God, the rock of my salvation." In three respects. First. He is the author and giver of all strength. Ps 18:32: "It is God that girdeth me with strength." Ps 24:11: "He will give strength to his people." Ps 138:3 68:35. Secondly. He is the increaser and perfecter of a saint's strength; it is God that makes a saint strong and mighty both to do and suffer, to bear and forbear, to believe and to hope to the end; so Heb 11:34: *"Out of weakness they were made strong; "* so 1Jo 2:14. And therefore is that prayer of Peter, 1Pe 5:10. Thirdly. He is the preserver of your strength; your life is laid up in God. Col 3:3. Your strength is kept by the strength of God; so Ps 91:1. God doth overshadow the strength of saints, that no breach can be made upon it. Ps 63:7. *"In the shadow of thy wings will I rejoice." Samuel Blackerby.* 1673.
 
 **Verse 26.** Oh, strange logic! Grace hath learned to deduce strong conclusions out of weak premises, and happy out of sad. If the *major* be, *My flesh and my heart faileth;* and the *minor,* "There is no blossom in the fig tree, nor fruit in the vine, "etc.; yet his *conclusion* is firm and undeniable: *The Lord is the strength of my heart, and my portion for ever;* or, *Yet will I rejoice in the God of my salvation.* And if there be more in the *conclusion* than in the *premises,* it is the better; God comes even in the conclusion. *John Sheffield, in "The Rising Sun."* 1654.
 
@@ -284,11 +284,11 @@ And my portion. It is a metaphor taken from the ancient custom among the Jews, o
 
 **Verse 28.** *To draw near to God.* To draw near to God,
 
-1\.A man should make his peace with God, in and through the Mediator Jesus Christ; for, until once that be done, a man must be said to be far from God, and there is a partition wall standing betwixt God and him. It is the same with that advice given by Eliphaz to Job: *"Acquaint now thyself with him, and be at peace: thereby good shall come unto thee, "* Job 22:21. Be friends with God, and all shall be well with you.
+1\. A man should make his peace with God, in and through the Mediator Jesus Christ; for, until once that be done, a man must be said to be far from God, and there is a partition wall standing betwixt God and him. It is the same with that advice given by Eliphaz to Job: *"Acquaint now thyself with him, and be at peace: thereby good shall come unto thee, "* Job 22:21. Be friends with God, and all shall be well with you.
 
-2\.It is to seek more after communion and fellowship with God, and to pursue after intimacy and familiarity with him; and to have more of his blessed company with us in our ordinary walk and conversation; according to that word, "Blessed is the people that know the joyful sound: they shall walk, O Lord, in the light of thy countenance, "Ps 89:15.
+2\. It is to seek more after communion and fellowship with God, and to pursue after intimacy and familiarity with him; and to have more of his blessed company with us in our ordinary walk and conversation; according to that word, "Blessed is the people that know the joyful sound: they shall walk, O Lord, in the light of thy countenance, "Ps 89:15.
 
-3\.As it stands here in the text, it is the expression of one who hath made up his peace already, and is on good terms with God; and doth differ a little from what the words absolutely imply; and so we may take it thus,
+3\. As it stands here in the text, it is the expression of one who hath made up his peace already, and is on good terms with God; and doth differ a little from what the words absolutely imply; and so we may take it thus,
 
 (a) It implies the confirming or making sure our interest in God, and so it supposes the man's peace to be made with God; for, whoever be the author of this Psalm, it supposes he has made his peace; and, therefore, in the following words it is subjoined, *I have put my trust in the Lord,* etc.; that is, I have trusted my soul unto God, and made my peace with him through a mediator. It is *good,* whatever comes, it is always *good* to be *near to God,* that way, and to be made sure in him.
 
@@ -306,17 +306,17 @@ In a word, to draw near unto God, is to make our peace with him, and to secure a
 
 **Whole Psalm.** It containeth the godly man's *trial,* in the former part of it, and his *triumph,* in the latter part of it. We have,
 
-1\.The grievous conflict between the flesh and the spirit, to the 15th verse.
+1\. The grievous conflict between the flesh and the spirit, to the 15th verse.
 
-2\.The glorious conquest of the spirit over the flesh, to the end. *G. Swinnock.* 
+2\. The glorious conquest of the spirit over the flesh, to the end. *G. Swinnock.* 
 
 **Whole Psalm.** 
 
-1\.The cause of his distemper.
+1\. The cause of his distemper.
 
-2\.The cure of it.
+2\. The cure of it.
 
-3\.The psalmist's carriage after it.
+3\. The psalmist's carriage after it.
 
  *—G. Swinnock.* 
 
@@ -324,25 +324,25 @@ In a word, to draw near unto God, is to make our peace with him, and to secure a
 
 **Verse 1.** (*first clause* ). Israel's receipts from God are,
 
-1\.For quantity, the greatest;
+1\. For quantity, the greatest;
 
-2\.For variety, the choicest;
+2\. For variety, the choicest;
 
-3\.For quality, the sweetest;
+3\. For quality, the sweetest;
 
-4\.For security, the surest;
+4\. For security, the surest;
 
-5\.For duration, the most lasting.
+5\. For duration, the most lasting.
 
  *—Simeon Ash.* 
 
 **Verse 2.** 
 
-1\.How far a believer may fall.
+1\. How far a believer may fall.
 
-2\.How far he shall not fall.
+2\. How far he shall not fall.
 
-3\.What fears are and what are not allowable.
+3\. What fears are and what are not allowable.
 
 **Verse 2.** A retrospect of our slips; prospect of future danger; present preparation for it.
 
@@ -356,15 +356,15 @@ In a word, to draw near unto God, is to make our peace with him, and to secure a
 
 **Verse 10.** 
 
-1\.The believer's cup is bitter.
+1\. The believer's cup is bitter.
 
-2\.It is full.
+2\. It is full.
 
-3\.Its contents are varied *waters.* 
+3\. Its contents are varied *waters.* 
 
-4\.It is but a *cup,* measured and limited.
+4\. It is but a *cup,* measured and limited.
 
-5\.It is the cup of *his people,* and, consequently, works good in the highest degree.
+5\. It is the cup of *his people,* and, consequently, works good in the highest degree.
 
 **Verse 11.** The atheists open question; the oppressor's practical question; the careless man's secret question; and the fearful saint's fainting question. The reasons why it is ever asked, and the conclusive reasons which put the matter beyond question.
 
@@ -376,35 +376,35 @@ In a word, to draw near unto God, is to make our peace with him, and to secure a
 
 **Verse 17.** 
 
-1\.Entrance into the place of fellowship with God, it privileges, and the way thereto.
+1\. Entrance into the place of fellowship with God, it privileges, and the way thereto.
 
-2\.Lessons learned in that hallowed place; the text mentions one.
+2\. Lessons learned in that hallowed place; the text mentions one.
 
-3\.Practical influence of the fellowship, and the instruction.
+3\. Practical influence of the fellowship, and the instruction.
 
 **Verses 17-18.** The sinner's end; See "Spurgeon's Sermons," No. 486.
 
 **Verse 18.** *Thou didst set them in slippery places.* 
 
-1\.It implies that they were always exposed to *sudden, unexpected destruction.* 
+1\. It implies that they were always exposed to *sudden, unexpected destruction.* 
 
 As he that walks in slippery places is every moment liable to fall, he cannot foresee one moment whether he shall stand or fall the next; and when he does fall, he falls at once without warning.
 
-2\.They are liable to fall *of* themselves, without being thrown down by the hand of another; as he that stands or walks on slippery ground needs nothing but his own weight to throw him down.
+2\. They are liable to fall *of* themselves, without being thrown down by the hand of another; as he that stands or walks on slippery ground needs nothing but his own weight to throw him down.
 
-3\.There is nothing that keeps wicked men at any one moment out of hell but the mere pleasure of God. *Jonathan Edwards.* 
+3\. There is nothing that keeps wicked men at any one moment out of hell but the mere pleasure of God. *Jonathan Edwards.* 
 
 **Verses 18-20.** The end of the wicked is,
 
-1\.Near: *Thou hast set,* etc. It may happen at any time.
+1\. Near: *Thou hast set,* etc. It may happen at any time.
 
-2\.Judicial: *Thou bringest,* etc.
+2\. Judicial: *Thou bringest,* etc.
 
-3\.Sudden: *How are they,* etc.
+3\. Sudden: *How are they,* etc.
 
-4\.Tormenting: *They are utterly consumed,* etc.
+4\. Tormenting: *They are utterly consumed,* etc.
 
-5\.Eternal: Left to themselves; gone from the mind of God; and disregarded as a dream when one awaketh. No after act respecting them, either for deliverance or annihilation.
+5\. Eternal: Left to themselves; gone from the mind of God; and disregarded as a dream when one awaketh. No after act respecting them, either for deliverance or annihilation.
 
 **Verse 19.** The first sight and sense of hell by a proud and wealthy sinner, who has just died in peace.
 
@@ -414,11 +414,11 @@ As he that walks in slippery places is every moment liable to fall, he cannot fo
 
 **Verse 2** 2-25.
 
-1\.The psalmist's confession concerning the flesh.
+1\. The psalmist's confession concerning the flesh.
 
-2\.The faithful expressions of the spirit.
+2\. The faithful expressions of the spirit.
 
-3\.The conclusion of the whole matter. See "Spurgeon's Sermons, "No. 467.
+3\. The conclusion of the whole matter. See "Spurgeon's Sermons, "No. 467.
 
 **Verse 25.** God the best portion of the Christian. *Jonathan Edwards' Works, Vol. 2, pp. 104-7.* 
 
@@ -426,9 +426,9 @@ As he that walks in slippery places is every moment liable to fall, he cannot fo
 
 **Verse 26.** 
 
-1\.The psalmist's complaint: *My flesh and my heart faileth.* 
+1\. The psalmist's complaint: *My flesh and my heart faileth.* 
 
-2\.His comfort: *But God,* etc. Or, we may take notice, (a) Of the frailty of his flesh; (b) Of the flourishing of his faith.
+2\. His comfort: *But God,* etc. Or, we may take notice, (a) Of the frailty of his flesh; (b) Of the flourishing of his faith.
 
 Doctrine 1. That man's flesh will fail him. The highest, the holiest man's heart will not always hold out. The prophet was great and gracious, yet his flesh failed him.
 
@@ -440,11 +440,11 @@ Doctrine 2. That it is the comfort of a Christian, in his saddest condition, tha
 
 **Verse 27.** 
 
-1\.The sad conditions.
+1\. The sad conditions.
 
-2\.The terrible punishments.
+2\. The terrible punishments.
 
-3\.The implied consolations.
+3\. The implied consolations.
 
 **Verse 28.** To draw near to God is our wisdom, our honour, our safety, our peace, our riches. *Thomas Watson's Sermon, "The Happiness of Drawing near to God."* 1669. See also, *"The Saint's Happiness, "R. Sibbes's Sermons.* 
 
@@ -452,11 +452,11 @@ Doctrine 2. That it is the comfort of a Christian, in his saddest condition, tha
 
 **Verse 28.** 
 
-1\.The language of prayer: *It is good,* etc.
+1\. The language of prayer: *It is good,* etc.
 
-2\.Of faith: *I have put,* etc.
+2\. Of faith: *I have put,* etc.
 
-3\.Of praise: *That I may declare. G. R.* 
+3\. Of praise: *That I may declare. G. R.* 
 
 **Verse 28.** See "Spurgeon's Sermons," Nos. 287-8, "Let us pray." No. 879, "An assuredly good thing."
 

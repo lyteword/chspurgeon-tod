@@ -240,7 +240,7 @@ Most Mighty Son of God."
 
 ## Explanatory Notes & Quaint Sayings
 
-**Whole Psalm.** The present Psalm makes a pair with the preceding one. It is a spiritual Allegro to that Penseroso...That Psalm was a dirge of Passion Tide, this Psalm is a carol of Christmas.— *Christopher Wordsworth.* 
+**Whole Psalm.** The present Psalm makes a pair with the preceding one. It is a spiritual Allegro to that Penseroso... That Psalm was a dirge of Passion Tide, this Psalm is a carol of Christmas.— *Christopher Wordsworth.* 
 
 **Whole Psalm.** There are many passages in this Psalm which do clearly evidence that it is to be interpreted of Christ; yea, there are many things in this Psalm that can never be clearly, pertinently, and appositely applied to any but Jesus Christ. For a taste, see Ps 89:19 *"I have laid help upon one that is mighty",* mighty to pardon, reconcile, to justify, to save, to bring to glory; suitable to that of the Apostle, Heb 7:25, "He is able to save to the uttermost"—that is, to all ends and purposes, perfectly, completely, fully, continually, perpetually. Christ is a thorough Saviour, a mighty Saviour: Isa 63:1, "Mighty to save." There needs none to come after him to finish the work which he hath begun: Ps 89:19, *I have exalted one chosen out of the people,* which is the very title given to our Lord Jesus: Isa 62:1, "Behold my servant, whom I uphold; mine elect", or chosen one, "in whom my soul delighteth": Ps 89:20, *I have fouled David my servant.* Christ is very frequently called by that name, as being most dearly beloved of God, and most highly esteemed and valued by God, and as being typified by him both as king and prophet of his church: Ps 89:20, *With my holy oil have I anointed him*; suitable to that of Christ; Lu 4:18, "The Spirit of the Lord is upon me, because he hath anointed me to preach the gospel to the poor"; and therefore we need not doubt of the excellency, authority, certainty, and sufficiency of the gospel: Ps 89:27, *I will make him my firstborn, higher than the kings of the earth.* Christ is the firstborn of every creature, and in all things hath the preeminence: Ps 89:29, *His seed also will I make to endure for ever, and his throne as the days of heaven.* This is chiefly spoken of Christ and his kingdom. The aspectable heaven is corruptible, but the kingdom of heaven is eternal; and such shall be Christ's seed, throne and kingdom: Ps 89:36, *His seed shall endure for ever, and his throne as the sun before me.* "Christ shall see his seed, he shall prolong his days, and the pleasure of the LORD shall prosper in his hand", Isa 53:10. *And his throne as the sun before me*; that is, perpetual and glorious, as the Chaldee explains it, *shall shine as the sun.* Other kingdoms and thrones have their times and their turns, their rise and their ruins, but so hath not the kingdom and throne of Jesus Christ. Christ's dominion is "an everlasting dominion", which shall not pass away; "and his kingdom that which shall not be destroyed", Da 7:13-14. I might give further instances out of this Psalm, but enough is as good as a feast. New saith God, "I have made a covenant with him; "so then there is a covenant that God the Father hath made with Christ the Mediator; which covenant, the Father engages to the Son, shall stand fast, there shall be no cancelling or disannulling of it. God the Father hath not only made a covenant of grace with the saints in Christ, but he has also made a covenant of redemption, as we call it for distinction sake, with Jesus Christ himself: "My covenant shall stand fast with him; " that is, with Christ, as we have fully demonstrated.— *Thomas Brooks.* 
 
@@ -274,13 +274,13 @@ Note, too, that he says, "with *my* mouth", not with that of any deputy; *I will
 
 **Verse 1.** *The mercies.* His manifold and sundry mercies: as if he should say, we have tasted of more than one, yea, we have felt all his mercies; I will therefore praise the same for ever. I will sing his mercy for creating this universe, which is *macrocosmos,* a great world; and for making man, which is *microcosmos,* a little world.
 
-1\.My song shall set forth his kindness, for that he gave me being.
+1\. My song shall set forth his kindness, for that he gave me being.
 
-2\.For adding to my being, life, which he denieth unto stones.
+2\. For adding to my being, life, which he denieth unto stones.
 
-3\.To life, sense, which he denieth unto plants.
+3\. To life, sense, which he denieth unto plants.
 
-4\.To sense, speech and understanding, which he denieth unto brute beasts...
+4\. To sense, speech and understanding, which he denieth unto brute beasts...
 
 I am exceeding much bound unto God for creating me when I was not; and for preserving me under his wings ever since I was: yet I am more bound to his mercy for redeeming me, for blessing me with all spiritual blessings in heavenly things in Christ his Son (Eph 1:1-23 3:1-21), for his electing of me, for his calling of me, for his justifying of me, for his sanctifying of me. These graces are the riches of his goodness and glory, *misericordioe in oeternum,* everlasting mercies, as reaching from everlasting predestination to everlasting glorification. O Lord, I will always sing thy *mercies* in promising, and ever shew thy *truth* in performing thy promise made to David, thy chosen servant, concerning thy Son, my Saviour, saying, "Thy seed will I establish for ever." So the fathers expound our text: I will ever sing thy mercies, in vouchsafing to send thy Son to visit thy servants, sick to death in sin. First, I will ever sing of thy mercifulness, and then will ever be shewing thy faithfulness. *Neque enim exhiberetur veritas in impletione promissorum nisi proecederet misericordia in remissione peccatorum. (For truth, in the fulfilment of the promises, would not be shown forth; unless mercy, in the forgiveness of sins, should precede it.)* And what is *God's mercy set up for ever, and his truth established in the heavens,* but that which Isaiah terms, "the sure mercies of David": that is, as Paul construes Isaiah, the holy promise made to David and the promise made to David, is briefly this, "Thy seed will I establish for ever, and set up thy throne from generation to generation."— *John Boys.* 
 
@@ -312,7 +312,7 @@ And, as the heavens, Thy truth shall stand.— *Richard Mant.*
 
 **Verse 3.** *I have made a covenant with my chosen.* We must ponder here with pious wonder how God has deigned to enter into a covenant with man, the immortal with the mortal, the most powerful with the weakest, the most just with the most unjust, the richest with the poorest, the most blessed with the most wretched. The prophet wonders that God is mindful of man, and visits the son of man. Of how much greater admiration, I say is it worthy, that they are also joined together, and that not after a simple fashion, but by the ties of a covenant? If man had affirmed this of himself, that God was united and bound to him by a covenant, who is there that would not have condemned him of temerity? Now God himself is introduced affirming this very thing of himself, that he had made a covenant with man. What saint does not see in this thing, how great the filanyrwpia of God is!— *Musculus.* 
 
-**Verse 3.** *I have made a covenant with my chosen.* On heaven's side is God himself, the party proposer. Though he was the party offended, yet the motion for a covenant comes from him...The Father of mercies saith, "The lost creatures cannot contract for themselves; and if another undertake not for them, they must perish; they cannot choose an undertaker for themselves. I will choose one for them, and I will make a covenant with my chosen." On man's side is God's chosen, or chosen One, for the word of God is singular; the Son, *the last Adam.* Who else as fit to be undertaker on man's side? Who else could have been the Father's choice for this vast undertaking? No angel nor man was capable of it, but *the Mighty One* (Ps 89:19) whom the Father points out to us as his chosen, Isa 13:1.— *Thomas Boston.* 
+**Verse 3.** *I have made a covenant with my chosen.* On heaven's side is God himself, the party proposer. Though he was the party offended, yet the motion for a covenant comes from him... The Father of mercies saith, "The lost creatures cannot contract for themselves; and if another undertake not for them, they must perish; they cannot choose an undertaker for themselves. I will choose one for them, and I will make a covenant with my chosen." On man's side is God's chosen, or chosen One, for the word of God is singular; the Son, *the last Adam.* Who else as fit to be undertaker on man's side? Who else could have been the Father's choice for this vast undertaking? No angel nor man was capable of it, but *the Mighty One* (Ps 89:19) whom the Father points out to us as his chosen, Isa 13:1.— *Thomas Boston.* 
 
 **Verses 3-4.** I made a covenant with my chosen, etc. Do you suppose that this was spoken to David, in his own person only? No, indeed; but to David as the antitype, figure, and forerunner of Jesus Christ. Hence, the Septuagint version renders it, *I have covenanted* tois eklektois mou *with my elect people,* or with my chosen ones: *i.e.* with them in Christ, and with Christ in their name. *I have sworn unto David my servant*, unto the Messiah, who was typified by David; unto my coeternal Son, who stipulated to take on himself "the form of a servant"; thy seed, *i.e.* all those whom I have given to thee in the decree of election, all those whom thou shalt live and die to redeem, these *will I establish for ever*, so as to render their salvation irreversible and inadmissible: *and build up thy throne*, thy mediatorial throne, as King of saints and covenant Head of the elect, *to all generations*: there shall always be a succession of favoured sinners to be called and sanctified, in consequence of thy federal obedience unto death; and every period of time shall recompense thy covenant sufferings with an increasing revenue of converted souls, until as many as are ordained to eternal life are gathered in. Observe, here, that when Christ received the promise from the Father concerning the establishment of his (*i.e.* of Christ's) throne to all generations, the plain meaning is, that his people shall be thus established; for, consider Christ in his divine capacity as the Son of God, and his throne was already established, and had been from everlasting, and would have continued to be established without end, even if he had never been incarnate at all. Therefore, the promise imports that Christ shall reign, not simply as a person in the Godhead (which he ever did, ever will, and ever must); but relatively, mediatorially, and in his office character, as the deliverer and king of Zion. Hence it follows, that his people cannot be lost: for he would be a poor sort of a king who had or might have no subjects to reign over. Consequently, that "throne" of glory on which Christ sits is already encircled in part, and will at last be completely surrounded and made still more glorious, by that innumerable company, that general assembly and church of the firstborn who are written in heaven.— *Augustus Montague Toplady.* 
 
@@ -320,7 +320,7 @@ And, as the heavens, Thy truth shall stand.— *Richard Mant.*
 
 **Verse 5.** Thy wonders, etc. As the heavens are a proof of God's power, in respect of his first framing them out of nothing; so are they a pattern of God's faithfulness, in their constant and orderly motion according to his word since their framing: *The heavens shall praise thy faithfulness also.* However the power and faithfulness of God may be seen and heard in the work and speech of the heavens by all men, yet are they not observed and hearkened unto except in the Church by God's children: therefore saith he, *They shall praise thy faithfulness also in the congregation of the saints.* — *David Dickson.* 
 
-**Verse 5.** *Thy wonders.* Thy wondrousness (*literally,* wonder), not "Thy wondrous works", but "Thy wonderful mysterious nature and being", as separate and distinct from all created beings.— *J.J.S. Perowne.* 
+**Verse 5.** *Thy wonders.* Thy wondrousness (*literally,* wonder), not "Thy wondrous works", but "Thy wonderful mysterious nature and being", as separate and distinct from all created beings.— *J. J. S. Perowne.* 
 
 **Verse 5.** *Thy wonders*, etc. It is a wonderful salvation, it is such a salvation as the angels desire to pry into it; and it is such a salvation, that all the prophets desire to pry into it; it is almost six thousand years since all the angels in heaven fell into a sea of wonder at this great salvation; it is almost six thousand years since Abel fell into a sea of wonder at this great salvation; and what think ye is his exercise this day? He is even wondering at this great salvation.— *Andrew Gray,* 1616.
 
@@ -350,7 +350,7 @@ And, as the heavens, Thy truth shall stand.— *Richard Mant.*
 
 **Verse 11.** *The heavens are thine, the earth also is thine.* Therefore we praise thee, therefore we trust in thee, therefore we will not fear what man can do against us.— *Matthew Henry.* 
 
-**Verse 12.** *The north and the south thou hast created them.* etc. The heights of Huttin, commonly fixed on by tradition as the Mount of Beatitudes, appear a little to the west of Tiberias. Over these the graceful top of Mount Tabor is seen, and beyond it the little Hermon, famous for its dews; and still farther, and apparently higher, the bleak mountains of Gilboa, on which David prayed that there might fall no dew nor rain. A view of the position of Tabor and Hermon from such a situation as that which we now occupied, shewed us how accurately they might be reckoned the *"umbilicus terroe"* —the central point of the land, and led us to infer that this is the true explanation of the manner in which they are referred to in the Ps 89:12. It is as if the Psalmist had said North, South, and *all that is between* —or in other words, the whole land from North to South, to its very centre and throughout its very marrow—shall rejoice in thy name.— *R.M. Macheyne.* 
+**Verse 12.** *The north and the south thou hast created them.* etc. The heights of Huttin, commonly fixed on by tradition as the Mount of Beatitudes, appear a little to the west of Tiberias. Over these the graceful top of Mount Tabor is seen, and beyond it the little Hermon, famous for its dews; and still farther, and apparently higher, the bleak mountains of Gilboa, on which David prayed that there might fall no dew nor rain. A view of the position of Tabor and Hermon from such a situation as that which we now occupied, shewed us how accurately they might be reckoned the *"umbilicus terroe"* —the central point of the land, and led us to infer that this is the true explanation of the manner in which they are referred to in the Ps 89:12. It is as if the Psalmist had said North, South, and *all that is between* —or in other words, the whole land from North to South, to its very centre and throughout its very marrow—shall rejoice in thy name.— *R. M. Macheyne.* 
 
 **Verse 12.** *Tabor and Hermon.* These hills, the one to the east and the other to the west, in Canaan, were much frequented by the saints of God. David speaks of the sacred hill of *Hermon,* and compares brotherly love to the dew of it. Ps 42:6 133:3. And *Tabor,* yet more eminent for the memorable spot of Christ's transfiguration, and from whence God the Father proclaimed his perfect love and approbation of Jesus as his dear Son. Well might this hymn, therefore, in allusion to those glorious events, call even the holy hills to rejoice in Jehovah's name, Mt 17:1-5.— *Robert Hawker.* 
 
@@ -366,21 +366,21 @@ And, as the heavens, Thy truth shall stand.— *Richard Mant.*
 
 **Verse 14.** *Mercy and truth shall go before thy face.* Note—
 
-1\.Mercy is said to go before the face of God, because God sends mercy before judgment, that he might find less to punish: so Bellarmine.
+1\. Mercy is said to go before the face of God, because God sends mercy before judgment, that he might find less to punish: so Bellarmine.
 
-2\.That God permits not his face to be seen before He has forgiven our sins through mercy: so Rickelius.
+2\. That God permits not his face to be seen before He has forgiven our sins through mercy: so Rickelius.
 
-3\.That no one comes to the knowledge of God, but he who has obtained mercy beforehand.
+3\. That no one comes to the knowledge of God, but he who has obtained mercy beforehand.
 
-4\.That God comes to no one unless His grace go before Him....Truth goes before the face of God, because God keeps it ever before his eyes, to mould his actions thereby. Pindar calls truth yugatera Dios the daughter of God. Epaminoudas the Theban general, cultivated truth so studiously, that he is reported never to have spoken a falsehood even in jest. In the courts of kings this is a rare virtue.— *Le Blanc.* 
+4\. That God comes to no one unless His grace go before Him.... Truth goes before the face of God, because God keeps it ever before his eyes, to mould his actions thereby. Pindar calls truth yugatera Dios the daughter of God. Epaminoudas the Theban general, cultivated truth so studiously, that he is reported never to have spoken a falsehood even in jest. In the courts of kings this is a rare virtue.— *Le Blanc.* 
 
 **Verse 14.** *Mercy and truth. Mercy* in promising; *truth* in performing. *Truth,* in being as good as thy word; *mercy,* in being better.— *Matthew Henry.* 
 
-**Verse 14.** *Shall go.* In his *active going forth,* tender mercy and goodness announce him, and faithful truth will tell his people he is there when he comes forth. His activities are mercy and faithfulness, because his will is at work and his nature is love. Yet his throne still maintains justice and judgment.— *J.N. Darby.* 
+**Verse 14.** *Shall go.* In his *active going forth,* tender mercy and goodness announce him, and faithful truth will tell his people he is there when he comes forth. His activities are mercy and faithfulness, because his will is at work and his nature is love. Yet his throne still maintains justice and judgment.— *J. N. Darby.* 
 
 **Verse 15.** *Blessed is the people that know the joyful sound.* Not that *hear,* for then the blessing were cheap indeed. Thousands hear the Gospel sound, but sometimes not ten of a thousand know it.— *Thomas James Judkin,* 1841.
 
-**Verse 15.** *Blessed is the people that know the joyful sound* —viz., of the trumpets sounded in token of joy at the great festivals, and chiefly on the first day of the seventh month, the feast of trumpets (Le 23:24), and on extraordinary occasions, especially after the yearly atonement, on the day of jubilee, the tenth day of the seventh month of the fiftieth year, proclaiming liberty to bondmen, and restoration of their inheritance to them that had forfeited it (Le 25:8-10). As the jubilee joy did not come till after the atonement, so no Gospel joy and liberty are ours till first we know Christ as our atonement. "In the day of the people's gladness" they blew the trumpets over their sacrifices, "that they might be to them for a memorial before God" (Nu 10:10). David and Israel brought up the ark of the Lord to Zion "with shouting, and with the sound of the trumpet" (2Sa 6:15). In Nu 23:21, Balaam makes it the distinguishing glory of Israel, "The Lord his God is with him, and the shout of a king is among them", (Compare Ps 98:6 27:6 *margin* )— *A.R. Fausset.* 
+**Verse 15.** *Blessed is the people that know the joyful sound* —viz., of the trumpets sounded in token of joy at the great festivals, and chiefly on the first day of the seventh month, the feast of trumpets (Le 23:24), and on extraordinary occasions, especially after the yearly atonement, on the day of jubilee, the tenth day of the seventh month of the fiftieth year, proclaiming liberty to bondmen, and restoration of their inheritance to them that had forfeited it (Le 25:8-10). As the jubilee joy did not come till after the atonement, so no Gospel joy and liberty are ours till first we know Christ as our atonement. "In the day of the people's gladness" they blew the trumpets over their sacrifices, "that they might be to them for a memorial before God" (Nu 10:10). David and Israel brought up the ark of the Lord to Zion "with shouting, and with the sound of the trumpet" (2Sa 6:15). In Nu 23:21, Balaam makes it the distinguishing glory of Israel, "The Lord his God is with him, and the shout of a king is among them", (Compare Ps 98:6 27:6 *margin* )— *A. R. Fausset.* 
 
 **Verse 15.** *People that know the joyful sound.* Here it is supposed that we have intelligence in respect of *"the joyful sound."* For there is knowledge not merely of the utterances and intonations, but of the sense and substance, of the thought aud feeling, which they convey. And I suppose this to be the meaning of Christ when he says, "My sheep hear my voice, and they follow me; and a stranger will they not follow, for they know not the voice of strangers." And I have often been surprised, to note the accuracy with which persons otherwise not very intelligent, not largely informed, not of critical acumen, will yet, when they hear a discourse, judge, discriminate, determine; will be able to say at once—"Truth, clear, unmixed, without a cloud upon it; "or—"Doctrine clouded, statements confused, not the lucid Gospel:" or be able to say, if it be so—"No Gospel at all; contradiction to the truth of Christ." They *"Know the joyful sound",* as it rolls from the plenitude of God's own voice and bosom in his august and blessed revelations; as it is confirmed, authenticated and sealed by the precious blood of our Lord and Saviour Jesus Christ; as it is witnessed to by the eternal Spirit: "the joyful sound", that there is salvation for lost and ruined men by faith in the blood and in the obedience of him who died upon the tree, and is now enthroned in the highest place in heaven.— *James Stratten,* 1845.
 
@@ -390,9 +390,9 @@ And, as the heavens, Thy truth shall stand.— *Richard Mant.*
 
 **Verse 16.** *And in thy righteousness shall they be exalted.* In these words briefly we may notice,
 
-1\.The believer's promotion; he is *exalted*. In the first Adam we were debased unto the lowest hell, the crown having fallen from our heads; but in Christ, the second Adam, we are again exalted; yea, exalted as high as heaven, for we "sit together with him in heavenly places", says the apostle. This is an incredible paradox to a blind world, that the believer who is sitting at this moment upon the dunghill of this earth, should at the same time be sitting in heaven in Christ, his glorious Head and representative, Eph 2:6.
+1\. The believer's promotion; he is *exalted*. In the first Adam we were debased unto the lowest hell, the crown having fallen from our heads; but in Christ, the second Adam, we are again exalted; yea, exalted as high as heaven, for we "sit together with him in heavenly places", says the apostle. This is an incredible paradox to a blind world, that the believer who is sitting at this moment upon the dunghill of this earth, should at the same time be sitting in heaven in Christ, his glorious Head and representative, Eph 2:6.
 
-2\.We have the ground of the believer's preferment and exaltation; it is *in thy righteousness*. It is not in any righteousness of his own; no, this he utterly disclaims, reckoning it but "dung and loss", "filthy rags", dogs' meat: but it is in *thy* righteousness; that is, the righteousness of God, as the apostle calls it: Ro 1:17 Php 3:9. The righteousness of God is variously taken in Scripture. Sometimes for the infinite rectitude and equity of his nature: Ps 11:7, "The righteous Lord loveth righteousness." Sometimes for his rectorial equity, or distributive justice which he exerciseth in the government of the world, rewarding the good and punishing evil doers: Ps 97:2, "Righteousness and judgment are the habitation of his throne." Sometimes it is put for his veracity and faithfulness in accomplishing his word of promise, or in executing his word of threatening: Ps 36:5-6, "Thy faithfulness reacheth unto the clouds: thy righteousness is like the great mountains." Sometimes it is put for the perfect righteousness which Christ the Son of God, as our Surety and Mediator, brought in, by his obedience to the law, and death on the cross, for the justification of guilty sinners: and this as I said, is frequently called the righteousness of God; and in this sense I understand it here in the text: *"In thy righteousness shall they be exalted."* — *Ebenezer Erskine.* 
+2\. We have the ground of the believer's preferment and exaltation; it is *in thy righteousness*. It is not in any righteousness of his own; no, this he utterly disclaims, reckoning it but "dung and loss", "filthy rags", dogs' meat: but it is in *thy* righteousness; that is, the righteousness of God, as the apostle calls it: Ro 1:17 Php 3:9. The righteousness of God is variously taken in Scripture. Sometimes for the infinite rectitude and equity of his nature: Ps 11:7, "The righteous Lord loveth righteousness." Sometimes for his rectorial equity, or distributive justice which he exerciseth in the government of the world, rewarding the good and punishing evil doers: Ps 97:2, "Righteousness and judgment are the habitation of his throne." Sometimes it is put for his veracity and faithfulness in accomplishing his word of promise, or in executing his word of threatening: Ps 36:5-6, "Thy faithfulness reacheth unto the clouds: thy righteousness is like the great mountains." Sometimes it is put for the perfect righteousness which Christ the Son of God, as our Surety and Mediator, brought in, by his obedience to the law, and death on the cross, for the justification of guilty sinners: and this as I said, is frequently called the righteousness of God; and in this sense I understand it here in the text: *"In thy righteousness shall they be exalted."* — *Ebenezer Erskine.* 
 
 **Verse 17.** *In thy favour our horn shall be exalted.* A man of lofty bearing is said to carry his horn very high. To him who is proudly interfering with the affairs of another it will be said, "Why show your *kombu* ", "horn", "here?" "See that fellow, what a fine horn he has; he will make the people run." "Truly, my lord, you have a great horn." "Chinnan has lost his money; aye, and his hornship too." "Alas, alas! I am like the deer, whose horns have fallen off."— *Joseph Roberts "Oriental Illustrations."* 
 
@@ -436,7 +436,7 @@ How astonished many would be, if they knew what the real case was of those perha
 
 **Verse 30.** *His children.* wynb, his sons, i.e. Christians, born through the griefs of Christ on the cross, like the pangs of one in travail.— *Geier.* 
 
-**Verse 30.** A man may forsake the doctrines of the Gospel. He may fall into great errors, great aberrations from Truth; he may forsake the ordinances of the Lord's house, though he sees God's word is clear upon the point. He esteems those things as nothing worth, which the Lord esteems so well, that he has given them to his church as a sacred deposit, which she is to convey down to the last posterity till time shall be no more. And what is still more—a man may forsake for a time the principles of the precious Gospel of the living God. But I can imagine a state still more solemnly affecting than even this. It is a part of God's wisdom, (and it is for our good that it is so—all God's wisdom is for his people's good)—it is a part of the wisdom of God, that sin should lead to sin; that one neglect shall pave the way to another; that that which is bad shall lead to that which is worse, and that which is worse shall prepare the way for that which is worst...The longer I live, the more I am brought to this—to know that there is not a sin that ever was committed, but I need the grace of God to keep me from it.— *James Harrington Evans.* 
+**Verse 30.** A man may forsake the doctrines of the Gospel. He may fall into great errors, great aberrations from Truth; he may forsake the ordinances of the Lord's house, though he sees God's word is clear upon the point. He esteems those things as nothing worth, which the Lord esteems so well, that he has given them to his church as a sacred deposit, which she is to convey down to the last posterity till time shall be no more. And what is still more—a man may forsake for a time the principles of the precious Gospel of the living God. But I can imagine a state still more solemnly affecting than even this. It is a part of God's wisdom, (and it is for our good that it is so—all God's wisdom is for his people's good)—it is a part of the wisdom of God, that sin should lead to sin; that one neglect shall pave the way to another; that that which is bad shall lead to that which is worse, and that which is worse shall prepare the way for that which is worst... The longer I live, the more I am brought to this—to know that there is not a sin that ever was committed, but I need the grace of God to keep me from it.— *James Harrington Evans.* 
 
 **Verses 30-34.** God here says two things: first, that he will chastise them, next, that he will not, on that account, cast them out of his covenant. O wonderful tempering of the kindness and severity of God! In which he finds his own glory, and believers their safety! The heavenly Father loves the blood and marks of his Christ which he sees upon them, and the remains of faith and godliness which are preserved hidden in the depth of their heart, this is why he will not cast them off. On the other hand, he considers that it accords neither with his wisdom nor his holiness to bestow his grace and salvation upon those who do not relent for having cast off his law and given themselves up to iniquity. In order to harmonize these opposite desires, he takes the rod, and chastises them, to arouse their conscience, and to excite their faith; to restore them, by the repentance which his discipline produces, to such a state, as that he may be able to bestow upon them, without shame, the blessings he has promised to the children of his Son; just as a wise parent, by moderate and judicious correction gradually draws back his son from those irregularities of life into which he has plunged; and thereby preserves his honour, and himself the pleasure of being able to love and please him without misgiving. Or, as a skilful surgeon, by the pain which his knife, or cautery, or bitter potions, cause his patient, saves his life, and wards off death.— *Jean Daille.* 
 
@@ -462,11 +462,11 @@ How astonished many would be, if they knew what the real case was of those perha
 
 **Verse 37.** *And as a faithful witness in heaven.* (New Translation) *And as the rainbow's faithful sign.* The rainbow is not expressly mentioned in the original, which speaks only of "the faithful witness in heaven." Some commentators understand the "witness" thus mentioned to be no other than the moon itself. I prefer, however, the interpretation that fixes it on the rainbow, which God after the deluge appointed as a "sign" or "witness" of his mercy in Christ. Ge 9:12-17. Conformably to this appointment, the Jews, when they behold the rainbow, are said to bless God, who remembers his covenant and is faithful to his promise. And the tradition of this its designation to proclaim comfort to mankind was strong among the heathens: for, according to the mythology of the Greeks, the "rainbow" was the daughter of "wonder", "a sign to mortal men", and regarded, upon its appearance, as a messenger of the celestial deities. Thus Homer with remarkable conformity to the Scripture account speaks of the "rainbow", which "Jove hath set in the cloud, a sign to men."— *Richard Mant.* 
 
-**Verse 38.** *But thou hast cast off*, etc. The complaining of the saints meanwhile is so exaggerated, that carnal feeling makes itself more apparent in them, than faith...Yet such is the goodness of God, He is not offended with these complaints, provided faith is not altogether extinguished, or succumbs.— *Mollerus.* 
+**Verse 38.** *But thou hast cast off*, etc. The complaining of the saints meanwhile is so exaggerated, that carnal feeling makes itself more apparent in them, than faith... Yet such is the goodness of God, He is not offended with these complaints, provided faith is not altogether extinguished, or succumbs.— *Mollerus.* 
 
-**Verse 39.** *Thou hast profaned his crown,* etc. The crown of a king, (like that of the high priest, on which was inscribed "holiness to the Lord") (Ex 28:36) was a sacred thing, and therefore to cast it in the dust was to profane it.— *A.R. Fausset.* 
+**Verse 39.** *Thou hast profaned his crown,* etc. The crown of a king, (like that of the high priest, on which was inscribed "holiness to the Lord") (Ex 28:36) was a sacred thing, and therefore to cast it in the dust was to profane it.— *A. R. Fausset.* 
 
-**Verse 40.** *Hedges* and *strong holds.* Both of these may refer to the appointments of a vineyard in which the king was the vine. It was usually fenced around with a stone wall, and in it was a small house or tower, wherein a keeper was set to keep away intruders. When the wall, or hedge, was thrown down, every passer by plucked at the fruit, and when the tower was gone the vineyard was left open to the neighbours who could do as they would with the vines. When the church is no longer separated from the world, and her divine Keeper has no more a dwelling place within her, her plight is wretched indeed.— *C.H.S.* 
+**Verse 40.** *Hedges* and *strong holds.* Both of these may refer to the appointments of a vineyard in which the king was the vine. It was usually fenced around with a stone wall, and in it was a small house or tower, wherein a keeper was set to keep away intruders. When the wall, or hedge, was thrown down, every passer by plucked at the fruit, and when the tower was gone the vineyard was left open to the neighbours who could do as they would with the vines. When the church is no longer separated from the world, and her divine Keeper has no more a dwelling place within her, her plight is wretched indeed.— *C. H. S.* 
 
 **Verse 43.** *Thou hast also turned the edge of his sword*, etc. The arms and military prowess of thy people are no longer of any use to them; Thou art *against* them, and therefore they are fallen. In what a perilous and hopeless situation must that soldier be who, defending his life against his mortal foe, has his sword *broken,* or its *edge turned;* or, in modern warfare, whose *gun* misses *fire!* The *Gauls,* when invaded by the Romans, had no method of *hardening iron;* at every blow their swords *bent,* so that they were obliged, before they could strike again, to put them under their foot or over their knee, to straighten them; and in most cases, before this could be done, their better armed foe had taken away their life! The edge of their sword was turned, so that they could not stand in battle; and hence the *Gauls* were conquered by the Romans.— *Adam Clarke.* 
 
@@ -536,9 +536,9 @@ Or Flattery soothe the dull cold ear of Death?— *Thomas Gray,* 1716-1771.
 
 **Verse 51.** *They have reproached the footsteps of thine anointed.* This phrase is obscure in diction, and therefore variously interpreted
 
-1\.Some by the *footsteps of Christ,* judge that his advent in the flesh is meant: others refer the words to David, and take the meaning to be, imitation of him. The first exposition yields this sense: Be mindful, O Lord, of the reproach of thy enemies wherewith they insult our expectation of thy Anointed, and scoff at his advent as if it would never come.
+1\. Some by the *footsteps of Christ,* judge that his advent in the flesh is meant: others refer the words to David, and take the meaning to be, imitation of him. The first exposition yields this sense: Be mindful, O Lord, of the reproach of thy enemies wherewith they insult our expectation of thy Anointed, and scoff at his advent as if it would never come.
 
-2\.The second interpretation is this: Recollect, O Lord, what contempt thy enemies heap upon us on account of thy servant David, because we fondly cherish his memory and his example, and nourish the hope of thy covenant with him, clinging tenaciously thereto...Thirdly, this clause may be so interpreted that by twbqe, that is, the heel, we may understand the extremities of the Kingdom of Christ, of David. Thus we may imagine the enemies of God threw this in the teeth of the people of Israel, that they had already come to the end and extremity of the Kingdom of David.— *Musculus.* 
+2\. The second interpretation is this: Recollect, O Lord, what contempt thy enemies heap upon us on account of thy servant David, because we fondly cherish his memory and his example, and nourish the hope of thy covenant with him, clinging tenaciously thereto... Thirdly, this clause may be so interpreted that by twbqe, that is, the heel, we may understand the extremities of the Kingdom of Christ, of David. Thus we may imagine the enemies of God threw this in the teeth of the people of Israel, that they had already come to the end and extremity of the Kingdom of David.— *Musculus.* 
 
 **Verse 51** (*second clause* ). The *Chaldee* has: "They have scoffed at the tardiness of Thy Messiah's footsteps." So *Kimchi:* "He delays so long, they say He will never come." Compare 2Pe 3:4,9. The Arabic *aqaba* is used in the sense of "delaying."— *William Kay.* 
 
@@ -554,23 +554,23 @@ Or Flattery soothe the dull cold ear of Death?— *Thomas Gray,* 1716-1771.
 
 **Verse 1.** 
 
-1\.Mercies celebrated. When?—"for ever."
+1\. Mercies celebrated. When?—"for ever."
 
-2\.By whom?—by those who are the subjects of them.
+2\. By whom?—by those who are the subjects of them.
 
-3\.Therefore they must live for ever to celebrate them.
+3\. Therefore they must live for ever to celebrate them.
 
-4\.Faithfulness declared. (a) To our own generation. (b) To succeeding generations by its influence upon others.
+4\. Faithfulness declared. (a) To our own generation. (b) To succeeding generations by its influence upon others.
 
 **Verse 2.** —
 
-1\.The Testimony.
+1\. The Testimony.
 
 (a) To the constancy of Mercy: (1.) builds up its trophies every moment. (2.) It preserves them for ever.
 
 (b) To the constancy of Faithfulness. It remains as the ordinances of heaven.
 
-2\.Its Confirmation. "I have said", etc., said it,
+2\. Its Confirmation. "I have said", etc., said it,
 
 (a) Upon the ground of Scripture.
 
@@ -582,15 +582,15 @@ Or Flattery soothe the dull cold ear of Death?— *Thomas Gray,* 1716-1771.
 
 **Verses 3-4.** 
 
-1\.The Covenant made. With whom?—with David and in him with David's Lord and Son. The true David—the chosen one—the servant of the Father in redemption.
+1\. The Covenant made. With whom?—with David and in him with David's Lord and Son. The true David—the chosen one—the servant of the Father in redemption.
 
-2\.For what?—
+2\. For what?—
 
 (a) for his seed. He should have a seed and that seed should be established.
 
 (b) for himself, "his throne", etc.
 
-3\.The Covenant confirmed.
+3\. The Covenant confirmed.
 
 (a) By decree. "I have made", etc.
 
@@ -600,7 +600,7 @@ Or Flattery soothe the dull cold ear of Death?— *Thomas Gray,* 1716-1771.
 
 **Verse 6.** —We have a comparison between God and the most excellent in heaven and earth—challenge both worlds.
 
-1\.The true God, sovereign of heaven and earth is incomparably great in his BEING and EXISTENCE;
+1\. The true God, sovereign of heaven and earth is incomparably great in his BEING and EXISTENCE;
 
 (a) because his being is of himself *eternal;* 
 
@@ -610,7 +610,7 @@ Or Flattery soothe the dull cold ear of Death?— *Thomas Gray,* 1716-1771.
 
 (d) because he is unchangeable.
 
-2\.God is incomparably great in his ATTRIBUTES and PERFECTIONS.
+2\. God is incomparably great in his ATTRIBUTES and PERFECTIONS.
 
 (a) In his *holiness;* 
 
@@ -624,61 +624,61 @@ Or Flattery soothe the dull cold ear of Death?— *Thomas Gray,* 1716-1771.
 
 (f) in his *love* and *goodness.* 
 
-3\.God is incomparably great in his WORKS—creation; providence; redemption, and human salvation.— *Theophilus Jones,* 1830.
+3\. God is incomparably great in his WORKS—creation; providence; redemption, and human salvation.— *Theophilus Jones,* 1830.
 
 **Verse 6.** —The incomparableness of God, in his Being, Attributes, Works, and Word.— *Swinnock.* (Nichol's Edition of Swinnock's Works, Vol. 4, pp. 373-508.)
 
 **Verses 6-7.** 
 
-1\.In creation God is far above other beings. Ps 89:6.
+1\. In creation God is far above other beings. Ps 89:6.
 
-2\.In Redemption he is far above himself in creation. Ps 89:7.
+2\. In Redemption he is far above himself in creation. Ps 89:7.
 
 **Verses 9-10.** God's present rule in the midst of confusion, and rebellion; and his ultimate overthrow of all adverse forces.
 
 **Verse 11.** 
 
-1\.God's possession of heaven, the model of his possession of earth.
+1\. God's possession of heaven, the model of his possession of earth.
 
-2\.God's possession of earth most certain, and its manifestation in the future most sure.
+2\. God's possession of earth most certain, and its manifestation in the future most sure.
 
-3\.The course of action suggested to his people by the two facts.
+3\. The course of action suggested to his people by the two facts.
 
 **Verse 12.** The joy of creation in its Creator.
 
 **Verse 14.** 
 
-1\.The Equity of the divine government—"justice", etc. No creature can eventually be unjustly dealt with under his dominion, and his kingdom ruleth over all.
+1\. The Equity of the divine government—"justice", etc. No creature can eventually be unjustly dealt with under his dominion, and his kingdom ruleth over all.
 
-2\.The Sovereignty of the divine government. Truth before mercy. Mercy founded upon truth. "Thou wilt perform the truth to Jacob and the mercy to Abraham." The covenant made in mercy to Abraham is fulfilled in truth to Jacob.
-
-**Verse 15.** 
-
-1\.The gospel is a joyful sound. Good tidings, etc.
-
-2\.It is a joyful sound to those who know it, hear it, believe it, love it, obey it.
-
-3\.They to whom it is a joyful sound are blessed. "They shall walk", etc.
+2\. The Sovereignty of the divine government. Truth before mercy. Mercy founded upon truth. "Thou wilt perform the truth to Jacob and the mercy to Abraham." The covenant made in mercy to Abraham is fulfilled in truth to Jacob.
 
 **Verse 15.** 
 
-1\.There is a theoretical knowledge of the gospel.
+1\. The gospel is a joyful sound. Good tidings, etc.
 
-2\.An experimental knowledge, and,
+2\. It is a joyful sound to those who know it, hear it, believe it, love it, obey it.
 
-3\.A practical knowledge
+3\. They to whom it is a joyful sound are blessed. "They shall walk", etc.
+
+**Verse 15.** 
+
+1\. There is a theoretical knowledge of the gospel.
+
+2\. An experimental knowledge, and,
+
+3\. A practical knowledge
 
  *—W. Drasfield,* 1859.
 
 **Verse 16.** —
 
-1\.Exultation.
+1\. Exultation.
 
 (a) "In thy name", etc., as rich in mercy as the God of salvation—of all grace—of all consolation.
 
 (b) At what season—"all the day", morning, noon, and night.
 
-2\.Exaltation. "In thy righteousness", etc.
+2\. Exaltation. "In thy righteousness", etc.
 
 (a) How not exalted. Not in their own righteousness.
 
@@ -686,7 +686,7 @@ Or Flattery soothe the dull cold ear of Death?— *Thomas Gray,* 1716-1771.
 
 **Verse 16.** (*second clause* ).—Consider,
 
-1\.What the believer is exalted *above* or *from,* by God's righteousness.
+1\. What the believer is exalted *above* or *from,* by God's righteousness.
 
 (a) It exalts him above the law.
 
@@ -712,43 +712,43 @@ a) To a state of peace and reconciliation with God.
 
 **Verse 17.** 
 
-1\.The blessedness of the righteous.
+1\. The blessedness of the righteous.
 
 (a) Their internal glory. Reliance upon divine strength.
 
 (b) Their internal honour. "In thy favour", etc.
 
-2\.The participation in that blessedness. The *their* of the people of God becomes *our.* Their strength our horn. Happy they, who, with respect to all the privileges of the saints, can thus turn *their* into *our.* 
+2\. The participation in that blessedness. The *their* of the people of God becomes *our.* Their strength our horn. Happy they, who, with respect to all the privileges of the saints, can thus turn *their* into *our.* 
 
 **Verse 17.** 
 
-1\.Consider our natural weakness.
+1\. Consider our natural weakness.
 
-2\.Consider our strength in God.
+2\. Consider our strength in God.
 
-3\.Give God the glory of it.
+3\. Give God the glory of it.
 
 **Verse 18.** 
 
-1\.Jehovah—his power, self existence, and majesty—our defence.
+1\. Jehovah—his power, self existence, and majesty—our defence.
 
-2\.The Holy One of Israel—his character, covenant character, and unity—our government.
+2\. The Holy One of Israel—his character, covenant character, and unity—our government.
 
 **Verse 19.** 
 
-1\.The work required. "Help."
+1\. The work required. "Help."
 
 (a) By whom? By God himself.
 
 (b) For what? To reconcile God to man, and man to God.
 
-2\.The persons selected for this work.
+2\. The persons selected for this work.
 
 (a) Human. "Chosen out of the people."
 
 (b) Divine. "Thy Holy One."
 
-3\.His qualifications for the work.
+3\. His qualifications for the work.
 
 (a) His own ability for the office. "One that is mighty."
 
@@ -758,29 +758,29 @@ a) To a state of peace and reconciliation with God.
 
 **Verses 20-21.** 
 
-1\.The Messiah would be of the seed of David. The true David.
+1\. The Messiah would be of the seed of David. The true David.
 
-2\.He would be a servant of the Father. "My servant."
+2\. He would be a servant of the Father. "My servant."
 
-3\.He would be consecrated to his office by God. "With my holy oil", etc.
+3\. He would be consecrated to his office by God. "With my holy oil", etc.
 
-4\.He would perfectly fulfil it. "With whom my hand", etc.
+4\. He would perfectly fulfil it. "With whom my hand", etc.
 
-5\.He would be sustained in it by the Father. "Mine arm", etc.
+5\. He would be sustained in it by the Father. "Mine arm", etc.
 
 **Verse 2** 2-23.
 
-1\.A prophecy of the conflict of the Messiah with Satan. Satan could not exact any debt or homage for him.
+1\. A prophecy of the conflict of the Messiah with Satan. Satan could not exact any debt or homage for him.
 
-2\.Of his refutation of his enemies. "I will beat down", etc. The Scribes and Pharisees were beaten down before his face.
+2\. Of his refutation of his enemies. "I will beat down", etc. The Scribes and Pharisees were beaten down before his face.
 
-3\.Of the destruction of their city and nation. "And plague them", etc.
+3\. Of the destruction of their city and nation. "And plague them", etc.
 
 **Verse 26.** Our Lord's filial spirit, and how it was displayed.
 
 **Verse 29.** 
 
-1\.The subjects of Messiah's reign. "His seed."
+1\. The subjects of Messiah's reign. "His seed."
 
 (a) For union—his seed.
 
@@ -788,7 +788,7 @@ a) To a state of peace and reconciliation with God.
 
 (c) For multitude.
 
-2\.The duration of his reign.
+2\. The duration of his reign.
 
 (a) They for ever one with him.
 
@@ -796,9 +796,9 @@ a) To a state of peace and reconciliation with God.
 
 **Verses 30-34.** 
 
-1\.The persons referred to. "His children." "Ye are all the children", etc.
+1\. The persons referred to. "His children." "Ye are all the children", etc.
 
-2\.The supposition concerning them. "If his children forsake", etc.
+2\. The supposition concerning them. "If his children forsake", etc.
 
 (a) They may possibly—may fall, though not fall away.
 
@@ -806,13 +806,13 @@ a) To a state of peace and reconciliation with God.
 
 (c) They have actually: as David himself and others.
 
-3\.The threatening founded upon that supposition.
+3\. The threatening founded upon that supposition.
 
 (a) Specified—"the rod—stripes." They shall smart for it sooner or later.
 
 (b) Certified. "Then will I."
 
-4\.The qualification of the threatening. "Nevertheless", etc.
+4\. The qualification of the threatening. "Nevertheless", etc.
 
 (a) The nevertheless characterized. Lovingkindness not removed, etc.
 
@@ -820,63 +820,63 @@ a) To a state of peace and reconciliation with God.
 
 There is,
 
-1\.An if.
+1\. An if.
 
-2\.A then.
+2\. A then.
 
-3\.A nevertheless.
+3\. A nevertheless.
 
 **Verse 39.** 
 
-1\.Providence may often seem to be at variance with promises.
+1\. Providence may often seem to be at variance with promises.
 
-2\.Promises are never at variance with providence. It is the covenant of thy servant and his crown still.
+2\. Promises are never at variance with providence. It is the covenant of thy servant and his crown still.
 
 **Verse 39.** How the throne of King Jesus may be profaned.
 
 **Verse 40.** 
 
-1\.What God had done. "Broken down", etc.
+1\. What God had done. "Broken down", etc.
 
-2\.What he had not done. Not taken away sorrow for his departure and desire for his return.
+2\. What he had not done. Not taken away sorrow for his departure and desire for his return.
 
 **Verse 43.** Cases in which the sword of the gospel appears to have its edge turned.
 
 **Verse 44-45.** 
 
-1\.A prophecy that the Messiah would be meek and lowly. "Made his glory to cease."
+1\. A prophecy that the Messiah would be meek and lowly. "Made his glory to cease."
 
-2\.Would become a servant to the Father. "Cast his throne down", etc.
+2\. Would become a servant to the Father. "Cast his throne down", etc.
 
-3\.Would be cut off in the midst of his days. "The days of his youth", etc.
+3\. Would be cut off in the midst of his days. "The days of his youth", etc.
 
-4\.That he would die an ignominious death. "Hast covered him", etc.
+4\. That he would die an ignominious death. "Hast covered him", etc.
 
 **Verse 45.** The excellence of the first days of Christianity, and in what respect their glory has departed from us.
 
 **Verse 46.** The hand of God is to be acknowledged.
 
-1\.In the nature of affliction. "Wilt thou hide thyself", etc.
+1\. In the nature of affliction. "Wilt thou hide thyself", etc.
 
-2\.In the duration of affliction. "How long, Lord?"
+2\. In the duration of affliction. "How long, Lord?"
 
-3\.In the severity of affliction. Wrath burning like fire.
+3\. In the severity of affliction. Wrath burning like fire.
 
-4\.In the issue of affliction. How long? for ever? In all these respects the words are applicable both to Christ and to his people.
+4\. In the issue of affliction. How long? for ever? In all these respects the words are applicable both to Christ and to his people.
 
 **Verse 46.** *Remember.* The prayer of the dying thief, the troubled believer, the persecuted Christian.
 
 **Verse 47.** 
 
-1\.An appeal to divine goodness. "Remember", etc. Let not my life be all trouble and sorrow.
+1\. An appeal to divine goodness. "Remember", etc. Let not my life be all trouble and sorrow.
 
-2\.To divine wisdom. "Wherefore", etc. Was man made only to be miserable? Will not man have been made in vain if his life be but short, and that short life be nothing but sorrow?
+2\. To divine wisdom. "Wherefore", etc. Was man made only to be miserable? Will not man have been made in vain if his life be but short, and that short life be nothing but sorrow?
 
 **Verse 52.** 
 
-1\.The voice. "Blessed", etc. In himself in all his works and ways—in his judgments as well as in his mercies—as the God and Father of our Lord Jesus Christ—"for evermore."
+1\. The voice. "Blessed", etc. In himself in all his works and ways—in his judgments as well as in his mercies—as the God and Father of our Lord Jesus Christ—"for evermore."
 
-2\.The echo, "Amen and amen." Amen, says the church on earth—says the church in heaven—say the angels of God—says the whole holy and happy universe—says eternity past and eternity to come.
+2\. The echo, "Amen and amen." Amen, says the church on earth—says the church in heaven—say the angels of God—says the whole holy and happy universe—says eternity past and eternity to come.
 
 ## Works Upon The Eighty-Ninth Psalm
 

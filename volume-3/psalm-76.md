@@ -148,29 +148,29 @@ Thou girdest thyself with the remnant of wrath."
 
 **Verse 10.** *The wrath of man shall praise thee.* The wrath of wicked men against the people of God is very tributary to his praise.
 
-1\.It puts them upon many subtle devices and cunning stratagems, in frustrating of which the wisdom of God and his care of his Church is very much illustrated.
+1\. It puts them upon many subtle devices and cunning stratagems, in frustrating of which the wisdom of God and his care of his Church is very much illustrated.
 
-2\.The wrath of wicked men impels them to many violent and forcible attempts upon the people of God to destroy them, and so gives him occasion to manifest his power in their defence.
+2\. The wrath of wicked men impels them to many violent and forcible attempts upon the people of God to destroy them, and so gives him occasion to manifest his power in their defence.
 
-3\.It makes them sometimes fit to be his instruments in correcting his people, and so he vindicates himself from the suspicion of being a patron to sin in them that are nearest to him, and makes them that hate holiness promote it in his people, and them that intend them the greatest hurt, to do them the greatest good.
+3\. It makes them sometimes fit to be his instruments in correcting his people, and so he vindicates himself from the suspicion of being a patron to sin in them that are nearest to him, and makes them that hate holiness promote it in his people, and them that intend them the greatest hurt, to do them the greatest good.
 
-4\.It administers occasion to him for the manifestation of the power of his grace in upholding the spirits of his people and the being of his church in despite of all that enemies can do against them.
+4\. It administers occasion to him for the manifestation of the power of his grace in upholding the spirits of his people and the being of his church in despite of all that enemies can do against them.
 
-5\.It serves very much to adorn God's most signal undertakings for his people in the world.
+5\. It serves very much to adorn God's most signal undertakings for his people in the world.
 
-6\.It serves to manifest the glory of God's justice upon his people's enemies in the day when he rises up to avenge himself upon them, when he shall stand over them, lashing them with scorpions, and at every blow mind their former cruelties. Here, take that for your inhuman rage against my people at such a place, and that for your barbarous usage of them at such a time. Now see how good it is to be imprisoned, beaten, tortured, burnt, and sawn asunder. Thus the enemies themselves are often constrained to acknowledge with Adoni Bezek the righteous hand of God upon them in the day of inquisition. *Condensed from John Warren's Sermon before Parliament.* 1656.
+6\. It serves to manifest the glory of God's justice upon his people's enemies in the day when he rises up to avenge himself upon them, when he shall stand over them, lashing them with scorpions, and at every blow mind their former cruelties. Here, take that for your inhuman rage against my people at such a place, and that for your barbarous usage of them at such a time. Now see how good it is to be imprisoned, beaten, tortured, burnt, and sawn asunder. Thus the enemies themselves are often constrained to acknowledge with Adoni Bezek the righteous hand of God upon them in the day of inquisition. *Condensed from John Warren's Sermon before Parliament.* 1656.
 
 **Verse 10.** *The wrath of man.* Wrath is anger accented unto the highest pitch, or blown up into a flame. *The wrath of man,* (in the original it is *The wrath of Adam,* or *the wrath of clay,* weak, impotent man) *shall praise thee, i.e.,* it shall turn to the praise and glory of God through his overruling providence, though quite otherwise intended. God will bring honour to himself, and serve his own holy and wise designs out of it... This expression, *the wrath of man,* imports the weakness and impotence of it; it is but the wrath of *Adam,* or of *red clay.* How contemptibly doth the Spirit of God speak of man, and of the power of man, in Scripture? "Cease ye from man, whose breath is in his nostrils; for wherein is he to be accounted of?" The wrath of man, when it is lengthened out to its utmost boundaries, can only go to the length of killing the body, or in the breaking the sheath of clay in which the soul lodges, and then it can do no more. *Ebenezer Erskine.* 
 
 **Verse 10.** *Shall praise thee.* God turns the wrath of man to the praise of his adorable sovereignty. Never have the Lord's people had such awful impressions of the sovereignty of God, as when they have been in the furnace of man's wrath, then they become dumb with silence. When the Chaldean and Sabean robbers are let loose to plunder and spoil the substance of Job, he is made to view adorable sovereignty in it, saying, "The Lord gave, the Lord hath taken away: blessed be the name of the Lord." It is in such a case as this that God says to his own people, "Be still, and know that I am God; I will be exalted among the heathen." What work of God about the church is advanced by the wrath of men?
 
-1\.His *discovering* work; for by the wind of man's wrath he separates between the precious and the vile, betwixt the chaff and the wheat. In the day of the church's prosperity and quiet, hypocrites and true believers are mingled together, like the chaff and the wheat in the barn floor: but the Lord, like the husbandman, opens the door of his barn, and puts the wind of man's wrath through it, that the world may know which is which. O, sirs, much chaff is cast up already, both among ministers and professors; but it is like the wind and sieve may cast up much more yet ere all be done.
+1\. His *discovering* work; for by the wind of man's wrath he separates between the precious and the vile, betwixt the chaff and the wheat. In the day of the church's prosperity and quiet, hypocrites and true believers are mingled together, like the chaff and the wheat in the barn floor: but the Lord, like the husbandman, opens the door of his barn, and puts the wind of man's wrath through it, that the world may know which is which. O, sirs, much chaff is cast up already, both among ministers and professors; but it is like the wind and sieve may cast up much more yet ere all be done.
 
-2\.God's *purging* work is advanced among his own children by the wrath of men: there is much of the dross of corruption cleaves to the Lord's people while in the wilderness. Now, the Lord heats the furnace of man's wrath, and casts his people into it, that when he has tried them, he may bring them forth as gold.
+2\. God's *purging* work is advanced among his own children by the wrath of men: there is much of the dross of corruption cleaves to the Lord's people while in the wilderness. Now, the Lord heats the furnace of man's wrath, and casts his people into it, that when he has tried them, he may bring them forth as gold.
 
-3\.God's *uniting* work is hereby advanced. In a time of peace and external tranquillity the sheep of Christ scatter and divide among themselves; but God lets loose the dogs upon them, and then the flock runs together; or like pieces of metal cast into the fire, they run together in a lump.
+3\. God's *uniting* work is hereby advanced. In a time of peace and external tranquillity the sheep of Christ scatter and divide among themselves; but God lets loose the dogs upon them, and then the flock runs together; or like pieces of metal cast into the fire, they run together in a lump.
 
-4\.God's *enlarging* work, or his work of spreading the gospel, is sometimes advanced by the wrath of man. Ac 8:1-5. The gospel, like the chamomile, the more it is trodden upon, the more it spreads. *Ebenezer Erskine.* 
+4\. God's *enlarging* work, or his work of spreading the gospel, is sometimes advanced by the wrath of man. Ac 8:1-5. The gospel, like the chamomile, the more it is trodden upon, the more it spreads. *Ebenezer Erskine.* 
 
 **Verse 10.** *The remainder of wrath shalt thou restrain. The remainder of wrath, i.e.* what is left behind of the wrath of men, when God has glorified himself thereby. Even after God has defeated the purposes of wicked men, and made them contribute to his glory, yet there is abundance of wrath remaining. But what becomes of that wrath that is left? God shall *restrain* it. The word signifies to *gird up.* However God may see fit to slacken the bridle of his providence, and suffer wicked men to vent their wrath and enmity, as far as it shall contribute to his glory; yet the super abounding and the remainder of his wrath that is not for his glory and his people's profit, God will gird it up, that they shall not get it vented... If any wrath of man remain beyond what shall bring in a revenue of praise unto God, he will *restrain it,* and bind it up like the waters of a mill: he will suffer as much of the current of water to run upon the wheel, as serves to carry it about and grind his corn, but the remainder of the water he sets it off another way: so God will let out as much of the current of man's wrath as shall serve the ends of his glory and our good, but the remainder of the stream and current he will *restrain,* and turn another way. In Isaiah 28 we are told that God will not be aye "threshing his corn, nor break it with the wheel of his cart, nor bruise it with his horsemen. This cometh forth from the Lord of hosts, which is wonderful in counsel, and excellent in working." All this comfort is sure and certain, there is not the least peradventure about it, that the flame of man's wrath shall praise the Lord, and the superfluous fire shall be quenched, or hemmed in; for here we have God's parole of honour for it: *Surely the wrath of man shall praise thee: the remainder of wrath shalt thou restrain. Ebenezer Erskine.* 
 
@@ -196,9 +196,9 @@ Thou girdest thyself with the remnant of wrath."
 
 **Verse 3.** 
 
-1\.Where enemies are conquered; "There; "not on the battlefield so much as in the house of God; as Amalek by Moses on the Mount; Sennacherib by Hezekiah in the Sanctuary.
+1\. Where enemies are conquered; "There; "not on the battlefield so much as in the house of God; as Amalek by Moses on the Mount; Sennacherib by Hezekiah in the Sanctuary.
 
-2\.How there?
+2\. How there?
 
 (a) By faith.
 
@@ -208,13 +208,13 @@ Thou girdest thyself with the remnant of wrath."
 
 **Verse 4.** 
 
-1\.What the world is, compared with the church: Mountains of prey.
+1\. What the world is, compared with the church: Mountains of prey.
 
 (a) Cruelty instead of love.
 
 (b) Violence instead of peace.
 
-2\.What the church is compared with the world.
+2\. What the church is compared with the world.
 
 (a) *More glorious,* because *more excellent.* 
 
@@ -226,35 +226,35 @@ Thou girdest thyself with the remnant of wrath."
 
 **Verses 8-9.** 
 
-1\.The characters described: *the meek of the earth.* 
+1\. The characters described: *the meek of the earth.* 
 
-2\.The need implied.
+2\. The need implied.
 
 (a) To be vindicated.
 
 (b) To be saved.
 
-3\.The divine interposition on their behalf: *Thou didst cause,* etc. *When God arose,* etc.
+3\. The divine interposition on their behalf: *Thou didst cause,* etc. *When God arose,* etc.
 
-4\.The effect of their deliverance: *The earth feared,* etc. *G. R.* 
+4\. The effect of their deliverance: *The earth feared,* etc. *G. R.* 
 
 **Verse 10.** 
 
-1\.Evil permitted for good: *the wrath,* etc.
+1\. Evil permitted for good: *the wrath,* etc.
 
-2\.Restrained for good: *The remainder,* etc.
+2\. Restrained for good: *The remainder,* etc.
 
 Or,
 
-1\.Ruled.
+1\. Ruled.
 
-2\.Overruled. *G. R.* 
+2\. Overruled. *G. R.* 
 
 **Verse 11.** 
 
-1\.To whom vows may be made. Not to man, but God.
+1\. To whom vows may be made. Not to man, but God.
 
-2\.What vows should be thus made.
+2\. What vows should be thus made.
 
 (a) Of self dedication.
 
@@ -262,7 +262,7 @@ Or,
 
 (c) Of self sacrifice.
 
-3\.How kept: *Vow and pay.* (a) From duty.
+3\. How kept: *Vow and pay.* (a) From duty.
 
 (b) From fear of his displeasure. *G. R.* 
 

@@ -144,21 +144,21 @@ Whose pleasure is in unison with God's."
 
 **Verse 8.** It is hard to know, in spiritual exercises, whether is be more difficult to attain some good frame, or to keep and maintain it when it is attained; whether more seriousness is required for making peace with God, or for keeping of it when made; whether more diligence should be in preparing for a communion, or more watchfulness after it: sure both are required; and it was our blessed Lord's word, Mt 26:41, after the first celebration of his supper, "Watch and pray, that ye enter not into temptation." Here that saying holds eminently: *"Non minor est virtus, quam quaerere, parta tueri:"* no less virtue and valour is requisite to maintain, than to make a purchase or conquest. In the words there are,
 
-1\.A great mercy promised from the Lord to his people, viz., *He will speak peace to them.* 
+1\. A great mercy promised from the Lord to his people, viz., *He will speak peace to them.* 
 
-2\.A special caveat and advertisement given them, pointing at their hazard: *But let them not turn again to folly:* that is, let not his people and saints to whom he hath spoken peace, return to sin; let them beware of bourding (Bourding—jesting), and dallying with God's mercy, and of turning his grace into wantonness, of cooling in their affections to him, of slipping back to their old way, and of embracing their old lovers and idols: for that is folly, even in folio, to speak so. *James Durham, in "The Unsearchable Riches of Christ."* 
+2\. A special caveat and advertisement given them, pointing at their hazard: *But let them not turn again to folly:* that is, let not his people and saints to whom he hath spoken peace, return to sin; let them beware of bourding (Bourding—jesting), and dallying with God's mercy, and of turning his grace into wantonness, of cooling in their affections to him, of slipping back to their old way, and of embracing their old lovers and idols: for that is folly, even in folio, to speak so. *James Durham, in "The Unsearchable Riches of Christ."* 
 
 **Verse 9.** *That glory may dwell in our land.* What land the true church of Christ, the saints and they that fear God, do dwell in; there doth *glory* dwell: there God, there Christ by his Spirit bringing righteousness and salvation to such a society, is glorious; and for his presence the people are glorious; and the land glorious above all other lands whatsoever. *David Dickson.* 
 
 **Verse 10.** *Mercy and truth; righteousness and peace.* Note, four virtues stand out prominently in the incarnation; namely, mercy, truth, righteousness and peace, or love producing peace. These were like four steps of the throne of Christ, or four princes standing near and accompanying Him.
 
-1\.On the right hand, is mercy presenting the olive.
+1\. On the right hand, is mercy presenting the olive.
 
-2\.On the left, truth holding the white lily.
+2\. On the left, truth holding the white lily.
 
-3\.Before Him walks justice bearing the balance.
+3\. Before Him walks justice bearing the balance.
 
-4\.Peace follows Him, having a *cornucopiae* full of flowers, and scattering the flowers around. *Le Blanc.* 
+4\. Peace follows Him, having a *cornucopiae* full of flowers, and scattering the flowers around. *Le Blanc.* 
 
 **Verse 10.** *Mercy and truth; righteousness and peace.* These four divine attributes parted at the fall of Adam, and met again at the birth of Christ. Mercy was ever inclined to save man, and Peace could *not* be his enemy; but Truth extracted the performance of God's threat,—"The soul that sinneth, it shall die; "and Righteousness could not but give to every one his due, Jehovah must be true in all his ways, and righteous in all his works. Now there is no religion on earth, except the Christian, which can satisfy the demands of all these claimants, and restore an union between them; which can show how God's word can be true, and his work just, and the sinner, notwithstanding, find mercy, and obtain peace. *George Horne.* 
 
@@ -166,23 +166,23 @@ Whose pleasure is in unison with God's."
 
 **Verse 10.** *Mercy and truth are met together.* 
 
-1\.They meet together *in God;* for *all the paths of the Lord are mercy and truth,* Ps 25:9; *mercy* in making, and *truth* in keeping his promise to his people. Paul saith, Jesus Christ was a minister of the circumcision to the *truth* of God, to confirm the promises made unto the fathers, and that the Gentiles might glorify God for his *mercy.* Ro 15:8. God promised his Son unto the Jews, and he gave him in the fulness of time to be both a light to the Gentiles, and glory to his people Israel; herein shewing his *mercy* more principally to the Gentiles, his *truth* unto the Jews, and so his mercy and truth embraced each other so that he made both people but one, to wit, one flock, in one sheepfold, under one shepherd. If we take *truth and righteousness* for God's justice in punishing, *mercy and peace* for his graciousness in pardoning; yet as they meet together in all his ways unto such as keep his covenant and his testimonies. For as the mercies of the wicked are full of cruelty, so the very judgments of God upon his servants are full of mercy. In his wrath he remembers pity; punishing a little, that he may pardon a great deal; destroying the flesh only to save the spirit, 1Co 5:5. *Misericordiae est aliquando subtrahere misericordiam.* It was good for Joseph that he was a captive; good for Naaman that he was a leper; good for Bartimaeus that he was blind, and for David that he was in trouble. Bradford thanked God more of his prison, than of any parlour or pleasure. All things are for the best unto the faithful, and so God's *mercy and truth are met together; righteousness and peace have kissed each other,* his mercy being just, and his justice being merciful; but God in giving his only Son unto the world, more abundantly shewed his *mercy and justice kissing one another.* His *justice* that every soul that sins should die; but his *mercy* desires not the death of a sinner. Eze 33:11...
+1\. They meet together *in God;* for *all the paths of the Lord are mercy and truth,* Ps 25:9; *mercy* in making, and *truth* in keeping his promise to his people. Paul saith, Jesus Christ was a minister of the circumcision to the *truth* of God, to confirm the promises made unto the fathers, and that the Gentiles might glorify God for his *mercy.* Ro 15:8. God promised his Son unto the Jews, and he gave him in the fulness of time to be both a light to the Gentiles, and glory to his people Israel; herein shewing his *mercy* more principally to the Gentiles, his *truth* unto the Jews, and so his mercy and truth embraced each other so that he made both people but one, to wit, one flock, in one sheepfold, under one shepherd. If we take *truth and righteousness* for God's justice in punishing, *mercy and peace* for his graciousness in pardoning; yet as they meet together in all his ways unto such as keep his covenant and his testimonies. For as the mercies of the wicked are full of cruelty, so the very judgments of God upon his servants are full of mercy. In his wrath he remembers pity; punishing a little, that he may pardon a great deal; destroying the flesh only to save the spirit, 1Co 5:5. *Misericordiae est aliquando subtrahere misericordiam.* It was good for Joseph that he was a captive; good for Naaman that he was a leper; good for Bartimaeus that he was blind, and for David that he was in trouble. Bradford thanked God more of his prison, than of any parlour or pleasure. All things are for the best unto the faithful, and so God's *mercy and truth are met together; righteousness and peace have kissed each other,* his mercy being just, and his justice being merciful; but God in giving his only Son unto the world, more abundantly shewed his *mercy and justice kissing one another.* His *justice* that every soul that sins should die; but his *mercy* desires not the death of a sinner. Eze 33:11...
 
-2\.Righteousness and peace meet together *in man;* so Augustine expounds it: an unjust man is full of quarrels, like Ishmael, "every man's hand is against him, and his hand against every man; "but he who is righteous, and giveth every man his due, shall have peace, so much as is possible with all men, especially with his own self and soul. Righteousness and peace are so near, so dear, that thou canst not have the one without the other.
+2\. Righteousness and peace meet together *in man;* so Augustine expounds it: an unjust man is full of quarrels, like Ishmael, "every man's hand is against him, and his hand against every man; "but he who is righteous, and giveth every man his due, shall have peace, so much as is possible with all men, especially with his own self and soul. Righteousness and peace are so near, so dear, that thou canst not have the one without the other.
 
-3\.Righteousness and peace meet *in Christ,* God's man; for by these two, some divines understand the Old Testament and the New. The Law doth exact *justice,* requiring of a malefactor "eye for eye, tooth for tooth, hand for hand, foot for foot; "but the Gospel is full of *mercy* and *peace,* saying unto the sinner, who truly repenteth him of his sins, and unfeignedly believes the word of promise, "Son, be of good comfort, thy sins are forgiven thee; ""Daughter be of good cheer, thy faith hath made thee whole; ""Go thy way, they belief hath saved thee; ""Behold, thou art now made whole, sin no more." These two testaments meet together in Christ, as in their proper centre, they *kissed each other* on this (Christmas) day, because the gospel performed what the law promised. *John Boys.* 
+3\. Righteousness and peace meet *in Christ,* God's man; for by these two, some divines understand the Old Testament and the New. The Law doth exact *justice,* requiring of a malefactor "eye for eye, tooth for tooth, hand for hand, foot for foot; "but the Gospel is full of *mercy* and *peace,* saying unto the sinner, who truly repenteth him of his sins, and unfeignedly believes the word of promise, "Son, be of good comfort, thy sins are forgiven thee; ""Daughter be of good cheer, thy faith hath made thee whole; ""Go thy way, they belief hath saved thee; ""Behold, thou art now made whole, sin no more." These two testaments meet together in Christ, as in their proper centre, they *kissed each other* on this (Christmas) day, because the gospel performed what the law promised. *John Boys.* 
 
 **Verse 10.** When our Lord spake that parable of the prodigal son, and represented the Father as seeing his child afar off in his misery, and how he had compassion on him, and ran and fell on his neck and kissed him, one cannot but feel what a touching and tender illustration he has given of this most exquisite passage of his own word: *Mercy and truth are met together; righteousness and peace have kissed each other. Barton Bouchier.* 
 
 **Verses 10-11.** Mercy and Peace if they had met, or Truth and Righteousness, either of the two, it had not been strange. But for these that seem to be in opposition to do it, that makes this meeting marvellous in our eyes. Will you stay a little and take a view of the parties? Four they are. These four,
 
-1\.Mercy, and
+1\. Mercy, and
 
-2\.Truth,
+2\. Truth,
 
-3\.Righteousness, and
+3\. Righteousness, and
 
-4\.Peace. Which quaternion at the first sight divides itself into two and two. Mercy and Peace, they two pair well; they be *collectanae,* as Bernard saith of them in one place, `bed fellows, 'sleep together; *collectanae,* as in another place, `sucked one milk, one breast' both. And as these two, so the other two; Truth and Righteousness seem to be of one complexion and disposition, and commonly take part together. Of these Mercy seems to favour us; and Peace no enemy to us or to any (seeing we must speak of them as of persons); mild and gentle persons both. For Righteousness I know not well what to say: *gestat gladium,* (bears the sword), and I fear *non frustra* (not in vain). Nor of Truth, who is *vera* and *severa,* `severe' too otherwhile. These I doubt are not like affected. The reason of my doubt. One of them, Righteousness, it is told here for great news, that she but "looked down hitherwards from heaven." Before then she would not have done that. A great sign it is of heart burning, when one will not do so much as look at another—not endure his sight. We cannot promise ourselves much of her. No, nor of Truth. One was so bold in a place to say, *omnis homo mendax* (Ro 3:4), and feared no challenge for it. By that it seems all stands not well with her neither. So then two for us, two against us. For their order. Mercy is first, and Peace last. With both ends we shall do well enough. God send us to do but so with the midst! Yet this is not amiss that they which favour us less are in the midst; hemmed in on both sides, closed about with those that wish us well; and they between us and them. On the one side, Mercy before; on the other, Peace behind another; that in this double meeting Mercy sorts not herself, goes not to Righteousness; nor Righteousness to her, but to Peace. A kind of cross meeting, as it were, there is—the better hope of accord. Mercy and Righteousness have no symbolizing quality at all, no hope of them; but Truth with Mercy hath. There is truth as well in the promise of Mercy as in the threat of justice. *Lancelot Andrewes.* 
+4\. Peace. Which quaternion at the first sight divides itself into two and two. Mercy and Peace, they two pair well; they be *collectanae,* as Bernard saith of them in one place, `bed fellows, 'sleep together; *collectanae,* as in another place, `sucked one milk, one breast' both. And as these two, so the other two; Truth and Righteousness seem to be of one complexion and disposition, and commonly take part together. Of these Mercy seems to favour us; and Peace no enemy to us or to any (seeing we must speak of them as of persons); mild and gentle persons both. For Righteousness I know not well what to say: *gestat gladium,* (bears the sword), and I fear *non frustra* (not in vain). Nor of Truth, who is *vera* and *severa,* `severe' too otherwhile. These I doubt are not like affected. The reason of my doubt. One of them, Righteousness, it is told here for great news, that she but "looked down hitherwards from heaven." Before then she would not have done that. A great sign it is of heart burning, when one will not do so much as look at another—not endure his sight. We cannot promise ourselves much of her. No, nor of Truth. One was so bold in a place to say, *omnis homo mendax* (Ro 3:4), and feared no challenge for it. By that it seems all stands not well with her neither. So then two for us, two against us. For their order. Mercy is first, and Peace last. With both ends we shall do well enough. God send us to do but so with the midst! Yet this is not amiss that they which favour us less are in the midst; hemmed in on both sides, closed about with those that wish us well; and they between us and them. On the one side, Mercy before; on the other, Peace behind another; that in this double meeting Mercy sorts not herself, goes not to Righteousness; nor Righteousness to her, but to Peace. A kind of cross meeting, as it were, there is—the better hope of accord. Mercy and Righteousness have no symbolizing quality at all, no hope of them; but Truth with Mercy hath. There is truth as well in the promise of Mercy as in the threat of justice. *Lancelot Andrewes.* 
 
 **Verse 11.** *Truth shall spring.* The literal sense is, that the promises which for a long time are not fulfilled, and seem like seeds or roots hidden and concealed under ground, when they shall be fulfilled, shall be considered to spring up, to grow, etc. *Lorinus.* 
 
@@ -202,7 +202,7 @@ Whose pleasure is in unison with God's."
 
 **Verse 1.** There is,
 
-1\.Captivity.
+1\. Captivity.
 
 (a) Of the people of God.
 
@@ -210,13 +210,13 @@ Whose pleasure is in unison with God's."
 
 (c) Because they are the people of God. *You only have I known,* etc.
 
-2\.Restoration from Captivity: *Thou hast brought back,* etc.
+2\. Restoration from Captivity: *Thou hast brought back,* etc.
 
 (a) The fact.
 
 (b) The Author: *Thou:* by thine own power; in thine own manner; at thine own time.
 
-3\.The cause of the Restoration; the favour of God: *Thou hast been favourable.* 
+3\. The cause of the Restoration; the favour of God: *Thou hast been favourable.* 
 
 (a) On account of favour past: "Thou hast."
 
@@ -224,7 +224,7 @@ Whose pleasure is in unison with God's."
 
 **Verse 2.** 
 
-1\.The subjects of forgiveness: *Thy people.* 
+1\. The subjects of forgiveness: *Thy people.* 
 
 (a) By choice.
 
@@ -232,9 +232,9 @@ Whose pleasure is in unison with God's."
 
 (c) By effectual calling.
 
-2\.The time of forgiveness: *Thou hast forgiven,* etc.
+2\. The time of forgiveness: *Thou hast forgiven,* etc.
 
-3\.The method of forgiveness.
+3\. The method of forgiveness.
 
 (a) Forgiven. Hebrew, borne, same word as in Le 16:22: "The goat shall bear upon him all their iniquities."
 
@@ -242,51 +242,51 @@ Whose pleasure is in unison with God's."
 
 **Verse 3.** 
 
-1\.The language of penitence. It is implied here that the wrath was,
+1\. The language of penitence. It is implied here that the wrath was,
 
 (a) Great:
 
 (b) Just *thy wrath.* 
 
-2\.The language of faith.
+2\. The language of faith.
 
 (a) In the grace of pardon: *Thou hast turned away wrath*. We could not, by anything we could do or suffer.
 
 (b) In the method of pardon: *Turned away.* Turned it from us to our Surety.
 
-3\.The language of praise: *Thou hast—thou hast.* 
+3\. The language of praise: *Thou hast—thou hast.* 
 
 **Verse 4.** 
 
-1\.In what salvation consists.
+1\. In what salvation consists.
 
 (a) In the removal of God's enmity from us.
 
 (b) In the removal of our enmity to him.
 
-2\.By whom it is accomplished. By the God of salvation.
+2\. By whom it is accomplished. By the God of salvation.
 
 (a) He causes his anger toward us to cease, and
 
 (b) Our anger toward him.
 
-3\.How is it obtained? By prayer: "Turn us, "etc.
+3\. How is it obtained? By prayer: "Turn us, "etc.
 
 **Verse 6.** 
 
-1\.Revivals imply decline.
+1\. Revivals imply decline.
 
 (a) That there is grace to be revived.
 
 (b) That this grace has declined.
 
-2\.Revivals are from God: *Wilt not thou,* etc.: they cannot be got up by men.
+2\. Revivals are from God: *Wilt not thou,* etc.: they cannot be got up by men.
 
-3\.Revivals are frequently needed: *Wilt not thou revive us again.* 
+3\. Revivals are frequently needed: *Wilt not thou revive us again.* 
 
-4\.Revivals are in answer to prayer: *Wilt thou not,* etc.
+4\. Revivals are in answer to prayer: *Wilt thou not,* etc.
 
-5\.Revivals are occasions for great joy.
+5\. Revivals are occasions for great joy.
 
 (a) *To* the saints.
 
@@ -294,7 +294,7 @@ Whose pleasure is in unison with God's."
 
 **Verse 7.** 
 
-1\.Salvation is God's work: *Thy salvation.* 
+1\. Salvation is God's work: *Thy salvation.* 
 
 (a) The plan is his.
 
@@ -306,13 +306,13 @@ Whose pleasure is in unison with God's."
 
 (e) The consummation is his.
 
-2\.Salvation is God's gift.
+2\. Salvation is God's gift.
 
 (a) Of his mercy: *Show us thy mercy.* 
 
 (b) Of his grace: *Grant us,* etc.
 
-3\.Salvation is God's answer to prayer.
+3\. Salvation is God's answer to prayer.
 
 (a) It is the first object of prayer.
 
@@ -320,7 +320,7 @@ Whose pleasure is in unison with God's."
 
 **Verse 8.** 
 
-1\.We should look for an answer to prayer. Having spoken to God, we should hear what he has to say to us in reply.
+1\. We should look for an answer to prayer. Having spoken to God, we should hear what he has to say to us in reply.
 
 (a) In his word.
 
@@ -328,21 +328,21 @@ Whose pleasure is in unison with God's."
 
 (c) By his Spirit in our own souls.
 
-2\.We should look for an answer of peace: *He will speak peace.* 
+2\. We should look for an answer of peace: *He will speak peace.* 
 
-3\.We should avoid whatever might deprive us of that peace: *But let them not turn,* etc. *G. R.* 
+3\. We should avoid whatever might deprive us of that peace: *But let them not turn,* etc. *G. R.* 
 
 **Verse 8.** *Thomas Goodwin* has three sermons upon this verse, (*First clause* ), entitled The Return of Prayers. (*Second clause* ).—Tidings of Peace. (*Last clause* )—The Folly of Relapsing after Peace spoken.
 
 **Verse 8.** (*last clause* ). They should not turn again to folly,
 
-1\.Because it will be a greater aggravation in sinning. It is made the aggravation of Solomon's sin (1Ki 11:9), that "God had appeared to him twice."
+1\. Because it will be a greater aggravation in sinning. It is made the aggravation of Solomon's sin (1Ki 11:9), that "God had appeared to him twice."
 
-2\.The second reason is intimated in the word *folly:* as if the Lord should have said, Set aside the unkindness and wrong you do to me, yet therein you befool yourselves; you will have the worst of it. *T. Goodwin.* 
+2\. The second reason is intimated in the word *folly:* as if the Lord should have said, Set aside the unkindness and wrong you do to me, yet therein you befool yourselves; you will have the worst of it. *T. Goodwin.* 
 
 **Verse 10.** 
 
-1\.The attributes displayed in man's salvation.
+1\. The attributes displayed in man's salvation.
 
 (a) Mercy in the promise.
 
@@ -352,7 +352,7 @@ Whose pleasure is in unison with God's."
 
 (d) Peace in its results.
 
-2\.These attributes harmonized in man's salvation.
+2\. These attributes harmonized in man's salvation.
 
 (a) How? *Met together—kissed each other.* 
 
@@ -362,15 +362,15 @@ Whose pleasure is in unison with God's."
 
 **Verse 10.** The Pulpit, vol. 28, 1836, contains a sermon by R. W. Sibthorpe, in which the preacher,
 
-1\.Considers the harmony of the divine perfections in the redemption of a sinner.
+1\. Considers the harmony of the divine perfections in the redemption of a sinner.
 
-2\.The wisdom of the divine dealings in *the calling* and guidance of the believer; so that mercy, truth, etc., each becomes in turn conspicuous in our experience.
+2\. The wisdom of the divine dealings in *the calling* and guidance of the believer; so that mercy, truth, etc., each becomes in turn conspicuous in our experience.
 
-3\.The completeness of the divine image *in the sanctified soul*, so that the perfected saint abounds in mercy and truth, is filled with peace, and is conformed to his righteous Lord.
+3\. The completeness of the divine image *in the sanctified soul*, so that the perfected saint abounds in mercy and truth, is filled with peace, and is conformed to his righteous Lord.
 
 **Verse 12.** 
 
-1\.All spiritual good is from God: *The Lord will give*, etc.
+1\. All spiritual good is from God: *The Lord will give*, etc.
 
 (a) Is repentance a good thing? The Lord will give repentance.
 
@@ -388,7 +388,7 @@ Whose pleasure is in unison with God's."
 
 (h) Is eternal glory? *The Lord will give,* etc.
 
-2\.All temporal good is from God. *Our land,* etc.
+2\. All temporal good is from God. *Our land,* etc.
 
 (a) In a lawful manner *our* land.
 
@@ -400,11 +400,11 @@ Whose pleasure is in unison with God's."
 
 **Verse 13.** 
 
-1\.The righteousness by which we are justified long precedes our justification: this righteousness is gone before, etc.
+1\. The righteousness by which we are justified long precedes our justification: this righteousness is gone before, etc.
 
-2\.Our justification by that righteousness precedes our sanctification.
+2\. Our justification by that righteousness precedes our sanctification.
 
-3\.The righteousness of sanctification invariably follows that of justification. *G. R.* 
+3\. The righteousness of sanctification invariably follows that of justification. *G. R.* 
 
 ## Works Upon The Eighty-Fifth Psalm
 

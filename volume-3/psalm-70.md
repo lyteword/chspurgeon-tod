@@ -84,67 +84,67 @@ I will magnify thy matchless grace.
 
 **Verse 1.** 
 
-1\.Occasion of his prayer.
+1\. Occasion of his prayer.
 
 (a) Affliction.
 
 (b) Helplessness.
 
-2\.Subject of his prayer. Deliverance, help.
+2\. Subject of his prayer. Deliverance, help.
 
-3\.Importunity of his prayer. The time of deliverance may be an answer to prayer, as well as deliverance itself.
+3\. Importunity of his prayer. The time of deliverance may be an answer to prayer, as well as deliverance itself.
 
 **Verse 1.** 
 
-1\.Times when such urgent prayer is allowable, praiseworthy, or faulty.
+1\. Times when such urgent prayer is allowable, praiseworthy, or faulty.
 
-2\.Reasons for expecting a speedy reply.
+2\. Reasons for expecting a speedy reply.
 
-3\.Consolations if delay should occur.
+3\. Consolations if delay should occur.
 
 **Verse 2.** 
 
-1\.There are those who seek our soul's hurt.
+1\. There are those who seek our soul's hurt.
 
-2\.We must oppose them, not dally or yield.
+2\. We must oppose them, not dally or yield.
 
-3\.Our best weapon is prayer to God.
+3\. Our best weapon is prayer to God.
 
-4\.Their defeat is here described.
+4\. Their defeat is here described.
 
 **Verse 3.** 
 
-1\.Who are these who cry "shame"?
+1\. Who are these who cry "shame"?
 
-2\.What master do they serve?
+2\. What master do they serve?
 
-3\.What shall their wages be?
+3\. What shall their wages be?
 
 **Verse 4.** Joy for seekers, and employment for finders.
 
 **Verse 4.** (*last clause* ).
 
-1\.The character.
+1\. The character.
 
-2\.The saying.
+2\. The saying.
 
-3\.The wish.
-
-**Verse 5.** 
-
-1\.Who needs help?
-
-2\.Who renders help?
-
-3\.What it comes to: "deliver."
-
-4\.What prayer it suggests.
+3\. The wish.
 
 **Verse 5.** 
 
-1\.Confession! *I am poor and needy.* 
+1\. Who needs help?
 
-2\.Profession: *Thou art my help,* etc.
+2\. Who renders help?
 
-3\.Supplication: *Make haste*; *Make no tarrying.* 
+3\. What it comes to: "deliver."
+
+4\. What prayer it suggests.
+
+**Verse 5.** 
+
+1\. Confession! *I am poor and needy.* 
+
+2\. Profession: *Thou art my help,* etc.
+
+3\. Supplication: *Make haste*; *Make no tarrying.* 
 

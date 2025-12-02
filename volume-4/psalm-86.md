@@ -138,9 +138,9 @@ What bodes good to me shall make them quail and blush. Disappointed and defeated
 
 **Verse 5.** *Plenteous in mercy.* It is a thing marvellously satisfactory and pleasing to the heart of a man to be still taking from a great heap; and upon this ground are those proverbial sayings, There is no fishing like to a fishing in the sea; no service like the service of a king: because in one there is the greatest plenty and abundance of that kind of pleasure that fishers look after; and for them that serve, and must live by their service, there is none like that of princes, because they have abundance of reward and opportunity whereby to recompense the services of those that do wait and attend upon them.... And upon the same ground is it that the Scriptures, in several places, do not only assert and testify that God is merciful and gracious, but abundant in mercy and full of grace; and not simply that there is redemption in him, but *plenteousness* of redemption: Ps 103:8 130:7 Isa 55:7; "Let the wicked forsake his way", etc.; "Let him return unto the Lord and he will have mercy; and unto our God, for lie will abundantly pardon." The commodity which we stand in need of is mercy and the pardon of our sins, in case we have been unholy and ungodly creatures; this commodity is abundantly in God. There it is treasured up as waters are in the store house of the sea; there is no end of the treasures of his grace, mercy, pardon, and compassion. There is no man, being in want, but had ten times rather go to a rich man's door to be relieved, than to the door of a poor man, if he knoweth the rich man to be as liberal and bountifully disposed as the poor man can be.— *John Goodwin.* 
 
-**Verse 6.** Supplications ytwnwxt, *deprecations.* The Psalmist forms a peculiar Hebrew word, feminine plural, not found elsewhere, to convey more impressively the idea of suppliant weakness.— *A.R. Fausset.* 
+**Verse 6.** Supplications ytwnwxt, *deprecations.* The Psalmist forms a peculiar Hebrew word, feminine plural, not found elsewhere, to convey more impressively the idea of suppliant weakness.— *A. R. Fausset.* 
 
-**Verses 8-10.** —There are two kinds of doubt which are wont in the hour of temptation to assail the soul: the doubt as to God's *willingness*, and the doubt as to God's *power* to succour. The first of these the Psalmist has already put from him; he now shows that he has overcome the second. God is able as well as willing to help, and every being on the face of the earth who receives help, receives it from the hand of Him who is the only God, and who shall one day be recognized (so speaks the strong prophetic hope within him, Ps 86:9) as the only God.— *J.J.S. Perowne.* 
+**Verses 8-10.** —There are two kinds of doubt which are wont in the hour of temptation to assail the soul: the doubt as to God's *willingness*, and the doubt as to God's *power* to succour. The first of these the Psalmist has already put from him; he now shows that he has overcome the second. God is able as well as willing to help, and every being on the face of the earth who receives help, receives it from the hand of Him who is the only God, and who shall one day be recognized (so speaks the strong prophetic hope within him, Ps 86:9) as the only God.— *J. J. S. Perowne.* 
 
 **Verses 9-10.** All nations shall worship before thee, because as *King of Nations,* thou art great, thy sovereignty absolute and incontestable, thy Majesty terrible and unsupportable, thy power universal and irresistible, thy riches vast and inexhaustible, thy dominion boundless and unquestionable; and for the proof of this, *thou doest wondrous things*, which all nations admire, and from whence they might easily infer that *thou art God alone*; not only none like thee, but none beside thee.— *Matthew Henry.* 
 
@@ -148,7 +148,7 @@ What bodes good to me shall make them quail and blush. Disappointed and defeated
 
 **Verse 11.** *Teach me.* There is no point on which the world is more dark than that of its own ignorance—we might truly say, "it is ignorant of its ignorance"—it knows enough when it learns by rote a few first principles of religion; it comforts itself that it is not atheistical because it believes that there is a God; but as to knowing his ways, laws, mind, or any such things, with them it has nothing at all to do. The people of the world do not care for enlightenment; they feel no pressing need for it; in all probability they have an instinctive feeling that if enlightened they would know a little more than they wish to know, that their newly acquired knowledge would interfere with their old habits and ways, and this is one reason why all spiritual teaching which goes beneath the surface is distasteful to the majority of men. They cannot bear to be brought into contact with God, in anything but a general way; the particulars of his character may not agree over well with the particulars of their lives! It is the fashion in the present day to talk of man's enlightenment, and to represent human nature as upheaving under its load, as straining towards a knowledge of truth; such is not in reality the case, and whenever there is an effort in the mind untaught of the Spirit, it is directed towards God as the great *moral* and not as the great *spiritual* Being. A man untaught of the Holy Ghost may long to know a *moral,* he can never desire to know a *spiritual* Being.— *John Hyatt,* 1767-1826.
 
-**Verse 11.** *Teach.* The common version of the verb here is too vague, as it fails to bring out the peculiar suitableness of the term to express the kind of teaching here specifically meant. The original meaning of the Hebrew word is *to point out* or *mark* the way.— *J.A. Alexander.* 
+**Verse 11.** *Teach.* The common version of the verb here is too vague, as it fails to bring out the peculiar suitableness of the term to express the kind of teaching here specifically meant. The original meaning of the Hebrew word is *to point out* or *mark* the way.— *J. A. Alexander.* 
 
 **Verse 11.** *I will walk in thy truth.* Conform to Scripture. Let us lead Scripture lives. Oh that the Bible might be seen to be printed in our lives! Do what the Word commands. Obedience is an excellent way of commenting upon the Bible. Let the Word be the sun dial by which you set your life. What are we the better for having the Scriptures, if we do not direct all our speeches and actions according to it? What is a carpenter better for his rule about him, if he sticks it at his back, and never makes use of it for measuring and squaring? So, what are we the better for the rule of the Word, if we do not make use of it, and regulate our lives by it?— *Thomas Watson.* 
 
@@ -276,17 +276,17 @@ Fearful love and loving feare.
 
 **Verse 1.** 
 
-1\.A singular request—that the Lord should bow his ear.
+1\. A singular request—that the Lord should bow his ear.
 
-2\.A singular plea— *"I am poor and needy."* 
+2\. A singular plea— *"I am poor and needy."* 
 
-3\.The singular grace of God will answer the request, because singular grace has made the petitioner feel his need.
+3\. The singular grace of God will answer the request, because singular grace has made the petitioner feel his need.
 
 **Verse 2.** 
 
-1\.The blessing sought is present, spiritual, complete and final preservation.
+1\. The blessing sought is present, spiritual, complete and final preservation.
 
-2\.Our reasons for expecting it are—
+2\. Our reasons for expecting it are—
 
 (a) Our belonging to God— *"I am holy."* 
 
@@ -298,45 +298,45 @@ Fearful love and loving feare.
 
 **Verse 3.** —Importunity.
 
-1\.When she pleads— *"daily."* 
+1\. When she pleads— *"daily."* 
 
-2\.How she pleads— *"I cry."* 
+2\. How she pleads— *"I cry."* 
 
-3\.To whom she pleads— *"unto thee."* 
+3\. To whom she pleads— *"unto thee."* 
 
-4\.For what she pleads— *"be merciful."* 
+4\. For what she pleads— *"be merciful."* 
 
 **Verse 3.** — *I will cry daily* for pardoning, sanctifying, assisting, preserving, providing and guiding mercy.— *William Jay.* 
 
 **Verse 4.** 
 
-1\.The believer's joy is from God— *"Rejoice"*, & c.
+1\. The believer's joy is from God— *"Rejoice"*, & c.
 
-2\.The believer's joy is in God— *"unto thee"*, & c.—G.R.
+2\. The believer's joy is in God— *"unto thee"*, & c.—G. R.
 
 **Verse 4.** 
 
-1\.The great lift.
+1\. The great lift.
 
-2\.The heavy weight— *"my soul".* 
+2\. The heavy weight— *"my soul".* 
 
-3\.The weak worker— *"I lift".* 
+3\. The weak worker— *"I lift".* 
 
-4\.The great height— *"unto thee".* 
+4\. The great height— *"unto thee".* 
 
-5\.The appointed machinery—means of grace; and,
+5\. The appointed machinery—means of grace; and,
 
-6\.The expected aid— *"Rejoice"*, etc.
+6\. The expected aid— *"Rejoice"*, etc.
 
 **Verse 5.** —Encouraging thoughts of God.
 
-1\.He has goodness in his essence.
+1\. He has goodness in his essence.
 
-2\.He has forgiveness in readiness.
+2\. He has forgiveness in readiness.
 
-3\.He has mercy in action, flowing forth from him plenteously.
+3\. He has mercy in action, flowing forth from him plenteously.
 
-4\.His very discrimination is gracious—"all them that call upon him."
+4\. His very discrimination is gracious—"all them that call upon him."
 
 **Verse 6.** The praying man desires above all things an answer. Objections to such an expectation. Grounds for continuing to expect, and duties incumbent upon those who realise such expectations.
 
@@ -344,47 +344,47 @@ Fearful love and loving feare.
 
 **Verse 7.** 
 
-1\.Help needed.
+1\. Help needed.
 
-2\.Help sought.
+2\. Help sought.
 
-3\.Help found.—G.R.
+3\. Help found.—G. R.
 
 **Verse 7.** 
 
-1\.A time to be expected— *"day of my trouble."* 
+1\. A time to be expected— *"day of my trouble."* 
 
-2\.A resolve to be practised— *"I will call upon thee."* 
+2\. A resolve to be practised— *"I will call upon thee."* 
 
-3\.A result to be experienced— *"thou wilt answer me."* 
+3\. A result to be experienced— *"thou wilt answer me."* 
 
 **Verse 7.** —Prayer is the design of trouble, the evidence that it is sanctified, its solace, and the medium of deliverance from it.— *William Jay.* 
 
 **Verse 8.** 
 
-1\.God is one; the only God: characters of false gods inferior far.
+1\. God is one; the only God: characters of false gods inferior far.
 
-2\.His works are unique. Nature, providence, grace, all peculiar in many respects. A good theme for a thoughtful preacher.
+2\. His works are unique. Nature, providence, grace, all peculiar in many respects. A good theme for a thoughtful preacher.
 
 **Verse 9.** The certain conversion of the world as opposed to modern theories.
 
 **Verse 10.** 
 
-1\.God is *"great",* therefore great things may be expected of him.
+1\. God is *"great",* therefore great things may be expected of him.
 
-2\.He is unsearchable, therefore *"wondrous things"* may be expected of him.
+2\. He is unsearchable, therefore *"wondrous things"* may be expected of him.
 
-3\.He is irresistible, therefore impossibihties to others may be expected of him: *"Thou art God alone".* —G.R.
+3\. He is irresistible, therefore impossibihties to others may be expected of him: *"Thou art God alone".* —G. R.
 
 **Verse 11.** In the disposition of mind which is expressed in these words, the believer stands opposed to four descriptions of character.
 
-1\.The ignorant and thoughtless sinner, who neither regards his way nor his end.
+1\. The ignorant and thoughtless sinner, who neither regards his way nor his end.
 
-2\.The Antinomian, who is zealous for doctrines, and averse from the practice of religion.
+2\. The Antinomian, who is zealous for doctrines, and averse from the practice of religion.
 
-3\.The Pharisee, who disregards religious sentiment, and makes practice all in all.
+3\. The Pharisee, who disregards religious sentiment, and makes practice all in all.
 
-4\.The hypocrite, who appears to be divided between religion and the world.— *John Hyatt,* 1811.
+4\. The hypocrite, who appears to be divided between religion and the world.— *John Hyatt,* 1811.
 
 **Verse 11.** The Christian as a scholar, a man of action, and a man of devotion.
 
@@ -398,11 +398,11 @@ Fearful love and loving feare.
 
 **Verse 13.** 
 
-1\.Where I might have been— *"the lowest hell."* 
+1\. Where I might have been— *"the lowest hell."* 
 
-2\.What thou hast done for me— *"hast delivered."* 
+2\. What thou hast done for me— *"hast delivered."* 
 
-3\.What thou art doing— *"great is thy mercy."* 
+3\. What thou art doing— *"great is thy mercy."* 
 
 **Verse 13.** (*first clause* ).—God's mercy *great* in election, redemption, calling, pardon, upholding, etc. It is so, at this very moment, in supplying my needs, preserving from danger, consoling in sorrow, etc. Great is thy mercy *towards me* —so great a sinner, with such needs, so provoking, so full of doubts, etc.
 
@@ -412,13 +412,13 @@ Fearful love and loving feare.
 
 **Verse 16.** 
 
-1\.My pedigree— *"son of thine handmaid."* 
+1\. My pedigree— *"son of thine handmaid."* 
 
-2\.My occupation—"thy servant."
+2\. My occupation—"thy servant."
 
-3\.My character—needing *"mercy."* 
+3\. My character—needing *"mercy."* 
 
-4\.My request *"turn unto me."* 
+4\. My request *"turn unto me."* 
 
 **Verse 16.** In what respects a servant of God may be girt with divine power.
 

@@ -16,4 +16,4 @@ My venerable friend, Mr. George Rogers, has furnished me with many hints for the
 
 There is no need to multiply words in this preface, but it is incumbent upon me to bless the Lord for help given, help daily and hourly sought while I have been occupied in this service; and it is also on my heart to ask a favourable mention of my volumes among their friends from those who kindly appreciate them, 
 
-&ndash; *C.H. Spurgeon*
+&ndash; *C. H. Spurgeon*

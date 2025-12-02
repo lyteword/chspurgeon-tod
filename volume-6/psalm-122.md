@@ -74,9 +74,9 @@ To a true saint the throne is never more amiable than in its judicial capacity; 
 
 **Verse 1.** *I was glad when they said unto me, Let us (or, We will) go,* etc. You have here,
 
-1\.David's delight.
+1\. David's delight.
 
-2\.The object or reason of it.
+2\. The object or reason of it.
 
 In the object there are circumstances enough to raise his joy to the highest note.
 
@@ -160,23 +160,23 @@ Catch the glad sounds, and shout "Jerusalem, all hail."
 
 **Whole Psalm.** Observe,
 
-1\.The joy with which they were to go up to Jerusalem: Ps 122:1-2.
+1\. The joy with which they were to go up to Jerusalem: Ps 122:1-2.
 
-2\.The great esteem they were to have of Jerusalem: Ps 122:3-5.
+2\. The great esteem they were to have of Jerusalem: Ps 122:3-5.
 
-3\.The great concern they were to have for Jerusalem, and the prayers they were to put up for its welfare. *M. Henry.* 
-
-**Verse 1.** 
-
-1\.David was glad to go to the house of the Lord. It was the house of the Lord therefore he desired to go. He preferred it to his own house.
-
-2\.He was glad when others said to him, "Let us go." The distance may be great, the weather may be rough, still, "Let us go."
-
-3\.He was glad to say it to others, "Let us go, "and to persuade others to accompany him. *G. R.* 
+3\. The great concern they were to have for Jerusalem, and the prayers they were to put up for its welfare. *M. Henry.* 
 
 **Verse 1.** 
 
-1\.Joy in prospect of religious worship.
+1\. David was glad to go to the house of the Lord. It was the house of the Lord therefore he desired to go. He preferred it to his own house.
+
+2\. He was glad when others said to him, "Let us go." The distance may be great, the weather may be rough, still, "Let us go."
+
+3\. He was glad to say it to others, "Let us go, "and to persuade others to accompany him. *G. R.* 
+
+**Verse 1.** 
+
+1\. Joy in prospect of religious worship.
 
 a) Because of the instruction we receive.
 
@@ -186,23 +186,23 @@ c) Because of the society in which we mingle.
 
 d) Because of the sacred interests we promote.
 
-2\.Joy in the invitation to religious worship.
+2\. Joy in the invitation to religious worship.
 
 a) Because it shows others are interested in the service of God.
 
 b) Because it shows their interest in us.
 
-c) Because it furthers the interests of Zion. *F.J.B.* 
+c) Because it furthers the interests of Zion. *F. J. B.* 
 
 **Verse 1.** Gladness of God's house. Are you "glad when, "etc.? Why glad?
 
-1\.That I have a house of the Lord to which I may go.
+1\. That I have a house of the Lord to which I may go.
 
-2\.That any feel enough interest in me to say, "Let us go, " etc.
+2\. That any feel enough interest in me to say, "Let us go, " etc.
 
-3\.That I am able to go to God's house.
+3\. That I am able to go to God's house.
 
-4\.That I am disposed to go.
+4\. That I am disposed to go.
 
 —J. G. Butler, in "The Preacher's Monthly, "1882.
 
@@ -212,29 +212,29 @@ c) Because it furthers the interests of Zion. *F.J.B.*
 
 2\. *The adhesive Christian, who is glad to be invited to God's spiritual house.* Church is builded together, etc. There would he find a settled rest. Has no sympathies with religious gipsies, or no church people.
 
-3\.The *dying saint, who is glad to be invited to God's heavenly house.* Simeon—Stephen—Peter—Paul. *W. J.* 
+3\. The *dying saint, who is glad to be invited to God's heavenly house.* Simeon—Stephen—Peter—Paul. *W. J.* 
 
 **Verse 1.** 
 
-1\.The duty of attending the services of God's house.
+1\. The duty of attending the services of God's house.
 
-2\.The duty of exciting one another to go.
+2\. The duty of exciting one another to go.
 
-3\.The benefit of being thus excited. *F.J.B.* 
+3\. The benefit of being thus excited. *F. J. B.* 
 
 **Verse 2.** Here is,
 
-1\.Personal attendance: " *My* feet shall stand," etc.
+1\. Personal attendance: " *My* feet shall stand," etc.
 
-2\.Personal security: "My feet shall *stand.* "
+2\. Personal security: "My feet shall *stand.* "
 
-3\.Personal fellowship: "O Jerusalem." *G. R.* 
+3\. Personal fellowship: "O Jerusalem." *G. R.* 
 
 **Verse 2.** The inside of the church. The honour, privilege, joy, and fellowship of standing there.
 
 **Verse 3.** 
 
-1\.A type of the New Jerusalem.
+1\. A type of the New Jerusalem.
 
 a) As chosen by God.
 
@@ -242,33 +242,33 @@ b) As founded upon a rock.
 
 c) As taken from an enemy.
 
-2\.A type of its prosperity: "Builded as a city."
+2\. A type of its prosperity: "Builded as a city."
 
-3\.A type of its perfection: "Compact together." *G. R.* 
+3\. A type of its perfection: "Compact together." *G. R.* 
 
 **Verse 3.** The unity of the church.
 
-1\.Implied in all covenant dealings.
+1\. Implied in all covenant dealings.
 
-2\.Suggested by all Scriptural metaphors.
+2\. Suggested by all Scriptural metaphors.
 
-3\.Prayed for by our Lord.
+3\. Prayed for by our Lord.
 
-4\.Promoted by the gifts of the Spirit.
+4\. Promoted by the gifts of the Spirit.
 
-5\.To be maintained by us all.
+5\. To be maintained by us all.
 
 **Verses 3-4.** The united church the growing church.
 
 **Verse 4.** 
 
-1\.The duty of public worship.
+1\. The duty of public worship.
 
 a) In one place: " *Whither* the tribes go up."
 
 b) In one company, though of many tribes: "Whither the *tribes* go up."
 
-2\.The design.
+2\. The design.
 
 a) For instruction: "Unto the testimony of Israel."
 
@@ -276,7 +276,7 @@ b) For praise: "To give thanks unto the name of the Lord." *G. R.*
 
 **Verse 5.** 
 
-1\.There are thrones of judgment in the sanctuary. Men are judged there.
+1\. There are thrones of judgment in the sanctuary. Men are judged there.
 
 a) By the law.
 
@@ -284,21 +284,21 @@ b) By their own consciences.
 
 c) By the gospel.
 
-2\.There are thrones of grace: "Of the house of David."
+2\. There are thrones of grace: "Of the house of David."
 
 a) Of David's Son in the hearts of his people.
 
-b) Of his people in David's Son. *G.R.* 
+b) Of his people in David's Son. *G. R.* 
 
 **Verse 6.** 
 
-1\.The prayer,
+1\. The prayer,
 
 a) "For Jerusalem": not for ourselves merely, or for the world; but for the church. For the babes in grace; for the young men, and for the fathers. For the pastors, with the deacons and elders.
 
 b) For the "peace" of Jerusalem. Inward peace and outward peace.
 
-2\.The promise.
+2\. The promise.
 
 a) To whom given: "They that love thee."
 
@@ -306,17 +306,17 @@ b) The promise itself: "They shall prosper"—individually and collectively.
 
 Or,
 
-1\.Love to Jerusalem is the effect of true piety.
+1\. Love to Jerusalem is the effect of true piety.
 
-2\.Prayer for Jerusalem is the effect of that love.
+2\. Prayer for Jerusalem is the effect of that love.
 
-3\.The peace of Jerusalem is the effect of that prayer; and,
+3\. The peace of Jerusalem is the effect of that prayer; and,
 
-4\.The prosperity of Jerusalem is the effect of that peace. *G.R.* 
+4\. The prosperity of Jerusalem is the effect of that peace. *G. R.* 
 
 **Verse 6.** God has connected giving and receiving, scattering and increasing, sowing and reaping, praying and prospering.
 
-1\.What we must do if we would prosper—"Pray for the peace of Jerusalem."
+1\. What we must do if we would prosper—"Pray for the peace of Jerusalem."
 
 a) Comprehensively: "Peace"—spiritual, social, ecclesiastical, national.
 
@@ -324,7 +324,7 @@ b) Supremely: "Prefer Jerusalem above, "etc.
 
 c) Practically: "Let peace rule in your hearts." "Seek peace and pursue it."
 
-2\.What we shall gain if we pray thus—"Prosperity."
+2\. What we shall gain if we pray thus—"Prosperity."
 
 a) Temporal prosperity may thus come. God turned again the captivity of Job when he prayed for his friends.
 
@@ -334,13 +334,13 @@ c) Numerical prosperity will thus come. "Increased with men as a flock." *W. J.*
 
 **Verses 6-9.** 
 
-1\.The blessings desired for the church.
+1\. The blessings desired for the church.
 
 a) Peace.
 
 b) Prosperity. Notice the order and connection of these two.
 
-2\.The way to secure them.
+2\. The way to secure them.
 
 a) Prayer: "Pray for the peace of Jerusalem."
 
@@ -348,7 +348,7 @@ b) Delight in the service of God: "I was glad, "etc.
 
 c) Practical effort: "I will seek thy good."
 
-3\.Reasons for seeking them.
+3\. Reasons for seeking them.
 
 a) For our own sake: "They shall prosper," etc.
 
@@ -358,9 +358,9 @@ c) For the sake of the "house of the Lord." *F. J. B.*
 
 **Verse 7.** 
 
-1\.Where peace is most desirable: "Within thy walls." Within town walls, within house walls, but principally within temple walls.
+1\. Where peace is most desirable: "Within thy walls." Within town walls, within house walls, but principally within temple walls.
 
-2\.Where prosperity is most desirable.
+2\. Where prosperity is most desirable.
 
 a) In the closet.
 
@@ -370,41 +370,41 @@ b) In the church. These are the palaces of the Great King; "The ivory palaces wh
 
 **Verse 7.** *Thy walls.* 
 
-1\.Enquire why the church needs walls.
+1\. Enquire why the church needs walls.
 
-2\.Enquire what are the walls of a church.
+2\. Enquire what are the walls of a church.
 
-3\.Enquire on which side of them we are.
+3\. Enquire on which side of them we are.
 
 **Verse 7.** The church a palace.
 
-1\.Intended for the great King.
+1\. Intended for the great King.
 
-2\.Inhabited by the royal family.
+2\. Inhabited by the royal family.
 
-3\.Adorned with regal splendour.
+3\. Adorned with regal splendour.
 
-4\.Guarded by special power.
+4\. Guarded by special power.
 
-5\.Known as the court of the blessed and only potentate.
+5\. Known as the court of the blessed and only potentate.
 
 **Verses 8-9.** Two great principles are here laid down why we should pray for the church,
 
-1\.Love to the brethren: "For my brethren and companions' sakes."
+1\. Love to the brethren: "For my brethren and companions' sakes."
 
-2\.Love to God: "Because of the house of the Lord our God I will seek thy good." *N. M`michael.* 
+2\. Love to God: "Because of the house of the Lord our God I will seek thy good." *N. M`michael.* 
 
 **Verse 9.** *I will seek thy good.* 
 
-1\.By prayer for the church.
+1\. By prayer for the church.
 
-2\.By service in the church.
+2\. By service in the church.
 
-3\.By bringing others to attend.
+3\. By bringing others to attend.
 
-4\.By keeping the peace.
+4\. By keeping the peace.
 
-5\.By living so as to commend religion.
+5\. By living so as to commend religion.
 
 ## Works Upon The Hundred And Twenty-Second Psalm
 

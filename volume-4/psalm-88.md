@@ -102,25 +102,25 @@ Tell to thy Lord thy fears."
 
 **Title &mdash;** *Mahalath Leannoth* I lean to the idea, that the words *Mahalath Leannoth,* are intended to denote some musical instrument of the plaintive order, and in this opinion *Kimchi* and other Jewish writers perfectly agree. They assert that it was a wind instrument, answering very much to the flute, and employed mainly in giving utterance to sentiments of grief, upon occasions of great sorrow and lamentation. With this view of the title, I should look for no new translation, but should just read it substantially as our translators here: "A Song or Psalm for the sons of Korah", to the giver of victory, upon Mahalath Leannoth, an instruction for Heman, the Ezrahite.— *John Morison.* 
 
-**Title &mdash;** *Leannoth* is variously rendered, according as it is derived from hne, *anah, to suffer, be afflicted,* or from hne *anah, to chant, sing.* Gesenius, De Wette, Dr. Davies, and others take the latter view; while Mudge, Hengtenberg, Alexander, and others take the former. Mudge translates, *to create dejection;* Alexander renders, *mahalath leannoth, concerning afflictive sickness;* Hengstenberg reads, *upon the distress of oppression.* The Septuagint (apokriyhnai) and the Vulgate (*respondendum*) indicate a *responsive* song, and Houbigant translates the words in question, *for the choirs, that they may answer.* Many etymologists consider the primary idea of hne, *anah, to sing,* that of *answering.* The tone of the Psalm in question, however, being decidedly that of *sadness and dejection,* it appears more probable that *leannoth* denotes the strictly elegiac character of the performance, and the whole title may read therefore, "A Song or Psalm, for the sons of Korah, to the chief musician, upon the flutes (or the hollow instruments,)to afflict (or cause dejection,)a didactic Psalm of Heman, the Ezrahite."— *F.G. Hibbard, in "The Psalms chronologically arranged, with Historical Introductions." New York, 1856.* 
+**Title &mdash;** *Leannoth* is variously rendered, according as it is derived from hne, *anah, to suffer, be afflicted,* or from hne *anah, to chant, sing.* Gesenius, De Wette, Dr. Davies, and others take the latter view; while Mudge, Hengtenberg, Alexander, and others take the former. Mudge translates, *to create dejection;* Alexander renders, *mahalath leannoth, concerning afflictive sickness;* Hengstenberg reads, *upon the distress of oppression.* The Septuagint (apokriyhnai) and the Vulgate (*respondendum*) indicate a *responsive* song, and Houbigant translates the words in question, *for the choirs, that they may answer.* Many etymologists consider the primary idea of hne, *anah, to sing,* that of *answering.* The tone of the Psalm in question, however, being decidedly that of *sadness and dejection,* it appears more probable that *leannoth* denotes the strictly elegiac character of the performance, and the whole title may read therefore, "A Song or Psalm, for the sons of Korah, to the chief musician, upon the flutes (or the hollow instruments,)to afflict (or cause dejection,)a didactic Psalm of Heman, the Ezrahite."— *F. G. Hibbard, in "The Psalms chronologically arranged, with Historical Introductions." New York, 1856.* 
 
-**Title &mdash;** The explanation:—to be performed mournfully with subdued voice, agrees with the mournful contents, whose tone is even more gloomy than that of Ps 77:1-20.— *From "The Psalms, by C.B. Moll." (Lange's Series of Commentaries.* )
+**Title &mdash;** The explanation:—to be performed mournfully with subdued voice, agrees with the mournful contents, whose tone is even more gloomy than that of Ps 77:1-20.— *From "The Psalms, by C. B. Moll." (Lange's Series of Commentaries.* )
 
 **Title &mdash;** — *Heman.* 
 
-1\.David was not the only man acquainted with sad exercise and affliction of spirit, for here is another, to wit, *Heman the Ezrahite,* as deep in trouble of spirit as he or any other beside.
+1\. David was not the only man acquainted with sad exercise and affliction of spirit, for here is another, to wit, *Heman the Ezrahite,* as deep in trouble of spirit as he or any other beside.
 
-2\.They are not all men of weak minds and shallow wit who are acquainted with trouble of spirit, and borne down with the sense of God's wrath; for here is *Heman,* one amongst the wisest of all Israel, (and inferior to none for wisdom, except to Solomon alone), under the heaviest exercise we can imagine possible for a saint.
+2\. They are not all men of weak minds and shallow wit who are acquainted with trouble of spirit, and borne down with the sense of God's wrath; for here is *Heman,* one amongst the wisest of all Israel, (and inferior to none for wisdom, except to Solomon alone), under the heaviest exercise we can imagine possible for a saint.
 
-3\.When it pleaseth God to exercise a man of parts, of great gifts and graces, he can make his burden proportionable to his strength, and give him as much to do with the difficulties he puts him to, as a weaker man shall find in his exercise, as appeareth in the experience of *Heman.* 
+3\. When it pleaseth God to exercise a man of parts, of great gifts and graces, he can make his burden proportionable to his strength, and give him as much to do with the difficulties he puts him to, as a weaker man shall find in his exercise, as appeareth in the experience of *Heman.* 
 
-4\.Wise men in their trouble must take the same course with the simpler sort of men; that is, they must run to God as others do, and seek relief only in his grace, who as he distributeth the measures of trouble, can also give comfort, ease, and deliverance from them, as the practice of *Heman* doth teach us.
+4\. Wise men in their trouble must take the same course with the simpler sort of men; that is, they must run to God as others do, and seek relief only in his grace, who as he distributeth the measures of trouble, can also give comfort, ease, and deliverance from them, as the practice of *Heman* doth teach us.
 
-5\.What trouble of wounded spirit some of God's children have felt in former times, others dear to God may find the like in after ages, and all men ought to prepare for the like, and should not think the exercise strange when it cometh, but must comfort themselves in this, that other saints whose refines are recorded in Scripture, have been under like affliction; for the Psalm is appointed "to give instruction"; it is *Maschil of Heman.* 
+5\. What trouble of wounded spirit some of God's children have felt in former times, others dear to God may find the like in after ages, and all men ought to prepare for the like, and should not think the exercise strange when it cometh, but must comfort themselves in this, that other saints whose refines are recorded in Scripture, have been under like affliction; for the Psalm is appointed "to give instruction"; it is *Maschil of Heman.* 
 
-6\.What is at one time matter of mourning to one of God's children, may become matter of joy and singing afterward, both to himself and to others, as this sad anguish of spirit in *Heman* is made a song of joy unto God's glory, and the comfort of all afflicted souls, labouring under the sense of sin and felt wrath of God, unto the world's end; it is *A Song, a Psalm for the sons of Korah.* 
+6\. What is at one time matter of mourning to one of God's children, may become matter of joy and singing afterward, both to himself and to others, as this sad anguish of spirit in *Heman* is made a song of joy unto God's glory, and the comfort of all afflicted souls, labouring under the sense of sin and felt wrath of God, unto the world's end; it is *A Song, a Psalm for the sons of Korah.* 
 
-7\.Such as are most heartily afflicted in spirit, and do flee to God for reconciliation and consolation through Christ, have no reason to suspect themselves, that they are not esteemed of and loved as dear children, because they feel so much of God's wrath: for here is a saint who hath drunken of that cup (as deep as any who shall read this Psalm,)here is one so much loved and honoured of God, as to be a penman of Holy Scripture, and a pattern of faith and patience unto others; even *Heman the Ezrahite.* — *David Dickson.* 
+7\. Such as are most heartily afflicted in spirit, and do flee to God for reconciliation and consolation through Christ, have no reason to suspect themselves, that they are not esteemed of and loved as dear children, because they feel so much of God's wrath: for here is a saint who hath drunken of that cup (as deep as any who shall read this Psalm,)here is one so much loved and honoured of God, as to be a penman of Holy Scripture, and a pattern of faith and patience unto others; even *Heman the Ezrahite.* — *David Dickson.* 
 
 **Whole Psalm.** "We have in this Psalm the voice of our suffering Redeemer", says Horne; and the contents may be thus briefly stated—
 
@@ -152,11 +152,11 @@ Hengstenberg renders the last clause of this verse more literally—"The dark ki
 
 **Whole Psalm.** All the misery and sorrow which are described in this Psalm, says Brentius, have been the lot of Christ's people. We may therefore take the Psalm, he adds, to be common to Christ and his church.— *W. Wilson.* 
 
-**Verse 1.** *My* That little word "my" opens for a moment a space between the clouds through which the Sun of righteousness casts one solitary beam. Generally speaking, you will find that when the Psalm begins with lamentation, it ends with praise; like the sun, which, rising in clouds and mist, sets brightly, and darts forth its parting rays just before it goes down. But here the first gleam shoots across the sky just as the sun rises, and no sooner has the ray appeared, than thick clouds and darkness gather over it; the sun continues its course throughout the whole day enveloped in clouds; and sets at last in a thicker bank of them than it ever had around it during the day. "Lover and friend hast thou put far from me, and mine acquaintance into darkness." In what a dark cloud does the sun of Heman set!— *J.C. Philpot.* 
+**Verse 1.** *My* That little word "my" opens for a moment a space between the clouds through which the Sun of righteousness casts one solitary beam. Generally speaking, you will find that when the Psalm begins with lamentation, it ends with praise; like the sun, which, rising in clouds and mist, sets brightly, and darts forth its parting rays just before it goes down. But here the first gleam shoots across the sky just as the sun rises, and no sooner has the ray appeared, than thick clouds and darkness gather over it; the sun continues its course throughout the whole day enveloped in clouds; and sets at last in a thicker bank of them than it ever had around it during the day. "Lover and friend hast thou put far from me, and mine acquaintance into darkness." In what a dark cloud does the sun of Heman set!— *J. C. Philpot.* 
 
 **Verse 1.** *Before thee.* He had not recklessly poured forth his complaints, or cast them to the winds, as many are wont to do, who have no hope in their calamities; but he had always mingled with his complaining prayers for obtaining deliverance, and had directed them to God, where faith assured him his prayers would be seen again. This must be attentively noted, since herein is seen of what kind the complaints of the saints are.— *Mollerus.* 
 
-**Verse 1.** *Before thee.* Other men seek some hiding place where they may murmur against God, but the Psalmist comes into the Lord's presence and states his grievances. When a man dares to pour out his complaint before the Lord's own face, his woes are real, and not the result of petulence or a rebellious spirit.— *C.H.S.* 
+**Verse 1.** *Before thee.* Other men seek some hiding place where they may murmur against God, but the Psalmist comes into the Lord's presence and states his grievances. When a man dares to pour out his complaint before the Lord's own face, his woes are real, and not the result of petulence or a rebellious spirit.— *C. H. S.* 
 
 **Verses 1-2.** Before thee. Not seeking to be seen by human eye, but by God alone, therefore, *let my prayer come before thee*, that is, let it be acceptable before thee, after the similitude of ambassadors who are admitted to audience; and when my prayer has entered *incline thine tar unto my cry*, because thou hearest the desire of the afflicted.— *Richardus Hampolus.* 
 
@@ -180,7 +180,7 @@ Hear with what heavenly calmness and sweet comforts Master Peacock's heart was r
 
 **Verse 4.** *I am counted with them that go down into the pit.* Next to the troubles of Christ's soul, are mentioned the disgrace and ignominy to which he submitted: He who was the fountain of immortality, from whom no one could take his life, who could in a moment have commanded twelve legions of angels to his aid, or have caused heaven and earth, at a word speaking, to fly away before him, he *was counted among them that go down into the pit;* he died, to all appearance, like the rest of mankind, nay, he was forcibly put to death, as a malefactor; and seemed, in the hands of his executioners, *as a man that had no strength,* no power, or might, to help and save himself. His strength went from him; he became weak, and like another man. The people shook their heads at him, saying, "He saved others, himself he cannot save."— *Samuel Burder.* 
 
-**Verse 4.** There is in the original an antithesis, which cannot be conveyed by mere translation, arising from the fact that the first word for man is one implying strength.— *J.A. Alexander.* 
+**Verse 4.** There is in the original an antithesis, which cannot be conveyed by mere translation, arising from the fact that the first word for man is one implying strength.— *J. A. Alexander.* 
 
 **Verse 5.** *Free among the dead.* In the former verse he had said that he had approached very near to death, now he is plainly dead: there he was about to be buried, here he is laid in the sepulchre: thus had his sufferings increased. *Free* is to be understood of the affairs of this life, as when it is said, Job 3:19, "And the servant is free from his master."— *Martin Bucer, 1491-1551.* 
 
@@ -204,7 +204,7 @@ And O my God, my spirit sometimes faints beneath a nameless dread that this lone
 
 **Verse 8.** *Thou hast put away mine acquaintance.* This tempest of afflictions is all the heavier, because, First, all my acquaintance departed far from me, like swallows in winter time: Pr 14:20. *The poor is hated even of his own neighbour, but, but the rich hath many friends.* Seneca wisely admonishes: *Flies follow honey, wolves corpses, ants food, the mob follows the pay, not the man.* Job said, (Job 19:13), He hath put my brethren far from me, and mine acquaintance are verily estranged from me. My kinsfolk have failed, and my familiar friends have forgotten me. Secondly, not only do they often depart from the afflicted, but they themselves add to his trouble, and precipitate his falling fortune. A rich man beginning to fall is held up by his friends; but a poor man being down, is thrust away by those who once pretended to love him.— *Le Blanc.* 
 
-**Verse 8.** *Thou hast made me an abomination unto them: lit*, "abominations", as if I were one great mass of abominations. (Ge 46:34 43:32). As Israel was an abomination to the Egyptians, so Messiah, the antitypical Israel, was to the world.— *A.R. Fausset.* 
+**Verse 8.** *Thou hast made me an abomination unto them: lit*, "abominations", as if I were one great mass of abominations. (Ge 46:34 43:32). As Israel was an abomination to the Egyptians, so Messiah, the antitypical Israel, was to the world.— *A. R. Fausset.* 
 
 **Verse 8.** *An abomination.* As one who is unclean,—excluded from social intercourse; Ge 46:34. Compare Job 9:31 19:19 30:10. *"I cannot come forth."* The man suspected of leprosy was "shut up seven days"; Le 13:4.— *William Kay.* 
 
@@ -220,27 +220,27 @@ Nor my sad eyes to pine with constant tears Could cease.
 
 **Verse 10.** He assures himself God would not fail to comfort him before he died; and again, that the Lord would rather miraculously raise him from the dead, than not glorify himself in his deliverance: and in this also he taketh a safe course, for he seeks for what he might expect, rather in an ordinary way, than by looking for miracles.— *David Dickson.* 
 
-**Verse 10.** *Shall the dead arise and praise thee?* So far from this being an argument against the resurrection, it is Messiah's own most powerful plea for it—that otherwise man would be deprived of salvation, and God of the praise which the redeemed shall give for it to all eternity. Thou canst not show wonders to the dead as such; for "God is not the God of the dead, but of the living." (Mt 22:32.) Or even if thou wert to show thy wonders, it is only by their rising to life again that they can duly praise thee for them.— *A.R. Fausset.* 
+**Verse 10.** *Shall the dead arise and praise thee?* So far from this being an argument against the resurrection, it is Messiah's own most powerful plea for it—that otherwise man would be deprived of salvation, and God of the praise which the redeemed shall give for it to all eternity. Thou canst not show wonders to the dead as such; for "God is not the God of the dead, but of the living." (Mt 22:32.) Or even if thou wert to show thy wonders, it is only by their rising to life again that they can duly praise thee for them.— *A. R. Fausset.* 
 
 **Verse 10.** *The dead.* The word comes from a root which expresses what is weak and languid, and at the same time stretched out and long extended, and which can accordingly be employed to describe the shadowy forms of the under world as well as the giants and heroes of the olden time.— *Carl Bernhard Moll, in Lange's Commentary.* 
 
-**Verse 10.** *The dead.* An attentive consideration seems to leave little room for doubt that the dead were called Rephaim (as Gesenius also hints) from some notion of Scheol being the residence of the fallen spirits or buried giants.— *F.W. Farrar, in Smith's Dictionary of the Bible.* 
+**Verse 10.** *The dead.* An attentive consideration seems to leave little room for doubt that the dead were called Rephaim (as Gesenius also hints) from some notion of Scheol being the residence of the fallen spirits or buried giants.— *F. W. Farrar, in Smith's Dictionary of the Bible.* 
 
 **Verses 10-11.** Can my soul ever come to think I shall live in thy favour, in thy free grace and lovingkindness, to be justified by it, to apprehend myself a living man, and all my sins forgiven? To do this, saith he, is as great a wonder as to raise a man up from death to life; therefore he useth that expression, *Wilt thou shew wonders to the dead?* He calleth it a wonder; for of all works else, you shall find in Scripture the resurrection from the dead counted the greatest wonder. The phrase in Ps 88:10, as the Septuagint translates it, is exceeding emphatic. Saith he, "Wilt thou shew wonders to the dead? Shall the physicians arise and praise thee?" So they read it, and so some good Hebrecians read it also; that is, Go send for all the college of physicians, all the angels out of heaven, all the skilful ministers and prophets that were then upon the earth, Gad and David, for he lived in David's time; send for them all. All these physicians may come with their cordials and balms; they will never cure me, never heal my soul, never raise me up to life again, except thou raise me; for I am "free among the dead", saith he. Now then, to work faith in such a one; for this poor soul, being thus dead, to go out of himself, and by naked and sheer faith to go to Jesus Christ alone, whom God raised from the dead, and to believe on him alone; this is now as great a power as indeed to raise a man up from death to life.— *Thomas Goodwin.* 
 
-**Verses 10-12.** In these verses we find mention made of four things on the part of God: "wonders", "lovingkindness", "faithfulness", and "righteousness". These were four attributes of the blessed Jehovah which the eyes of Heman had been opened to see, and which the heart of Heman had been wrought upon to feel. But he comes, by divine teaching, into a spot where these attributes seem to be completely lost to him; and yet, (so mysterious are the ways of God!) that spot was made the very place where those attributes were more powerfully displayed, and made more deeply and experimentally known to his soul. The Lord led the blind by a way that he knew not into these spots of experience, that in them he might more fully open up to him those attributes of which he had already gained a glimpse; but the Lord brought him in such a mysterious way, that all his former knowledge was baffled. He therefore puts up this inquiry to the Lord, how it was possible that in those spots where he now was, these attributes could be displayed or made known? He begins— *Wilt thou shew wonders to the dead?* He is speaking here of his own experience; *he* is that "dead" person to whom those "wonders" are to be shown. And being in that state of experience, he considered that every act of mercy shown to him where he then was, must be a "wonder". *Shall the dead arise and praise thee?* What! the dark, stupid, cold, barren, helpless soul, that cannot lift up one little finger, that cannot utter one spiritual word, that cannot put forth one gracious desire, that cannot lift up itself a hair's breadth out of the mass that presses it down—"Shall it *arise?* " and more than that, *"praise thee?"* What! can lamentation ever be turned into praise. Can complaint ever be changed into thanksgiving? Can the mourner ever shout and sing? Oh, it is a wonder of wonders, if "the dead" are to "arise", if "the dead" are to "praise thee"; if the dead are to stand upon their feet, and shout victory through thy blood!— *J.C. Philpot.* 
+**Verses 10-12.** In these verses we find mention made of four things on the part of God: "wonders", "lovingkindness", "faithfulness", and "righteousness". These were four attributes of the blessed Jehovah which the eyes of Heman had been opened to see, and which the heart of Heman had been wrought upon to feel. But he comes, by divine teaching, into a spot where these attributes seem to be completely lost to him; and yet, (so mysterious are the ways of God!) that spot was made the very place where those attributes were more powerfully displayed, and made more deeply and experimentally known to his soul. The Lord led the blind by a way that he knew not into these spots of experience, that in them he might more fully open up to him those attributes of which he had already gained a glimpse; but the Lord brought him in such a mysterious way, that all his former knowledge was baffled. He therefore puts up this inquiry to the Lord, how it was possible that in those spots where he now was, these attributes could be displayed or made known? He begins— *Wilt thou shew wonders to the dead?* He is speaking here of his own experience; *he* is that "dead" person to whom those "wonders" are to be shown. And being in that state of experience, he considered that every act of mercy shown to him where he then was, must be a "wonder". *Shall the dead arise and praise thee?* What! the dark, stupid, cold, barren, helpless soul, that cannot lift up one little finger, that cannot utter one spiritual word, that cannot put forth one gracious desire, that cannot lift up itself a hair's breadth out of the mass that presses it down—"Shall it *arise?* " and more than that, *"praise thee?"* What! can lamentation ever be turned into praise. Can complaint ever be changed into thanksgiving? Can the mourner ever shout and sing? Oh, it is a wonder of wonders, if "the dead" are to "arise", if "the dead" are to "praise thee"; if the dead are to stand upon their feet, and shout victory through thy blood!— *J. C. Philpot.* 
 
-**Verse 11.** *In the grave.* Here is a striking figure of what a living soul feels under the manifestations of the deep corruptions of his heart. All his good words, once so esteemed; and all his good works, once so prized; and all his prayers, and all his faith, and hope, and love, and all the imaginations of his heart, are not merely paralysed and dead, not merely reduced to a state of utter helplessness, but also in soul feeling turned into rottenness and corruption. When we feel this we are spiritually brought where Heman was, when he said, "Shall thy lovingkindness be *declared* in the grave?" What! wilt thou manifest thy love to a stinking corpse? What! is thy love to be shed abroad in a heart full of pollution and putrefaction? Is thy lovingkindness to come forth from thy glorious sanctuary, where thou sittest enthroned in majesty, and holiness, and purity,—is it to leave that eternal abode of ineffable light and glory, and enter into the dark, polluted, and loathsome "grave"? What! is thy lovingkindness to come out of the sanctuary into the charnel house? Shall it be "declared" *there* —revealed there—spoken there—manifested there—made known there? For nothing else but the *declaration* of it there will do. He does not say, "Shall thy lovingkindness be declared in the Scriptures?" "Shall thy lovingkindness be declared in Christ?"..."Shall thy lovingkindness be declared by the mouth of ministers?" "Shall thy lovingkindness be declared in holy and pure hearts?"—but he says, "Shall thy lovingkindness be *declared* ", uttered, spoken, revealed, manifested, "in the *grave?* " where everything is contrary to it, where everything is unworthy of it,—the last of all places fit for the lovingkindness of an all pure God to enter.— *J.C. Philpot.* 
+**Verse 11.** *In the grave.* Here is a striking figure of what a living soul feels under the manifestations of the deep corruptions of his heart. All his good words, once so esteemed; and all his good works, once so prized; and all his prayers, and all his faith, and hope, and love, and all the imaginations of his heart, are not merely paralysed and dead, not merely reduced to a state of utter helplessness, but also in soul feeling turned into rottenness and corruption. When we feel this we are spiritually brought where Heman was, when he said, "Shall thy lovingkindness be *declared* in the grave?" What! wilt thou manifest thy love to a stinking corpse? What! is thy love to be shed abroad in a heart full of pollution and putrefaction? Is thy lovingkindness to come forth from thy glorious sanctuary, where thou sittest enthroned in majesty, and holiness, and purity,—is it to leave that eternal abode of ineffable light and glory, and enter into the dark, polluted, and loathsome "grave"? What! is thy lovingkindness to come out of the sanctuary into the charnel house? Shall it be "declared" *there* —revealed there—spoken there—manifested there—made known there? For nothing else but the *declaration* of it there will do. He does not say, "Shall thy lovingkindness be declared in the Scriptures?" "Shall thy lovingkindness be declared in Christ?"..."Shall thy lovingkindness be declared by the mouth of ministers?" "Shall thy lovingkindness be declared in holy and pure hearts?"—but he says, "Shall thy lovingkindness be *declared* ", uttered, spoken, revealed, manifested, "in the *grave?* " where everything is contrary to it, where everything is unworthy of it,—the last of all places fit for the lovingkindness of an all pure God to enter.— *J. C. Philpot.* 
 
-**Verse 11.** *Thy faithfulness in destruction.* You will see God's faithfulness to have been manifested most,—in destruction. You will see God's faithfulness to his covenant most clearly evidenced in destroying your false religion, in order to set up his own kingdom in your soul; in destroying everything which alienated and drew away your affections from him, that he alone might be enshrined in your hearts; and you will say, when the Lord leads you to look at the path he has led you, in after years, "Of all God's mercies his greatest have been those that seemed at the time to be the greatest miseries; the richest blessings which he has given us, are those which came wrapped up in the outside covering of curses; and his faithfulness has been as much or more manifested in destruction, than in restoration."— *J.C. Philpot.* 
+**Verse 11.** *Thy faithfulness in destruction.* You will see God's faithfulness to have been manifested most,—in destruction. You will see God's faithfulness to his covenant most clearly evidenced in destroying your false religion, in order to set up his own kingdom in your soul; in destroying everything which alienated and drew away your affections from him, that he alone might be enshrined in your hearts; and you will say, when the Lord leads you to look at the path he has led you, in after years, "Of all God's mercies his greatest have been those that seemed at the time to be the greatest miseries; the richest blessings which he has given us, are those which came wrapped up in the outside covering of curses; and his faithfulness has been as much or more manifested in destruction, than in restoration."— *J. C. Philpot.* 
 
-**Verse 11.** —It is not by leaving man in the "destruction" which sin and death produce, that God will declare his "faithfulness" to his promises which have flowed out of his "lovingkindness"; for instance, his promise that the woman's seed should bruise the serpent's head (Ge 13:15 and Ho 13:14).— *A.R. Faussett.* 
+**Verse 11.** —It is not by leaving man in the "destruction" which sin and death produce, that God will declare his "faithfulness" to his promises which have flowed out of his "lovingkindness"; for instance, his promise that the woman's seed should bruise the serpent's head (Ge 13:15 and Ho 13:14).— *A. R. Faussett.* 
 
-**Verse 12.** *Wilt thou show thy righteousness in the land of forgetfulness?* where I have forgotten thee, where I turned aside from thee, where I have let slip out of my memory all thy previous dealings with me—and shall thy righteousness be manifested even there? Wilt thou prove thine equity in showing forth mercy, because for me a sacrifice has been offered, thy righteousness running parallel with the atoning stream of Christ's blood? When I have forgotten thee and forsaken thee, and turned my back upon thee, can thy righteousness be there manifested? What! righteousness running side by side with mercy! and righteousness still preserving all its unbending strictness, because this very backsliding of heart, this very forgetfulness of soul, this very alienation of affection, this very turning my back upon thee, have all been atoned for; and righteousness can be still shown "in the land of forgetfulness", because all my sins committed in the land of forgetfulness have been atoned for by redeeming blood!— *J.C. Philpot.* 
+**Verse 12.** *Wilt thou show thy righteousness in the land of forgetfulness?* where I have forgotten thee, where I turned aside from thee, where I have let slip out of my memory all thy previous dealings with me—and shall thy righteousness be manifested even there? Wilt thou prove thine equity in showing forth mercy, because for me a sacrifice has been offered, thy righteousness running parallel with the atoning stream of Christ's blood? When I have forgotten thee and forsaken thee, and turned my back upon thee, can thy righteousness be there manifested? What! righteousness running side by side with mercy! and righteousness still preserving all its unbending strictness, because this very backsliding of heart, this very forgetfulness of soul, this very alienation of affection, this very turning my back upon thee, have all been atoned for; and righteousness can be still shown "in the land of forgetfulness", because all my sins committed in the land of forgetfulness have been atoned for by redeeming blood!— *J. C. Philpot.* 
 
 **Verse 13.** *But*, etc. That "but" seems to come in as an expression of his resolution hitherto, that though these were his apprehensions of his condition, yet he had sought the Lord, and would go on to do the same. Suppose thou findest no relish in the ordinances, yet use them; thou art desperately sick, yet eat still take all that is brought thee, some strength will come of it. Say, Be I damned or saved, hypocrite or no hypocrite, I resolve to go on.— *Thomas Goodwin.* 
 
-**Verse 13.** *In the morning shall my prayer prevent thee.* The morning prayer is the best...In the morning God gave various gifts. First, the manna, Ex 16:13, *And in the morning the dew lay round about the host:* He who is in the camp of God, and bravely fights, receives from God dew and consolation, if in the morning, that is, in the beginning of temptation, he prays. In the evening flesh was given, whence death overtook them, but in another case in the morning the manna was given, whereby life was sustained, until they came into the land of promise. Secondly, the law was given in the morning, Ex 19:16, And it came to pass on the third day in the morning, that there were thunders and lightnings, and a thick cloud upon the mount, and the voice of the trumpet exceeding loud. In morning devotion the thunders of God, that is, his judgments, are more distinctly heard; his lightnings, that is, his divine enlightenments, are best seen; the thick cloud upon the mount, that is, the divine overshadowing of the soul, is perceived; and the voice of the trumpet is best heard, that is, inspiration then with greater force moves the mind. Thirdly, in the morning, very early, the children of Israel went forth from Egypt; for in the middle of the night God smote all the first born in the land of Egypt, Ex 12:29...In the morning pray, and you shall conquer your daily and nightly foes; and the Red Sea itself, that is the place of temptation, shall be to thee a field of glory, of victory and exultation and all things shall go well with thee.— *Le Blanc.* 
+**Verse 13.** *In the morning shall my prayer prevent thee.* The morning prayer is the best... In the morning God gave various gifts. First, the manna, Ex 16:13, *And in the morning the dew lay round about the host:* He who is in the camp of God, and bravely fights, receives from God dew and consolation, if in the morning, that is, in the beginning of temptation, he prays. In the evening flesh was given, whence death overtook them, but in another case in the morning the manna was given, whereby life was sustained, until they came into the land of promise. Secondly, the law was given in the morning, Ex 19:16, And it came to pass on the third day in the morning, that there were thunders and lightnings, and a thick cloud upon the mount, and the voice of the trumpet exceeding loud. In morning devotion the thunders of God, that is, his judgments, are more distinctly heard; his lightnings, that is, his divine enlightenments, are best seen; the thick cloud upon the mount, that is, the divine overshadowing of the soul, is perceived; and the voice of the trumpet is best heard, that is, inspiration then with greater force moves the mind. Thirdly, in the morning, very early, the children of Israel went forth from Egypt; for in the middle of the night God smote all the first born in the land of Egypt, Ex 12:29... In the morning pray, and you shall conquer your daily and nightly foes; and the Red Sea itself, that is the place of temptation, shall be to thee a field of glory, of victory and exultation and all things shall go well with thee.— *Le Blanc.* 
 
 **Verse 13.** *Unto thee have I cried, O Lord.* There is something comitant with the Christian's present darkness of spirit that distinguishes it from the hypocrite's horror; and that is the lively working of grace, which then commonly is very visible, when his peace and former comfort are most questioned by him; the less joy he hath from any present sense of the love of God, the more abounding you shall find him in sorrow for his sin that clouded his joy; the further Christ is gone out of his sight, the more he clings in his love to Christ, and vehemently cries after him in prayer, as we see in Heman here. O the fervent prayers that then are shot from his troubled spirit to heaven, the pangs of affection which are springing after God, and his face and favour! Never did a banished child more desire admittance into his angry father's presence, than he to have the light of God's countenance shine on him, which is now veiled from him.— *William Gurnall.* 
 
@@ -250,7 +250,7 @@ Nor my sad eyes to pine with constant tears Could cease.
 
 **Verse 15.** *I am afflicted and ready to die from my youth up.* How much some suffer! I have seen a child, who at the age of twenty months had probably suffered more bodily pain than the whole congregation of a thousand souls, where its parents worshipped. Asaph seems to have been of a sad heart. Jeremiah lived and died lamenting. Heman seems to have been of the same lot and of the same turn of mind.— *William S. Plumer.* 
 
-**Verse 15.** (*First clause* ). We found the heat more oppressive this day than we had yet experienced it. The hillocks of sand between which we were slowly moving at the usual camel's pace, reflected the sun's rays upon us, till our faces were glowing as if we had been by the side of a furnace... Perhaps it was through this part of the desert of Shur that Hagar wandered, intending to go back to her native country; and it may have been by this way that Joseph carried the young child Jesus when they fled into the land of Egypt. Even in tender infancy the sufferings of the Redeemer began, and he complains, *"I am afflicted and ready to die from my youth up."* Perhaps these scorching beams beat upon his infant brow, and this sand laden breeze dried up his infant lips, while the heat of the curse of God began to melt his heart within. Even in the desert we see the suretyship of Jesus.— *R.M. Macheyne's "Narrative of a Mission of Inquiry to the Jews."* 
+**Verse 15.** (*First clause* ). We found the heat more oppressive this day than we had yet experienced it. The hillocks of sand between which we were slowly moving at the usual camel's pace, reflected the sun's rays upon us, till our faces were glowing as if we had been by the side of a furnace... Perhaps it was through this part of the desert of Shur that Hagar wandered, intending to go back to her native country; and it may have been by this way that Joseph carried the young child Jesus when they fled into the land of Egypt. Even in tender infancy the sufferings of the Redeemer began, and he complains, *"I am afflicted and ready to die from my youth up."* Perhaps these scorching beams beat upon his infant brow, and this sand laden breeze dried up his infant lips, while the heat of the curse of God began to melt his heart within. Even in the desert we see the suretyship of Jesus.— *R. M. Macheyne's "Narrative of a Mission of Inquiry to the Jews."* 
 
 **Verse 15.** *From my youth up.* That is, for a long time;—so long, that the remembrance of it seems to go back to my very childhood. My whole life has been a life of trouble and sorrow, and I have not strength to bear it longer. It may have been literally true that the author of the Psalm had been a man always afflicted; or, this may be the language of strong emotion, meaning that his sufferings had been of so long continuance that they seemed to him to have begun in his very boyhood.— *Albert Barnes.* 
 
@@ -262,7 +262,7 @@ Nor my sad eyes to pine with constant tears Could cease.
 
 **Verse 16.** *Thy fierce wrath goeth over me.* Like a sea of liquid fire; (Ps 42:7)—Heb. "Thy hot *wraths."* LXX (Septuagint) ai orgai sou *—William Kay* 
 
-**Verse 16.** *Thy terrors have cut me off.* In the Hebrew verb the last syllable is repeated for the purpose of putting vehemence into the expression. The word tme signifies, to shut up and press into some narrow place, in order that; one may not breathe or escape...In this sense Gregory Nazianzen in his first oration concerning peace, calls grief (the prison of the heart).— *Mollerus.* 
+**Verse 16.** *Thy terrors have cut me off.* In the Hebrew verb the last syllable is repeated for the purpose of putting vehemence into the expression. The word tme signifies, to shut up and press into some narrow place, in order that; one may not breathe or escape... In this sense Gregory Nazianzen in his first oration concerning peace, calls grief (the prison of the heart).— *Mollerus.* 
 
 **Verse 17.** *Like water*; not merely because it drowns, but because it searches every crevice, goes to the very bottom, and makes its way on all sides when once it obtains an entrance, thus fitly denoting the penetrating force of temptation and trouble.— *Hugo Cardinalis.* 
 
@@ -282,57 +282,57 @@ But these are reflections which must not be dwelt upon. When they begin to grow 
 
 **Verse 1.** 
 
-1\.Confidence in prayer,—"God of my salvation."
+1\. Confidence in prayer,—"God of my salvation."
 
-2\.Earnestness in prayer,—"I have cried."
+2\. Earnestness in prayer,—"I have cried."
 
-3\.Perseverance in prayer,—"Day and night."— *G.R.* 
+3\. Perseverance in prayer,—"Day and night."— *G. R.* 
 
 **Verse 2.** —Prayer as an ambassador.
 
-1\.An audience sought, or the benefit of access.
+1\. An audience sought, or the benefit of access.
 
-2\.Attention entreated, or the blessing of success.
+2\. Attention entreated, or the blessing of success.
 
-3\.The Process explained, or prayer comes and God inclines.
+3\. The Process explained, or prayer comes and God inclines.
 
 **Verse 3.** 
 
-1\.A good man is exposed to inward troubles.
+1\. A good man is exposed to inward troubles.
 
 (a) To soul troubles.
 
 (b) To the soul full of troubles.
 
-2\.To outward troubles. "My life", etc.
+2\. To outward troubles. "My life", etc.
 
 (a) From outward persecutions.
 
 (b) From inward griefs.
 
-3\.To both inward and outward troubles at the same time. "Soul full", etc., " *and* my life", etc.— *G.R.* 
+3\. To both inward and outward troubles at the same time. "Soul full", etc., " *and* my life", etc.— *G. R.* 
 
 **Verse 4.** (*last clause* ).—Conscious weakness, painfully felt, at certain times, in various duties. Intended to keep us humble, to drive us to our knees, and to bring greater glory to God.
 
 **Verses 4-5.** 
 
-1\.The resemblance of the righteous man to the wicked.
+1\. The resemblance of the righteous man to the wicked.
 
 (a) In natural death.
 
 (b) In bodily infirmities.
 
-2\.His difference from them. He is "counted with them" but is not of them.
+2\. His difference from them. He is "counted with them" but is not of them.
 
 (a) He experiences natural death only.
 
 (b) His strength is perfected in weakness.
 
-(c) For him to die is gain.— *G.R.* 
+(c) For him to die is gain.— *G. R.* 
 
 **Verses 6-7.** 
 
-1\.What the afflictions of the people of God appear to be to themselves.
+1\. What the afflictions of the people of God appear to be to themselves.
 
 (a) Extreme,—"laid me in the lowest pit."
 
@@ -344,7 +344,7 @@ But these are reflections which must not be dwelt upon. When they begin to grow 
 
 (e) Exhaustive,—"afflicted with all thy waves."
 
-2\.What they are in reality.
+2\. What they are in reality.
 
 (a) Not extreme but light.
 
@@ -354,23 +354,23 @@ But these are reflections which must not be dwelt upon. When they begin to grow 
 
 (d) Not severe but gentle. Not in anger but in love.
 
-(e) Not exhaustive but partial. Not all thy waves, but a few ripples only. The slight motion in the harbour when there is a boisterous ocean beyond.— *G.R.* 
+(e) Not exhaustive but partial. Not all thy waves, but a few ripples only. The slight motion in the harbour when there is a boisterous ocean beyond.— *G. R.* 
 
 **Verse 8.** (*last clause* ).—This may describe us when despondency is chronic, when trouble is overwhelming, when sickness detains us at home, when we feel restrained in Christian labour, or hampered in prayer.
 
 **Verse 9.** 
 
-1\.Sorrow before God,—"Mine eye", etc.
+1\. Sorrow before God,—"Mine eye", etc.
 
-2\.Prayer to God,—"have called", etc.
+2\. Prayer to God,—"have called", etc.
 
-3\.Waiting for God,—"called daily".
+3\. Waiting for God,—"called daily".
 
-4\.Dependence on God,—"I have stretched", etc. These hands can do nothing without thee.— *G.R.* 
+4\. Dependence on God,—"I have stretched", etc. These hands can do nothing without thee.— *G. R.* 
 
 **Verses 10-12.** 
 
-1\.The supposition.
+1\. The supposition.
 
 (a) That a child of God should be wholly dead.
 
@@ -382,7 +382,7 @@ But these are reflections which must not be dwelt upon. When they begin to grow 
 
 (e) That he should be entirely forgotten, as though he had never existed.
 
-2\.The consequences involved in this supposition.
+2\. The consequences involved in this supposition.
 
 (a) God's wonders to them would cease.
 
@@ -396,29 +396,29 @@ But these are reflections which must not be dwelt upon. When they begin to grow 
 
 (f) His former righteousness to them would be forgotten.
 
-3\.The plea founded upon these consequences,—"Wilt thou", etc. It cannot be that thy praise for grace shown to thy people can be lost, and none can render it but themselves. "Then what wilt thou do unto thy great name?"— *G.R.* 
+3\. The plea founded upon these consequences,—"Wilt thou", etc. It cannot be that thy praise for grace shown to thy people can be lost, and none can render it but themselves. "Then what wilt thou do unto thy great name?"— *G. R.* 
 
 **Verse 13.** 
 
-1\.Blessings delayed to prayer,—"Unto thee", etc.
+1\. Blessings delayed to prayer,—"Unto thee", etc.
 
-2\.Blessings anticipated by prayer,—"in the morning", etc. Daily mercies anticipated by morning prayers.— *G.R.* 
+2\. Blessings anticipated by prayer,—"in the morning", etc. Daily mercies anticipated by morning prayers.— *G. R.* 
 
 **Verse 13.** (*last clause* ).—The advantages of early morning prayer meetings.
 
 **Verse 14.** 
 
-1\.Afflictions are mysterious though just.
+1\. Afflictions are mysterious though just.
 
-2\.Just though mysterious.— *G.R.* 
+2\. Just though mysterious.— *G. R.* 
 
 **Verse 14.** Solemn enquiries, to be followed by searching examinations, by sorrowful confessions, stern self denials, and sweet restorations.
 
 **Verse 15.** 
 
-1\.The afflictions of the righteous may be long continued though severe. "I am afflicted, etc., from my youth up."
+1\. The afflictions of the righteous may be long continued though severe. "I am afflicted, etc., from my youth up."
 
-2\.Severe though long continued.
+2\. Severe though long continued.
 
 (a) Painful,—"afflicted."
 
@@ -426,25 +426,25 @@ But these are reflections which must not be dwelt upon. When they begin to grow 
 
 (c) Terrific,—"suffer thy terrors."
 
-(d) Distracting,—"I am", etc.— *G.R.* 
+(d) Distracting,—"I am", etc.— *G. R.* 
 
 **Verse 15.** The personal sufferings of Christ for the salvation of his people.— *Sermon by Robert Hawker.* Works, Vol. 4. pg 91.
 
 **Verse 16.** 
 
-1\.Good men are often tried men.
+1\. Good men are often tried men.
 
-2\.Tried men frequently misjudge the Lord's dealings.
+2\. Tried men frequently misjudge the Lord's dealings.
 
-3\.The Lord does not take them at their word, he is better than their fears.— *G.R.* 
+3\. The Lord does not take them at their word, he is better than their fears.— *G. R.* 
 
 **Verse 18.** The loss of friends intended to remind us of our own mortality, to wean us from earth, to lead us to more complete trust in the Lord, to chasten us for sin, and to draw us away to the great meeting place.
 
 **Verse 18.** The words of our text will lead us to remark that,
 
-1\.The happiness of life greatly depends on intimate friendships.
+1\. The happiness of life greatly depends on intimate friendships.
 
-2\.The trial of parting with intimate friends is exceedingly painful.
+2\. The trial of parting with intimate friends is exceedingly painful.
 
-3\.In this, as indeed in every affliction, the best consolation is drawn from a belief in, and meditation upon, God's governing providence.— *Joseph Lathrop,* 1845.
+3\. In this, as indeed in every affliction, the best consolation is drawn from a belief in, and meditation upon, God's governing providence.— *Joseph Lathrop,* 1845.
 

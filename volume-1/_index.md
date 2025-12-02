@@ -22,4 +22,4 @@ Should this first volume meet with the approbation of the judicious, I shall hop
 
 It may be added, that although the comments were the work of my health, the rest of the volume is the product of my sickness. When protracted illness and weakness laid me aside from daily preaching, I resorted to my pen as an available means of doing good. I would have preached had I been able, but as my Master denied me the privilege of thus serving him, I gladly availed myself of the other method of bearing testimony for his name. O that he may give me fruit in this field also, and his shall be all the praise. 
 
-&ndash; *C.H. Spurgeon*
+&ndash; *C. H. Spurgeon*

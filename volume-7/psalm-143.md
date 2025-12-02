@@ -54,7 +54,7 @@ weight: 143
 
 **Whole Psalm.** This psalm of David most aptly answereth to that psalm which precedes it; for in Ps 142:1-7 he showeth that he prayed, repeating it twice (Ps 143:1); and here he twice saith, "Hear my prayer, give ear to my supplication." In Ps 142:3 he saith, "When my spirit was overwhelmed within me"; here (Ps 143:4), "My spirit is overwhelmed within me."— *John Mayer.* 
 
-**Whole Psalm.** The promise referred to throughout this octave of Psalms *138-145.* is that recorded in 2Sa 7:12, etc., "When thy days be fulfilled...I will set up thy seed after thee...and I will establish his kingdom...If he commit iniquity, I will chasten him...But my mercy shall not depart away from him; and thine house and thy kingdom shall be established for ever." What fixes the connection of the psalm with the history is the frequent application of the term *"Thy* (Jehovah's) *servant"*, by David to himself in the latter, as in Ps 143:2 144:12 of the former. Jehovah had first used it of David, "Tell to my servant, to David"; David therefore fastens on it as his plea again and again (2Sa 7:5,9-21,25-29). David's plea, "For I am thy servant", is no boast of his service, but a magnifying of God's electing grace: "Who am I, O Lord God? and what is my house, that thou hast brought me hitherto?" 2Sa 7:18. The cry (Ps 143:6) *"My soul thirsteth after thee as a thirsty land"*, answers to David's own words in Ps 63:1, when he was fleeing from Absalom, and still in the wilderness of Judah (title, Ps. 63.) on the near side of Jordan: "My soul thirsteth for thee." The history here again is an undesigned agreement with the psalm (2Sa 16:2,14): "The King, and all the people with him, came *weary*, and refreshed themselves" with Ziba's fruits; also 2Sa 17:2. The Hebrew for "thirsty" in Psalm 143 is the same as for "weary" in Ps 63:1, and in 2Sa 16:14, and means "panting", "weary", "thirsting."— *Andrew Robert Fausset, in "Studies in the 150. Psalms",* 1876.
+**Whole Psalm.** The promise referred to throughout this octave of Psalms *138-145.* is that recorded in 2Sa 7:12, etc., "When thy days be fulfilled... I will set up thy seed after thee...and I will establish his kingdom... If he commit iniquity, I will chasten him... But my mercy shall not depart away from him; and thine house and thy kingdom shall be established for ever." What fixes the connection of the psalm with the history is the frequent application of the term *"Thy* (Jehovah's) *servant"*, by David to himself in the latter, as in Ps 143:2 144:12 of the former. Jehovah had first used it of David, "Tell to my servant, to David"; David therefore fastens on it as his plea again and again (2Sa 7:5,9-21,25-29). David's plea, "For I am thy servant", is no boast of his service, but a magnifying of God's electing grace: "Who am I, O Lord God? and what is my house, that thou hast brought me hitherto?" 2Sa 7:18. The cry (Ps 143:6) *"My soul thirsteth after thee as a thirsty land"*, answers to David's own words in Ps 63:1, when he was fleeing from Absalom, and still in the wilderness of Judah (title, Ps. 63.) on the near side of Jordan: "My soul thirsteth for thee." The history here again is an undesigned agreement with the psalm (2Sa 16:2,14): "The King, and all the people with him, came *weary*, and refreshed themselves" with Ziba's fruits; also 2Sa 17:2. The Hebrew for "thirsty" in Psalm 143 is the same as for "weary" in Ps 63:1, and in 2Sa 16:14, and means "panting", "weary", "thirsting."— *Andrew Robert Fausset, in "Studies in the 150. Psalms",* 1876.
 
 **Whole Psalm.** At the making of this psalm (as it plainly appeareth) David was cast into some desperate danger; whether by Saul when he was forced to flee into the cave, as in the former psalm, or by Absalom his son, or by any other, it is uncertain. Howsoever, in this he complains grievously to God of the malice of his enemies, and desireth God to hear his prayers, he acknowledgeth that he suffereth those things by God's just judgment, most humbly craving mercy for his sins; desiring not only to be restored, but also to be governed by God's Spirit, that he may dedicate and consecrate the rest of his life to God's service. This worthy psalm, then, containeth these three things. First, a confession of his sins. Secondly, a lamentation over his injuries. Thirdly, a supplication for temporal deliverance and spiritual graces.— *Archibald Symson.* 
 
@@ -102,7 +102,7 @@ No sinner can endure sight of thee, O God, if he tries to be self justified.— 
 
 **Verse 2.** There is probably here a tacit reference to the great transgression, the consequences of which followed David all his days.— *William Walford.* 
 
-**Verse 2.** *Thy servant.* A servant is one who obeys the will of another...There were these four ways in which one might come to be a servant—by birth, by purchase, by conquest, and by voluntary engagement. Some were servants in one of the ways, and some in another. There were servants who were born in the master's house, servants who were bought with the master's money, servants who were the captives of his sword and bow, and servants who had freely engaged themselves to do his work...In the case of the believer there is something that is peculiar and remarkable. He is God's servant by birth. But he is more—he is God's servant by purchase. And that is not all: he is God's servant by conquest. Yes, and by voluntary engagement too. He is the servant of God, not in some one of the four ways, but in all of them together.— *Andrew Gray* (1805-1861), *in "Gospel Contrasts and Parallels."* 
+**Verse 2.** *Thy servant.* A servant is one who obeys the will of another... There were these four ways in which one might come to be a servant—by birth, by purchase, by conquest, and by voluntary engagement. Some were servants in one of the ways, and some in another. There were servants who were born in the master's house, servants who were bought with the master's money, servants who were the captives of his sword and bow, and servants who had freely engaged themselves to do his work... In the case of the believer there is something that is peculiar and remarkable. He is God's servant by birth. But he is more—he is God's servant by purchase. And that is not all: he is God's servant by conquest. Yes, and by voluntary engagement too. He is the servant of God, not in some one of the four ways, but in all of them together.— *Andrew Gray* (1805-1861), *in "Gospel Contrasts and Parallels."* 
 
 **Verse 2.** Not only the worst of my sins, but the best of my duties speak me a child of Adam.— *William Beveridge.* 
 
@@ -140,7 +140,7 @@ No sinner can endure sight of thee, O God, if he tries to be self justified.— 
 
 **Verse 6.** *I stretch forth my hands unto thee*, etc. It is not a strange thing, then, for the soul to find its life in God. This is its native air: God as the Environment of the soul has been from the remotest age the doctrine of all the deepest thinkers in religion. How profoundly Hebrew poetry is saturated with this high thought will appear when we try to conceive of it with this left out. True poetry is only science in another form. And long before it was possible for religion to give scientific expression to its greatest truths, men of insight uttered themselves in psalms which could not have been truer to Nature had the most modern light controlled the inspiration. "As the hart panteth after the water brooks, so panteth my soul after thee, O God." What fine sense of the natural analogy of the natural and spiritual does not underlie these words. As the hart after its environment, so man after his; as the water brooks are fitly designed to meet the natural wants, so fitly does God implement the spiritual need of man. It will be noticed that in the Hebrew poets the longing for God never strikes one as morbid, or unnatural to the men who uttered it. It is as natural for them to long for God as for the swallow to seek her nest. Throughout all their images no suspicion rises within us that they are exaggerating. We feel how truly they are reading themselves, their deepest selves. No false note occurs in all their aspiration. There is no weariness even in their ceaseless sighing, except the lover's weariness for the absent—if they would fly away, it is only to be at rest. Men who have no soul can only wonder at this. Men who have a soul, but with little faith, can only envy it. How joyous a thing it was to the Hebrews to seek their God! How artlessly they call upon him to entertain them in his pavilion, to cover them with his feathers, to hide them in his secret place, to hold them in the hollow of his hand, or stretch around them the everlasting arms! These men were true children of nature. As the humming bird among its own palm trees, as the ephemera in the sunshine of a summer evening, so they lived their joyous lives. And even the full share of the sadder experiences of life which came to all of them but drove them the further into the secret place, and led them with more consecration to make, as they expressed it, "the Lord their portion." All that has been said since from Marcus Aurelius to Swedenborg, from Augustine to Schleiermacher, of a besetting God as the full complement of humanity is but a repetition of the Hebrew poets' faith. And even the New Testament has nothing higher to offer man than this. The Psalmist's" God is our refuge and strength" is only the earlier form, less defined, less practicable, but not less noble, of Christ's "Come unto me, and I will give you rest."— *Henry Drummond, in "Natural Law in the Spiritual World,"* 1884.
 
-**Verses 6-7.** I stretch forth my hands...Hear me, etc. So will the weary bands be raised yet again, through faith in him who stretched forth his hands upon the cross. So will the fainting soul wait and long for the outpouring of his grace, who upon the cross said, "I thirst." We shall thirst for our salvation, even as the parched up fields and dying herbs seem to gasp and pant like living things for the sweet and cheering showers in the fierce heat of summer. So will the soul cry to the heard, and that soon, lest its faith grow faint with delay; and the hiding of God's face, the denying of his smile of pardon, will press on the spirit like sickness, and weigh it down like the heaviness of death.— *J. W. Burgon.* 
+**Verses 6-7.** I stretch forth my hands... Hear me, etc. So will the weary bands be raised yet again, through faith in him who stretched forth his hands upon the cross. So will the fainting soul wait and long for the outpouring of his grace, who upon the cross said, "I thirst." We shall thirst for our salvation, even as the parched up fields and dying herbs seem to gasp and pant like living things for the sweet and cheering showers in the fierce heat of summer. So will the soul cry to the heard, and that soon, lest its faith grow faint with delay; and the hiding of God's face, the denying of his smile of pardon, will press on the spirit like sickness, and weigh it down like the heaviness of death.— *J. W. Burgon.* 
 
 **Verse 7.** *Hear me speedily.* David is in trouble, and he betakes himself to prayer. Prayer is the sovereign remedy the godly fly to in all their extremities. The saints in sorrows have fled for comfort and healing unto prayers and supplications. Heaven is a shop full of all good things—there are stored up blessings and mercies; this the children of God know who fly to this shop in their troubles, begging for help from this holy sanctuary. "In the day of my trouble I sought the Lord": Ps 77:2. When any vexation makes our life grievous unto us, what should we seek but help? of whom should we seek, but of the Lord? how should we seek, but by prayer?... *"Speedily."* His request is not only for hearing, but for speedy hearing: *"Hear me, and hear me speedily"*; answer, and answer quickly. This is the tone and tune of men in distress. Man in misery earnestly sues for speedy delivery. In our afflictions and troubles, deliverance, though it should come with wings, we never think it comes soon enough. Weak man cannot content himself to know he shall have help, unless it be present help.— *Thomas Calvert,* 1647.
 
@@ -156,9 +156,9 @@ No sinner can endure sight of thee, O God, if he tries to be self justified.— 
 
 **Verse 8.** *Cause me to hear thy lovingkindness in the morning.* If evil fall upon us in the night, we would have it removed ere the morning; if in the morning, we would not have it our bed fellow in the evening. We would have the Lord's promise run thus,—Your sorrows shall not endure the whole night, your joy shall come long before the morning. The luxurious Emperor *?Smyndirides the Sybarite* and his drunken mates sat and drank all the night, and slept all the day, insomuch that it was said of them, they never saw sunset nor sunrise. Such would we have the evils we suffer—of so short continuance that, neither sunset nor sunrise might see us in our misery. This makes me wonder at that strange Egyptian beast called Pharaoh, who being demanded of Moses when he would have God's plague of the frogs removed, answered, *"Tomorrow."* Surely, here he spake not as a man, to whom one hour's trouble is accounted a day, a day a month, a month a year. For in leaving of two things we change our desires, and are much different.
 
-1\.In leaving of sin, then we procrastinate and put off; and when God says, "Today hear my voice", we answer, "Tomorrow", and are like the Levite's wife's father (Jud 19:6), too kind hosts to such bad guests: saying to our sins, "tarry till the morning." Our pace to repentance is slow, we are far from haste in that matter.
+1\. In leaving of sin, then we procrastinate and put off; and when God says, "Today hear my voice", we answer, "Tomorrow", and are like the Levite's wife's father (Jud 19:6), too kind hosts to such bad guests: saying to our sins, "tarry till the morning." Our pace to repentance is slow, we are far from haste in that matter.
 
-2\.But for afflictions to leave us, then we wish they had feet like hinds' feet, to run away from us, or we the wings of a dove to fly away from them, and be at rest...What prisoner desires not to be presently set free, and that liberty's soft hand may loose his iron knots? What mariner wishes a long storm? What servant sighs not over his hard apprenticeship? Yea, who is he, that if there were an appearance of an offering to take the cup of calamity from his mouth, saying, "Thou shalt drink no more", would answer, "This cup shall not yet pass from me, I delight to carouse and drink deeply of these bitter waters"? Yea, this desire extends so far that it comes to the Son of man, the blessed Seed of the woman, who was so clad with human weakness that he earnestly prayed for speedy help from his heavy anguish; and that not once, but often,—"Oh, my Father, if it be possible", etc.; and when his Father answers not, he cries like one ready to fall under the burden, "My God, my God, why hast thou forsaken me?" The reason for Christ's thus complaining is to be fetched from thence, whence his flesh came; even from us. It was our human flesh, not his Divine spirit, which was so weary of suffering; his spirit was willing, it was our flesh that was so weak.— *Thomas Calvert.* 
+2\. But for afflictions to leave us, then we wish they had feet like hinds' feet, to run away from us, or we the wings of a dove to fly away from them, and be at rest... What prisoner desires not to be presently set free, and that liberty's soft hand may loose his iron knots? What mariner wishes a long storm? What servant sighs not over his hard apprenticeship? Yea, who is he, that if there were an appearance of an offering to take the cup of calamity from his mouth, saying, "Thou shalt drink no more", would answer, "This cup shall not yet pass from me, I delight to carouse and drink deeply of these bitter waters"? Yea, this desire extends so far that it comes to the Son of man, the blessed Seed of the woman, who was so clad with human weakness that he earnestly prayed for speedy help from his heavy anguish; and that not once, but often,—"Oh, my Father, if it be possible", etc.; and when his Father answers not, he cries like one ready to fall under the burden, "My God, my God, why hast thou forsaken me?" The reason for Christ's thus complaining is to be fetched from thence, whence his flesh came; even from us. It was our human flesh, not his Divine spirit, which was so weary of suffering; his spirit was willing, it was our flesh that was so weak.— *Thomas Calvert.* 
 
 **Verse 8.** *Cause me to hear thy lovingkindness in the morning.* This is a short and sweet morning prayer. God hears early prayer, and lovingly responds to it. The smiles of his face, the sweetness of his voice, the gifts of his hand, bless the morning, bless all the day. Do we write and read experimentally? Then we know the blessedness of divine love. The subject is truly pleasant and precious. *"Lovingkindness"* is a favourite expression, is a choice theme of David's. It is used more in the Book of Psalms than in any other book in the Scriptures. Lovingkindness is love showing kindness; it is the sun of love shining with rays of kindness; the river of love sending forth streams of kindness; it is the heart of love uttering itself by words of kindness, doing deeds, and giving gifts of kindness.
 
@@ -166,7 +166,7 @@ Here it is the *voice* of the lovingkindness of the Lord that David desires to h
 
 The morning is the season in which David desires to hear the voice of the lovingkindness of the Lord. The morning is a season often mentioned by him, and as a time of devotion is much prized by him. "My voice shalt thou hear in the morning, O LORD; in the morning will I direct my prayer unto thee, and will look up": Ps 5:3. *Cause me to hear thy lovingkindness in the morning*: let it engage my thoughts and affections. It is well to have a subject like this to occupy our waking thoughts, and to take hold of our first desires. If other thoughts get into our hearts in the morning, we may not be able to turn them out all the day. Prayer and praise, reading and meditation, will be sweet with such a subject occupying and influencing our minds. They will be exercises of cheerfulness, freedom, and blessedness. Cause me to hear this voice. It speaks every morning, but many ears are deaf to it. But while others are indifferent to it, cause me to hear it; let me not lose the opportunity: waken my ear morning by morning, so that I may hail the season and enjoy the privilege. And when the morning of eternity shall come, "cause me to hear the voice of thy lovingkindness" welcoming me to its joys.— *W. Abbot, in "The Baptist Messenger,"* 1870.
 
-**Verse 8.** *Cause me to know the way wherein I should walk.* The whole valley is surrounded by ranges of regal crags; but the mountain of the Gemmi, apparently absolutely inaccessible, is the last point to which you would turn for an outlet. A side gorge that sweeps up to the glaciers and snowy pyramids flashing upon you in the opposite direction is the route which you suppose your guide is going to take; and visions of pedestrians perilously scaling icy precipices, or struggling up to the middle through ridges of snow, begin to surround you, as the prospect of your own experience in this day's expedition. So convinced was I that the path *must* go in that direction, that I took a short cut, which I conceived would bring me again into the mule path at a point under the glaciers; but after scaling precipices and getting lost in a wood of firs in the valley, I was glad to rejoin my friend with the guide, and to clamber on in pure ignorance and wonder...Now what a striking symbol is this of things that sometimes take place in our spiritual pilgrimage. We are often brought to a stand, hedged up and hemmed in by the providence of God so that there seems no way out. A man is sometimes thrown into difficulties in which he sits down beginning to despair, and says to himself, "Well, this time it is all over with me"; like Sterne's starling, or, worse, like Bunyan's man in the cage, he says, "I cannot get out." Then when God has drawn him from all self confidence and self resource, a door opens in the wall and he rises up, and walks at liberty, praising God.— *George Barrell Cheerer,* 1807-.
+**Verse 8.** *Cause me to know the way wherein I should walk.* The whole valley is surrounded by ranges of regal crags; but the mountain of the Gemmi, apparently absolutely inaccessible, is the last point to which you would turn for an outlet. A side gorge that sweeps up to the glaciers and snowy pyramids flashing upon you in the opposite direction is the route which you suppose your guide is going to take; and visions of pedestrians perilously scaling icy precipices, or struggling up to the middle through ridges of snow, begin to surround you, as the prospect of your own experience in this day's expedition. So convinced was I that the path *must* go in that direction, that I took a short cut, which I conceived would bring me again into the mule path at a point under the glaciers; but after scaling precipices and getting lost in a wood of firs in the valley, I was glad to rejoin my friend with the guide, and to clamber on in pure ignorance and wonder... Now what a striking symbol is this of things that sometimes take place in our spiritual pilgrimage. We are often brought to a stand, hedged up and hemmed in by the providence of God so that there seems no way out. A man is sometimes thrown into difficulties in which he sits down beginning to despair, and says to himself, "Well, this time it is all over with me"; like Sterne's starling, or, worse, like Bunyan's man in the cage, he says, "I cannot get out." Then when God has drawn him from all self confidence and self resource, a door opens in the wall and he rises up, and walks at liberty, praising God.— *George Barrell Cheerer,* 1807-.
 
 **Verses 8-10.** After thou hast prayed, observe what God doth towards thee; especially how lie doth guide thy feet and heart after prayer; there is much in that. That which was the spirit of supplication in a man when he prayed, rests upon him as the spirit of obedience in his course. That dependence which he hath upon God for the mercy he seeks for is a special motive and means to keep him fearful of offending, and diligent in duty. He looks to his paths, and endeavours to behave himself as becomes a suitor, as well as to pray as a suitor. David walked by this principle when he said (Ps 66:18), "If I regard iniquity in my heart, the Lord will not hear me"; that consideration still came in as a curb unto sin. Therefore David, in these verses, when he was to pray, even as for his life, for deliverance from his enemies, he specially prays God to direct him and keep him, that he might not sin against him; for he knew that by sinning he should enervate and spoil all his prayers. He cries not only *"Hear me speedily"*, but also, *"Cause me to know the way wherein I should walk; teach me to do thy will."* This he especially prays for, more than for deliverance, for else he knew God would not hear him. Therefore when thou art in treaty with God for any mercy, observe, doth God still after praying keep thee in a more obedient frame of spirit? If so, it is a sign he intends to answer thee. The same is true when he keeps thee from using ill means, etc. When he meant to give David the kingdom, he kept him innocent, and made his heart tender, so that it smote him but for cutting off the lap of Saul's garment.— *Thomas Goodwin.* 
 
@@ -186,7 +186,7 @@ The morning is the season in which David desires to hear the voice of the loving
 
 5\. *Prudence* :he hides before the storm, ere the enemy comes upon him.
 
-6\.A laudable *concern* for safety and comfort.
+6\. A laudable *concern* for safety and comfort.
 
 The believer, if wise, will at all times flee to Jehovah. Jacob flies to Laban; the manslayer to the refuge; the bird to his mountain; and the Christian to his God. Ass may seek to physicians';Ephraim to king Jareb; and Saul to the witch; but the believer looks to his God. The Lord receives, befriends, and secures him. Let us flee to him by prayer, in faith, with hope, for salvation; and he will receive us, shelter us, and be our refuge and strength. Flee from sin, from self, from the world; but flee to Jesus. His heart is ever toward us, his ear is open to us, and his hand is ready to help, protect, and deliver us. His throne is our asylum. His promise is our comfort, and his omnipotence is our guard.
 
@@ -210,11 +210,11 @@ Loves, and still delights to keep.
 
 **Verses 9-10.** Be persuaded actually to hide yourselves with Jesus Christ. To have a hiding place and not to use it is as bad as to want one: fly to Christ; run into the holes of this rock. Three things must be done by all those that would hide themselves with Christ.
 
-1\.You must put away sin by repentance. Jesus Christ will not be a sanctuary for rebels, he will not protect evil doers. Christ will never hide the devil, nor any of his servants. Isa 55:6-7: "Let the ungodly forsake his way", etc. David knew this, therefore he prays that God would teach him to do his will: *"Deliver me, etc. I fly unto thee to hide me. Teach me to do thy will."* He that will not do the will of Christ shall receive no protection from Christ. *Protectio sequitur allegiantiam*. You must be his liege people if you will have him to defend you. Job 22:23, 25.
+1\. You must put away sin by repentance. Jesus Christ will not be a sanctuary for rebels, he will not protect evil doers. Christ will never hide the devil, nor any of his servants. Isa 55:6-7: "Let the ungodly forsake his way", etc. David knew this, therefore he prays that God would teach him to do his will: *"Deliver me, etc. I fly unto thee to hide me. Teach me to do thy will."* He that will not do the will of Christ shall receive no protection from Christ. *Protectio sequitur allegiantiam*. You must be his liege people if you will have him to defend you. Job 22:23, 25.
 
-2\.You must pray that he would hide you. The promise is made to prayer: Isa 65:10, "Sharon shall be a fold of flocks, and the valley of Achor a place for the herds to lie down in, for my people that have sought me." He that prays most fervently is like to be hid most securely. And then,
+2\. You must pray that he would hide you. The promise is made to prayer: Isa 65:10, "Sharon shall be a fold of flocks, and the valley of Achor a place for the herds to lie down in, for my people that have sought me." He that prays most fervently is like to be hid most securely. And then,
 
-3\.You must believe in him. Faith is the key that opens the door of this hiding place, and locks it again. One word in the Hebrew signifies to trust and to make a refuge. Ps 57:1. He that doth not make Christ his trust shall not have Christ for his hiding place; he will hide none but those that commit themselves to him: "I will set him on high, because he hath known my name": Ps 91:9,14.— *Ralph Robinson.* 
+3\. You must believe in him. Faith is the key that opens the door of this hiding place, and locks it again. One word in the Hebrew signifies to trust and to make a refuge. Ps 57:1. He that doth not make Christ his trust shall not have Christ for his hiding place; he will hide none but those that commit themselves to him: "I will set him on high, because he hath known my name": Ps 91:9,14.— *Ralph Robinson.* 
 
 **Verse 10.** *Teach me to do thy will.* How childlike—"teach me"! How practical "Teach me to do"! How undivided in obedience—"to do thy will"! To do all of it, let it be what it may. This is the best form of instruction, for its source is God, its object is holiness, its spirit is that of hearty loyalty. The man is hidden in the Lord, and spends his peaceful life in learning the will of his Preserver. A heart cannot long be desolate which is thus docile. *For thou art my God.* Who else can teach me as thou canst? Who else will care to do it but my God? Thou hast given me thyself, thou wilt surely give me lily teaching. If I have thee, may I not ask to have thy perfect mind? When the heart can sincerely call Jehovah "my God", the understanding is ready to learn of him, the will is prepared to obey him, the whole man is eager to please him. "Thy spirit is good." God is all spirit and all good. His essence is goodness, kindness, holiness: it is his nature to do good, and what greater good can he do to us than to hear such a prayer as that which follows— *Lead we into the land of uprightness*? David would fain be among the godly, in a land of another sort from that which had cast him out. He sighed for the upland meadows of grace, the table lands of peace, the fertile plains of communion. He could not reach them of himself; he must be led there. God, who is good, can best conduct us to the goodly land. There is no inheritance like a portion in the land of promise, the land of precept, the land of perfectness. He who teaches us must put us into leading strings, and guide and conduct us to his own dwelling place in the country of holiness. The way is long, and steep, and he who goes without a divine leader will faint on the journey; but with Jehovah to lead it is delightful to follow, and there is neither stumbling nor wandering.
 
@@ -244,7 +244,7 @@ Loves, and still delights to keep.
 
 **Verse 11.** *Bring my soul out of trouble.* I can bring it in, but thou only canst bring it out.— *John Trapp.* 
 
-**Verses 11-12.** Thy name's sake...thy righteousness' sake...And *of thy mercy.* Mark here, my soul, with what three cords David seeks to draw God to grant him his suits: for his name's sake, for his righteousness' sake, and for his mercy's sake,—three such motives, that it must be a very hard suit that God will deny, if either of them be used. But though all the three be strong motives, yet as David riseth in his suits, so he may seem also to rise in his motives; and by this account; for his righteousness' sake will prove a motive of a higher degree than for his name's sake, and for his mercy's sake the highest of them all—as indeed his mercy seat is the highest part of all his ark, if it be not rather that as the attributes of God, so these motives, that are drawn from the attributes, are of equal preeminence. But if the three motives be all of them so strong, being each of them single, how strong would they be if they were all united, and twisted, I may say, into one cord? And united they are all, indeed, into a motive, which God hath more clearly revealed to us than he did to David (although it be strange, seeing it was his Lord; and yet not strange, seeing it was his son); and this is the motive: for thy Son Christ Jesus' sake; for he is the *verbum abbreviatum the Word in brief*, in whom are included all the motives—all the powerful motives—that can be used to God for obtaining our suits.— *Sir Richard Baker.* 
+**Verses 11-12.** Thy name's sake...thy righteousness' sake... And *of thy mercy.* Mark here, my soul, with what three cords David seeks to draw God to grant him his suits: for his name's sake, for his righteousness' sake, and for his mercy's sake,—three such motives, that it must be a very hard suit that God will deny, if either of them be used. But though all the three be strong motives, yet as David riseth in his suits, so he may seem also to rise in his motives; and by this account; for his righteousness' sake will prove a motive of a higher degree than for his name's sake, and for his mercy's sake the highest of them all—as indeed his mercy seat is the highest part of all his ark, if it be not rather that as the attributes of God, so these motives, that are drawn from the attributes, are of equal preeminence. But if the three motives be all of them so strong, being each of them single, how strong would they be if they were all united, and twisted, I may say, into one cord? And united they are all, indeed, into a motive, which God hath more clearly revealed to us than he did to David (although it be strange, seeing it was his Lord; and yet not strange, seeing it was his son); and this is the motive: for thy Son Christ Jesus' sake; for he is the *verbum abbreviatum the Word in brief*, in whom are included all the motives—all the powerful motives—that can be used to God for obtaining our suits.— *Sir Richard Baker.* 
 
 **Verses 11-12.** The verbs in these two last verses, as Dr. Hammond hath noted, should be rendered in the future; *"Thou shalt quicken"*, etc., and then the psalm will end, as usual, with an act of faith and assurance, that all those mercies, which have been asked, shall be obtained; that God, for the sake of his *"name"*, and his *"righteousness"*, of his glory, and his faithfulness in the performance of his promises, will not fail to be favourable and gracious to his servants, *"quickening"* them even when dead in trespasses and sins, and bringing them, by degrees, *"out of all their troubles"*: going forth with them to the battle against their spiritual *"enemies"*, and enabling them to vanquish the authors of their *"affliction"* and misery, to mortify the flesh, and to overcome the world; that so they may triumph with their Redeemer, in the day when he shall likewise quicken their mortal bodies, and put all enemies under their feet.— *George Horne.* 
 
@@ -258,37 +258,37 @@ Loves, and still delights to keep.
 
 **Verse 1.** Three threes.
 
-1\.As to his devotions,—prayers, supplications, requests.
+1\. As to his devotions,—prayers, supplications, requests.
 
-2\.As to his success,—hear, give ear, answer me.
+2\. As to his success,—hear, give ear, answer me.
 
-3\.As to his argument,—because thou art Jehovah, faithful, righteous.
+3\. As to his argument,—because thou art Jehovah, faithful, righteous.
 
 **Verses 1-2.** A suitable prayer for a believer who has reason to suppose that he is suffering chastening for sin.
 
-1\.Here is earnest importunity, as of one depending entirely upon divine favour for a hearing.
+1\. Here is earnest importunity, as of one depending entirely upon divine favour for a hearing.
 
-2\.Here is believing fervency laying hold of divine faithfulness and justice; see 1Jo 1:9.
+2\. Here is believing fervency laying hold of divine faithfulness and justice; see 1Jo 1:9.
 
-3\.Here is a deep consciousness of the vanity of self justification pleading for pure mercy, Ps 143:2.— *J. F.* 
+3\. Here is a deep consciousness of the vanity of self justification pleading for pure mercy, Ps 143:2.— *J. F.* 
 
 **Verse 2.** 
 
-1\.Who he is. "Thy servant."
+1\. Who he is. "Thy servant."
 
-2\.What he knows. "In thy sight shall no man living be justified."
+2\. What he knows. "In thy sight shall no man living be justified."
 
-3\.What he asks. "Enter not into judgment."
+3\. What he asks. "Enter not into judgment."
 
 **Verses 3-6.** Consider,
 
-1\.The great lengths God may sometimes permit the enemy to go, Ps 143:3. The case of Job a good illustration.
+1\. The great lengths God may sometimes permit the enemy to go, Ps 143:3. The case of Job a good illustration.
 
-2\.The deep depression of spirit he may even permit his saints to experience, Ps 143:4.
+2\. The deep depression of spirit he may even permit his saints to experience, Ps 143:4.
 
-3\.The good things he has provided for their meditation when even at their worst, Ps 143:5.
+3\. The good things he has provided for their meditation when even at their worst, Ps 143:5.
 
-4\.The two things his grace will never suffer to die, whose existence is a pledge of near approaching joy,—
+4\. The two things his grace will never suffer to die, whose existence is a pledge of near approaching joy,—
 
 a) The thirsting after himself.
 
@@ -296,33 +296,33 @@ b) The practice of prayer. The whole is a good text for a lecture on the life an
 
 **Verses 4-6.** 
 
-1\.Down in Despondency.
+1\. Down in Despondency.
 
-2\.Deep in Meditation.
+2\. Deep in Meditation.
 
-3\.Determined in Supplication.
+3\. Determined in Supplication.
 
 **Verses 5-6.** I muse on the work of thy hands. I stretch forth my hands *unto thee.* Hand in hand: or the child of God admiring the work of God's hands, and praying with uplifted hands to be wrought upon by the like power.
 
 **Verse 5.** David's method.
 
-1\.He gathered materials; facts and evidence concerning God: "I remember."
+1\. He gathered materials; facts and evidence concerning God: "I remember."
 
-2\.He thought out his subject and arranged his matter: "I meditate."
+2\. He thought out his subject and arranged his matter: "I meditate."
 
-3\.He discoursed thereon, and was brought nearer to God: "I muse"—discourse.
+3\. He discoursed thereon, and was brought nearer to God: "I muse"—discourse.
 
-4\.Let us close by viewing all this as an example for preachers and others.— *W. B. H.* 
+4\. Let us close by viewing all this as an example for preachers and others.— *W. B. H.* 
 
 **Verse 6.** God alone the desire of his people.
 
 **Verse 6.** Deep calling to deep.
 
-1\.The insatiable craving of the heart.
+1\. The insatiable craving of the heart.
 
-2\.The vast riches in glory.
+2\. The vast riches in glory.
 
-3\.The rushing together of the seas: "My soul is to thee."
+3\. The rushing together of the seas: "My soul is to thee."
 
 — *W. B. H.* 
 
@@ -330,33 +330,33 @@ b) The practice of prayer. The whole is a good text for a lecture on the life an
 
 **Verse 7.** Never despair.
 
-1\.Because you have the Lord to plead with.
+1\. Because you have the Lord to plead with.
 
-2\.Because you may freely tell him the desperateness of your case.
+2\. Because you may freely tell him the desperateness of your case.
 
-3\.Because you may be urgent with him for deliverance.— *J. F.* 
+3\. Because you may be urgent with him for deliverance.— *J. F.* 
 
 **Verse 7.** Cordial for the swooning heart.
 
-1\.God's beloved fainting.
+1\. God's beloved fainting.
 
-2\.The best restorative; her Lord's face.
+2\. The best restorative; her Lord's face.
 
-3\.She has the presence of mind to call him as she falls.— *W. B. H.* 
+3\. She has the presence of mind to call him as she falls.— *W. B. H.* 
 
 **Verse 8.** The two prayers *"Cause me to hear"*, and *"Cause me to know."* The two pleas— *"In thee do I trust"*, and *"I lift up my soul unto thee."* 
 
 **Verse 8.** Ps 142:3. *"Thou knewest my path."* Ps 143:8.— *"Cause me to know the way."* 
 
-1\.Trusting Omniscience in everything.
+1\. Trusting Omniscience in everything.
 
-2\.Following conscience in everything.
+2\. Following conscience in everything.
 
 **Verse 8.** On fixing a time for the answering of our prayer.
 
-1\.By whom it may be done. Not by all believers, but by those who through dwelling with God have attained to a holy boldness.
+1\. By whom it may be done. Not by all believers, but by those who through dwelling with God have attained to a holy boldness.
 
-2\.When it may be done.
+2\. When it may be done.
 
 a) When the case is specially urgent.
 
@@ -366,29 +366,29 @@ c) What renders it pleasing to God when done. Great faith. "For in thee do I tru
 
 **Verse 8.** Listening for Lovingkindness.
 
-1\.Where to listen. At the gates of Scripture; in the halls of meditation; nigh the footsteps of Jesus.
+1\. Where to listen. At the gates of Scripture; in the halls of meditation; nigh the footsteps of Jesus.
 
-2\.When to listen. "In the morning"; as early and as often as possible.
+2\. When to listen. "In the morning"; as early and as often as possible.
 
-3\.How to listen. In trustful dependence: "Cause me to hear thy lovingkindness in the morning, for in thee do I trust."
+3\. How to listen. In trustful dependence: "Cause me to hear thy lovingkindness in the morning, for in thee do I trust."
 
-4\.Why to listen. To "know the way wherein I should walk."— *W. B. H.* 
+4\. Why to listen. To "know the way wherein I should walk."— *W. B. H.* 
 
 **Verse 9.** Admirable points in this prayer to be imitated by us. There is,
 
-1\.A sense of danger.
+1\. A sense of danger.
 
-2\.A confession of weakness.
+2\. A confession of weakness.
 
-3\.A prudent foresight.
+3\. A prudent foresight.
 
-4\.A solid confidence:—he expects to be hidden from his foes.
+4\. A solid confidence:—he expects to be hidden from his foes.
 
 **Verse 9.** 
 
-1\.Looking up.
+1\. Looking up.
 
-2\.Lying close.— *W. B. H.* 
+2\. Lying close.— *W. B. H.* 
 
 **Verse 10.** Two childlike requests—"Teach me...lead me."
 
@@ -396,41 +396,41 @@ c) What renders it pleasing to God when done. Great faith. "For in thee do I tru
 
 **Verse 10.** (*first half.* )
 
-1\.The best instructions: "Teach me to do thy will." Not merely to know, but "to do."
+1\. The best instructions: "Teach me to do thy will." Not merely to know, but "to do."
 
-2\.The only efficient Instructor.
+2\. The only efficient Instructor.
 
-3\.The best reason for asking and expecting instruction: "For thou art my God."— *J. F.* 
+3\. The best reason for asking and expecting instruction: "For thou art my God."— *J. F.* 
 
 **Verse 10.** *Teach me to do thy will.* We may call this sentence a description of David's school; and it is a very complete one; at least, it hath in it the three best things that belong to a school.
 
-1\.The best teacher.
+1\. The best teacher.
 
-2\.The best scholar.
+2\. The best scholar.
 
-3\.The best lesson; for who so good a teacher as God? who so good a scholar as David? what so good a lesson as to do God's will?— *Sir Richard Baker.* 
+3\. The best lesson; for who so good a teacher as God? who so good a scholar as David? what so good a lesson as to do God's will?— *Sir Richard Baker.* 
 
 **Verse 10.** (*latter half.* )
 
-1\.Utopia—"the land of uprightness." Describe it, and declare its glories.
+1\. Utopia—"the land of uprightness." Describe it, and declare its glories.
 
-2\.The difficult paths to that upland country.
+2\. The difficult paths to that upland country.
 
-3\.The divine Guide,—"thy Spirit is good."
+3\. The divine Guide,—"thy Spirit is good."
 
 **Verse 11.** (*first clause.* )
 
-1\.What is this blessing? "Quicken me."
+1\. What is this blessing? "Quicken me."
 
-2\.In what way will it glorify God, so that we may plead for the sake of his name?
+2\. In what way will it glorify God, so that we may plead for the sake of his name?
 
 **Verse 11.** (*second clause.*) How is the righteousness of God concerned in our deliverance from trouble?
 
 **Verse 12.** 
 
-1\.To the Master: "I am thy servant."
+1\. To the Master: "I am thy servant."
 
-2\.For the servant: he seeks protection because he belongs to his master.
+2\. For the servant: he seeks protection because he belongs to his master.
 
 ## Works Upon The Hundred And Forty-Third Psalm
 
@@ -438,5 +438,5 @@ c) What renders it pleasing to God when done. Great faith. "For in thee do I tru
 
  *A Sacred Septenarie,* Or, *A Godly And Fruitfull Exposition on the Seven Psalms Of Repentance* by Mr. Archibald Symson... London, 1638 4to., contains an Exposition of this Psalm, pp. 276-308.
 
-There is an Exposition of Psalm 143., in Vol. 1., pp. 35-66, Of "Sermons chiefly designed for the Use of Families," by John Fawcett, A.M. 2 Vols. 8vo, second edition, Carlisle; 1818.
+There is an Exposition of Psalm 143., in Vol. 1., pp. 35-66, Of "Sermons chiefly designed for the Use of Families," by John Fawcett, A. M. 2 Vols. 8vo, second edition, Carlisle; 1818.
 

@@ -126,7 +126,7 @@ Here we have the Lord himself speaking of his own chosen one. Because he hath se
 
 **Verse 1.** *He*, no matter who he may be, rich or poor, learned or unlearned, patrician or plebeian, young or old, for "God is no respecter of persons", but "he is rich to all that call upon him." *Bellarmine.* 
 
-**Verse 1.** *He that dwelleth in the secret place of the Most High.* Note, he who dwells in the secret place of the Most High is not he that conjures up one or two slight and fleeting acts of hope in Him, but the man that places in him an assiduous and constant confidence. In this way he establishes for himself in God by that full trust, a home, a dwelling place, a mansion,...The Hebrew for *he that dwelleth*, is bvy, that is, dwelling in quietude, and resting, enduring and remaining with constancy. *Le Blanc.* 
+**Verse 1.** *He that dwelleth in the secret place of the Most High.* Note, he who dwells in the secret place of the Most High is not he that conjures up one or two slight and fleeting acts of hope in Him, but the man that places in him an assiduous and constant confidence. In this way he establishes for himself in God by that full trust, a home, a dwelling place, a mansion,... The Hebrew for *he that dwelleth*, is bvy, that is, dwelling in quietude, and resting, enduring and remaining with constancy. *Le Blanc.* 
 
 **Verse 1.** *He that dwelleth in the secret place of the most High.* What intimate and unrestrained communion does this describe!—the Christian in everything making known his heart, with its needs and wishes, its thoughts and feelings, its doubts and anxieties, its sorrows and its joys, to God, as to a loving, perfect friend. And all is not on one side. This Almighty Friend has admitted his chosen one to his *"secret place."* It is almost too wonderful to be true. It is almost too presumptuous a thought for such creatures as we are to entertain. But He himself permits it, *desires* it, teaches us to realise that it is *communion* to which he calls us. "The secret of the Lord is with them that fear him." And what is this *"secret"?* It is *that* in God which the world neither knows, nor sees, nor cares to enjoy. It is his mind revealed to those that love him, his plans, and ways ("He made known his *ways* to *Moses* ", Ps 103:7), and thoughts opened to them. Yea, and things hid from angels are manifest to the least of his friends (1Pe 1:12). He wishes us to know him, and by his Word and by his Spirit he puts himself before us. Ah! it is not his fault if we do not know him. It is our own carelessness. *Mary B. M. Duncan, in "Under the Shadow",* 1867.
 
@@ -150,7 +150,7 @@ Here we have the Lord himself speaking of his own chosen one. Because he hath se
 
 **Verse 1.** We read of a stag that roamed about in the greatest security, by reason of its having a label on its neck, *"Touch me not, I belong to Caesar"*: thus the true servants of God are always safe, even among lions, bears, serpents, fire, water, thunder, and tempests; for all creatures know and reverence the shadow of God. *Bellarmine.* 
 
-**Verse 2.** *My refuge, my fortress, my God. "My refuge."* God is our *"refuge."* He who avails himself of a refuge is one who is forced to fly. It is a quiet retreat from a pursuing enemy. And there are trials, and temptations, and enemies, from which the Christian does best to fly. He cannot resist them. They are too strong for him. His wisdom is to fly into the refuge of the secret place of his God—to rest in the shadow of the Almighty. His "strength is to sit still" *there*. Isa 30:7. *"My fortress."* The Psalmist says, moreover, that God is his *"fortress."* Here the idea is changed—no longer a peaceful, quiet hiding place, but a tower of defence—strong, manifest, ready to meet the attacks of all enemies, ready and able to resist them all. God is a Friend who meets every want in our nature, who can supply every need. So when we are weak and fainting, and unable to meet the brunt of battle, and striving against sin and sorrow and the wrath of man He is our safe, quiet resting place—our fortress also where no harm can reach us, no attack injure us. *"My God."* Now the Psalmist, as a summing up of all his praises, says "I will say of Him, He is... my God!" Is there any thing omitted in the former part of his declaration? *Everything* is here—all possible ascription of honour, and glory, and power to Him *"as God"* —"God over all, blessed for ever, "and of love, reverence, trust, obedience, and filial relation towards him on the part of the Psalmist, as MY God...when reflecting on the refuge and strength which the Lord has always been to him, and recalling his blessed experiences of sweet communion with God—words fail him. He can only say (but oh, with what expression!) MY GOD! *Mary B.M. Duncan.* 
+**Verse 2.** *My refuge, my fortress, my God. "My refuge."* God is our *"refuge."* He who avails himself of a refuge is one who is forced to fly. It is a quiet retreat from a pursuing enemy. And there are trials, and temptations, and enemies, from which the Christian does best to fly. He cannot resist them. They are too strong for him. His wisdom is to fly into the refuge of the secret place of his God—to rest in the shadow of the Almighty. His "strength is to sit still" *there*. Isa 30:7. *"My fortress."* The Psalmist says, moreover, that God is his *"fortress."* Here the idea is changed—no longer a peaceful, quiet hiding place, but a tower of defence—strong, manifest, ready to meet the attacks of all enemies, ready and able to resist them all. God is a Friend who meets every want in our nature, who can supply every need. So when we are weak and fainting, and unable to meet the brunt of battle, and striving against sin and sorrow and the wrath of man He is our safe, quiet resting place—our fortress also where no harm can reach us, no attack injure us. *"My God."* Now the Psalmist, as a summing up of all his praises, says "I will say of Him, He is... my God!" Is there any thing omitted in the former part of his declaration? *Everything* is here—all possible ascription of honour, and glory, and power to Him *"as God"* —"God over all, blessed for ever, "and of love, reverence, trust, obedience, and filial relation towards him on the part of the Psalmist, as MY God...when reflecting on the refuge and strength which the Lord has always been to him, and recalling his blessed experiences of sweet communion with God—words fail him. He can only say (but oh, with what expression!) MY GOD! *Mary B. M. Duncan.* 
 
 **Verse 2.** *My God.* Specially art Thou my God, first, on thy part, because of the special goodness and favour which Thou dost bestow upon me. Secondly, on my part, because of the special love and reverence with which I cling to Thee. *J. Paulus Palanterius.* 
 
@@ -248,7 +248,7 @@ If these things be so, then, friends, why should we not stoop to any work comman
 
 **Verse 11.** One angel armed with the power and glory of God is stronger than a whole country. Earthly princes are subject to many changes and great unsurety of life and estate. The reason is, their enemies may kill their watch, and corrupt their guard. But what men or kingdoms can touch the Church's watch? what angels of gold are able to corrupt the angels of God? and then how can that perish that is committed to keepers so mighty and faithful? Secondly, the charge of us is given to those ministering spirits by parcels, not in gross and piecemeal, not in a lump: our members in a book, our hairs by tale and number. For it is upon record, and, as it were, delivered to them in writing in one Psalm, *They keep all our bones,* Ps 34:20; in this, *they keep our very foot*, putting it in security (Ps 91:12); and elsewhere our whole man and every member. And can a charge so precisely and so particularly given and taken, be neglected? Thirdly, their manner of keeping us, as it is set down in the text, cannot but promise great assurance; for, is not the little child safe while the nurse carrieth it in her arms, or beareth it in her hands? So while these nurses so bear us, can we be ill danger? but our nurses on earth may fall; these nurses, the *angels*, cannot. *Robert Horn.* 
 
-**Verse 11.** *His angels.* Taking the word angel in its literal meaning, *messenger*, we may look upon any agency which God employs to strengthen, protect, and help us, as *his angel* to us. *Mary B.M. Duncan.* 
+**Verse 11.** *His angels.* Taking the word angel in its literal meaning, *messenger*, we may look upon any agency which God employs to strengthen, protect, and help us, as *his angel* to us. *Mary B. M. Duncan.* 
 
 **Verse 11.** *To keep thee in all thy ways.* How should those heavenly spirits bear that man in their arms, like nurses, upon earth living; or bear up his soul to heaven, like winged porters, when he dies, that refuseth the right way? They shall keep us in all our ways. Out of the way it is their charge to oppose us, as to preserve us in the way. Nor is this more a terror to the ungodly, than to the righteous a comfort. For if an angel would keep even a Balaam from sinning, how much more careful are all those glorious powers to prevent the miscarriages of God's children! From how many falls and bruises have they saved us! In how many inclinations to evil have they turned us, either by removing occasions, or by casting in secretly good motions! We sin too often, and should catch many more falls, if those holy guardians did not uphold us. Satan is ready to divert us, when we endeavour to do well; when to do ill, angels are as ready to prevent us. We are in Joshua the high priest's ease, with Satan on the one hand, on the other an angel, Zec 3:1: without this, our danger were greater than our defence, and we could neither stand nor rise. *Thomas Adams.* 
 
@@ -300,7 +300,7 @@ Oh, wily should heavenly God to man have such regard!
 
 **Verses 11-12.** It is observable that Scripture is the weapon that Satan doth desire to wield against Christ. In his other ways of dealing he was shy, and did but lay them in Christ's way, offering only the occasion, and leaving him to take them up; but in this he is more confident, and industriously pleads it, as a thing which he could better stand to and more confidently avouch. The care of his subtlety herein, lay in the misrepresentation and abuse of it, as may be seen in these particulars: (1) In that he urged this promise to promote a sinful thing, contrary to the general end of all Scripture, which was therefore written `that we sin not.' (2) But more especially in his clipping and mutilating of it. He industriously leaves out that part of it which doth limit and confine the promise of protection to lawful undertakings, such as this was not, and renders it as a general promise of absolute safety, be the action what it will. It is a citation from Ps 91:11-12, which there runs thus, *He shall give his angels charge over thee, to keep thee in all thy ways.* These last words, *"in all thy ways, "* which doth direct to a true understanding of God's intention in that promise, he deceitfully leaves out, as if they were needless and unnecessary parts of the promise, when indeed they were on purpose put there by the Spirit of God, to give a description of those persons and actions, unto whom, in such cases, the accomplishment of the promise might be expected; for albeit the word in the original, which is translated *"ways"* —Mykrd—doth signify any kind of way or action in the general, yet in this place it doth not; for then God were engaged to an absolute protection of men, not only when they unnecessarily thrust themselves into dangers, but in the most abominably sinful actions whatsoever, which would have been a direct contradiction to those many scriptures wherein God threatens to withdraw his hand and leave sinners to the danger of their iniquities; but it is evident that the sense of it is no more than this, `God is with you, while you are with him.' We have a paraphrase of this text, to this purpose, in Pr 3:23, "Then shalt thou walk in thy way safely, and thy foot shall not stumble:" where the condition of this safety, pointed to in the word "then, " which leads the promise, is expressly mentioned in the foregoing verses, "My son, let them"—that is, the precepts of wisdom—"not depart from thine eyes... Then"—not upon other terms—"shalt thou walk in thy way safely." The *"ways"* then in this promise cited by Satan, are the ways of duty, or the ways of our lawful callings. The fallacy of Satan in this dealing with Scripture is obvious, and Christ might have given this answer, as Bernard hath it, That God promises to keep him in his ways, but not in self created dangers, for that was not his way, but his ruin; or if a way, it was Satan's way, but not his. (3) To these two, some add another abuse, in a subtle concealment of the following verse in Ps 91:13: *Thou shalt tread upon the lion and adder.* This concerned Satan, whose cruelty and poisonous deceits were fitly represented by the lion and the adder, and there the promise is also explained to have a respect to Satan's temptations—that is—God would so manage his protection, that his children should not be led into a snare. *Richard Gilpin.* 
 
-**Verses 11-12.** There is, to my mind, a very remarkable coincidence of expression between the verses of this Psalm, about the office of God's angels, and that passage in Isaiah where Christ's sympathy and presence receive the same charge attributed to them without interposition. In Isa 63:9, we read, "In all their affliction he was afflicted, and the angel of his presence saved them." And again, "They shall bear thee up in their hands, lest thou dash thy foot against a stone, "compared with "And he bare them, and he carried them all the days of old." Christ in us, by sympathy with our nature—Christ in us, by the indwelling of his Spirit in each individual heart—thus he knows all our needs. Christ with us, in every step, all powerful to make all work for good, and with love and pity watching over our interests—thus his presence saves us, and *all* things are made his messengers to us. *Mary B.M. Duncan.* 
+**Verses 11-12.** There is, to my mind, a very remarkable coincidence of expression between the verses of this Psalm, about the office of God's angels, and that passage in Isaiah where Christ's sympathy and presence receive the same charge attributed to them without interposition. In Isa 63:9, we read, "In all their affliction he was afflicted, and the angel of his presence saved them." And again, "They shall bear thee up in their hands, lest thou dash thy foot against a stone, "compared with "And he bare them, and he carried them all the days of old." Christ in us, by sympathy with our nature—Christ in us, by the indwelling of his Spirit in each individual heart—thus he knows all our needs. Christ with us, in every step, all powerful to make all work for good, and with love and pity watching over our interests—thus his presence saves us, and *all* things are made his messengers to us. *Mary B. M. Duncan.* 
 
 **Verse 12.** *Angels... shall bear thee up... lest thou dash thy foot against a stone.* Angels are introduced as bearing up the believer in their hands, not that he may be carried in safety over some vast ocean, not that he may be transported through hostile and menacing squadrons, not that; when exposed to some extraordinary danger, he may be conveyed to a place of refuge, but, as bearing him up in their arms, "lest at any time he hurt his foot against a stone."... Angels, the topmost beings in creation, the radiant, the magnificent, the powerful—angels are represented as holding up a righteous man, lest some pebble in the path should make him trip, lest he hurt his foot against a stone. Is there, after all, any want of keeping between the agency and the act, so that there is even the appearance of angels being unworthily employed, employed on what is beneath them, when engaged in bearing us up, lest at any time we hurt the foot against a stone? Nay, the hurting the foot against a stone has often laid the foundations of fatal bodily disease: the injury which seemed too trifling to be worth notice has produced extreme sickness, and ended in death. Is it different in spiritual respects, in regard of the soul, to which the promise in our text must be specially applied? Not a jot. Or, if there be a difference, it is only that the peril to the soul from a slight injury is far greater than that to the body: the worst spiritual diseases might commonly be traced to inconsiderable beginnings.... It can be no easy thing, this keeping the foot from being hurt against a stone, seeing that the highest of created beings are commissioned to effect it. Neither is it. The difficulty in religion is the taking up the cross "daily, "rather than the taking it up on some set occasion, and under extraordinary circumstances. The serving God in little things, the carrying religious principles into the details of life, the discipline of our tempers, the regulation of our speech, the domestic Christianity, the momentary sacrifices, the secret and unobserved self denials; who that knows anything of the difficulties of piety, does not know that there is greater danger of his failing in these than in trials of apparently far higher cost, and harder endurance; if on no other account, yet because the very absence of what looks important, or arduous, is likely to throw him off his guard, make him careless or confident, and thereby almost insure defect or defeat? *Henry Melvill.* 
 
@@ -424,31 +424,31 @@ truly done each day. *Horatius Bonar*
 
 **Verse 1.** 
 
-1\.The secret dwelling place. There is the dweller in the dark world, in the favoured land, in the holy city, in the outer court; but the holy of holies is the "secret place"—communion, acceptance, etc.
+1\. The secret dwelling place. There is the dweller in the dark world, in the favoured land, in the holy city, in the outer court; but the holy of holies is the "secret place"—communion, acceptance, etc.
 
-2\.The protecting shadow—security, peace, etc.; like hamlets of olden time clustered beneath castle walls. *Charles A. Davis.* 
+2\. The protecting shadow—security, peace, etc.; like hamlets of olden time clustered beneath castle walls. *Charles A. Davis.* 
 
 **Verse 1.** 
 
 1\. *The person.* One who is in intimate, personal, secret, abiding communion with God, dwelling near the mercyseat, within the veil.
 
-2\.The Privilege. He is the guest of God, protected, refreshed, and comforted by him, and that to all eternity.
+2\. The Privilege. He is the guest of God, protected, refreshed, and comforted by him, and that to all eternity.
 
 **Verses 1-2.** Four names of God.
 
-1\.We commune with him reverently, for he is the Most High.
+1\. We commune with him reverently, for he is the Most High.
 
-2\.We rest in him as the Almighty.
+2\. We rest in him as the Almighty.
 
-3\.We rejoice in him as Jehovah or Lord.
+3\. We rejoice in him as Jehovah or Lord.
 
-4\.We trust him as EL, the mighty God.
+4\. We trust him as EL, the mighty God.
 
 **Verse 2.** 
 
-1\.Observe the nouns applied to God—refuge from trouble, fortress in trouble, God at all times.
+1\. Observe the nouns applied to God—refuge from trouble, fortress in trouble, God at all times.
 
-2\.Observe the pronouns applied by man— *"I"* will say, " *my* refuge, my fortress, "etc. *G. R.* 
+2\. Observe the pronouns applied by man— *"I"* will say, " *my* refuge, my fortress, "etc. *G. R.* 
 
 **Verse 2.** The power, excellence, fruit, reasonableness, and open avowal of personal faith.
 
@@ -460,25 +460,25 @@ truly done each day. *Horatius Bonar*
 
 **Verses 3, 8-9.** 
 
-1\.Saints are safe— *"surely, "* (Ps 91:3).
+1\. Saints are safe— *"surely, "* (Ps 91:3).
 
-2\.The evil is bounded— *"only, "* (Ps 91:8).
+2\. The evil is bounded— *"only, "* (Ps 91:8).
 
-3\.The Lord has reasons for preserving his own— *because, "* (Ps 91:9).
+3\. The Lord has reasons for preserving his own— *because, "* (Ps 91:9).
 
 **Verse 4.** 
 
-1\.The compassion of God.
+1\. The compassion of God.
 
-2\.The confidence of saints.
+2\. The confidence of saints.
 
-3\.The panoply of truth.
+3\. The panoply of truth.
 
 **Verses 5-6.** 
 
-1\.The exposure of all men to fear. (a) Continually, day and night. (b) Deservedly: "conscience doth make cowards of us all."
+1\. The exposure of all men to fear. (a) Continually, day and night. (b) Deservedly: "conscience doth make cowards of us all."
 
-2\.The exemption of some men from fear. (a) Because of their trust. (b) Because of the divine protection.
+2\. The exemption of some men from fear. (a) Because of their trust. (b) Because of the divine protection.
 
 **Verse 7.** How an evil may be near but not nigh.
 
@@ -486,31 +486,31 @@ truly done each day. *Horatius Bonar*
 
 **Verses 9-10.** 
 
-1\.God our spiritual habitation.
+1\. God our spiritual habitation.
 
-2\.God the keeper of our earthly habitation.
+2\. God the keeper of our earthly habitation.
 
-3\.General truth that the spiritual blesses the temporal.
+3\. General truth that the spiritual blesses the temporal.
 
 **Verse 10.** 
 
-1\.The Personal Blessing.
+1\. The Personal Blessing.
 
-2\.The Domestic Blessing.
+2\. The Domestic Blessing.
 
-3\.The connection between the two.
+3\. The connection between the two.
 
 **Verses 11-12.** A "wrested" Scripture righted.
 
-1\.Satan's version—presumptuousness.
+1\. Satan's version—presumptuousness.
 
-2\.The Holy Spirit's version—trustfulness. *Charles A. Davis.* 
+2\. The Holy Spirit's version—trustfulness. *Charles A. Davis.* 
 
 **Verses 11-12.** 
 
-1\.The Ministry of Angels as employed by God. (a) Official: "he shall give, "etc. (b) Personal: "over thee." (c) Constant: "in all thy ways."
+1\. The Ministry of Angels as employed by God. (a) Official: "he shall give, "etc. (b) Personal: "over thee." (c) Constant: "in all thy ways."
 
-2\.As enjoyed by man. (a) For preservation: "shall bear thee, "etc.; tenderly but effectually. (b) Under limitation. They cannot do the work of God, or of Christ, or of the Spirit, or of the word, or of ministers, for salvation; "are they not all ministering spirits, "etc. *G. R.* 
+2\. As enjoyed by man. (a) For preservation: "shall bear thee, "etc.; tenderly but effectually. (b) Under limitation. They cannot do the work of God, or of Christ, or of the Spirit, or of the word, or of ministers, for salvation; "are they not all ministering spirits, "etc. *G. R.* 
 
 **Verse 12.** Preservation from minor evils most precious because they are often most grievous, lead to greater evils, and involve much damage.
 
@@ -518,31 +518,31 @@ truly done each day. *Horatius Bonar*
 
 **Verse 13.** 
 
-1\.Every child of God has his enemies. (a) They are numerous: "the lion, adder, young lion, dragon." (b) Diversified: subtle and powerful—"lion and adder; " new and old—"young lion" and the" old dragon."
+1\. Every child of God has his enemies. (a) They are numerous: "the lion, adder, young lion, dragon." (b) Diversified: subtle and powerful—"lion and adder; " new and old—"young lion" and the" old dragon."
 
-2\.He will finally obtain a complete victory over them—"Thou shalt tread, "etc.; "shall put thy foot, "etc.; "the Lord shall bruise Satan, "etc. *G. R.* 
+2\. He will finally obtain a complete victory over them—"Thou shalt tread, "etc.; "shall put thy foot, "etc.; "the Lord shall bruise Satan, "etc. *G. R.* 
 
 **Verses 14-16.** The six "I wills."
 
 **Verse 14.** Here we have,
 
-1\.Love for love: "Because, "etc. (a) The fact of the saints' love to God. There is, first, love in God without their love, then love for their love. (b) The evidence of his love to them: "I will deliver him"—from sin, from danger, from temptation, from every evil.
+1\. Love for love: "Because, "etc. (a) The fact of the saints' love to God. There is, first, love in God without their love, then love for their love. (b) The evidence of his love to them: "I will deliver him"—from sin, from danger, from temptation, from every evil.
 
-2\.Honour for honour. (a) His honouring God. "He hath known my name" and made it known; God honouring him; "I will set him on high"—high in honour, in happiness, in glory. *G. R.* 
+2\. Honour for honour. (a) His honouring God. "He hath known my name" and made it known; God honouring him; "I will set him on high"—high in honour, in happiness, in glory. *G. R.* 
 
 **Verse 15-16.** Observe,
 
-1\.The exceeding great and precious promises. (a) Answer to prayer: "he shall call, "etc. (b) Comfort in trouble: "I will be with him." (c) Deliverance from trouble: "I will deliver him." (d) Greater honour after trouble: deliver "and honour him." (e) Length of days; life long enough to satisfy him. (f) God's salvation; "show him my salvation; "far beyond what man could think or desire.
+1\. The exceeding great and precious promises. (a) Answer to prayer: "he shall call, "etc. (b) Comfort in trouble: "I will be with him." (c) Deliverance from trouble: "I will deliver him." (d) Greater honour after trouble: deliver "and honour him." (e) Length of days; life long enough to satisfy him. (f) God's salvation; "show him my salvation; "far beyond what man could think or desire.
 
-2\.To whom these promises belong; who is the *he* and the *him* to whom these promises are made. He "calls upon God, "says Ps 91:15; he "hath known my name, "says Ps 91:14; he "hath set his love upon me, "says the former part of the same verse; he "has made the Lord his habitation, "says Ps 91:9; he "dwelleth in the secret place of the Most High, "says Ps 91:1. Hannah More says, "To preach privileges without specifying to whom they belong is like putting a letter in the post office without a direction." It may be very good and contain a valuable remittance, but no one can tell for whom it is intended. All the promises of Scripture are plainly directed to those to whom they belong. The direction put upon the promises of this Psalm is unmistakably clear and often repeated. *G. R.* 
+2\. To whom these promises belong; who is the *he* and the *him* to whom these promises are made. He "calls upon God, "says Ps 91:15; he "hath known my name, "says Ps 91:14; he "hath set his love upon me, "says the former part of the same verse; he "has made the Lord his habitation, "says Ps 91:9; he "dwelleth in the secret place of the Most High, "says Ps 91:1. Hannah More says, "To preach privileges without specifying to whom they belong is like putting a letter in the post office without a direction." It may be very good and contain a valuable remittance, but no one can tell for whom it is intended. All the promises of Scripture are plainly directed to those to whom they belong. The direction put upon the promises of this Psalm is unmistakably clear and often repeated. *G. R.* 
 
 ## Works Upon The Ninety-First Psalm
 
 S. Patris Bernardi, in Psalmum 90. (91). Qui habitat. *Sermones* (In the Paris edition of Bernard's works, imperial 8vo. 1839, Volume one part 2, also in the quarto volume of Sermons, *Salisburgi* MDCLXVI.
 
-The Shield of the Righteous: or, the Ninety-first Psalme, expounded, with the addition of Doctrines and Verses. Verie necessarie and comfortable in these dayes of heauinesse, wherein the Pestilence rageth so sore in London, and other parts of this Kingdome. By ROBERT HORN, Minister of God's Word...London. 1628 (4to).
+The Shield of the Righteous: or, the Ninety-first Psalme, expounded, with the addition of Doctrines and Verses. Verie necessarie and comfortable in these dayes of heauinesse, wherein the Pestilence rageth so sore in London, and other parts of this Kingdome. By ROBERT HORN, Minister of God's Word... London. 1628 (4to).
 
 The Righteous man's Habitation in the Time of the Plague and Pestilence; being a brief Exposition of the Ninety-first Psalm: (In the Works of William Bridge (1600-1670) Tegg's Edition, Volume one pg. 463-500.
 
-In "UNDER THE SHADOW: *being additional leaves from the Note Book of the late Mary B.M. Duncan,* 1867", pp. 85-172, there is an Exposition of this Psalm.
+In "UNDER THE SHADOW: *being additional leaves from the Note Book of the late Mary B. M. Duncan,* 1867", pp. 85-172, there is an Exposition of this Psalm.
 

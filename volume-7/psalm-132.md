@@ -98,7 +98,7 @@ Crowns become the victor's brow."
 
 **Verses 1-2.** If the Jew could rightly appeal to God to show mercy to his church and nation for the sake of that shepherd youth whom he had advanced to the kingdom, much more shall we justly plead our cause in the name of David's son (called David four times in the prophets), and of *all his trouble*, all the sorrows of his birth and infancy, his ministry and passion and death, which he bore as a consequence of his self dedication to his father's will, when his priesthood, foreordained from all eternity, was confirmed with an oath, "for these *Levitical* priests were made without *swearing* an oath; but this with an oath by him that said unto him, The Lord sware and will not repent, Thou art a priest for ever after the order of Melchizedek": Heb 7:21 Ps 100:4.— *Theodoret and C'assiodorus, in Neale and Littledale.* 
 
-**Verse 2.** *And vowed.* The history does not record the time nor the occasion of this vow; but history does record how it was ever in David's thoughts and on David's heart. David, indeed, in the first verse, asks of God to remember his afflictions, and then records his vow; and you may, perhaps, think that the vow was the consequence of his afflictions, and that he made it contingent on his deliverance...It is far more consistent with the character of David to look upon the affliction to which he alludes as resulting from the Lord's not permitting him to carry out his purpose of erecting an earthly habitation for the God of heaven, inasmuch as he had shed blood abundantly. And if, as is more than probable, amid that blood which he had shed, David's conscience recalled the blood of Uriah as swelling the measure, he could not but be deeply afflicted, even while he acknowledged the righteousness of the sentence. But though not permitted of God to execute his purpose, we cannot but feel and own that it was a noble resolution which David here makes; and though recorded in all the amplification of Oriental imagery, it expresses the holy determination of the Psalmist to forego every occupation and pursuit, and not to allow a single day to elapse till he had at least fixed on the site of the future temple.— *Barton Bouchier.* 
+**Verse 2.** *And vowed.* The history does not record the time nor the occasion of this vow; but history does record how it was ever in David's thoughts and on David's heart. David, indeed, in the first verse, asks of God to remember his afflictions, and then records his vow; and you may, perhaps, think that the vow was the consequence of his afflictions, and that he made it contingent on his deliverance... It is far more consistent with the character of David to look upon the affliction to which he alludes as resulting from the Lord's not permitting him to carry out his purpose of erecting an earthly habitation for the God of heaven, inasmuch as he had shed blood abundantly. And if, as is more than probable, amid that blood which he had shed, David's conscience recalled the blood of Uriah as swelling the measure, he could not but be deeply afflicted, even while he acknowledged the righteousness of the sentence. But though not permitted of God to execute his purpose, we cannot but feel and own that it was a noble resolution which David here makes; and though recorded in all the amplification of Oriental imagery, it expresses the holy determination of the Psalmist to forego every occupation and pursuit, and not to allow a single day to elapse till he had at least fixed on the site of the future temple.— *Barton Bouchier.* 
 
 **Verse 2.** *He vowed.* He who is ready to vow on every occasion will break his vow on every occasion. It is a necessary rule, that "we be as sparing in making our vows as may be"; there being many great inconveniences attending frequent and multiplied vows. It is very observable, that the Scripture mentions very few examples of vows, compared with the many instances of very great and wonderful providences; as if it would give us some instances, that we might know what we have to do, and yet would give us but few, that we might know we are not to do it often. You read Jacob lived seven score and seven years (Ge 47:28); but you read, I think, but of one vow that he made. Our extraordinary exigencies are not many; and, I say, our vows should not be more. Let this, then, be the first necessary ingredient of a well ordered vow. Let it be no oftener made than the pressing greatness of an evil to be removed, or the alluring excellency of a blessing extraordinary to be obtained, will well warrant. Jephthah's vow was so far right; he had just occasion; there was a great and pressing danger to be removed; there was an excellent blessing to be obtained: the danger was, lest Israel should be enslaved; the blessing was victory over their enemies. This warranted his vow, though his rashness marred it. It was in David's troubles that David sware, and vowed a vow to the Most High; and Jacob forbare to vow until his more than ordinary case bade his vow, and warranted him in so doing: Ge 28:20. Let us do as he did,—spare to vow, until such case puts us on it.— *Henry Hurst* (1629?—1690), *in "The Morning Exercises."* 
 
@@ -106,7 +106,7 @@ Crowns become the victor's brow."
 
 **Verse 2.** *The mighty God of Jacob.* The title *strong one of Jacob,* by which God is here designated, first used by Jacob himself, Ge 49:24, and thence more generally used as is clear from Isa 1:24 49:26, and other places, here sets forth God both as the most mighty who is able most severely to punish perjury, and with whom no one may dare to contend, and also as the defender and most mighty vindicator of Israel, such as Jacob had proved him, and all his descendants, in particular David, who frequently rejoiced and gloried in this mighty one and defender. Such a mighty one of Jacob was worthy to have a temple built for him, and was so great that he would not suffer perjury.— *Hermann Venema.* 
 
-**Verse 2.** Where the interpreters have translated, *"the God of Jacob"*, it is in the Hebrew, " *the mighty* in Jacob." Which name is sometimes attributed unto the angels, and sometimes it is also applied to other things wherein are great strength and fortitude; as to a lion, an ox, and such like. But here it is a singular word of faith, signifying that God is the power and strength of his people; for only faith ascribes this unto God. Reason and the flesh do attribute more to riches, and such other worldly helps as man seeth and knoweth. All such carnal helps are very idols, which deceive men, and draw them to perdition; but this is the strength and fortitude of the people, to have God present with them...So the Scripture saith in another place: "Some trust in chariots, and some in horses, but we will remember the name of the Lord." Likewise Paul saith: "Be strong in the Lord, and in the power of his might." For this power is eternal, and deceives not. All other powers are not only deceitful, but they are transitory, and continue but for a moment.— *Martin Luther.* 
+**Verse 2.** Where the interpreters have translated, *"the God of Jacob"*, it is in the Hebrew, " *the mighty* in Jacob." Which name is sometimes attributed unto the angels, and sometimes it is also applied to other things wherein are great strength and fortitude; as to a lion, an ox, and such like. But here it is a singular word of faith, signifying that God is the power and strength of his people; for only faith ascribes this unto God. Reason and the flesh do attribute more to riches, and such other worldly helps as man seeth and knoweth. All such carnal helps are very idols, which deceive men, and draw them to perdition; but this is the strength and fortitude of the people, to have God present with them... So the Scripture saith in another place: "Some trust in chariots, and some in horses, but we will remember the name of the Lord." Likewise Paul saith: "Be strong in the Lord, and in the power of his might." For this power is eternal, and deceives not. All other powers are not only deceitful, but they are transitory, and continue but for a moment.— *Martin Luther.* 
 
 **Verse 3.** *Surely I will not come into the tabernacle of my house,* etc. To avoid the absurdity of thinking that David should make such a rash and unwarrantable vow as this might seem to be, that till he had his desire satisfied in that which is afterwards expressed he would abide in the open air, and never go within his doors, nor ever take any rest, either by day or by night, some say that David spake this with reference to his purpose of taking the fort of Zion from the Jebusites (2Sa 5:6), where by revelation he knew that God meant to have the ark settled, and which he might probably think would be accomplished within some short time. And then others again say, that he meant it only of that stately cedar house, which he had lately built for himself at Jerusalem (2Sa 7:1-2), to wit, that he would not go into that house; and so also that he would not go up unto his bed, nor (Ps 132:4) give any sleep to his eyes, nor slumber to his eyelids, to wit, in that house. But neither of these expositions gives me any satisfaction. I rather take these to be hyperbolical expressions of the continual, exceeding great care wherewith he was perplexed about providing a settled place for the ark to rest in, like that in Pr 6:4-5: "Give not sleep to thine eyes, nor slumber to thine eyelids; deliver thyself as a roe from the hand of the hunter", etc. Neither is it any more in effect than if he had said, I will never lay by this care to mind myself in anything whatsoever: I shall never with any content abide in mine own house, nor with any quiet rest in my bed, until, etc.— *Arthur Jackson,* 1593-1666.
 
@@ -152,7 +152,7 @@ That this is the true and genuine meaning of this phrase of *worshipping the Lor
 
 **Verse 8.** *Thou, and the ark of thy strength.* "Both he that sanctifieth and they who are sanctified are all of one" Heb 2:11. Now Christ, our Great High Priest, is gone up into the holy resting place. Of him it is said, "Arise": for he arose from the dead, and ascended into heaven. And to his "ark", the church, it is said, "Arise": because he lives, all in him shall live also.— *Edward Simms, in "A Spiritual Commentary on the Book of Psalms,"* 1882.
 
-**Verse 8.** *The ark of thy strength.* The historical records of the ark are numerous, and deeply interesting. Miracles were often wrought at its presence. At the passage of the Jordan, no sooner were the feet of the priests which bare this holy vessel dipped in the brim of the river, than the waters rose up upon an heap, and the people of God passed over on dry ground—"clean over Jordan": Jos 3:14-17. At the siege of Jericho, the ark occupied a most prominent position in the daily procession of the tribes around the doomed city...It was, however, captured by the Philistines, and Hophni and Phineas, Eli's wicked sons, in whose care it was placed, slain. Thus the Lord "delivered his strength into captivity and his glory into the enemy's hand": Ps 78:61.— *Frank H. White, in "Christ in the Tabernacle,"* 1877.
+**Verse 8.** *The ark of thy strength.* The historical records of the ark are numerous, and deeply interesting. Miracles were often wrought at its presence. At the passage of the Jordan, no sooner were the feet of the priests which bare this holy vessel dipped in the brim of the river, than the waters rose up upon an heap, and the people of God passed over on dry ground—"clean over Jordan": Jos 3:14-17. At the siege of Jericho, the ark occupied a most prominent position in the daily procession of the tribes around the doomed city... It was, however, captured by the Philistines, and Hophni and Phineas, Eli's wicked sons, in whose care it was placed, slain. Thus the Lord "delivered his strength into captivity and his glory into the enemy's hand": Ps 78:61.— *Frank H. White, in "Christ in the Tabernacle,"* 1877.
 
 **Verse 9.** *Let thy priests be clothed with righteousness.* No garment is so resplendent as that of a holy character. In this glorious robe our great High priest is evermore strayed, and he would have all his people adorned in the same manner. Then only are priests fit to appear before the Lord, and to minister for the profit of the people, when their lives are dignified with goodness. They must ever remember that they are God's priests, and should therefore wear the livery of their Lord, which is holiness: they are not only to have righteousness, but to bc clothed with it, so that upon every part of them righteousness shall be conspicuous. Whoever looks upon God's servants should see holiness if they see nothing else. Now, this righteousness of the ministers of the temple is prayed for in connection with the presence of the Lord; and this instructs us that holiness is only to be found among those who commune with God, and only comes to them through his visitation of their spirits. God will dwell among a holy people; and on the other hand, where God is the people become holy. And let thy saints shout for joy. Holiness and happiness go together; where the one is found, the other ought never to be far away. Holy persons have a right to great and demonstrative joy: they may shout because of it. Since they are saints, and thy saints, and thou hast come to dwell with them, O Lord, thou hast made it their duty to rejoice, and to let others know of their joy. The sentence, while it may read as a permit, is also a precept: saints are commanded to rejoice in the Lord. Happy religion which makes it a duty to be glad! Where righteousness is the clothing, joy may well be the occupation.
 
@@ -194,7 +194,7 @@ Thus are true Aarons drear, etc.
 
 **Verse 12.** *If thy children will keep my covenant,* etc. Lest David's sons, if they be left without law, should live without care, they must know that the succession shall be perpetual; but the promise is conditional; if David's sons conform themselves to God, *"if they keep my covenant"*, whereof they cannot pretend ignorance. And they have an authentic record: the record, *"my testimonies"*; authentic, *"I myself will teach them."* You see the king's blessing, it is rely great; but lest the promise thereof be thought too good to be true, God secures the king with a most unchangeable warrant. The warrant is his oath, *"The Lord sware"*; and this warrant is, 1. Unchangeable, because sincere; he swore in truth. 2. Stable, *he will not turn from it*. And what could king David desire more for his own house than a promise of such a blessing, and such a warrant of that promise? Yes he might, and no doubt he did desire *more*; and God also intended to him more than the letter of this promise doth express, even the accomplishment of the truth whereof this was but a type. And what is that? The establishment of the kingdom of Jesus Christ.— *Arthur Lake.* 
 
-**Verse 12.** *That I shall teach them.* Here is to be noted that he addeth, *"which I will teach them"*; for he will be the teacher and will be heard. He wills not that church councils should be heard, or such as teach that which he hath not taught...God giveth no authority unto man above the word. So should he set man, that is to say, dust and dung, above himself; for what is the word, but God himself? This word they that honour, obey, and keep, are the true church indeed, be they never so contemptible in the world; but they which do not, are the church of Satan, and accursed of God. And this is the cause why it is expressly set down in the text, *"The testimonies which I will teach them."* For so will God use the ministry of teachers and pastors in the church, that he notwithstanding will be their chief Pastor, and all other ministers and pastors whatsoever, yea, the church itself, shall be ruled and governed by the word.— *Martin Luther.* 
+**Verse 12.** *That I shall teach them.* Here is to be noted that he addeth, *"which I will teach them"*; for he will be the teacher and will be heard. He wills not that church councils should be heard, or such as teach that which he hath not taught... God giveth no authority unto man above the word. So should he set man, that is to say, dust and dung, above himself; for what is the word, but God himself? This word they that honour, obey, and keep, are the true church indeed, be they never so contemptible in the world; but they which do not, are the church of Satan, and accursed of God. And this is the cause why it is expressly set down in the text, *"The testimonies which I will teach them."* For so will God use the ministry of teachers and pastors in the church, that he notwithstanding will be their chief Pastor, and all other ministers and pastors whatsoever, yea, the church itself, shall be ruled and governed by the word.— *Martin Luther.* 
 
 **Verse 12.** *Their children shall also sit upon thy throne for evermore.* As if he had said, this promise as touching Christ will I accomplish, and will undoubtedly establish the throne unto my servant David; but do not ye, which in the meantime sit on this throne, and govern this kingdom, presume upon the promise, and think that you cannot err, or that I will wink at your errors, and not rather condemn and severely punish them. Therefore either govern your kingdom according to my word, or else I will root you out and destroy you for ever. This promise he now amplifies, and setteth forth more at large.— *Martin Luther.* 
 
@@ -230,7 +230,7 @@ about 1670.
 
 **Verse 17.** *There will I make the horn of David to bud,* etc. A metaphor taken from those goodly creatures, as stags, and such like; whose chiefest beauty and strength consisteth in their horns, especially when they bud and branch abroad.— *Thomas Playfere.* 
 
-**Verse 17.** *The horn of David.* This image of a *horn* is frequent in the Old Testament...The explanation must be found neither in the horns of the altar on which criminals sought to lay hold, nor in the horns with which they ornamented their helmets; the figure is taken from the horns of the bull, in which the power of this animal resides. It is a natural image among an agricultural people...Just as the strength of the animal is concentrated in its horn, so all the delivering power granted to the family of David for the advantage of the people will be concentrated in the Messiah.— *F. Godet, in "A Commentary on the Gospel of St. Luke,"* 1875.
+**Verse 17.** *The horn of David.* This image of a *horn* is frequent in the Old Testament... The explanation must be found neither in the horns of the altar on which criminals sought to lay hold, nor in the horns with which they ornamented their helmets; the figure is taken from the horns of the bull, in which the power of this animal resides. It is a natural image among an agricultural people... Just as the strength of the animal is concentrated in its horn, so all the delivering power granted to the family of David for the advantage of the people will be concentrated in the Messiah.— *F. Godet, in "A Commentary on the Gospel of St. Luke,"* 1875.
 
 **Verse 17.** *Make the horn to bud.* In the beginning of the month of March the common stag, or red deer, is lurking in the sequestered spots of his forest home, harmless as his mate, and as timorous. Soon a pair of prominences make their appearance on his forehead, covered with a velvety skin. In a few days these little prominences have attained some length, and give the first indication of their true form. Grasp one of these in the hand and it will be found burning hot to the touch, for the blood runs fiercely through the velvety skin, depositing at every touch a minute portion of bony matter. More and more rapidly grow the horns, the carotid arteries enlarging in order to supply a sufficiency of nourishment, and in the short period of ten weeks the enormous mass of bony matter has been completed. Such a process is almost, if not entirely, without parallel in the history of the animal kingdom.— *J. G. Wood, in "The Illustrated Natural History,"* 1861.
 
@@ -240,23 +240,23 @@ about 1670.
 
 **Verse 17.** *I have ordained a lamp for mine anointed.* We remark,
 
-1\.The designation given unto Christ by God his Father; he is *"mine anointed."* Though he be despised and rejected of men; though an unbelieving world see no form or comeliness in him, why he should be desired, yet I own him, and challenge him as mine Anointed, the Prophet, Priest, and King of my church. "I have found David my servant: with my holy oil have I anointed him: with whom my hand shall be established: mine arm also shall strengthen him": Ps 89:20-21.
+1\. The designation given unto Christ by God his Father; he is *"mine anointed."* Though he be despised and rejected of men; though an unbelieving world see no form or comeliness in him, why he should be desired, yet I own him, and challenge him as mine Anointed, the Prophet, Priest, and King of my church. "I have found David my servant: with my holy oil have I anointed him: with whom my hand shall be established: mine arm also shall strengthen him": Ps 89:20-21.
 
-2\.The great means of God's appointment for manifesting the glory of Christ to a lost world; he has provided *"a lamp"* for his Anointed. The use of a lamp is to give light to people in the darkness of the night; so the word of God, particularly the gospel, is a light shining in a dark place, until the day of glory dawn, when the Lord God and the Lamb will be the light of the ransomed for endless evermore.
+2\. The great means of God's appointment for manifesting the glory of Christ to a lost world; he has provided *"a lamp"* for his Anointed. The use of a lamp is to give light to people in the darkness of the night; so the word of God, particularly the gospel, is a light shining in a dark place, until the day of glory dawn, when the Lord God and the Lamb will be the light of the ransomed for endless evermore.
 
-3\.The authority by which this lamp is lighted and carried through this dark world; it is *"ordained"* of God; and by his commandment it is that we preach and spread the light of the gospel (Mr 16:15,20).— *Ebenezer Erskine,* 1680—.
+3\. The authority by which this lamp is lighted and carried through this dark world; it is *"ordained"* of God; and by his commandment it is that we preach and spread the light of the gospel (Mr 16:15,20).— *Ebenezer Erskine,* 1680—.
 
 **Verse 17.** *I have ordained a lamp for mine anointed.* That is, I have ordained prosperity and blessings for him; blessings upon his person, and especially the blessing of posterity. Children are as a *lamp* or *candle* in their father's house, making the name of their ancestors conspicuous; hence in Scripture a Child given to succeed his father is called a *lamp*. When God by Ahijah the prophet told Jeroboam that God would take the kingdom out of the hand of Solomon's son, and give it unto him, even ten tribes; he yet adds (1Ki 11:86), "And unto his son will I give one tribe, that David my servant may have a light (*lamp* or *candle*) alway before me in Jerusalem, the city which I have chosen me to put my name there." And again (1Ki 15:4), when Abijam the son of Rehoboam proved wicked, the text saith, "Nevertheless for David's sake did the Lord his God give him a *lamp* (or *candle*) in Jerusalem, to set up his son after him."— *Joseph Caryl.* 
 
 **Verses 17-18.** God having chosen David's family, he here promises to bless that also with suitable blessings.
 
-1\.Growing power: *"There (in Zion) will I make the horn of David to bud."* The royal dignity should increase more and more, and constant additions be made to the lustre of it. Christ is the "horn of salvation", noting a plentiful and powerful salvation, which God hath raised up and made to bud "in the house of his servant David." David had promised to use his power for God's glory, to cut off the horns of the wicked, and to exalt the horns of the righteous (Ps 75:10); and in recompense for it, God here promises to make his horn to bud; for to them that have power and use it well, more shall be given.
+1\. Growing power: *"There (in Zion) will I make the horn of David to bud."* The royal dignity should increase more and more, and constant additions be made to the lustre of it. Christ is the "horn of salvation", noting a plentiful and powerful salvation, which God hath raised up and made to bud "in the house of his servant David." David had promised to use his power for God's glory, to cut off the horns of the wicked, and to exalt the horns of the righteous (Ps 75:10); and in recompense for it, God here promises to make his horn to bud; for to them that have power and use it well, more shall be given.
 
-2\.Lasting honour: *"I have ordained a lamp for mine anointed."* Thou wilt "light my candle" (Ps 18:28): that lamp is likely to burn brightly which God ordains. A lamp is a successor; for when a lamp is almost out, another may be lighted by it: it is a succession; for by this means David shall not want a man to stand before God. Christ is the lamp and the light of the world.
+2\. Lasting honour: *"I have ordained a lamp for mine anointed."* Thou wilt "light my candle" (Ps 18:28): that lamp is likely to burn brightly which God ordains. A lamp is a successor; for when a lamp is almost out, another may be lighted by it: it is a succession; for by this means David shall not want a man to stand before God. Christ is the lamp and the light of the world.
 
-3\.Complete victory. *"His enemies"*, that have formed designs against him, *"will I clothe with shame"*, when they shall see their designs baffled. Let the enemies of all good governors expect to be clothed with shame, and especially the enemies of the Lord Jesus and his government, who shall rise in the last great day "to everlasting shame and contempt."
+3\. Complete victory. *"His enemies"*, that have formed designs against him, *"will I clothe with shame"*, when they shall see their designs baffled. Let the enemies of all good governors expect to be clothed with shame, and especially the enemies of the Lord Jesus and his government, who shall rise in the last great day "to everlasting shame and contempt."
 
-4\.Universal prosperity: *"Upon himself shall his crown flourish",* i.e., his government shall be more and more his honour. This was to have its full accomplishment in Christ Jesus, whose crown of honour and power shall never fade, nor the flowers of it wither. The crowns of earthly princes "endure not to all generations" (Pr 27:24); but Christ's crown shall endure to all eternity, and the crowns reserved for his faithful subjects are such as "fade not away."— *Matthew Henry.* 
+4\. Universal prosperity: *"Upon himself shall his crown flourish",* i.e., his government shall be more and more his honour. This was to have its full accomplishment in Christ Jesus, whose crown of honour and power shall never fade, nor the flowers of it wither. The crowns of earthly princes "endure not to all generations" (Pr 27:24); but Christ's crown shall endure to all eternity, and the crowns reserved for his faithful subjects are such as "fade not away."— *Matthew Henry.* 
 
 **Verse 18.** *His enemies will I clothe with shame.* That is, shame shall so inseparably cover them, that as wheresoever a man goeth, he carrieth his clothes with him; so wheresoever they go they shall carry their *shame* with them. And that which is strangest of all, they which are ashamed use to clothe or cover their shame, and then think themselves well enough; but David's enemies shall be so ashamed, that even the very covering of their shame shall be a discovering of it; and the clothing or cloaking of their ignominy shall be nothing else but a girding of it more closely and more inseparably unto them.— *Thomas Playfere.* 
 
@@ -266,15 +266,15 @@ about 1670.
 
 **Verse 1.** 
 
-1\.The Lord remembers Jesus, our David: he loves him, he delights in him, he is with him.
+1\. The Lord remembers Jesus, our David: he loves him, he delights in him, he is with him.
 
-2\.In that memory his griefs have a prominent place—"all his afflictions."
+2\. In that memory his griefs have a prominent place—"all his afflictions."
 
-3\.Yet the Lord would be put in remembrance by his people.
+3\. Yet the Lord would be put in remembrance by his people.
 
 **Verses 1-2.** Concerning his people,
 
-1\.The Lord remembers,
+1\. The Lord remembers,
 
 a) Their persons.
 
@@ -282,7 +282,7 @@ b) Their afflictions.
 
 c) Their vows.
 
-2\.The Lord remembers them,
+2\. The Lord remembers them,
 
 a) To accept them.
 
@@ -292,11 +292,11 @@ c) To assist them.
 
 **Verses 1-2.** 
 
-1\.God remembers his people, each one: "Remember David." The Spirit maketh intercession within us according to the will of God.
+1\. God remembers his people, each one: "Remember David." The Spirit maketh intercession within us according to the will of God.
 
-2\.He remembers their afflictions: "David and all his afflictions." "I know thy works and thy tribulation."
+2\. He remembers their afflictions: "David and all his afflictions." "I know thy works and thy tribulation."
 
-3\.He remembers their vows, especially,
+3\. He remembers their vows, especially,
 
 a) Those which relate to his service.
 
@@ -306,9 +306,9 @@ c) Those which are faithfully performed.— *G. R.*
 
 **Verses 1-5.** Notice,
 
-1\.How painfully David felt what he conceived to be a dishonouring of God, which he thought he might be able to remedy. Consider "his afflictions",—because the ark dwelt within curtains, while he himself dwelt in a house of cedar: 2Sa 7:2.
+1\. How painfully David felt what he conceived to be a dishonouring of God, which he thought he might be able to remedy. Consider "his afflictions",—because the ark dwelt within curtains, while he himself dwelt in a house of cedar: 2Sa 7:2.
 
-2\.Consider,
+2\. Consider,
 
 a) Its singularity. Most find affliction in personal losses; very few suffer from a cause like this.
 
@@ -318,7 +318,7 @@ c) Its fittingness to a really God fearing man.
 
 d) Its pleasingness to God: 1Sa 2:30.
 
-2\.How earnestly he set himself to remedy the evil he deplored: "He sware", etc. There cannot be the least doubt that he would have foregone the enjoyment of temporal luxuries until he had accomplished the work dear to his heart, if he had been permitted of God. Remark,
+2\. How earnestly he set himself to remedy the evil he deplored: "He sware", etc. There cannot be the least doubt that he would have foregone the enjoyment of temporal luxuries until he had accomplished the work dear to his heart, if he had been permitted of God. Remark,
 
 a) There is little zeal for God's honour when self denial is not exercised for the sake of his cause.
 
@@ -328,33 +328,33 @@ c) It would be well to astonish the world, and deserve the commendations of the 
 
 **Verses 3-5.** 
 
-1\.We should desire a habitation for God more than for ourselves. God should have the best of everything. "See, now, I dwell in a house of cedar, but the ark of God dwelleth within curtains."
+1\. We should desire a habitation for God more than for ourselves. God should have the best of everything. "See, now, I dwell in a house of cedar, but the ark of God dwelleth within curtains."
 
-2\.We should be guided by the house of God in seeking a house for ourselves: "Surely I will not come", etc.
+2\. We should be guided by the house of God in seeking a house for ourselves: "Surely I will not come", etc.
 
-3\.We should labour for the prosperity of God's house even more than of our own. Nothing should make sleep more sweet to us than when the church of God prospers; nothing keep us more awake than when it declines: "I will not give sleep", etc. (Ps 132:4); "Is it time for you, O ye, to dwell in your ceiled houses, and this house lie waste?"— *G. R.* 
+3\. We should labour for the prosperity of God's house even more than of our own. Nothing should make sleep more sweet to us than when the church of God prospers; nothing keep us more awake than when it declines: "I will not give sleep", etc. (Ps 132:4); "Is it time for you, O ye, to dwell in your ceiled houses, and this house lie waste?"— *G. R.* 
 
 **Verse 5.** Something to live for—to find fresh habitations for God.
 
-1\.The Condescension implied: God *with us.* 
+1\. The Condescension implied: God *with us.* 
 
-2\.The Districts explored: hearts, homes, "dark places of the earth."
+2\. The Districts explored: hearts, homes, "dark places of the earth."
 
-3\.The Royalty of the Work. It makes King David busy, and is labour worthy of a king.— *W. B. H.* 
+3\. The Royalty of the Work. It makes King David busy, and is labour worthy of a king.— *W. B. H.* 
 
 **Verse 5.** *"A place for the LORD."* In the heart, the home, the assembly, the life. Everywhere we must find or make a place for the Lord.
 
 **Verse 5.** *"The mighty God of Jacob."* 
 
-1\.Mighty, and therefore he joined heaven and earth at Bethel.
+1\. Mighty, and therefore he joined heaven and earth at Bethel.
 
-2\.Mighty, and therefore brought Jacob back from Mesopotamia.
+2\. Mighty, and therefore brought Jacob back from Mesopotamia.
 
-3\.Mighty, and yet wrestled with him at Jabbok.
+3\. Mighty, and yet wrestled with him at Jabbok.
 
-4\.Mighty, and yet allowed him to be afflicted.
+4\. Mighty, and yet allowed him to be afflicted.
 
-5\.Mighty, and therefore gave him full deliverance.
+5\. Mighty, and therefore gave him full deliverance.
 
 **Verses 6-7.** We shall use this for practical purposes. A soul longing to meet with God. God has appointed a meeting place.
 
@@ -372,15 +372,15 @@ c) It would be well to astonish the world, and deserve the commendations of the 
 
 **Verse 7.** 
 
-1\.The Place: "His tabernacles."
+1\. The Place: "His tabernacles."
 
 a) Built for God.
 
 b) Accepted by God: present everywhere, he is especially present here.
 
-2\.The Attendance: "We will go", etc. There God is present to meet us, and there we should be present to meet him.
+2\. The Attendance: "We will go", etc. There God is present to meet us, and there we should be present to meet him.
 
-3\.The Design:
+3\. The Design:
 
 a) For adoration.
 
@@ -388,7 +388,7 @@ b) For self consecration: "We will worship at his footstool."— *G. R.*
 
 **Verses 8-9.** 
 
-1\.The Presence of God desired—
+1\. The Presence of God desired—
 
 a) That it may be signally manifested: "Arise" and enter.
 
@@ -398,7 +398,7 @@ c) That it may be felt: accompanied with power: "The ark of thy strength."
 
 d) That it may be abiding: "Arise into thy rest."
 
-2\.The reasons for this desire.
+2\. The reasons for this desire.
 
 a) With respect to the priests or ministers: "Let thy priests", etc.: not their own righteousness, but as a clothing: let them speak of "garments of salvation" and "robes of righteousness."
 
@@ -406,39 +406,39 @@ b) With respect to the worshippers: "And let thy saints", etc. Let ministers pre
 
 **Verse 9.** Consider,
 
-1\.The importance of a righteous ministry in the church.
+1\. The importance of a righteous ministry in the church.
 
-2\.The connection between such a ministry and a joyous people.
+2\. The connection between such a ministry and a joyous people.
 
-3\.The dependence of both on the gracious working of God.— *J. F.* 
+3\. The dependence of both on the gracious working of God.— *J. F.* 
 
 **Verse 9.** (*second clause* ).
 
-1\.Saints.
+1\. Saints.
 
-2\.Shouting.
+2\. Shouting.
 
-3\.Explaining—"for joy."
+3\. Explaining—"for joy."
 
-4\.Encouraging—"Let thy saints shout."
+4\. Encouraging—"Let thy saints shout."
 
 **Verse 9.** (*second clause* ).—The connection between holiness and joy.
 
 **Verses 9, 16.** *The Spiritual Vestry.* 
 
-1\.The Vestments:
+1\. The Vestments:
 
 a) Righteousness; for which the costliest stole is a poor substitute.
 
 b) Salvation: learning, oratory, etc., of small account in comparison.
 
-2\.The Procuring of the vestments:
+2\. The Procuring of the vestments:
 
 a) Must be from God.
 
 b) Earnest prayer should constantly arise from all saints.
 
-3\.The Robing:
+3\. The Robing:
 
 a) By God's own hand!
 
@@ -448,27 +448,27 @@ c) The persons are "thy priests."— *W. B. H.*
 
 **Verses 9, 16.** 
 
-1\.Priests and Saints.
+1\. Priests and Saints.
 
-2\.Vestments.
+2\. Vestments.
 
 3\."Hymns Ancient and Modern."
 
-4\.The Real Presence: God giving the garments and the joy.
+4\. The Real Presence: God giving the garments and the joy.
 
 **Verse 10.** 
 
-1\.An evil to be deprecated: "Turn not away the face"—so that he cannot see thee, or be seen of thee, or accepted, or allowed to hope.
+1\. An evil to be deprecated: "Turn not away the face"—so that he cannot see thee, or be seen of thee, or accepted, or allowed to hope.
 
-2\.A plea to be employed, "for thy servant David's sake"—thy covenant with him, his zeal, his consecration, his afflictions, his service. Good gospel pleading, such as may be used on many occasions.
+2\. A plea to be employed, "for thy servant David's sake"—thy covenant with him, his zeal, his consecration, his afflictions, his service. Good gospel pleading, such as may be used on many occasions.
 
 **Verse 11.** 
 
-1\.The divine oath.
+1\. The divine oath.
 
-2\.Its eternal stability.
+2\. Its eternal stability.
 
-3\.The everlasting Kingship.
+3\. The everlasting Kingship.
 
 **Verse 11.** (*middle clause* ).—Our confidence: "He will not turn from it." He is not a changing God. He foreknew everything. He is able to carry out his purpose. His honour is bound up in it. His oath can never be broken.
 
@@ -476,17 +476,17 @@ c) The persons are "thy priests."— *W. B. H.*
 
 **Verse 13.** 
 
-1\.Sovereign choice.
+1\. Sovereign choice.
 
-2\.Condescending indwelling.
+2\. Condescending indwelling.
 
-3\.Eternal rest.
+3\. Eternal rest.
 
-4\.Gracious reason—"I have desired it."
+4\. Gracious reason—"I have desired it."
 
 **Verse 14.** 
 
-1\.God finding rest in his church.
+1\. God finding rest in his church.
 
 a) The three persons honoured.
 
@@ -502,7 +502,7 @@ f) Glorious attributes extolled.
 
 g) Dearest relationships indulged.
 
-2\.This rest enduring for ever.
+2\. This rest enduring for ever.
 
 a) There will always be a church.
 
@@ -514,13 +514,13 @@ d) That church will be glorified eternally in heaven.
 
 **Verse 15.** 
 
-1\.Blessed provision.
+1\. Blessed provision.
 
-2\.Satisfied people—"satisfy her poor."
+2\. Satisfied people—"satisfy her poor."
 
-3\.Glorified God—"I will."
+3\. Glorified God—"I will."
 
-4\.Happy place—Zion.
+4\. Happy place—Zion.
 
 **Verse 16, 18.** Two forms of clothing: salvation and shame, prepared for his priests and Iris enemies. Which will you wear?
 
@@ -528,17 +528,17 @@ d) That church will be glorified eternally in heaven.
 
 **Verses 17-18.** 
 
-1\.The budding horn of growing power.
+1\. The budding horn of growing power.
 
-2\.The perpetual lamp of constant brightness.
+2\. The perpetual lamp of constant brightness.
 
-3\.The sordid array of defeated foes.
+3\. The sordid array of defeated foes.
 
-4\.The unfading wreath of glorious sovereignty.
+4\. The unfading wreath of glorious sovereignty.
 
 **Verse 18.** 
 
-1\.His enemies clothed.
+1\. His enemies clothed.
 
 a) Who are they? The openly profane. The moral but irreligious. The self righteous. The hypocritical.
 
@@ -546,7 +546,7 @@ b) How clothed with shame? In repentance, in disappointment, in remorse, in dest
 
 c) Who clothes them The Lord. He will shame them thoroughly.
 
-2\.Himself crowned.
+2\. Himself crowned.
 
 a) His crown: his dominion and glory.
 

@@ -132,7 +132,7 @@ This mercy to the aged proves the faithfulness of their God, and leads them to s
 
 **Verse 2.** *In the morning, and...every night.* God is Alpha and Omega. It is fit we should begin and end the day with his praise, who begins and ends it for us with mercy. Well, thou seest thy duty plainly laid before thee. As thou wouldst have God prosper thy labour in the day, and sweeten thy rest in the night, clasp them both together with thy morning and evening devotions. He that takes no care to set forth God's portion of time in the morning, doth not only rob God of his due, but is a thief to himself all the day after, by losing the blessing which a faithful prayer might bring from heaven on his undertakings. And he that closes his eyes at night without prayer, lies down before his bed is made.— *William Gurnall.* 
 
-**Verse 2.** *Thy faithfulness* (Vulg. *`veritas, '*) *every night.* Truth can be taken in its proper signification. Thus St. Jerome on our Psalm takes it, and says: "The truth of the Lord is announced in the night, as if it were wrapped up in some verbal obscurities. In an enigma it is spoken, and in parables; that seeing, they should not see, and hearing, they should not understand. Moses ascended Mount Sinai, Ex 24:9, and passed into the tempest and into the blackness and darkness, and there spake with the Lord." Thus Jerome. Christ brings back the light to us, as Lactantius teaches. Shall we wait, says he, till Socrates shall know something? Or Anaxagoras find light in the darkness? Or Democritus draw forth the truth from a well? Or till Empedocles expands the paths of his soul? Or Ascesilas and Carneades see, feel, and perceive? Behold a voice from heaven teaches us the truth, and reveals it more clearly to us than the sun himself...In the night truth is to be shown forth, that the night may be turned into day.— *Le Blanc.* 
+**Verse 2.** *Thy faithfulness* (Vulg. *`veritas, '*) *every night.* Truth can be taken in its proper signification. Thus St. Jerome on our Psalm takes it, and says: "The truth of the Lord is announced in the night, as if it were wrapped up in some verbal obscurities. In an enigma it is spoken, and in parables; that seeing, they should not see, and hearing, they should not understand. Moses ascended Mount Sinai, Ex 24:9, and passed into the tempest and into the blackness and darkness, and there spake with the Lord." Thus Jerome. Christ brings back the light to us, as Lactantius teaches. Shall we wait, says he, till Socrates shall know something? Or Anaxagoras find light in the darkness? Or Democritus draw forth the truth from a well? Or till Empedocles expands the paths of his soul? Or Ascesilas and Carneades see, feel, and perceive? Behold a voice from heaven teaches us the truth, and reveals it more clearly to us than the sun himself... In the night truth is to be shown forth, that the night may be turned into day.— *Le Blanc.* 
 
 **Verse 3.** *Upon an instrument of ten strings.* Eusebius, in his comment on this psalm, says: *"The psaltery of ten strings* is the worship of the Holy Spirit performed by means of the five senses of the body, and by the *five* powers of the soul." And to confirm this interpretation, he quotes the apostle, 1Co 14:15: "I will pray with the spirit, and with the understanding also; I will sing with the spirit, and with the understanding also." "As the mind has its influence by which it moves the body, so the spirit has its own influence by which it moves the soul." Whatever may be thought of this gloss, one thing is pretty evident from it, that *instrumental music* was not in use in the church of Christ in the time of Eusebius, which was near the middle of the *fourth* century. Had any such thing then existed in the Christian Church, he would have doubtless alluded to or spiritualized it; or, as he quoted the words of the apostle above, would have shown that *carnal usages* were substituted for *spiritual exercises.* — *Adam Clarke.* 
 
@@ -150,13 +150,13 @@ Like David's harp of solemn sound."
 
 — *Andrew Fuller.* 
 
-**Verse 3.** (*last clause* ). *On meditation with a harp.* (New translation.) By a bold but intelligible figure, meditation is referred to as an instrument, precisely as the lyre and harp are, the latter being joined with it as a mere accompaniment.— *J.A. Alexander.* 
+**Verse 3.** (*last clause* ). *On meditation with a harp.* (New translation.) By a bold but intelligible figure, meditation is referred to as an instrument, precisely as the lyre and harp are, the latter being joined with it as a mere accompaniment.— *J. A. Alexander.* 
 
 **Verse 3.** *With a solemn sound.* Let Christians abound as much as they will in the holy, heavenly exercise of singing in God's house and in their own houses; but let it be performed as a holy act, wherein they have immediately and visibly to do with God. When any social open act of devotion or solemn worship of God is performed, God should be reverenced as present. As we would not have the ark of God depart from us, her provoke God to make a breach upon us, we should take heed that we handle the ark with reverence.— *Jonathan Edwards, in "Errors connected with singing praises to God."* 
 
 **Verse 4.** *Thou LORD hast made me glad through thy work.* One of the parts of the well spending of the Sabbath, is the looking upon, and consideration of the works of creation. The consideration of the Lord's works will afford us much sweet refreshment and joy when God blesses the meditation; and when it is so we ought to acknowledge our gladness most thankfully and lift up our heart in his ways.— *David Dickson.* 
 
-**Verse 4.** *Thy work.* The "work of God" here is one no less marvellous than that of creation, which was the original ground of hallowing the Sabbath (see title of this Psalm)—namely, the final redemption of his people.— *A.R. Fausset.* 
+**Verse 4.** *Thy work.* The "work of God" here is one no less marvellous than that of creation, which was the original ground of hallowing the Sabbath (see title of this Psalm)—namely, the final redemption of his people.— *A. R. Fausset.* 
 
 **Verse 4.** *Made me glad through thy work*, etc. Surely there is nothing in the world, short of the most undivided reciprocal attachment, that has such power over the workings of the human heart as the mild sweetness of Nature. The most ruffled temper, when emerging from the town, will subside into a calm at the sight of an extended landscape reposing in the twilight of a fine evening. It is then that the spirit of peace settles upon the heart, unfetters the thoughts, and elevates the soul to the Creator. It is then that we behold the Parent of the universe in his works; we see his grandeur in earth, sea, sky; we feel his affection in the emotions which they raise, and half mortal, half etherealized, forgot where we are in the anticipation of what that world must be, of which this lovely earth is merely the shadow.— *Miss Porter.* 
 
@@ -268,7 +268,7 @@ Against the wind and open sky.
 
 **Verse 7.** Little do they think that they are suffered to prosper that like beasts they may be fitter for slaughter. The fatter they are, the fitter for slaughter, and the sooner slain: "He slew the fattest of them." Ps 78:31.— *Zachary Bogan.* 
 
-**Verse 8.** Here is the central pivot of the Psalm. *But thou, Lord, art most high for evermore*, *lit.* "art *height",* & c., the abstract used for the concrete, to imply that the essence of all that is *high* is concentrated in Jehovah. When God and the cause of holiness *seem low,* God *is really* never higher than then; for out of seeming weakness he perfects the greatest strength. When the wicked seem *high,* they are then on the verge of being cast down for ever. The believer who can realize this will not despair at the time of his own depression, and of the seeming exaltation of the wicked. If we can feel *"Jehovah most high for evermore",* we can well be unruffled, however low we lie.— *A.R. Fausset.* 
+**Verse 8.** Here is the central pivot of the Psalm. *But thou, Lord, art most high for evermore*, *lit.* "art *height",* & c., the abstract used for the concrete, to imply that the essence of all that is *high* is concentrated in Jehovah. When God and the cause of holiness *seem low,* God *is really* never higher than then; for out of seeming weakness he perfects the greatest strength. When the wicked seem *high,* they are then on the verge of being cast down for ever. The believer who can realize this will not despair at the time of his own depression, and of the seeming exaltation of the wicked. If we can feel *"Jehovah most high for evermore",* we can well be unruffled, however low we lie.— *A. R. Fausset.* 
 
 **Verse 9.** *"Lo thine enemies"; "lo thine enemies."* He represents their destruction as present, and as certain, which the repetition of the words implies.— *Matthew Pool.* 
 
@@ -288,9 +288,9 @@ Against the wind and open sky.
 
 **Verse 11.** *Mine enemies.* —The word here used rwv *shur* —occurs nowhere else. It means, properly, a lier in wait, one who *watches;* one who is in ambush; and refers to persons who *watched* his conduct; who *watched* for his ruin.— *A. Barnes.* 
 
-**Verse 12.** *Like the palm tree.* Look now at those stately palm trees, which stand here and there on the plain, like military sentinels, with feathery plumes nodding gracefully on their proud heads. The stem, tall, slender, and erect as Rectitude herself, suggests to the Arab poets many a symbol for their lady love; and Solomon, long before them, has sung, "How fair and how pleasant art thou, O love, for delights! This thy stature is like a palm tree" (So 7:6-7). Yes; and Solomon's father says, *"The righteous shall flourish like a palm tree",* etc. The royal poet has derived more than one figure from the customs of men, and the habits of this noble tree, with which to adorn his sacred ode. The palm grows slowly, but steadily, from century to century uninfluenced by those alternations of the seasons which affect other trees. It does not rejoice over much in winter's copious rain, nor does it droop under the drought and the burning sun of summer. Neither heavy weights which men place upon its head, nor the importunate urgency of the wind, can sway it aside from perfect uprightness. There it stands, looking calmly down upon the world below, and patiently yielding its large clusters of golden fruit from generation to generation. They *bring forth fruit in old age.* The allusion to being *planted in the house of the Lord* is probably drawn from the custom of planting beautiful and long lived trees in the courts of temples and palaces, and in all "high places" used for worship. This is still common; nearly every palace, and mosque, and convent in the country has such trees in the courts, and being well protected there, they flourish exceedingly. Solomon covered all the walls of the "Holy of Holies" round about with palm trees. They were thus planted, as it were, within the very house of the Lord; and their presence there was not only ornamental, but appropriate and highly suggestive. The very best emblem, not only of patience in well doing, but of the rewards of the righteous—a fat and flourishing old age—a peaceful end—a glorious immortality.— *W.M. Thomson.* 
+**Verse 12.** *Like the palm tree.* Look now at those stately palm trees, which stand here and there on the plain, like military sentinels, with feathery plumes nodding gracefully on their proud heads. The stem, tall, slender, and erect as Rectitude herself, suggests to the Arab poets many a symbol for their lady love; and Solomon, long before them, has sung, "How fair and how pleasant art thou, O love, for delights! This thy stature is like a palm tree" (So 7:6-7). Yes; and Solomon's father says, *"The righteous shall flourish like a palm tree",* etc. The royal poet has derived more than one figure from the customs of men, and the habits of this noble tree, with which to adorn his sacred ode. The palm grows slowly, but steadily, from century to century uninfluenced by those alternations of the seasons which affect other trees. It does not rejoice over much in winter's copious rain, nor does it droop under the drought and the burning sun of summer. Neither heavy weights which men place upon its head, nor the importunate urgency of the wind, can sway it aside from perfect uprightness. There it stands, looking calmly down upon the world below, and patiently yielding its large clusters of golden fruit from generation to generation. They *bring forth fruit in old age.* The allusion to being *planted in the house of the Lord* is probably drawn from the custom of planting beautiful and long lived trees in the courts of temples and palaces, and in all "high places" used for worship. This is still common; nearly every palace, and mosque, and convent in the country has such trees in the courts, and being well protected there, they flourish exceedingly. Solomon covered all the walls of the "Holy of Holies" round about with palm trees. They were thus planted, as it were, within the very house of the Lord; and their presence there was not only ornamental, but appropriate and highly suggestive. The very best emblem, not only of patience in well doing, but of the rewards of the righteous—a fat and flourishing old age—a peaceful end—a glorious immortality.— *W. M. Thomson.* 
 
-**Verse 12.** *The palm tree.* The palms were entitled by Linnaeus, "the princes of the vegetable world"; and Von Martius enthusiastically says, "The common world atmosphere does not become these vegetable monarchs: but in those genial climes where nature seems to have fixed her court, and summons around her of flowers, and fruits, and trees, and animated beings, a galaxy of beauty,—there they tower up into the balmy air, rearing their majestic stems highest and proudest of all. Many of them, at a distance, by reason of their long perpendicular shafts, have the appearance of columns, erected by the Divine architect, bearing up the broad arch of heaven above them, crowned with a capital of gorgeous green foliage." And Humboldt speaks of them as "the loftiest and stateliest of all vegetable forms." To these, above all other trees, the prize of beauty has always been awarded by every nation, and it was from the Asiatic palm world, or the adjacent countries, that human civilization sent forth the first rays of its early dawn. On the northern borders of the Great Desert, at the foot of the Atlas mountains, the groves of date palms form the great feature of that parched region, and few trees besides can maintain an existence. The excessive dryness of this arid tract, where rain seldom falls, is such that wheat refuses to grow, and even barley, maize, and Caffre corn, (Holcus sorghum,)afford the husbandman only a scanty and uncertain crop. The hot blasts from the south are scarcely supportable even by the native himself, and yet here forests of date palms flourish, and form a screen impervious to the rays of the sun, beneath the shade of which the lemon, the orange, and the pomegranate, are cherished, and the vine climbs up by means of its twisted tendrils; and although reared in constant shade, all these fruits acquire a more delicious flavour than in what would seem a more favourable climate. How beautiful a comment do these facts supply to the words of Holy Writ, *"The righteous shall flourish like the palm tree!"* Unmoved by the scorching and withering blasts of temptations or persecutions, the Christian sustained by the secret springs of Divine grace, lives and grows in likeness to his Divine Master, when all others are overcome, and their professions wither. How striking is the contrast in the psalm. The wicked and worldlings are compared to grass, which is at best but of short duration, and which is easily withered; but the emblem of the Christian is the palm tree, which stands for centuries. Like the grateful shade of the palm groves, the Christian extends around him a genial, sanctified, and heavenly influence; and just as the great value of the date palm lies in its abundant, wholesome, and delicious fruit, so do those who are the true disciples of Christ abound in "fruits of righteousness", for, said our Saviour, "Herein is my Father glorified, that ye bear much fruit; so shall ye be my disciples."— *"The Palm Tribes and their Varieties." R.T. Society's Monthly Volume.* 
+**Verse 12.** *The palm tree.* The palms were entitled by Linnaeus, "the princes of the vegetable world"; and Von Martius enthusiastically says, "The common world atmosphere does not become these vegetable monarchs: but in those genial climes where nature seems to have fixed her court, and summons around her of flowers, and fruits, and trees, and animated beings, a galaxy of beauty,—there they tower up into the balmy air, rearing their majestic stems highest and proudest of all. Many of them, at a distance, by reason of their long perpendicular shafts, have the appearance of columns, erected by the Divine architect, bearing up the broad arch of heaven above them, crowned with a capital of gorgeous green foliage." And Humboldt speaks of them as "the loftiest and stateliest of all vegetable forms." To these, above all other trees, the prize of beauty has always been awarded by every nation, and it was from the Asiatic palm world, or the adjacent countries, that human civilization sent forth the first rays of its early dawn. On the northern borders of the Great Desert, at the foot of the Atlas mountains, the groves of date palms form the great feature of that parched region, and few trees besides can maintain an existence. The excessive dryness of this arid tract, where rain seldom falls, is such that wheat refuses to grow, and even barley, maize, and Caffre corn, (Holcus sorghum,)afford the husbandman only a scanty and uncertain crop. The hot blasts from the south are scarcely supportable even by the native himself, and yet here forests of date palms flourish, and form a screen impervious to the rays of the sun, beneath the shade of which the lemon, the orange, and the pomegranate, are cherished, and the vine climbs up by means of its twisted tendrils; and although reared in constant shade, all these fruits acquire a more delicious flavour than in what would seem a more favourable climate. How beautiful a comment do these facts supply to the words of Holy Writ, *"The righteous shall flourish like the palm tree!"* Unmoved by the scorching and withering blasts of temptations or persecutions, the Christian sustained by the secret springs of Divine grace, lives and grows in likeness to his Divine Master, when all others are overcome, and their professions wither. How striking is the contrast in the psalm. The wicked and worldlings are compared to grass, which is at best but of short duration, and which is easily withered; but the emblem of the Christian is the palm tree, which stands for centuries. Like the grateful shade of the palm groves, the Christian extends around him a genial, sanctified, and heavenly influence; and just as the great value of the date palm lies in its abundant, wholesome, and delicious fruit, so do those who are the true disciples of Christ abound in "fruits of righteousness", for, said our Saviour, "Herein is my Father glorified, that ye bear much fruit; so shall ye be my disciples."— *"The Palm Tribes and their Varieties." R. T. Society's Monthly Volume.* 
 
 **Verse 12.** *The righteous shall flourish.* David here tells us *how* he shall flourish. "He shall flourish *like the palm tree*: he shall grow like a cedar in Lebanon." Of the wicked he had said just before, "When the wicked spring as the grass, and when all the workers of iniquity do flourish; it is that they shall be destroyed for ever." They flourish as the *grass,* which today is, and tomorrow is cast into the oven. What a contrast with the worthlessness, the weakness, transitoriness, and destiny, of grass—in a warm country too—are the palm tree and cedar of Lebanon! They are evergreens. How beautifully, how firmly, how largely, they grow! How strong and lofty is the cedar! How upright, and majestic, and tall, the palm tree. The palm also bears fruit, called dates, like bunches of grapes. It sometimes yields a hundredweight at once. He tells us *where* he shall flourish. "Those that be planted in the house of the Lord shall flourish in the courts of our God." The allusion is striking. It compares the house of God to a garden, or fine well watered soil, favourable to the life, and verdure, and fertility, of the trees fixed there. The reason is, that in the sanctuary we have the communion of saints. *There* our fellowship is with the Father, and with his Son Jesus Christ. *There* are dispensed the ordinances of religion, and the word of truth. *There* God commandeth the blessing, even life for evermore. He also tells us *when* he shall flourish. "They shall still bring forth fruit in old age." This is to show the permanency of their principles, and to distinguish them from natural productions.
 
@@ -318,7 +318,7 @@ The young Christian is lovely, like a tree in the blossoms of spring: the aged C
 
 **Verse 12.** *Palm trees.* The open country moreover wears a sad aspect now: the soil is rent and dissolves into dust at every breath of wind; the green of the meadows is almost entirely gone,—the *palm tree* alone preserves in the drought and heat its verdant root of leaves.— *Gotthelf H. von Schubert,* 1780-1860.
 
-**Verse 12.** *A cedar in Lebanon.* Laying aside entirely any enquiry as to the palm tree, and laying aside the difficulty contained in the Ps 92:13, I have only to compare this description of the cedar in Lebanon with the accounts of those who have visited them in modern days. Without believing (as the Maronites or Christian inhabitants of the mountains do), that the seven very ancient cedars which yet remain in the neighbourhood of the village of Eden in Lebanon are the remains of the identical forest which furnished Solomon with timber for the Temple, full three thousand years ago, they can yet were be proved to be of very great antiquity. These very cedars were visited by Belonius in 1550, nearly three hundred years ago, who found them twenty-eight in number. Rawolf, in 1575, makes them twenty-four. Dandini, in 1600, and Thevenot about fifty years after, make them twenty-three. Maundrell, in 1696, found them reduced to sixteen. Pococke, in 1738, found fifteen standing, and a sixteenth recently blown down, or (may we not conjecture?) shivered by the voice of God. In 1810, Burckhardt counted eleven or twelve; and Dr. Richardson, in 1818, states them to be no more than seven. There cannot be a doubt, then, that these cedars which were esteemed ancient nearly three hundred years ago, must be of a very great antiquity; and yet they are described by the last of these travellers as "large, and tall, and beautiful, the most picturesque productions of the vegetable world that we had seen." The oldest are large and massy, rearing their heads to an enormous height, and spreading their branches afar. Pococke also remarks, that "the young cedars are not easily known from pines. I observed, they bear a *greater quantity* of fruit than the large ones." This shows that the old ones still bear fruit, though not so abundantly as the young cedars, which, according to Richardson, are very productive, and cast many seeds annually. How appropriate, then, and full of meaning, is the imagery of the Psalmist: "The righteous shall flourish like the palm tree: he shall grow like a cedar in Lebanon. They shall still bring forth fruit in old age; they shall be fat and flourishing."— *R.M. Macheyne.* 
+**Verse 12.** *A cedar in Lebanon.* Laying aside entirely any enquiry as to the palm tree, and laying aside the difficulty contained in the Ps 92:13, I have only to compare this description of the cedar in Lebanon with the accounts of those who have visited them in modern days. Without believing (as the Maronites or Christian inhabitants of the mountains do), that the seven very ancient cedars which yet remain in the neighbourhood of the village of Eden in Lebanon are the remains of the identical forest which furnished Solomon with timber for the Temple, full three thousand years ago, they can yet were be proved to be of very great antiquity. These very cedars were visited by Belonius in 1550, nearly three hundred years ago, who found them twenty-eight in number. Rawolf, in 1575, makes them twenty-four. Dandini, in 1600, and Thevenot about fifty years after, make them twenty-three. Maundrell, in 1696, found them reduced to sixteen. Pococke, in 1738, found fifteen standing, and a sixteenth recently blown down, or (may we not conjecture?) shivered by the voice of God. In 1810, Burckhardt counted eleven or twelve; and Dr. Richardson, in 1818, states them to be no more than seven. There cannot be a doubt, then, that these cedars which were esteemed ancient nearly three hundred years ago, must be of a very great antiquity; and yet they are described by the last of these travellers as "large, and tall, and beautiful, the most picturesque productions of the vegetable world that we had seen." The oldest are large and massy, rearing their heads to an enormous height, and spreading their branches afar. Pococke also remarks, that "the young cedars are not easily known from pines. I observed, they bear a *greater quantity* of fruit than the large ones." This shows that the old ones still bear fruit, though not so abundantly as the young cedars, which, according to Richardson, are very productive, and cast many seeds annually. How appropriate, then, and full of meaning, is the imagery of the Psalmist: "The righteous shall flourish like the palm tree: he shall grow like a cedar in Lebanon. They shall still bring forth fruit in old age; they shall be fat and flourishing."— *R. M. Macheyne.* 
 
 **Verses 12-15.** The life and greenness of the branches in an honour to the root by which they live. Spiritual greenness and fruitfulness is in a believer an honour to Jesus Christ who is his life. The fulness of Christ is manifested by the fruitfulness of a Christian.— *Ralph Robinson.* 
 
@@ -332,11 +332,11 @@ The young Christian is lovely, like a tree in the blossoms of spring: the aged C
 
 **Verse 14.** —There be three things which constitute a spiritual state, or belong to the life of God.
 
-1\.That believers be fat; that is, by the heavenly juice, sap, or fatness of the true olive, of Christ himself, as Ro 11:17. This is the principle of spiritual life and grace derived from him. When this abounds in them, so as to give them strength and rigour in the exercise of grace, to keep them from decays and withering, they are said to be fat; which, in the Scripture phrase, is strong and healthy.
+1\. That believers be fat; that is, by the heavenly juice, sap, or fatness of the true olive, of Christ himself, as Ro 11:17. This is the principle of spiritual life and grace derived from him. When this abounds in them, so as to give them strength and rigour in the exercise of grace, to keep them from decays and withering, they are said to be fat; which, in the Scripture phrase, is strong and healthy.
 
-2\.That they flourish in the greenness (as the word is) and verdure of profession; for vigorous grace will produce a flourishing profession.
+2\. That they flourish in the greenness (as the word is) and verdure of profession; for vigorous grace will produce a flourishing profession.
 
-3\.That they still bring forth fruit in all duties of holy obedience. All these are promised unto them even in old age.
+3\. That they still bring forth fruit in all duties of holy obedience. All these are promised unto them even in old age.
 
 Even trees, when they grow old (the palm and the cedar), are apt to lose a part of their juice and verdure: and men in old age are subject unto all sorts of decays, both outward and inward. It is a rare thing to see a man in old age naturally vigorous, healthy, and strong; and would it were not more rare to see any spiritually so at the same season! But this is here promised unto believers as an especial grace and privilege, beyond what can be represented in the growth or fruit bearing of plants and trees. The grace intended is, that when believers are under all sorts of bodily and natural decays, and, it may be, have been overtaken with spiritual decays also, there is provision made in the covenant to render them fat, flourishing, and fruitful,—vigorous in the power of internal grace, and flourishing in the expression of it in all duties of obedience; which is that which we now inquire after. Blessed be God for this good word of his grace, that he hath given us such encouragement against all the decays and temptations of old age which we have to conflict withal! And the Psalmist, in the next words, declares the greatness of the privilege: "To shew that the Lord is upright: he is my rock, and there is no unrighteousness in him." Consider the oppositions that lie against the flourishing of believers in old age, the difficulties of it, the temptations that must be conquered, the acting of the mind above its natural abilities which are decayed, the weariness that is apt to befall us in a long spiritual conflict, the cries of the flesh to be spared, and we shall see it to be an evidence of the faithfulness, power, and righteousness of God in covenant; nothing else could produce this mighty effect. So the prophet, treating of the same promise, Ho 14:4-8, closes his discourse with that blessed remark, Ho 14:9, "Who is wise, and he shall understand these things? prudent, and he shall know them? for the ways of the Lord are right, and the just shall walk in them." Spiritual wisdom will make us to see that the faithfulness and power of God are exerted in this work of preserving believers flourishing and fruitful unto the end.— *John Owen.* 
 
@@ -350,13 +350,13 @@ Even trees, when they grow old (the palm and the cedar), are apt to lose a part 
 
 **Verse 1.** 
 
-1\.It is a good thing to have cause for gratitude. Every one has this.
+1\. It is a good thing to have cause for gratitude. Every one has this.
 
-2\.It is a good thing to have the principle of gratitude. This is the gift of God.
+2\. It is a good thing to have the principle of gratitude. This is the gift of God.
 
-3\.It is a good thing to give expression to gratitude. This may excite gratitude in others.
+3\. It is a good thing to give expression to gratitude. This may excite gratitude in others.
 
-— *G.R.* 
+— *G. R.* 
 
 **Verses 1-3.** The blessedness of praise,
 
@@ -366,11 +366,11 @@ Ps 92:2. The ingenuity of praise,
 
 Ps 92:3. Inanimate nature enlisted in the holy work.
 
-— *C.A. Davis.* 
+— *C. A. Davis.* 
 
 **Verse 2.** 
 
-1\.Our praises of God should be *intelligent,* declaring his varied attributes.
+1\. Our praises of God should be *intelligent,* declaring his varied attributes.
 
 2\. *Seasonable,* declaring each attribute in appropriate time.
 
@@ -378,11 +378,11 @@ Ps 92:3. Inanimate nature enlisted in the holy work.
 
 **Verse 3.** 
 
-1\.All the powers of the soul shall be praise. "Upon an instrument of ten strings", all the chords of the mind, affections, will, etc.
+1\. All the powers of the soul shall be praise. "Upon an instrument of ten strings", all the chords of the mind, affections, will, etc.
 
-2\.All the utterances of the lips should be praise.
+2\. All the utterances of the lips should be praise.
 
-2\.All the actions of the life should be praise.
+2\. All the actions of the life should be praise.
 
 **Verse 3.** In our praise of God there should be,
 
@@ -398,71 +398,71 @@ Ps 92:3. Inanimate nature enlisted in the holy work.
 
 **Verse 4.** (*first sentence* ).
 
-1\.My state—"glad."
+1\. My state—"glad."
 
-2\.How I arrived at it—"thou hast made me glad."
+2\. How I arrived at it—"thou hast made me glad."
 
-3\.What is the ground of it?—"through thy work."
+3\. What is the ground of it?—"through thy work."
 
-4\.What, then, shall I do?—ascribe it all to God, and bless him for it.
+4\. What, then, shall I do?—ascribe it all to God, and bless him for it.
 
 **Verse 4.** 
 
-1\.The most divine gladness—of God's creation, having God's work for its argument.
+1\. The most divine gladness—of God's creation, having God's work for its argument.
 
-2\.The most divine triumph—caused by the varied works of God in creation, providence, redemption, & c. The first is for our own hearts, the second is for the convincing of those around us.
+2\. The most divine triumph—caused by the varied works of God in creation, providence, redemption, & c. The first is for our own hearts, the second is for the convincing of those around us.
 
-**Verse 5.** The unscalable mountains and the fathomless sea: or the divine works and the divine thoughts (God revealed and hidden) equally beyond human apprehension.— *C.A. Davis.* 
+**Verse 5.** The unscalable mountains and the fathomless sea: or the divine works and the divine thoughts (God revealed and hidden) equally beyond human apprehension.— *C. A. Davis.* 
 
 **Verse 7.** Great prosperity the frequent forerunner of destruction to wicked men, for it leads them to provoke divine wrath—
 
-1\.By hardness of heart, as Pharaoh.
+1\. By hardness of heart, as Pharaoh.
 
-2\.By pride, as Nebuchadnezzar.
+2\. By pride, as Nebuchadnezzar.
 
-3\.By haughty hatred of the saints, as Haman.
+3\. By haughty hatred of the saints, as Haman.
 
-4\.By carnal security, as the rich fool.
+4\. By carnal security, as the rich fool.
 
-5\.By self exaltation, as Herod.
+5\. By self exaltation, as Herod.
 
-**Verses 7-10.** Contrasts. Between the wicked and God, Ps 92:7-8. Between God's enemies and his friends, Ps 92:9-10.— *C.A. Davis.* 
+**Verses 7-10.** Contrasts. Between the wicked and God, Ps 92:7-8. Between God's enemies and his friends, Ps 92:9-10.— *C. A. Davis.* 
 
-**Verses 7, 12-14.** The wicked and the righteous pourtrayed.— *C.A. Davis.* 
+**Verses 7, 12-14.** The wicked and the righteous pourtrayed.— *C. A. Davis.* 
 
 **Verse 10.** (*last clause* ). Christian illumination, consecration, gladness, and graces, are all of them the anointing of the Spirit.— *William Garrett Lewis,* 1872.
 
 **Verse 10.** (*last clause* ). The subject of David's confidence was—
 
-1\.Very comprehensive, including renewed strength, fresh tokens of favour, confirmation in office, qualification for it, and new joys.
+1\. Very comprehensive, including renewed strength, fresh tokens of favour, confirmation in office, qualification for it, and new joys.
 
-2\.Well grounded, since it rested in God, and his promises.
+2\. Well grounded, since it rested in God, and his promises.
 
-3\.Calming all fears.
+3\. Calming all fears.
 
-4\.Exciting hopes.
+4\. Exciting hopes.
 
-5\.Causing pity for those who have no such confidence.
+5\. Causing pity for those who have no such confidence.
 
 **Verse 12.** 
 
-1\.The righteous flourish in all places. Palm in the valley, cedar on the mountain.
+1\. The righteous flourish in all places. Palm in the valley, cedar on the mountain.
 
-2\.In all seasons. Both trees are evergreen.
+2\. In all seasons. Both trees are evergreen.
 
-3\.Under all circumstances. Palm in drought, cedar in storm and frost.— *G.R.* 
+3\. Under all circumstances. Palm in drought, cedar in storm and frost.— *G. R.* 
 
 **Verses 14-16.** 
 
-1\.Regeneration—"planted."
+1\. Regeneration—"planted."
 
-2\.Growth in grace—"flourish."
+2\. Growth in grace—"flourish."
 
-3\.Usefulness—"fruit."
+3\. Usefulness—"fruit."
 
-4\.Perseverance—"old age."
+4\. Perseverance—"old age."
 
-5\.The reason of it all—"to shew that the Lord", etc.
+5\. The reason of it all—"to shew that the Lord", etc.
 
-**Verse 15-16.** The reason and the pledge of final perseverance.— *C.A. Davis.* 
+**Verse 15-16.** The reason and the pledge of final perseverance.— *C. A. Davis.* 
 

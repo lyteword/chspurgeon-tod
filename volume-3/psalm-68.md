@@ -384,11 +384,11 @@ In this prayer or prophecy, or conclusion, you may, as in a glass, behold the pr
 
 But God, *rising* in this manner, is more especially against the fact than the person, and against the person only for the fact. We must, therefore, search and inquire after that; and we find it wrapped up and secretly lurking in the *dissipabuntur,* in their punishment; for scattering supposes a gathering together, as corruption doth generation. That, then, which moved God to rise is this: his *enemies,* they that *hated him, the wicked,* were gathered together, and consulted against God and his church, as we see it this day; and, seeing it, are here met together to fall down before God in all humility, that he may arise and scatter them. This is *nunc opportunitatis,* the very time and appointed time *for* God to *arise.* In which phrase is implied a kind of pause and deliberation, as if God were not always up, and ready to execute judgment. And, hereby, he manifests—
 
-1\.His patience to the wicked: he is not always up, as it were, to destroy his enemies;
+1\. His patience to the wicked: he is not always up, as it were, to destroy his enemies;
 
-2\.His justice, which cometh at length, though it come not so soon as men in misery expect;
+2\. His justice, which cometh at length, though it come not so soon as men in misery expect;
 
-3\.His mercy to his children: though for a while he seem to sleep, and not to hearken to the voice of their complaints, yet, at last, he rises up and helps them.
+3\. His mercy to his children: though for a while he seem to sleep, and not to hearken to the voice of their complaints, yet, at last, he rises up and helps them.
 
 Lastly, we shall take notice of the effects, or end, of this rising; and that is the destruction of his enemies, here drawn out to our view, in four several expressions, as in so many colours:—
 
@@ -596,9 +596,9 @@ From the armoury of God, where stand of old Myriads."
 
 **Verse 19.** *Blessed be the Lord.* It is not a little remarkable to see the saints so burdened and overcharged with the duty of singing his praise, that,
 
-1\.They are forced to come off with an excess of praise, and offer to praise him and even leave it, as it were, as they found it, and say no more, lest they should spill his praises; but, as Re 5:12, "Worthy is the Lamb to receive glory and honour, "though I be not worthy or able to give it to him.
+1\. They are forced to come off with an excess of praise, and offer to praise him and even leave it, as it were, as they found it, and say no more, lest they should spill his praises; but, as Re 5:12, "Worthy is the Lamb to receive glory and honour, "though I be not worthy or able to give it to him.
 
-2\.That they speak broken language and half sentences in their songs, when they are deeply loaden with the deep sense of his love, as *Blessed be the Lord, who daily loadeth us with benefits;* there is no more in the original but *Blessed be the Lord, that loadeth us. John Spalding, in "Synaxis Sacra."* 1703.
+2\. That they speak broken language and half sentences in their songs, when they are deeply loaden with the deep sense of his love, as *Blessed be the Lord, who daily loadeth us with benefits;* there is no more in the original but *Blessed be the Lord, that loadeth us. John Spalding, in "Synaxis Sacra."* 1703.
 
 **Verse 19.** *Who daily loadeth us with benefits.* Though some may have more than others, yet every one hath his load, as much as he can carry. Every vessel cannot bear up with the like sail, and therefore God, to keep us from oversetting, puts on so much as will safest bring us to heaven, our desired port. *Ezekiel Hopkins.* 
 
@@ -622,7 +622,7 @@ From the armoury of God, where stand of old Myriads."
 
 **Verse 2** 6-28. This Psalm was sung, it is probable, on the removal of the ark into the City of David. Numbers 10. It was now that the ark had rest, and the tribes assembled three times a year at Jerusalem, the place that God had chosen. The text is a lively description of their worship.
 
-1\.Offer a few remarks by way of expounding the passage.
+1\. Offer a few remarks by way of expounding the passage.
 
 (a) Israel had their lesser congregations in ordinary every Sabbath day, and their national ones three times a year. Their business in all was *to bless God.* 
 
@@ -636,7 +636,7 @@ From the armoury of God, where stand of old Myriads."
 
 (f) They were supposed to be strong, but were reminded that what they had of strength was of God's commanding. Their union and success, as well as that degree of righteousness among them which exalted the nation, was of God They are not so strong, but that they need strengthening, and are directed to pray as well as praise: *Strengthen, O God, that which thou hast wrought for us.* 
 
-2\.Apply the subject. Two things are here exemplified, namely—diligence and brotherly union; and three things recommended, namely—united praise; united acknowledgment that, for what they are, they are indebted to God; and united prayer for future mercies. Each of these affords a rule for us.
+2\. Apply the subject. Two things are here exemplified, namely—diligence and brotherly union; and three things recommended, namely—united praise; united acknowledgment that, for what they are, they are indebted to God; and united prayer for future mercies. Each of these affords a rule for us.
 
 (a) The worship of God must be attended with *diligence.* There are the princes of Zebulun and Naphtali. They had to travel about two hundred miles three times a year, thither and back again; that is, twelve hundred in a year, twenty-four miles a week. Those who neglect the worship of God for little difficulties show that their heart is not in it, and when they do attend cannot expect to profit: "they have snuffed at it." Those whose hearts are in it often reap great advantage. God blessed the Israelites in their journeys, as well as when there (Ps 84:6): "The rain filleth the pools; "and so the Christians. There is a peculiar promise to those that seek him *early.* 
 
@@ -650,9 +650,9 @@ From the armoury of God, where stand of old Myriads."
 
 **Verse 27.** *Benjamin, Judah, Zebulun, Naphtali.* The two royal tribes,
 
-1\.That of Benjamin, from which the first king sprang;
+1\. That of Benjamin, from which the first king sprang;
 
-2\.That of Judah, from which the second; and the two learned tribes, Zebulun and Naphtali. And we may note, that the kingdom of the Messiah should at length be submitted to by all the potentates and learned men in the world. *Henry Hammond.* 
+2\. That of Judah, from which the second; and the two learned tribes, Zebulun and Naphtali. And we may note, that the kingdom of the Messiah should at length be submitted to by all the potentates and learned men in the world. *Henry Hammond.* 
 
 **Verse 27.** *Benjamin, Judah, Zebulun, Naphtali.* The same tribes are prominent in the New Testament, as foremost in the battle of the church against the world. Paul, the "least" of the apostles (1Co 15:8-10), was by origin Saul of Benjamin (Php 3:5). Christ, "the Lion of the tribe of Judah, "James and John, the brothers, the other James, Thaddaeus, and Simon, were from Judah, and the other apostles were from Nephthalim and Zabulon, or Galilee (Mt 4:13). *A. R. Fausset.* 
 
@@ -672,25 +672,25 @@ From the armoury of God, where stand of old Myriads."
 
 **Verse 30.** These words contain, first, a declaration of God's enemies; secondly, an imprecation against those enemies. The enemies are marshalled into four ranks.
 
-1\.A company of spearmen, or (as some translations read it) the beast of the reeds.
+1\. A company of spearmen, or (as some translations read it) the beast of the reeds.
 
-2\.The multitude of the bulls.
+2\. The multitude of the bulls.
 
-3\.The calves of the people.
+3\. The calves of the people.
 
-4\.The men that delight in war.
+4\. The men that delight in war.
 
 The imprecation is also twofold; the first more gentle; it is but *rebuke the spearmen;* and that with limitation too— *till they submit themselves with pieces of silver.* For they that will not, but delight in war, more severely deal with such: Scatter them; *Scatter the men that delight in war.*... The church of God never wanted enemies, never will. "There is no peace to the wicked, "saith God: there shall be no peace to the godly, say the wicked. The wicked shall have no peace which God can give; the godly shall have no peace which the wicked can take away. *Thomas Wall.* 
 
 **Verse 30.** 
 
-1\.Scrupulosity.
+1\. Scrupulosity.
 
-2\.Envy.
+2\. Envy.
 
-3\.Ignorance.
+3\. Ignorance.
 
-4\.Ambition or pride.
+4\. Ambition or pride.
 
 Upon which these four beasts in the text do act their enmity against the church; scrupulosity sets forth unto us the beast of the reeds; envy, the bulls; ignorance, the calves; and pride, the men *that delight in war. Thomas Wall.* 
 
@@ -726,7 +726,7 @@ Sixthly. It is the duty of God's people to pray him up when he seems to be down,
 
 **Verse 4.** 
 
-1\.The name that inspires the song: *Jah.* 
+1\. The name that inspires the song: *Jah.* 
 
 (a) Self existent.
 
@@ -734,7 +734,7 @@ Sixthly. It is the duty of God's people to pray him up when he seems to be down,
 
 (c) Eternal.
 
-2\.The song inspired by that name.
+2\. The song inspired by that name.
 
 (a) Of exultation.
 
@@ -748,19 +748,19 @@ Sixthly. It is the duty of God's people to pray him up when he seems to be down,
 
 **Verse 6.** 
 
-1\.Two curable evils: "solitary", "bound with chains."
+1\. Two curable evils: "solitary", "bound with chains."
 
-2\.Two rich blessings: "set in families, ""bringeth out."
+2\. Two rich blessings: "set in families, ""bringeth out."
 
-3\.One monster evil, and its miserable consequences.
+3\. One monster evil, and its miserable consequences.
 
 **Verses 7-8.** 
 
-1\.God has his seasons for delivering his people from their troubles: *When thou,* etc.
+1\. God has his seasons for delivering his people from their troubles: *When thou,* etc.
 
-2\.His deliverance is complete: *The earth shook,* etc.; all things gave way before him.
+2\. His deliverance is complete: *The earth shook,* etc.; all things gave way before him.
 
-3\.The deliverance is greater for the delay.
+3\. The deliverance is greater for the delay.
 
 (a) It is so in itself.
 
@@ -768,7 +768,7 @@ Sixthly. It is the duty of God's people to pray him up when he seems to be down,
 
 **Verses 7-9.** 
 
-1\.The presence of God in his church.
+1\. The presence of God in his church.
 
 (a) His preeminence: "before."
 
@@ -780,7 +780,7 @@ Sixthly. It is the duty of God's people to pray him up when he seems to be down,
 
 (e) His design without: marching for war.
 
-2\.The blessed consequences.
+2\. The blessed consequences.
 
 (a) The most stolid shake.
 
@@ -794,7 +794,7 @@ Sixthly. It is the duty of God's people to pray him up when he seems to be down,
 
 **Verse 9.** 
 
-1\.God's mercy compared to a shower.
+1\. God's mercy compared to a shower.
 
 (a) It is direct from heaven; not through priests.
 
@@ -810,7 +810,7 @@ Sixthly. It is the duty of God's people to pray him up when he seems to be down,
 
 (g) Prayer can get it.
 
-2\.There are seasons when these showers fall.
+2\. There are seasons when these showers fall.
 
 (a) In the house of God.
 
@@ -824,13 +824,13 @@ Sixthly. It is the duty of God's people to pray him up when he seems to be down,
 
 (f) By the Holy Spirit refreshing the heart.
 
-3\.These showers are meant to "confirm God's people."
+3\. These showers are meant to "confirm God's people."
 
-4\.They are wanted *now.* 
+4\. They are wanted *now.* 
 
 **Verse 9.** 
 
-1\.The church is God's inheritance.
+1\. The church is God's inheritance.
 
 (a) Chosen.
 
@@ -838,37 +838,37 @@ Sixthly. It is the duty of God's people to pray him up when he seems to be down,
 
 (c) Acquired.
 
-2\.Though his inheritance, at times it may be weary.
+2\. Though his inheritance, at times it may be weary.
 
-3\.When weary, it will be refreshed by him. *G. R.* 
+3\. When weary, it will be refreshed by him. *G. R.* 
 
 **Verse 10.** (*second clause* ). Special goodness, for a special people, specially prepared.
 
 **Verse 10.** (*second clause* ). It is spoken in reference to the *poor,* because,
 
-1\.They are the larger mass of mankind; and, whatever pride may think, in the eye of reason, policy, and revelation, by far the most important, useful, and necessary part.
+1\. They are the larger mass of mankind; and, whatever pride may think, in the eye of reason, policy, and revelation, by far the most important, useful, and necessary part.
 
-2\.They would be more peculiarly affected by deficiency.
+2\. They would be more peculiarly affected by deficiency.
 
-3\.To encourage those in humble and trying life to depend upon him.
+3\. To encourage those in humble and trying life to depend upon him.
 
-4\.To enforce our attention to them from the divine example. *W. Jay.* 
+4\. To enforce our attention to them from the divine example. *W. Jay.* 
 
 **Verse 11.** The divinity of the gospel; the divers ways and agents for its publication.
 
 **Verses 11-12.** 
 
-1\.The word given: "The Lord." etc.
+1\. The word given: "The Lord." etc.
 
-2\.The word proclaimed: "Great, "etc.
+2\. The word proclaimed: "Great, "etc.
 
-3\.The word obeyed: "Kings, "etc. Thus it was in Old Testament times, when to Joshua, to Gideon, to David, etc., the Lord gave the word, and it ran through the hosts, and "kings of armies, "etc. Thus it was in apostolic times, when the word of reconciliation was given. Thus it is still, and will be more signally than ever hereafter. *G. R.* 
+3\. The word obeyed: "Kings, "etc. Thus it was in Old Testament times, when to Joshua, to Gideon, to David, etc., the Lord gave the word, and it ran through the hosts, and "kings of armies, "etc. Thus it was in apostolic times, when the word of reconciliation was given. Thus it is still, and will be more signally than ever hereafter. *G. R.* 
 
 **Verse 12.** (*last clause* ). The church in redemption as a spouse tarrying at home; her home duties; the spoil of her Lord's glorious and finished work, and her dividing it.
 
 **Verse 13.** 
 
-1\.The contrast.
+1\. The contrast.
 
 (a) Instead of humiliation, exaltation.
 
@@ -878,7 +878,7 @@ Sixthly. It is the duty of God's people to pray him up when he seems to be down,
 
 (d) Instead of deformity, beauty.
 
-2\.Its application.
+2\. Its application.
 
 (a) To penitence and pardon.
 
@@ -892,13 +892,13 @@ Sixthly. It is the duty of God's people to pray him up when he seems to be down,
 
 **Verse 14.** 
 
-1\.Where earth's greatest battles are fought. "Scattered, ""in it, " *i.e.,* in Zion. "There brake he, "etc.
+1\. Where earth's greatest battles are fought. "Scattered, ""in it, " *i.e.,* in Zion. "There brake he, "etc.
 
-2\.By whom? The Almighty.
+2\. By whom? The Almighty.
 
-3\.When? In answer to his people's faith and prayer.
+3\. When? In answer to his people's faith and prayer.
 
-4\.How?
+4\. How?
 
 (a) Without noise, gently: as the fall of snow.
 
@@ -908,13 +908,13 @@ Sixthly. It is the duty of God's people to pray him up when he seems to be down,
 
 **Verse 15-16.** 
 
-1\.The superiority of the hill of Zion.
+1\. The superiority of the hill of Zion.
 
 (a) In fertility, to the hill of Bashan; to earthly pleasures.
 
 (b) In glory, to other hills; to human heights of learning and power.
 
-2\.The reason of that superiority.
+2\. The reason of that superiority.
 
 (a) The place of God's choice.
 
@@ -926,7 +926,7 @@ Sixthly. It is the duty of God's people to pray him up when he seems to be down,
 
 **Verse 16.** 
 
-1\.The church the dwelling place of God.
+1\. The church the dwelling place of God.
 
 (a) Elected of old.
 
@@ -936,7 +936,7 @@ Sixthly. It is the duty of God's people to pray him up when he seems to be down,
 
 (d) Receiving honour, etc., for herself.
 
-2\.The church, therefore, envied by others.
+2\. The church, therefore, envied by others.
 
 (a) They feel their own greatness outdone.
 
@@ -946,13 +946,13 @@ Sixthly. It is the duty of God's people to pray him up when he seems to be down,
 
 **Verses 17-18.** 
 
-1\.The comparison between Zion and Sinai.
+1\. The comparison between Zion and Sinai.
 
 (a) The same Lord is there: "The Lord is among, "etc.
 
 (b) The same attendants: "The chariots," etc.
 
-2\.The contrast.
+2\. The contrast.
 
 (a) God descended at Sinai, ascended from near Zion.
 
@@ -966,57 +966,57 @@ Sixthly. It is the duty of God's people to pray him up when he seems to be down,
 
 **Verse 18.** 
 
-1\.Christ's *ascension.* 
+1\. Christ's *ascension.* 
 
-2\.His *victories.* 
+2\. His *victories.* 
 
-3\.The *gifts* he received for men; and
+3\. The *gifts* he received for men; and
 
-4\.The great *end* for which he bestows them. *John Newton.* 
+4\. The great *end* for which he bestows them. *John Newton.* 
 
 **Verse 18.** *That the Lord God might dwell among them.* It is ground for devout wonder that God should dwell among men, when we contemplate his *immensity, loftiness, independence, holiness,* and *sovereignty;* yet he does so—
 
-1\.In the coming of Christ into the world.
+1\. In the coming of Christ into the world.
 
-2\.In the residence of his Spirit in the heart.
+2\. In the residence of his Spirit in the heart.
 
-3\.In the presence of God in his churches.
+3\. In the presence of God in his churches.
 
- *—William Staughton, D.D.* 1770-1829.
-
-**Verse 19.** 
-
-1\.The load of benefits.
-
-2\.The load of obligation.
-
-3\.The load of praise due in return.
+ *—William Staughton, D. D.* 1770-1829.
 
 **Verse 19.** 
 
-1\.Salvation is not to be forgotten in the midst of daily mercies.
+1\. The load of benefits.
 
-2\.Daily mercies are not to be forgotten in the enjoyment of salvation. *G. R.* 
+2\. The load of obligation.
+
+3\. The load of praise due in return.
+
+**Verse 19.** 
+
+1\. Salvation is not to be forgotten in the midst of daily mercies.
+
+2\. Daily mercies are not to be forgotten in the enjoyment of salvation. *G. R.* 
 
 **Verse 20.** Death in God's hand.
 
-1\.Escapes from it.
+1\. Escapes from it.
 
-2\.Entrances to it.
+2\. Entrances to it.
 
-3\.The exit out of it beyond.
+3\. The exit out of it beyond.
 
-4\.The gate which, when closed, shuts us in it for ever.
+4\. The gate which, when closed, shuts us in it for ever.
 
 **Verse 20.** 
 
-1\.What God has been to his people.
+1\. What God has been to his people.
 
 (a) Their salvation.
 
 (b) Their portion: "Our God."
 
-2\.What he will be: With them.
+2\. What he will be: With them.
 
 (a) Until death.
 
@@ -1028,11 +1028,11 @@ Sixthly. It is the duty of God's people to pray him up when he seems to be down,
 
 **Verse 22.** 
 
-1\.Where his people may be driven.
+1\. Where his people may be driven.
 
-2\.The certainty of their return.
+2\. The certainty of their return.
 
-3\.The reasons for being assured of this.
+3\. The reasons for being assured of this.
 
 **Verse 24.** *The allowable procession in the sanctuary.* The marshalled order of doctrine, the holy walk of believers, the banners of joy, the music of devotions, the shouts to the King.
 
@@ -1040,7 +1040,7 @@ Sixthly. It is the duty of God's people to pray him up when he seems to be down,
 
 **Verse 27.** 
 
-1\.The variety of song.
+1\. The variety of song.
 
 (a) The royal tribe of Benjamin in the time of Saul.
 
@@ -1050,11 +1050,11 @@ Sixthly. It is the duty of God's people to pray him up when he seems to be down,
 
 (d) The eloquent tribe: "Naphtali giveth goodly words."
 
-2\.The harmony of song. Let all unite in praising the Lord, the fountain of Israel. "Ten thousand thousand are their tongues, "etc. *G. R.* 
+2\. The harmony of song. Let all unite in praising the Lord, the fountain of Israel. "Ten thousand thousand are their tongues, "etc. *G. R.* 
 
 **Verse 30-31.** 
 
-1\.Hindrances to the progress of divine truth.
+1\. Hindrances to the progress of divine truth.
 
 (a) Idolatry. Worship of the crocodile— *beasts of the reeds,* (LXX)—of bulls and calves, as in Egypt.
 
@@ -1062,13 +1062,13 @@ Sixthly. It is the duty of God's people to pray him up when he seems to be down,
 
 (c) War.
 
-2\.The means for their removal. Prayer and the divine *rebuke. Scatter thou,* etc.
+2\. The means for their removal. Prayer and the divine *rebuke. Scatter thou,* etc.
 
-3\.The consequences of this removal; Ps 68:31.
+3\. The consequences of this removal; Ps 68:31.
 
 **Verse 35.** 
 
-1\.Consider God's jealousy towards his people for his holiness in the three "holy places."
+1\. Consider God's jealousy towards his people for his holiness in the three "holy places."
 
 (a) In the outer court of profession.
 
@@ -1076,7 +1076,7 @@ Sixthly. It is the duty of God's people to pray him up when he seems to be down,
 
 (c) In the holy of holies with his Son.
 
-2\.Consider his terribleness to his foes, as inferred from those "holy places."
+2\. Consider his terribleness to his foes, as inferred from those "holy places."
 
 **Verse 35.** *Blessed be God.* A brief, but very suggestive text.
 

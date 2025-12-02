@@ -108,17 +108,17 @@ Here follow instances of the power of God upon the elements. *He giveth snow lik
 
 **Verse 1.** *It is good to sing praises unto our God; for it is pleasant; and praise is comely.* These points are worthy of careful consideration.
 
-1\.To praise God is *"good"* for divers reasons. a) That is good which God commands (Mic 6:8). So that thanksgiving is no indifferent action, no will worship, but it is *cultus institutus*, not to be neglected. b) It raiseth the heart from earth to heaven; and being the work of angels and saints in heaven, joins us with that choir above. c) It is good, again, because by it we pay, or at least acknowledge, a debt, and this is common justice. d) Good, because for it we are like to receive a good and a great reward; for if he that prays to God is like to be rewarded (Mt 6:6), much more that man who sings praises to him; for in prayer we consult with our own necessities, in our praises we honour God, and bless him for his gifts.
+1\. To praise God is *"good"* for divers reasons. a) That is good which God commands (Mic 6:8). So that thanksgiving is no indifferent action, no will worship, but it is *cultus institutus*, not to be neglected. b) It raiseth the heart from earth to heaven; and being the work of angels and saints in heaven, joins us with that choir above. c) It is good, again, because by it we pay, or at least acknowledge, a debt, and this is common justice. d) Good, because for it we are like to receive a good and a great reward; for if he that prays to God is like to be rewarded (Mt 6:6), much more that man who sings praises to him; for in prayer we consult with our own necessities, in our praises we honour God, and bless him for his gifts.
 
-2\.To praise God is *"pleasant."* a) Because it proceeds out of love; for nothing is more pleasant to him that loves, than to make sonnets in the praise of that party he loves. b) Because it must needs please a man to perform that duty for which he was created; for to that end God created men and angels, that they should praise him. c) Because God is delighted with it, as the sweetest sacrifice (Ps 50:23). d) It is pleasant to God, because he is delighted with those virtues which are in us,—faith, hope, charity, religion, devotion, humility, etc., of all which our praises are a manifestation and exercise.
+2\. To praise God is *"pleasant."* a) Because it proceeds out of love; for nothing is more pleasant to him that loves, than to make sonnets in the praise of that party he loves. b) Because it must needs please a man to perform that duty for which he was created; for to that end God created men and angels, that they should praise him. c) Because God is delighted with it, as the sweetest sacrifice (Ps 50:23). d) It is pleasant to God, because he is delighted with those virtues which are in us,—faith, hope, charity, religion, devotion, humility, etc., of all which our praises are a manifestation and exercise.
 
-3\.To praise God is *"comely"*; for there is no greater stain than ingratitude; it is made up of a lie and injustice. There is, then, all the decency in the world in praise, and it is comely that a man be thankful to his God, who freely gives him all things.— *William Nicholson.* 
+3\. To praise God is *"comely"*; for there is no greater stain than ingratitude; it is made up of a lie and injustice. There is, then, all the decency in the world in praise, and it is comely that a man be thankful to his God, who freely gives him all things.— *William Nicholson.* 
 
 **Verse 1.** David, to persuade all men to thankfulness, saith, *It is a good and pleasant thing* to be thankful. If he had said no more but *"good",* all which love goodness are bound to be thankful; but when he saith not only *"good",* but *"pleasant"* too, all which love pleasure are bound to be thankful; and therefore, as Peter's mother-in-law, so soon as Christ healed her of a fever, rose up immediately to minister unto him (Mt 8:15), so we, so soon as Christ hath done anything for us, should rise up immediately to serve him.— *Henry Smith.* 
 
 **Verse 1.** There is no heaven, either in this world, or the world to come, for people who do not praise God. If you do not enter into the spirit and worship of heaven, how should the spirit and joy of heaven enter into you? Selfishness makes long prayers, but love makes short prayers, that it may continue longer in praise.— *John Pulsford,* 1857.
 
-**Verse 1.** *Praise.* There is one other thing which is a serious embarrassment to praising through the song service of the Church, and that is, that we have so few hymns of praise. You will be surprised to hear me say so; but you will be more surprised if you take a real specimen of praising and search for hymns of praise. You shall find any number of hymns that talk about praise, and exhort you to praise. There is no lack of hymns that say that God ought to be praised. But of hymns that praise, and say nothing about it, there are very few indeed. And for what there are we are almost wholly indebted to the old churches. Most of them came down to us from the Latin and Greek Churches...There is no place in human literature where you can find such praise as there is in the Psalms of David.— *Henry Ward Beecher.* 
+**Verse 1.** *Praise.* There is one other thing which is a serious embarrassment to praising through the song service of the Church, and that is, that we have so few hymns of praise. You will be surprised to hear me say so; but you will be more surprised if you take a real specimen of praising and search for hymns of praise. You shall find any number of hymns that talk about praise, and exhort you to praise. There is no lack of hymns that say that God ought to be praised. But of hymns that praise, and say nothing about it, there are very few indeed. And for what there are we are almost wholly indebted to the old churches. Most of them came down to us from the Latin and Greek Churches... There is no place in human literature where you can find such praise as there is in the Psalms of David.— *Henry Ward Beecher.* 
 
 **Verse 2.** *The Lord doth build up Jerusalem*, etc. If this Psalm were written on occasion of the return from Babylon, and the rebuilding of the earthly city, the ideas are to be transferred, as in other Psalms of the same kind, to a more important restoration from a much worse captivity, and to the building up of the church under the gospel, when Christ "gathered together in one the children of God that were scattered abroad" (Joh 11:52); that is, in the words of our Psalm, he *gathered together the outcasts of Israel.* So shall he again, at the resurrection, "gather together his elect from the four winds" (Mt 24:31), and "build up a Jerusalem", in which they shall serve and praise him for ever.— *George Horne.* 
 
@@ -162,13 +162,13 @@ Thirdly, the heart is broken *by the skill of the minister* in the handling of t
 
  *He healeth the broken in heart.* Hence observe, that *Christ justifies and sanctifies;* for that is the meaning.
 
-1\.First, because *God hath gives Christ grace to practise for the sake of the broken in, heart;* and therefore if this be his grace, to heal the broken hearted, certainly he will heal them. "The Spirit of the Lord is upon me", etc. "He hath sent me to heal the broken hearted", etc.: Lu 4:18. If he be *created* master of this art, even for this purpose, to heal the broken in heart, he will verily heal them, and none but them. It is not like Hosander and Hippocrates, whose father appointed them both to be physicians; he appointed his son Hippocrates to be a physician of horses, yet he proved a physician for men; he appointed Hosander to be a physician for men, and he proved a physical for horses. Jesus is not like these; no, no; he will heal those whom he was appointed to heal.
+1\. First, because *God hath gives Christ grace to practise for the sake of the broken in, heart;* and therefore if this be his grace, to heal the broken hearted, certainly he will heal them. "The Spirit of the Lord is upon me", etc. "He hath sent me to heal the broken hearted", etc.: Lu 4:18. If he be *created* master of this art, even for this purpose, to heal the broken in heart, he will verily heal them, and none but them. It is not like Hosander and Hippocrates, whose father appointed them both to be physicians; he appointed his son Hippocrates to be a physician of horses, yet he proved a physician for men; he appointed Hosander to be a physician for men, and he proved a physical for horses. Jesus is not like these; no, no; he will heal those whom he was appointed to heal.
 
-2\.Because *Christ hath undertaken to do it.* When a skilful Physician hath undertaken a cure, he will surely do it: indeed, sometimes a good physician may fail, as Trajan's physician did, for he died under his hands; on whose tomb this was written, "Here lies Trajan the emperor, that may thank his physician that be died." But if Christ undertake it, thou mayest be sure of it; for he tells thee that art broken in heart that he hath undertaken it, he hath felt thy pulse already. Isa 57:15. He doth not only undertake it, but he saith he will go *visit* his sick patient, he will come to thy bedside, yea, he will come and dwell with thee all the time of thy sickness; thou shalt never want anything, but he will be ready to help thee: thou needest not complain and say, "Oh, the physician is too far off, he will not come at me." I dwell in the high places indeed, saith God, but yet I will come and dwell with thee that art of an humble spirit. Thou needest not fear, saying, "Will a man cure his enemies? I have been an enemy to God's glory, and will he yet cure me?" Yea, saith Christ, if thou be *broken in heart* I will bind thee up.
+2\. Because *Christ hath undertaken to do it.* When a skilful Physician hath undertaken a cure, he will surely do it: indeed, sometimes a good physician may fail, as Trajan's physician did, for he died under his hands; on whose tomb this was written, "Here lies Trajan the emperor, that may thank his physician that be died." But if Christ undertake it, thou mayest be sure of it; for he tells thee that art broken in heart that he hath undertaken it, he hath felt thy pulse already. Isa 57:15. He doth not only undertake it, but he saith he will go *visit* his sick patient, he will come to thy bedside, yea, he will come and dwell with thee all the time of thy sickness; thou shalt never want anything, but he will be ready to help thee: thou needest not complain and say, "Oh, the physician is too far off, he will not come at me." I dwell in the high places indeed, saith God, but yet I will come and dwell with thee that art of an humble spirit. Thou needest not fear, saying, "Will a man cure his enemies? I have been an enemy to God's glory, and will he yet cure me?" Yea, saith Christ, if thou be *broken in heart* I will bind thee up.
 
-3\.Thirdly, because *this is Christ's charge,* and he will look to his own calling: "The Lord hath sent me to bind up the broken hearted" (Isa 61:1)...Neither needest thou fear thine own poverty, because thou hast not a fee to give him; for thou mayest come to him by way of begging; he will look to thee for nothing; for, "To him will I look that is poor", etc.: Isa 66:2.
+3\. Thirdly, because *this is Christ's charge,* and he will look to his own calling: "The Lord hath sent me to bind up the broken hearted" (Isa 61:1)... Neither needest thou fear thine own poverty, because thou hast not a fee to give him; for thou mayest come to him by way of begging; he will look to thee for nothing; for, "To him will I look that is poor", etc.: Isa 66:2.
 
-4\.Fourthly, *none but the broken in heart will take physic of Christ.* Now this is a physician's desire, that his patient would cast himself upon him; if he will not, the physician hath no desire to meddle with him. Now none but the broken in heart will take such physic as Christ gives, and therefore he saith, "To him will I look that is of a broken heart, and trembles at any words": Isa 56:2. When I bid him take such a purge, saith God, he trembles, and he takes it.— *William Fenner, in a Sermon entitled, "The Sovereign Virtue of the Gospel,"* 1647.
+4\. Fourthly, *none but the broken in heart will take physic of Christ.* Now this is a physician's desire, that his patient would cast himself upon him; if he will not, the physician hath no desire to meddle with him. Now none but the broken in heart will take such physic as Christ gives, and therefore he saith, "To him will I look that is of a broken heart, and trembles at any words": Isa 56:2. When I bid him take such a purge, saith God, he trembles, and he takes it.— *William Fenner, in a Sermon entitled, "The Sovereign Virtue of the Gospel,"* 1647.
 
 **Verse 3.** 
 
@@ -232,7 +232,7 @@ The health, the moral and spiritual soundness of the soul, my brethren, is deriv
 
 **Verse 4.** *He telleth the number of the stars*, etc. Among the heathen every constellation represented some god. But the Scriptures show Jehovah, not as one of many starry gods, but as the one God of all the stars. He is, too, as he taught his people by Abraham, the God of a firmament of nobler stars. His people are scattered and trodden as the sands of the sea-shore. But he turns dust and dirt to stars of glory. He will make of every saint a star, and Heaven is his people's sky, where broken hearted sufferers of earth are glorified into glittering galaxies.— *Hermann Venema.* 
 
-**Verse 4.** *He calleth them all by their names.* Literally, "calleth names to all of them", an expression marking not only God's power in marshalling them all as a host (Isa 40:26), but also the most intimate knowledge and watchful care, as that of a shepherd for his flock. Joh 10:3.— *J.J. Stewart Perowne.* 
+**Verse 4.** *He calleth them all by their names.* Literally, "calleth names to all of them", an expression marking not only God's power in marshalling them all as a host (Isa 40:26), but also the most intimate knowledge and watchful care, as that of a shepherd for his flock. Joh 10:3.— *J. J. Stewart Perowne.* 
 
 **Verse 4.** *He calleth them all by their names.* They render a due obedience to him, as servants to their master. When he singles them out and calls them by name to do some official service, he calls them out to their several offices, as the general of an army appoints the station of every regiment in a battalion; or, *"he calls them by name", i.e.* he imposes names upon them, a sign of dominion, the giving names to the inferior creatures being the first act of Adam's derivative dominion over them. These are under the sovereignty of God. The stars by their influences fight against Sisera (Jud 5:20); and the sun holds in its reins, and stands stone still to light Joshua to a complete victory: Jos 10:12. They are all marshalled in their ranks to receive his word of command, and fight in close order, as being desirous to have a share in the ruin of the enemies of their sovereign.— *Stephen Charnock.* 
 
@@ -262,7 +262,7 @@ The health, the moral and spiritual soundness of the soul, my brethren, is deriv
 
 **Verse 9.** *The young ravens cry.* The strange stories told by Jewish and Arabian writers, on the raven's cruelty to its young, in driving them out of their nests before they are quite able to provide for themselves, are entirely without foundation, as no bird is more careful of its young ones than the raven. To its habit of flying restlessly about in search of food to satisfy its own appetite and that of its young ones, may perhaps be traced the reason of its being selected by the sacred writers as an especial object of God's protecting care.— *W. Houghton, in "The Bible Educator."* 
 
-**Verse 9.** *The young ravens cry.* While still unfledged the young ravens have a strange habit of falling out of their nests, and flapping their wings heavily to the ground. Next morning they are found by the shepherds sitting croaking on the ground beneath their former homes, and are then captured and taken away with comparative ease.— *J.G. Wood, in "The Illustrated Natural History,"* 1869.
+**Verse 9.** *The young ravens cry.* While still unfledged the young ravens have a strange habit of falling out of their nests, and flapping their wings heavily to the ground. Next morning they are found by the shepherds sitting croaking on the ground beneath their former homes, and are then captured and taken away with comparative ease.— *J. G. Wood, in "The Illustrated Natural History,"* 1869.
 
 **Verse 9.** *The young ravens cry.* The evening proceedings and manoeuvres of the rooks are curious and amusing in the autumn. Just before dusk they return in long strings from the foraging of the day, and rendezvous by thousands over Selbourne down, where they wheel round in the air, and sport and dive in a playful manner, all the while exerting their voices, and making a loud cawing, which, being blended and softened by the distance that we at the village are below them, becomes a confused noise or chiding; or rather a pleasing murmur, very engaging to the imagination, and not unlike the cry of a pack of hounds in hollow, echoing woods, or the rushing of the wind in tall trees, or the tumbling of the tide upon a pebbly shore. When this ceremony is over, with the last gleam of day, they retire for the night to the deep beechen woods of Tisted and Ropley. We remember a little girl, who, as she was going to bed, use to remark on such all occurrence, in the true spirit of physico-theology, that the rooks were saying their prayers, and yet this child was much too young to be aware that the Scriptures had said of the Deity that *He feedeth the ravens that call upon him.* — *Gilbert White* (1720-1793), *in "The Natural History of Selborne."* 
 
@@ -296,11 +296,11 @@ Is he Unwise? Or, are ye less than they?
 
 — *James Thomson,* 1700-1748.
 
-**Verse 9.** It is related of Edward Taylor, the sailor preacher of Boston, that on the Sunday before he was to sail for Europe, he was entreating the Lord to care well for his church during his absence. All at once he stopped, and ejaculated, "What have I done? Distrust the Providence of heaven! A God that gives a whale a ton of herrings for a breakfast, will he not care for my children?" and then went on, closing his prayer in a more confiding manner.— *From "Eccentric Preachers," by C.H.S.* 
+**Verse 9.** It is related of Edward Taylor, the sailor preacher of Boston, that on the Sunday before he was to sail for Europe, he was entreating the Lord to care well for his church during his absence. All at once he stopped, and ejaculated, "What have I done? Distrust the Providence of heaven! A God that gives a whale a ton of herrings for a breakfast, will he not care for my children?" and then went on, closing his prayer in a more confiding manner.— *From "Eccentric Preachers," by C. H. S.* 
 
 **Verse 10.** The two clauses of this verse are probably intended to describe *cavalry* and *infantry,* as forming the military strength of nations. It is not to those who trust in such resources that Jehovah shows favour, but to those who rely on his protection (Ps 147:11).— *Annotated Paragraph Bible.* 
 
-**Verses 10-11.** When a sinner is brought upon his knees, and becomes a suppliant, when as he is laid low by affliction, so he lieth low in prayer and supplication, then the Lord will be favourable to him, and show his delight in him. *The Lord delighteth not in the strength of the horse: he taketh not pleasure in the legs of a man.* No man is favoured by God because of his outward favour, because he hath a beautiful face, or strong, clean limbs; yea, not only hath the Lord no pleasure in any man's legs, but not in any man's brains, how reaching soever, not in any man's wit how quick soever, nor in any man's judgment how deep soever, nor in any man's tongue how eloquent or well spoken soever; but *The Lord taketh pleasure in them that fear him, in those that hope in his mercy*, in those that walk humbly with him, and call upon him...All the beauties and rarities both of persons and things are dull and flat, yea, wearisome and loathsome to God, in comparison of a gracious, honest, humble soul. Princes have their favourites (Job 33:26); they are favourable to some above many, either because they are beautiful and goodly persons, or because they are men of excellent speech, prudence and deportment. All godly men are God's favourites; he is favourable to them not only above many men in the world, but above all the men of this world, who have their portion in this life; and he therefore favours them, because they are the purchase of his Son and the workmanship of his Spirit, convincing them of, and humbling them for, their sins, as also creating them after God in righteousness and true holiness. Such shall be his favourites.— *Joseph Caryl.* 
+**Verses 10-11.** When a sinner is brought upon his knees, and becomes a suppliant, when as he is laid low by affliction, so he lieth low in prayer and supplication, then the Lord will be favourable to him, and show his delight in him. *The Lord delighteth not in the strength of the horse: he taketh not pleasure in the legs of a man.* No man is favoured by God because of his outward favour, because he hath a beautiful face, or strong, clean limbs; yea, not only hath the Lord no pleasure in any man's legs, but not in any man's brains, how reaching soever, not in any man's wit how quick soever, nor in any man's judgment how deep soever, nor in any man's tongue how eloquent or well spoken soever; but *The Lord taketh pleasure in them that fear him, in those that hope in his mercy*, in those that walk humbly with him, and call upon him... All the beauties and rarities both of persons and things are dull and flat, yea, wearisome and loathsome to God, in comparison of a gracious, honest, humble soul. Princes have their favourites (Job 33:26); they are favourable to some above many, either because they are beautiful and goodly persons, or because they are men of excellent speech, prudence and deportment. All godly men are God's favourites; he is favourable to them not only above many men in the world, but above all the men of this world, who have their portion in this life; and he therefore favours them, because they are the purchase of his Son and the workmanship of his Spirit, convincing them of, and humbling them for, their sins, as also creating them after God in righteousness and true holiness. Such shall be his favourites.— *Joseph Caryl.* 
 
 **Verse 11.** *Them that fear him, those that hope in his mercy.* Patience and fear are the fences of hope. There is a beautiful relation between hope and fear. The two are linked in this verse. They are like the cork in a fisherman's net, which keeps it from sinking, and the lead, which prevents it from floating. Hope without fear is in danger of being too sanguine; fear without hope would soon become desponding.— *George Seaton Bowes, in "In Prospect of Sunday";* 1880.
 
@@ -338,7 +338,7 @@ Is he Unwise? Or, are ye less than they?
 
 **Verse 16.** *Snow like wool.* The ancients used to call *snow* eriwdez udwr, *woolly water* (Eustathius, in Dionys. Perieget. p. 91). Martial gives it the name of *densum vellus aquarum, a thick fleece of waters* (Epigram. l. iv. Ep. 3). Aristophanes calls clouds, *"flying fleeces of wool"* (Nubes, p. 146). Pliny calls it *the forth of the celestial waters* (Nat. His. lib. xvii. cap. 2).— *Samuel Burder.* 
 
-**Verse 16.** *He giveth snow like wool.* In Palestine snow is not the characteristic feature of winter as it is in northern latitudes. It is merely an occasional phenomenon. Showers of it fall now and then in severer seasons on the loftier parts of the land, and whiten for a day or two the vineyards and cornfields: but it melts from the green earth as rapidly as its sister vapours vanish from the blue sky...But the Psalmist seized the occasional snow, as he seized the fleeting vapour, and made it a text of his spiritual meditations. Let us follow his example. "He giveth snow like wool", says the Psalmist. This comparison expressly indicates one of the most important purposes which the snow serves in the economy of nature. It covers the earth like a blanket during that period of winter sleep which is necessary to recruit its exhausted energies, and prepare it for fresh efforts in the spring; and being, like wool, a bad conductor, it conserves the latent heat of the soil, and protects the dormant life of plant and animal hid under it from the frosty rigour of the outside air. Winter sown wheat, when defended by this covering, whose under surface seldom falls much below 32 Fahr., can thrive even though the temperature of the air above may be many degrees below the freezing point. Our country, enjoying an equable climate, seldom requires this protection; but in northern climates, where the winter is severe and prolonged, its beneficial effects are most marked. The scanty vegetation which blooms with such sudden and marvellous loveliness in the height of summer, in the Arctic regions and on mountain summits, would perish utterly were it not for the protection of the snow that lies on it for three quarters of a year.
+**Verse 16.** *He giveth snow like wool.* In Palestine snow is not the characteristic feature of winter as it is in northern latitudes. It is merely an occasional phenomenon. Showers of it fall now and then in severer seasons on the loftier parts of the land, and whiten for a day or two the vineyards and cornfields: but it melts from the green earth as rapidly as its sister vapours vanish from the blue sky... But the Psalmist seized the occasional snow, as he seized the fleeting vapour, and made it a text of his spiritual meditations. Let us follow his example. "He giveth snow like wool", says the Psalmist. This comparison expressly indicates one of the most important purposes which the snow serves in the economy of nature. It covers the earth like a blanket during that period of winter sleep which is necessary to recruit its exhausted energies, and prepare it for fresh efforts in the spring; and being, like wool, a bad conductor, it conserves the latent heat of the soil, and protects the dormant life of plant and animal hid under it from the frosty rigour of the outside air. Winter sown wheat, when defended by this covering, whose under surface seldom falls much below 32 Fahr., can thrive even though the temperature of the air above may be many degrees below the freezing point. Our country, enjoying an equable climate, seldom requires this protection; but in northern climates, where the winter is severe and prolonged, its beneficial effects are most marked. The scanty vegetation which blooms with such sudden and marvellous loveliness in the height of summer, in the Arctic regions and on mountain summits, would perish utterly were it not for the protection of the snow that lies on it for three quarters of a year.
 
 But it is not only to Alpine plants and hibernating animals that God gives snow like wool. The Eskimo take advantage of its curious protective property, and ingeniously build their winter huts of blocks of hardened snow; thus, strangely enough, by a homoeopathic law, protecting themselves against cold by the effects of cold. The Arctic navigator has been often indebted to walls of snow banked up around his ship for the comparative comfort of his winter quarters, when the temperature without has fallen so low that even chloric ether became solid. And many a precious life has been saved by the timely shelter which the snow storm itself has provided against its own violence. But while snow thus warms in cold regions, it also cools in warm regions. It sends down from the white summits of equatorial mountains its cool breath to revive and brace the drooping life of lands sweltering under a tropic sun; and from its lofty inexhaustible reservoirs it feeds perennial rivers that water the plains when all the wells and streams are white and silent in the baking heat. Without the perpetual snow of mountain regions the earth would be reduced to a lifeless desert.
 
@@ -354,13 +354,13 @@ And now let us look at the Giver of the snow. *"He* giveth snow like wool." "The
 
 **Verse 17.** *He casteth forth his ice like morsels.* The word here translated *"morsels",* means, in most of the places where it occurs in the Bible, *pieces of bread,* exactly the LXXqwmouv;for this very ice, this wintry cold, is profitable to the earth, to fit it for bearing future harvests, and thus it matures the *morsels of bread* which man will yet win from the soil in due season.— *Genebrardus, in Neale and Littledale.* 
 
-**Verse 17.** *Morsels. Or, crumbs.* Ge 18:5 Jud 19:5. Doubtless the allusion is to hail.— *A.S. Aglen.* 
+**Verse 17.** *Morsels. Or, crumbs.* Ge 18:5 Jud 19:5. Doubtless the allusion is to hail.— *A. S. Aglen.* 
 
-**Verse 17.** "It is extremely severe", said his sister to Archbishop Leighton one day, speaking of the season. The good man only said in reply, "But thou, O God, hast made summer and winter."— *From J.J. Pearson's Life of Archbishop Leighton,* 1830.
+**Verse 17.** "It is extremely severe", said his sister to Archbishop Leighton one day, speaking of the season. The good man only said in reply, "But thou, O God, hast made summer and winter."— *From J. J. Pearson's Life of Archbishop Leighton,* 1830.
 
 **Verse 18.** *He sendeth out his word, and melteth them.* Israel in the captivity had been icebound, like ships of Arctic voyagers in the Polar Sea; but God sent forth the vernal breeze of his love, and the water flowed, the ice melted, and they were released. God turned their captivity, and, their icy chains being melted by the solar beams of God's mercy, they flowed in fresh and buoyant streams, like "rivers of the south", shining in the sun. See Ps 126:4. So it was on the day of Pentecost. The winter of spiritual captivity was thawed and dissolved by the soft breath of the Holy Ghost, and the earth laughed and bloomed with spring tide flowers of faith, love, and joy.— *Christopher Wordsworth.* 
 
-**Verse 19.** Here we see God in compassion bending down, in order to communicate to the deeply fallen son of man something of a blessed secret, of which, without his special enlightenment, the eye would never have seen anything, nor the ear ever have heard.— *J.J. Van Oosterzee, on "The Image of Christ."* 
+**Verse 19.** Here we see God in compassion bending down, in order to communicate to the deeply fallen son of man something of a blessed secret, of which, without his special enlightenment, the eye would never have seen anything, nor the ear ever have heard.— *J. J. Van Oosterzee, on "The Image of Christ."* 
 
 **Verses 19-20.** If the publication of the law by the ministry of angels to the Israelites were such a privilege that it is reckoned their peculiar treasure— *He hath shewed his statutes unto Israel; he hath not dealt so with any nation* —what is the revelation of the gospel by the Son of God himself? For although the law is obscured and defaced since the fall, yet there are some ingrafted notions of it in human nature; but there is not the least suspicion of the gospel. The law discovers our misery, but the gospel alone shows the way to be delivered from it. If an advantage so great and so precious doth not touch our hearts; and, in possessing it with joy, if we are not sensible of the engagements the Father of mercies hath laid upon us; we shall be the most ungrateful wretches in the world.— *William Bates.* 
 
@@ -368,21 +368,21 @@ And now let us look at the Giver of the snow. *"He* giveth snow like wool." "The
 
 ## Hints to the Village Preacher
 
-**Verse 1.** Praise. Its profit, pleasure, and propriety.— *J.F.* 
+**Verse 1.** Praise. Its profit, pleasure, and propriety.— *J. F.* 
 
 **Verse 1.** The Reasonable Service.
 
-1\.The methods of praise: by word, song, life; individually, socially.
+1\. The methods of praise: by word, song, life; individually, socially.
 
-2\.The offerers of praise: "ye."
+2\. The offerers of praise: "ye."
 
-3\.The objects of praise: "the Lord, our God."
+3\. The objects of praise: "the Lord, our God."
 
-4\.The reasons for praise: it is "good", "pleasant", "becoming."— *C.A.D.* 
+4\. The reasons for praise: it is "good", "pleasant", "becoming."— *C. A. D.* 
 
 **Verses 1-3.** 
 
-1\.The Privilege of Praising God.
+1\. The Privilege of Praising God.
 
 a) It is good.
 
@@ -390,25 +390,25 @@ b) Pleasant.
 
 c) Becoming.
 
-2\.The Duty of Praising God.
+2\. The Duty of Praising God.
 
 a) For gathering a church for himself among men: "The Lord doth build up Jerusalem."
 
 b) For the materials of which it is composed: "The outcasts", etc.
 
-c) For the preparation of those materials for his purpose: "He healeth", etc. Ps 147:3.— *G.R.* 
+c) For the preparation of those materials for his purpose: "He healeth", etc. Ps 147:3.— *G. R.* 
 
 **Verse 2.** The Lord is Architect, Builder, Sustainer, Restorer, and Owner of the Church. In each relation let him be praised.
 
 **Verse 2.** The Great Gatherer.
 
-1\.Strange persons sought for.
+1\. Strange persons sought for.
 
-2\.Special search and means made use of.
+2\. Special search and means made use of.
 
-3\.Selected centre to which he brings them.
+3\. Selected centre to which he brings them.
 
-4\.Singular exhibition of them for ever and ever in heaven.
+4\. Singular exhibition of them for ever and ever in heaven.
 
 **Verse 2.** First the church built and then the sinners gathered into it. A prosperous state of the church within necessary to her increase from without.
 
@@ -416,49 +416,49 @@ c) For the preparation of those materials for his purpose: "He healeth", etc. Ps
 
 **Verse 2.** Upbuilding and Ingathering.
 
-1\.The church may be in a fallen condition.
+1\. The church may be in a fallen condition.
 
-2\.Its upbuilding is the Lord's work.
+2\. Its upbuilding is the Lord's work.
 
-3\.He accomplishes it by gathering together its outcast citizens.— *C.A.D.* 
+3\. He accomplishes it by gathering together its outcast citizens.— *C. A. D.* 
 
 **Verse 3.** See "Spurgeon's Sermons", No. 53: "Healing for the Wounded."
 
-**Verse 3.** God a true physician, and a tender nurse.— *J.F.* 
+**Verse 3.** God a true physician, and a tender nurse.— *J. F.* 
 
 **Verses 3-4.** Heaven's Brilliants, and Earth's Broken Hearts.
 
-1\.The Proprietor of the Stars with the Wounded. The stars left kingless for broken hearts. Jehovah! with lint and liniment and a woman's hand. Who binds together the stars, shall bind firmly grieved hearts.
+1\. The Proprietor of the Stars with the Wounded. The stars left kingless for broken hearts. Jehovah! with lint and liniment and a woman's hand. Who binds together the stars, shall bind firmly grieved hearts.
 
-2\.The Gentle Heart healer with the Stars. Be all power intrusted to such tenderness. Its comely splendour. God guides the stars with an eye on wounded hearts. The hopefulness of prayer.
+2\. The Gentle Heart healer with the Stars. Be all power intrusted to such tenderness. Its comely splendour. God guides the stars with an eye on wounded hearts. The hopefulness of prayer.
 
-3\.Hearts, Stars, and Eternity. Some hearts shall "shine as the stars." Some stars shall expire in "blackness of darkness." God's hand and eye are everywhere making justice certain. Trust and sing.— *W.B.H.* 
+3\. Hearts, Stars, and Eternity. Some hearts shall "shine as the stars." Some stars shall expire in "blackness of darkness." God's hand and eye are everywhere making justice certain. Trust and sing.— *W. B. H.* 
 
 **Verses 3-4.** God's Compassion and Power.
 
-1\.Striking diversity of God's cares: "hearts" and "stars."
+1\. Striking diversity of God's cares: "hearts" and "stars."
 
-2\.Wonderful variety of God's operations. Gently caring for human hearts. Preserving the order, regularity, and stability of creation.
+2\. Wonderful variety of God's operations. Gently caring for human hearts. Preserving the order, regularity, and stability of creation.
 
-3\.Blessed results of God's work. Broken hearts healed; wounds bound up. Light, harmony, and beauty in the heavens.
+3\. Blessed results of God's work. Broken hearts healed; wounds bound up. Light, harmony, and beauty in the heavens.
 
-4\.Mighty encouragement to trust in God. God takes care of the universe; may I not entrust my life, my soul, to him? Where he rules unquestioned there is light and harmony; let me not resist his will in my life.— *C.A.D.* 
+4\. Mighty encouragement to trust in God. God takes care of the universe; may I not entrust my life, my soul, to him? Where he rules unquestioned there is light and harmony; let me not resist his will in my life.— *C. A. D.* 
 
 **Verse 5.** A contemplation of God's greatness.
 
-1\.Great in his essential nature.
+1\. Great in his essential nature.
 
-2\.Great in Power.
+2\. Great in Power.
 
-3\.Great in wisdom. Let us draw inferences concerning the insignificance of man, & c.
+3\. Great in wisdom. Let us draw inferences concerning the insignificance of man, & c.
 
 **Verse 6.** Reversal.
 
-1\.In the estimate of the world the meek are cast down and the wicked lifted up.
+1\. In the estimate of the world the meek are cast down and the wicked lifted up.
 
-2\.In the judgment of heaven the meek are lifted up and the wicked cast down.
+2\. In the judgment of heaven the meek are lifted up and the wicked cast down.
 
-3\.The judgment of heaven will, in the end, be found the true one.— *C.A.D.* 
+3\. The judgment of heaven will, in the end, be found the true one.— *C. A. D.* 
 
 **Verse 7.** The use and benefit of singing.
 
@@ -500,21 +500,21 @@ d) To meet them in their fears and their hopes.
 
 e) To reward them for ever.
 
-**Verse 11.** He takes pleasure in their persons, emotions, desires, devotions, hopes, and characters.— *W.W.* 
+**Verse 11.** He takes pleasure in their persons, emotions, desires, devotions, hopes, and characters.— *W. W.* 
 
 **Verse 12.** 
 
-1\.The Lord whom we praise.
+1\. The Lord whom we praise.
 
-2\.His praise in our houses—Jerusalem.
+2\. His praise in our houses—Jerusalem.
 
-3\.Our praise in his house—Zion.
+3\. Our praise in his house—Zion.
 
 **Verse 13.** A Strong Church.
 
-1\.The utility and value of a strong church.
+1\. The utility and value of a strong church.
 
-2\.The marks which distinguish it.
+2\. The marks which distinguish it.
 
 a) Gates well kept.
 
@@ -522,19 +522,19 @@ b) Increase of membership.
 
 c) The converts blessed to others.
 
-3\.The important care of a strong church: to trace all blessing to Zion's God.— *W.B.H.* 
+3\. The important care of a strong church: to trace all blessing to Zion's God.— *W. B. H.* 
 
 **Verses 14-15.** See "Spurgeon's Sermons", No. 425: "Peace at Home, and Prosperity Abroad."
 
 **Verses 14-15.** Church blessings.
 
-1\.Peace.
+1\. Peace.
 
-2\.Food.
+2\. Food.
 
-3\.Missionary energy.
+3\. Missionary energy.
 
-4\.The presence of God: the source of all blessing.
+4\. The presence of God: the source of all blessing.
 
 **Verse 15.** (*second clause* ). See "Spurgeon's Sermons", No. 1607: "The Swiftly Running Word."
 
@@ -544,13 +544,13 @@ c) The converts blessed to others.
 
 **Verse 19.** 
 
-1\.God's people.
+1\. God's people.
 
-2\.God's Word.
+2\. God's Word.
 
-3\.God's revelation to the soul.
+3\. God's revelation to the soul.
 
-4\.God's praise for this special revelation.
+4\. God's praise for this special revelation.
 
 **Verse 20.** *He hath not dealt so with any nation... Praise ye the Lord.* The sweet Psalmist of Israel, a man skilful in praises, doth begin and end this Psalm with *Hallelujah.* In the body of the Psalm he doth set forth the mercy of God, both towards all *creatures* in general in his common providence, and towards his *church* in particular. So in this close of the Psalm: "He sheweth his word unto Jacob, and his statutes to Israel. He hath not dealt so with any nation." In the original 'tis, "He hath not dealt so with *every nation":* that is, with *any* nation. In the text you may observe *a position* and *a conclusion. A position;* and that is, that God deals in a singular way of mercy with his people above all other people. And then the *conclusion: "Praise ye the Lord."* Doctrine. That God deals in a singular way of mercy with his people, and therefore expects singular praises from his people.— *Joseph Alleine* (1633-1668), *in "A Thanksgiving Sermon."* 
 
@@ -558,11 +558,11 @@ c) The converts blessed to others.
 
 **Verse 20.** Electing Grace inspires the Heart with Praise.
 
-1\.God's love has chosen us. Hallelujah.
+1\. God's love has chosen us. Hallelujah.
 
-2\.God has intrusted us with his truth. Hallelujah.
+2\. God has intrusted us with his truth. Hallelujah.
 
-3\.God has made us almoners of his bounty. Hallelujah.
+3\. God has made us almoners of his bounty. Hallelujah.
 
-4\.God through us is to save the world. Hallelujah.— *W.B.H.* 
+4\. God through us is to save the world. Hallelujah.— *W. B. H.* 
 

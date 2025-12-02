@@ -16,4 +16,4 @@ Only one word of self-defence shall further delay the courteous reader. A critic
 
 For the generous reviews which the former volumes have received on all hands I am deeply grateful. I commit this fourth volume to the press, praying that it may, according to the Lord’s will, tend to the upbuilding of his church and his own glory.
 
-&ndash; *C.H. Spurgeon*
+&ndash; *C. H. Spurgeon*

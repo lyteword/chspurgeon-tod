@@ -122,15 +122,15 @@ And treads the monarch down." *—Isaac Watts.*
 
 **Verse 1.** 
 
-1\.Do we give thanks?
+1\. Do we give thanks?
 
-2\.We do give thanks.
+2\. We do give thanks.
 
-3\.What thanks do we give.?
+3\. What thanks do we give.?
 
-4\.When do we give thanks?
+4\. When do we give thanks?
 
-5\.Let us give thanks again.
+5\. Let us give thanks again.
 
 Good resolutions commendable, how they should be made, strengthened, and performed.
 
@@ -140,13 +140,13 @@ Good resolutions commendable, how they should be made, strengthened, and perform
 
 **Verse 4.** 
 
-1\.Who spoke to them? *I.* 
+1\. Who spoke to them? *I.* 
 
-2\.Who were they? *Fools, wicked.* 
+2\. Who were they? *Fools, wicked.* 
 
-3\.What did you say?
+3\. What did you say?
 
-4\.What was the good of it? Or, Rebuke of sin, a duty.
+4\. What was the good of it? Or, Rebuke of sin, a duty.
 
 **Verse 4.** The unhallowed trio:—wickedness, folly, pride.
 
@@ -158,11 +158,11 @@ Good resolutions commendable, how they should be made, strengthened, and perform
 
 **Verse 8.** *In the hand of the Lord there is a cup,* etc.
 
-1\.As to matter of *preparation,* consider it so, and thus it is *in the hand of the Lord.* 
+1\. As to matter of *preparation,* consider it so, and thus it is *in the hand of the Lord.* 
 
-2\.By way of *qualification:* it is he that tempers it; it was *full of mixture.* 
+2\. By way of *qualification:* it is he that tempers it; it was *full of mixture.* 
 
-3\.By way of *distribution,* as giving to every one his share and portion in it. *Thomas Horton.* 
+3\. By way of *distribution,* as giving to every one his share and portion in it. *Thomas Horton.* 
 
 **Verse 8.** The cup of wrath. Where it is, what it is, how full it is, who brings it, who must drink it.
 
@@ -172,7 +172,7 @@ Good resolutions commendable, how they should be made, strengthened, and perform
 
 1\."The dregs" of the cup: the wrath of wrath, the gall of bitterness.
 
-2\.The dregs of the people: "all wicked."
+2\. The dregs of the people: "all wicked."
 
 **Verse 9.** Our life work: to declare and to sing.
 

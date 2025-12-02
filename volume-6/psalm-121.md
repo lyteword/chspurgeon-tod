@@ -52,7 +52,7 @@ From this time, evermore."
 
 **Title &mdash;** "A Song of Degrees." It has been ingeniously pointed out that these "degrees" or "steps" consist in the reiteration of a word or thought occurring in one clause, verse, or stanza, which in the next verse or stanza is used, as it were, as a step (or degree) by which to ascend to another and higher truth. Thus in our psalm, the idea of "my help", expressed in Ps 121:1, is repeated in Ps 121:2. This has now become a step by which in Ps 121:3 we reach the higher truth or explanation of "nay help", as: "He that keepeth thee will not slumber, "the same idea being with slight modification reembodied in Ps 121:4. Another "degree" is then reached in Ps 121:5, when "He who slumbers not" is designated as Jehovah, the same idea once more enlarged upon being (the word occurring twice in Ps 121:5) in Ps 121:6. The last and highest degree of this song is attained in Ps 121:7, when the truth implied in the word Jehovah unfolds itself in its application to our preservation, which, with further enlargement, is once more repeated in Ps 121:8. Perhaps some internal connexion might be traced between all the fifteen Psalms of Degrees. At any rate, it will not be difficult to trace the same structure if each of the psalms "of Degrees", making allowance for occasional devotions and modifications.— *Alfred Edersheim*, in *"The Golden Diary,"* 1877.
 
-**Whole Psalm.** According to Ps 121:1 this psalm was designed to be sung in view of the mountains of Jerusalem, and is manifestly an evening song for the sacred band of pilgrims, to be sung in the last night watch, the figures of which are also peculiarly suitable for a pilgrim song; and with Psalm 122, which, according to the express announcement in the introduction, was sung, when the sacred pilgrim trains had reached the gates of Jerusalem, and halted for the purpose of forming in order, for the solemn procession into the Sanctuary, Ps. 134.... The idea is a very probable one, that the psalm was the evening song of the sacred pilgrim band, sung on retiring to rest upon the last evening, when the long wished for termination of their wandering, the mountains of Jerusalem, had come into view in the distance. In this we obtain a suitable connection with the following psalm, which would be sung one station further on when the pilgrims were at the gates of Jerusalem. In this case we find an explanation of the fact, that in the middle point of the psalm there stands the Lord as the "keeper" of Israel, with reference to the declaration. "I keep thee", which was addressed to the patriarch as he slept on his pilgrimage: and in this case also "he neither slumbereth nor sleepeth" is seen in its true light.— *E.W. Hengstenberg.* 
+**Whole Psalm.** According to Ps 121:1 this psalm was designed to be sung in view of the mountains of Jerusalem, and is manifestly an evening song for the sacred band of pilgrims, to be sung in the last night watch, the figures of which are also peculiarly suitable for a pilgrim song; and with Psalm 122, which, according to the express announcement in the introduction, was sung, when the sacred pilgrim trains had reached the gates of Jerusalem, and halted for the purpose of forming in order, for the solemn procession into the Sanctuary, Ps. 134.... The idea is a very probable one, that the psalm was the evening song of the sacred pilgrim band, sung on retiring to rest upon the last evening, when the long wished for termination of their wandering, the mountains of Jerusalem, had come into view in the distance. In this we obtain a suitable connection with the following psalm, which would be sung one station further on when the pilgrims were at the gates of Jerusalem. In this case we find an explanation of the fact, that in the middle point of the psalm there stands the Lord as the "keeper" of Israel, with reference to the declaration. "I keep thee", which was addressed to the patriarch as he slept on his pilgrimage: and in this case also "he neither slumbereth nor sleepeth" is seen in its true light.— *E. W. Hengstenberg.* 
 
 It has been said Mr. Romaine read this psalm every day; and sure it is, that every word in it is calculated to encourage and strengthen our faith and hope in God.— *Samuel Eyles Pierce.* 
 
@@ -152,7 +152,7 @@ Look away to him!
 
 **Verse 2.** *Maker of heaven and earth,* and therefore mighty to help.— *James G. Murphy.* 
 
-**Verse 3.** *He will not suffer thy foot to be moved.* The sliding of the foot is a frequent description of misfortune, for example, Ps 38:16, Ps 66:9, and a very natural one in mountainous Canaan. Where a single slip of the foot was often attended with great danger. The language here naturally refers to complete, lasting misfortune.— *E.W. Hengstenberg.* 
+**Verse 3.** *He will not suffer thy foot to be moved.* The sliding of the foot is a frequent description of misfortune, for example, Ps 38:16, Ps 66:9, and a very natural one in mountainous Canaan. Where a single slip of the foot was often attended with great danger. The language here naturally refers to complete, lasting misfortune.— *E. W. Hengstenberg.* 
 
 **Verse 3.** *He will not suffer thy foot to be moved.* A man cannot go without moving of his feet; and a man cannot stand whose feet are moved. The foot by a synechdoche is put for the whole body, and the body for the whole outward estate; so that, "He will not suffer thy foot to be moved", is, he will not suffer thee or thine to be moved or violently cast down. The power of thine opposers shall not prevail over thee, for the power of God sustains thee. Many are striking at thy heels, but they cannot strike them up while God holds thee up. If the will of thine enemies might stand, thou shouldest quickly fall; but God "will not suffer thy foot to be moved".— *Joseph Caryl.* 
 
@@ -184,11 +184,11 @@ While the services of the keeper constitute at all times a marked feature of lif
 
 **Verse 4.** It is necessary, observes S. Bernard, that "he who keepeth Israel" should "neither slumber nor sleep", for he who assails Israel neither slumbers nor sleeps. And as the One is anxious about us, so is the other to slay and destroy us, and his one care is that he who has once been turned aside may never come back.— *Neale and Littledale.* 
 
-**Verse 4.** *Slumber. Sleep.* There is no climax in these words, as some have supposed. Etymologically, the first is the stronger word, and it occurs in Ps 76:5 *6* of the sleep of death. In this instance there is no real distinction between the two. Possibly there may be an allusion to the nightly encampment, and the sentries of the caravan.— *J.J. Stewart Perowne.* 
+**Verse 4.** *Slumber. Sleep.* There is no climax in these words, as some have supposed. Etymologically, the first is the stronger word, and it occurs in Ps 76:5 *6* of the sleep of death. In this instance there is no real distinction between the two. Possibly there may be an allusion to the nightly encampment, and the sentries of the caravan.— *J. J. Stewart Perowne.* 
 
 **Verse 4.** *He... shall neither slumber nor sleep.* This form of expression, he will not slumber nor sleep, would be improper in other languages, according to the idiom of which it should rather be, He will not sleep, yea, he will not slumber: but when the Hebrews invert this order, they argue from the greater to the less. The sense then is, that as God never slumbers even in the smallest degree, we need not be afraid of any harm befalling us while he is asleep.— *John Calvin.* 
 
-**Verse 4.** *He that keepeth Israel.* With an allusion to Jacob, who slept at Bethel, and to whom the promise of God took this form, "And, behold, I am with thee, and will keep thee in all places whither thou guest": Ge 28:15.— *Aben Ezra*, quoted by *H.T. Armfield.* 
+**Verse 4.** *He that keepeth Israel.* With an allusion to Jacob, who slept at Bethel, and to whom the promise of God took this form, "And, behold, I am with thee, and will keep thee in all places whither thou guest": Ge 28:15.— *Aben Ezra*, quoted by *H. T. Armfield.* 
 
 **Verse 4.** *Shall neither slumber nor sleep.* Man sleeps; a sentinel may slumber on his post by inattention, by long continued wakefulness, or by weariness; a pilot may slumber at the helm; even a mother may fall asleep by the side of the sick child; but God is never exhausted, is never weary, is never inattentive. He never closes his eyes on the condition of his people, on the wants of the world.— *Albert Barnes.* 
 
@@ -218,15 +218,15 @@ Thy Father's on the deck.
 
 **Verse 5.** *The Lord is thy keeper.* Two principal points are asserted in these previous words.
 
-1\.Jehovah, and Jehovah alone, the omnipotent and self existent God, is the Keeper and Preserver of his people.
+1\. Jehovah, and Jehovah alone, the omnipotent and self existent God, is the Keeper and Preserver of his people.
 
-2\.The people of God are kept, at all times and in all circumstances, by his mighty power unto everlasting salvation; they are preserved even "for evermore." In the first particular, the divinity of the great Keeper is declared; and, in the second, the eternal security of his people through his omnipotence and faithfulness. This was the Psalmist's gospel. He preached it to others, and he felt it himself. He did not speculate upon what he did not understand; but he had a clear evidence, and a sweet perception, of these two glorious doctrines, which he delivered to the people... This character, under the name of Jehovah, is the character of Christ. Just such a one is Jesus, the Shepherd of Israel. He says of himself to the Father, "Those that thou gavest me I have kept, and none of them is lost, but the Son of Perdition, that the Scripture might be fulfilled."...From what has been premised, it seems evident, that the keeper of the faithful is no other than Jehovah. This the Psalmist has proved. It appears equally evident that Christ is their Keeper and Preserver. This he hath declared himself; and his apostles have repeatedly declared it of him. It follows, therefore, that Christ is truly and essentially Jehovah. All the sophistry in the world cannot elude this conclusion; nor all the heretics in the world destroy the premises. And, if Christ be Jehovah, he is all that supreme, eternal, omnipotent being, which Arians, Socinians, and others deny him to be.— *Ambrose Serle*, in *"Hora Sotitarice,"* 1815.
+2\. The people of God are kept, at all times and in all circumstances, by his mighty power unto everlasting salvation; they are preserved even "for evermore." In the first particular, the divinity of the great Keeper is declared; and, in the second, the eternal security of his people through his omnipotence and faithfulness. This was the Psalmist's gospel. He preached it to others, and he felt it himself. He did not speculate upon what he did not understand; but he had a clear evidence, and a sweet perception, of these two glorious doctrines, which he delivered to the people... This character, under the name of Jehovah, is the character of Christ. Just such a one is Jesus, the Shepherd of Israel. He says of himself to the Father, "Those that thou gavest me I have kept, and none of them is lost, but the Son of Perdition, that the Scripture might be fulfilled."... From what has been premised, it seems evident, that the keeper of the faithful is no other than Jehovah. This the Psalmist has proved. It appears equally evident that Christ is their Keeper and Preserver. This he hath declared himself; and his apostles have repeatedly declared it of him. It follows, therefore, that Christ is truly and essentially Jehovah. All the sophistry in the world cannot elude this conclusion; nor all the heretics in the world destroy the premises. And, if Christ be Jehovah, he is all that supreme, eternal, omnipotent being, which Arians, Socinians, and others deny him to be.— *Ambrose Serle*, in *"Hora Sotitarice,"* 1815.
 
 **Verse 5.** *Keeper. Shade.* The titles of God are virtually promises. When he is called a sun, a shield, a strong tower, a hiding place, a portion. The titles of Christ, light of the world, bread of life, the way, the truth, and life; the titles of the Spirit, the Spirit of truth, of holiness, of glory, of grace, and supplication, the sealing, witnessing Spirit; faith may conclude as much out of these as out of promises. Is the Lord a sun? then he will influence me, etc. Is Christ life? then he will enliven me, etc.— *David Clarkeon*, 1621-1686.
 
 **Verse 5.** *Thy shade upon thy right hand.* That is, always present with thee; or, as the Jewish Arab renders it, "Closer than thy shadow at, or from thy right hand."— *Thomas Benton, in "Annotations on the Book of Job and the Psalms,"* 1732.
 
-**Verse 5.** *Thy shade.* In eastern countries the sun's burning rays are often arrows by which premature death is inflicted; and when the Psalmist speaks of Jehovah as a shady covert for the righteous that imagery suggests the idea of the "coup de soleil" or sunstroke as the evil avoided.— *J.F.*, in *The Baptist Magazine*, 1831.
+**Verse 5.** *Thy shade.* In eastern countries the sun's burning rays are often arrows by which premature death is inflicted; and when the Psalmist speaks of Jehovah as a shady covert for the righteous that imagery suggests the idea of the "coup de soleil" or sunstroke as the evil avoided.— *J. F.*, in *The Baptist Magazine*, 1831.
 
 **Verse 5.** *Shade.* The Hebrew word is tsel, "a shadow, "and hence it has been supposed that the words, "thy shadow at thy right hand, "are a figurative expression, referring to the protection afforded by the shade of a tree against the scorching rays of the sun, or to the custom which prevails in tropical climates especially, of keeping off the intense heat of the sun by a portable screen, such as an umbrella or parasol. The word is often put for defence in general. Compare Nu 14:9; Isa 30:2; Jer 48:45.— *James Anderson.* 
 
@@ -250,13 +250,13 @@ That rheumatic diseases do abound.
 
 **Verse 6.** *Nor the moon by night.* The effect of the moonlight on the eyes in tiffs country is singularly injurious... The moon here really strikes and affects the sight, when you sleep exposed to it, much more than the sun, a fact of which I had a very unpleasant proof one night, and took care to guard against it afterwards; indeed, the sight of a person who should sleep with his face exposed at night would soon be utterly impaired or destroyed.— *John Carne*, in *"Letters from the East,"* 1826.
 
-**Verse 6.** *Nor the moon by night.* In the cloudless skies of the East, where the moon shines with such exceeding clearness, its effects upon the human frame have been found most injurious. The inhabitants of these countries are most careful in taking precautionary measures before exposing themselves to its influence. Sleeping much in the open air, they are careful to cover well their heads and faces. It has been proved beyond a doubt that the moon smites as well as the sun, causing blindness for a time, and even distortion of the features. Sailors are well aware of this fact; and a naval officer relates that he has often, when Sailing between the tropics, seen the commanders of vessels waken up young men who have fallen asleep in the moonlight. Indeed, he witnessed more than once the effects of a moonstroke, when the mouth was drawn on one side and the sight injured for a time. He was of opinion that, with long exposure, the mind might become seriously affected. It is supposed that patients suffering under fever and other illnesses are affected by this planet, and the natives of India constantly affirm that they will either get better or worse, according to her changes.— *C.W.*, in, *"The Biblical Treasury."* 
+**Verse 6.** *Nor the moon by night.* In the cloudless skies of the East, where the moon shines with such exceeding clearness, its effects upon the human frame have been found most injurious. The inhabitants of these countries are most careful in taking precautionary measures before exposing themselves to its influence. Sleeping much in the open air, they are careful to cover well their heads and faces. It has been proved beyond a doubt that the moon smites as well as the sun, causing blindness for a time, and even distortion of the features. Sailors are well aware of this fact; and a naval officer relates that he has often, when Sailing between the tropics, seen the commanders of vessels waken up young men who have fallen asleep in the moonlight. Indeed, he witnessed more than once the effects of a moonstroke, when the mouth was drawn on one side and the sight injured for a time. He was of opinion that, with long exposure, the mind might become seriously affected. It is supposed that patients suffering under fever and other illnesses are affected by this planet, and the natives of India constantly affirm that they will either get better or worse, according to her changes.— *C. W.*, in, *"The Biblical Treasury."* 
 
 **Verse 7.** *The Lord shall preserve thee from all evil.* Lawyers, when they are drawing up important documents, frequently conclude with some general terms to meet any emergency which may possibly occur. They do this on the principle, that what is not in may be supposed to be intentionally left out. In order to guard against this inference, they are not content with inserting a number of particular cases; they conclude with a general statement, which includes everything, whether expressed or not. A similar formula is inserted here. It is of great Importance, that the feet of travellers be kept from sliding, as they pursue their journey. It is of great importance, that they be preserved from heat by day, and from cold by night. But other dangers await them, from which they require protection; and lest the suspicion be entertained, that no provision is made for these being surmounted, they are all introduced in the saving and comprehensive clause. No matter what may be their character, no matter from what quarter they may appear, no matter when they may nome, and no matter how long they may continue, the declaration covers them all. Divine grace changes the nature of everything it handles, and transforms everything it touches into gold. Afflictions are overruled for good; and the virtues of the Christian life are developed with unusual lustre. "The Lord shall preserve thee from all evil."— *N. Mc Michael.* 
 
 **Verse 7.** *The Lord shall preserve thee from all evil,* etc. It is an absolute promise, there are no conditions annexed; it honours God for us simply to believe it, and rest on the Lord for the performance of it. As we view it, what have we to fear? The mouth of the Lord hath spoken it, his word is immutable. Jesus preserves body and soul, he is the Saviour of the body as well as of the soul.— *Samuel Eyles Pierce.* 
 
-**Verses 7, 8.** The threefold expression, "shall keep thee...thy soul...thy going out and thy coming in, "marks the completeness of the protection vouchsafed, extending to all that the man is and that he does.— *J.J. Stewart Perowne.* 
+**Verses 7, 8.** The threefold expression, "shall keep thee...thy soul...thy going out and thy coming in, "marks the completeness of the protection vouchsafed, extending to all that the man is and that he does.— *J. J. Stewart Perowne.* 
 
 **Verses 7, 8.** It is of importance to mark the reason why the prophet repeats so often what he had so briefly and in one word expressed with sufficient plainness. Such repetition seems at first sight superfluous: but when we consider how difficult it is to correct our distrust, it will be easily perceived that he does not improperly dwell upon the commendation of the divine providence. How few are to be found who yield to God the honour of being a "keeper", in order to their being thence assured of their safety, and led to call upon him in the midst of their perils! On the contrary, even when we seem to have largely experienced what this protection of God implies, we yet instantly tremble at the noise of a leaf falling from a tree, as if God had quite forgotten us. Being then entangled in so many unholy misgivings, and so much inclined to distrust, we are taught from the passage that if a sentence couched in a few words does not suffice us, we should gather together whatever may be found throughout tim whole Scriptures concerning the providence of God, until this doctrine—"That God always keeps watch for us"—is deeply rooted in our hearts; so that, depending upon his guardianship alone, we may bid adieu to all the vain confidences of the world.— *John Calvin.* 
 
@@ -270,29 +270,29 @@ That rheumatic diseases do abound.
 
 **Verse 1.** The window opened towards Jerusalem.
 
-1\.The hills we look to.
+1\. The hills we look to.
 
-2\.The help we look for.
+2\. The help we look for.
 
-3\.The eyes we look with.
+3\. The eyes we look with.
 
 **Verse 1.** *Whence cometh my help?* A grave question; for,
 
-1\.I need it, greatly, in varied forms, constantly, and now.
+1\. I need it, greatly, in varied forms, constantly, and now.
 
-2\.In few directions can I look for it, for men are feeble, changeable, hostile, etc.
+2\. In few directions can I look for it, for men are feeble, changeable, hostile, etc.
 
-3\.I must look above. To Providence, to Grace, to my God.
+3\. I must look above. To Providence, to Grace, to my God.
 
 **Verse 2.** The Creator the creature's helper.
 
 **Verse 2.** 
 
-1\.God is his people's "help."
+1\. God is his people's "help."
 
-2\.He helps them in proportion as they feel their need of his help.
+2\. He helps them in proportion as they feel their need of his help.
 
-3\.His help is never ill vain. "My help cometh." not from the earth merely, or the skies, but "from the Lord, which made heaven and earth". Isa 40:26-31.— *G.R.* 
+3\. His help is never ill vain. "My help cometh." not from the earth merely, or the skies, but "from the Lord, which made heaven and earth". Isa 40:26-31.— *G. R.* 
 
 **Verse 3** (First clause). The preservation of saintly character the care of the Creator.
 
@@ -300,7 +300,7 @@ That rheumatic diseases do abound.
 
 **Verse 3.** *He that keepeth thee will not slumber.* 
 
-1\.The Lord's care is personal in its objects. The keeper of Israel is the keeper of the individual. God deals with us individually.
+1\. The Lord's care is personal in its objects. The keeper of Israel is the keeper of the individual. God deals with us individually.
 
 (a) This is implied in his care of the church, which is composed of individuals.
 
@@ -310,7 +310,7 @@ That rheumatic diseases do abound.
 
 (d) It is confirmed by experience.
 
-2\.The Lord's care is unwearied in its exercise: "Will not slumber."
+2\. The Lord's care is unwearied in its exercise: "Will not slumber."
 
 (a) He is never unacquainted with our condition.
 
@@ -322,83 +322,83 @@ That rheumatic diseases do abound.
 
 **Verse 4.** 
 
-1\.The suspicion—that God sleeps.
+1\. The suspicion—that God sleeps.
 
-2\.The denial.
+2\. The denial.
 
-3\.The implied opposite—he is ever on the watch to bless.
+3\. The implied opposite—he is ever on the watch to bless.
 
 **Verse 4.** He keepeth Israel,
 
-1\.As his chief treasure, most watchfully.
+1\. As his chief treasure, most watchfully.
 
-2\.As his dearest spouse, most tenderly.
+2\. As his dearest spouse, most tenderly.
 
-3\.As the apple of his eye, most charily and warily.
+3\. As the apple of his eye, most charily and warily.
 
 — *Daniel Featley*, 1582-1645.
 
 **Verse 5.** The Lord Keeper.
 
-1\.Blessings included in this **Title &mdash;** 
+1\. Blessings included in this **Title &mdash;** 
 
-2\.Necessities which demand it.
+2\. Necessities which demand it.
 
-3\.Offices which imply it,—Shepherd, King, Husband, Father, etc.
+3\. Offices which imply it,—Shepherd, King, Husband, Father, etc.
 
-4\.Conduct suggested by it.
+4\. Conduct suggested by it.
 
 **Verse 5** (last clause). God as near us, and as indivisible from us as our shadow.
 
 **Verse 5.** *The Lord is thy keeper,* not angels.
 
-1\.He is able to keep thee. He has infinite knowledge, power, etc.
+1\. He is able to keep thee. He has infinite knowledge, power, etc.
 
-2\.He has engaged to keep thee.
+2\. He has engaged to keep thee.
 
-3\.He has kept thee.
+3\. He has kept thee.
 
-4\.He will keep thee. In his love; in his covenant, etc., as his sheep, his children, his treasures, as the apple of his eye, etc.— *F.J.B.* 
+4\. He will keep thee. In his love; in his covenant, etc., as his sheep, his children, his treasures, as the apple of his eye, etc.— *F. J. B.* 
 
 **Verse 5.** *The Lord is thy keeper.* 
 
-1\.Wakeful: "Will not slumber."
+1\. Wakeful: "Will not slumber."
 
-2\.Universal: "Thy going out and thy coming in:" "From all evil."
+2\. Universal: "Thy going out and thy coming in:" "From all evil."
 
-3\.Perpetual: "Day:" "night:...evermore."
+3\. Perpetual: "Day:" "night:...evermore."
 
-4\.Special: "Thy:" "Israel."— *W.J.* 
+4\. Special: "Thy:" "Israel."— *W. J.* 
 
 **Verse 6.** The highest powers, under God, prevented from hurting believers, and even made to serve them.
 
 **Verse 6.** Our Horoscope.
 
-1\.Superstitious fears removed.
+1\. Superstitious fears removed.
 
-2\.Sacred assurances supplied.
+2\. Sacred assurances supplied.
 
 **Verse 7.** 
 
-1\.Personal agency of God in providence.
+1\. Personal agency of God in providence.
 
-2\.Personal regard of providence to the favoured individual.
+2\. Personal regard of providence to the favoured individual.
 
-3\.Special care over the centre of the personality—"thy soul."
+3\. Special care over the centre of the personality—"thy soul."
 
 **Verse 8.** Who? "The Lord." What? "Shall preserve thee." When? "Going out and coming in from this time forth." How long? "For evermore." What then? "I will lift up mine eyes."
 
 **Verse 8.** 
 
-1\.Changing—going out and coming in.
+1\. Changing—going out and coming in.
 
-2\.Unchanging—"The Lord shall preserve," etc.
+2\. Unchanging—"The Lord shall preserve," etc.
 
 ## Works Upon The Hundred And Twenty-First Psalm
 
 In "Letters on Spiritual Subjects..." by SAMUEL EYLES PIERCE... London: 1862, Vol. I., pp. 359-370, there are "Some Observations on the Hundred and Twenty first Psalm."
 
-In "Meditations on Twenty select Psalms," by Sir ANTHONY COPE, Chamberlain to Queen Katherine Parr. Reprinted from the edition of 1547;...By WILLIAM H. COPE, M.A. 1848, there is a Meditation on this psalm.
+In "Meditations on Twenty select Psalms," by Sir ANTHONY COPE, Chamberlain to Queen Katherine Parr. Reprinted from the edition of 1547;... By WILLIAM H. COPE, M. A. 1848, there is a Meditation on this psalm.
 
 See also List of Works upon the Gradual Psalms, in notes on.
 

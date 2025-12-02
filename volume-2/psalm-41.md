@@ -88,7 +88,7 @@ The Psalm ends with a doxology. *Blessed be the Lord,* i.e., let him be glorifie
 
 **Whole Psalm.** A prophecy of Christ and the traitor Judas. *Eusebius of Caesarea, quoted by J. M. Neale.* 
 
-**Verse 1.** *Blessed is he that considereth the poor.* Interpreters are generally of opinion that the exercise of kindness and compassion, manifested in taking care of the miserable, and helping them, is here commended. Those, however, who maintain that the psalmist here commends the considerate candour of those who judge wisely and charitably of men in adversity, form a better judgment of his meaning. Indeed, the participle, (lksm), *maskil,* cannot be explained in any other way. At the same time it ought to be observed on what account it is that David declares those to be blessed who form a wise and prudent judgment concerning the afflictions by which God chastises his servants...Doubtless it happened to him as it did to the holy patriarch Job, whom his friends reckoned to be one of most wicked of men, when they saw God treating him with great severity. And certainly it is an error which is by far too common among men, to look upon those who are oppressed with afflictions as condemned and reprobate...For the most part, indeed, we often speak rashly and indiscriminately concerning others, and, so to speak, plunge even into the lowest abyss those who labour under affliction. To restrain such a rash and unbridled spirit, David says, that they are blessed who do not suffer themselves, by speaking at random, to judge harshly of their neighbours; but discerning aright the afflictions by which they are visited, mitigate, by the wisdom of the spirit, the severe and unjust judgments to which we naturally are so prone. *John Calvin.* 
+**Verse 1.** *Blessed is he that considereth the poor.* Interpreters are generally of opinion that the exercise of kindness and compassion, manifested in taking care of the miserable, and helping them, is here commended. Those, however, who maintain that the psalmist here commends the considerate candour of those who judge wisely and charitably of men in adversity, form a better judgment of his meaning. Indeed, the participle, (lksm), *maskil,* cannot be explained in any other way. At the same time it ought to be observed on what account it is that David declares those to be blessed who form a wise and prudent judgment concerning the afflictions by which God chastises his servants... Doubtless it happened to him as it did to the holy patriarch Job, whom his friends reckoned to be one of most wicked of men, when they saw God treating him with great severity. And certainly it is an error which is by far too common among men, to look upon those who are oppressed with afflictions as condemned and reprobate... For the most part, indeed, we often speak rashly and indiscriminately concerning others, and, so to speak, plunge even into the lowest abyss those who labour under affliction. To restrain such a rash and unbridled spirit, David says, that they are blessed who do not suffer themselves, by speaking at random, to judge harshly of their neighbours; but discerning aright the afflictions by which they are visited, mitigate, by the wisdom of the spirit, the severe and unjust judgments to which we naturally are so prone. *John Calvin.* 
 
 **Verse 1.** *Blessed is he that considereth the poor.* As Christ considered us in our state of poverty, so ought we most attentively to consider him in his; to consider what he suffered in his own person; to discern him suffering in his poor afflicted members; and to extend to them the mercy which he extended to us. He, who was "blessed" of Jehovah, and "delivered in the evil day" by a glorious resurrection, will "bless" and "deliver" in like manner, such as for his sake, love and relieve their brethren. *George Horne.* 
 
@@ -96,7 +96,7 @@ The Psalm ends with a doxology. *Blessed be the Lord,* i.e., let him be glorifie
 
 **Verse 1.** *Blessed is he that considereth the poor.* I call your attention to the way in which the Bible enjoins us to take up the care of the poor. It does not say in the text before us, Commiserate the poor; for, if it said no more than this, it would leave their necessities to be provided for by the random ebullitions of an impetuous and unreflecting sympathy. It provided them with a better security than the mere feeling of compassion—a feeling which, however useful to the purpose of excitement, must be controlled and regulated. Feeling is but a faint and fluctuating security. Fancy may mislead it. The sober realities of life may disgust it. Disappointment may extinguish it. Ingratitude may embitter it. Deceit, with its counterfeit representations, may allure it to the wrong object. At all events, Time is the little circle in which it in general expatiates. It needs the impression of sensible objects to sustain it; nor can it enter with zeal or with vivacity into the wants of the abstract and invisible soul. The Bible, then, instead of leaving the relief of the poor to the mere instinct of sympathy, makes it a subject for *consideration* —"Blessed is he that *considereth* the poor, "a grave and prosaic exercise, I do allow, and which makes no figure in those high wrought descriptions, where the exquisite tale of benevolence is made up of all the sensibilities of tenderness on the one hand, and of all the ecstasies of gratitude on the other. The Bible rescues the cause from the mischief to which a heedless or unthinking sensibility would expose it. It brings it under the cognisance of a higher faculty—a faculty of sturdier operation than to be weary in well doing, and of sturdier endurance than to give it up in disgust. It calls you to *consider* the poor. It makes the virtue of relieving them a matter of computation, as well as of sentiment, and in so doing puts you beyond the reach of the various delusions, by which you are at one time led to prefer the indulgence of pity to the substantial interest of its object; at another, are led to retire chagrined and disappointed from the scene of duty, because you have not met with the gratitude or the honesty that you laid your account with; at another, are led to expend all your anxieties upon the accommodation of time, and to overlook eternity. It is the office of *consideration* to save you from all these fallacies. Under its tutorage attention to the wants of the poor ripens into principle...
 
-It must be obvious to all of you, that it is not enough that you give money, and add your name to the contributions of charity. You must give it with judgment. You must give your time and your attention. You must descend to the trouble of examination. You must rise from the repose of contemplation, and make yourself acquainted with the object of your benevolent exercises...To give money is not to do all the work and labour of benevolence. You must go to the poor man's sick bed. You must lend your hand to the work of assistance. This is true and unsophisticated goodness. It may be recorded in no earthly documents; but, if done under the influence of Christian principle, in a word, if done unto Jesus, it is written in the book of heaven, and will give a new lustre to that crown to which his disciples look forward in time, and will wear through eternity. *From a Sermon preached before the Society for Relief of the Destitute Sick, in St. Andrew's Church, Edinburgh, by Thomas Chalmers, D.D. and L.L.D.* (1780-1847.)
+It must be obvious to all of you, that it is not enough that you give money, and add your name to the contributions of charity. You must give it with judgment. You must give your time and your attention. You must descend to the trouble of examination. You must rise from the repose of contemplation, and make yourself acquainted with the object of your benevolent exercises... To give money is not to do all the work and labour of benevolence. You must go to the poor man's sick bed. You must lend your hand to the work of assistance. This is true and unsophisticated goodness. It may be recorded in no earthly documents; but, if done under the influence of Christian principle, in a word, if done unto Jesus, it is written in the book of heaven, and will give a new lustre to that crown to which his disciples look forward in time, and will wear through eternity. *From a Sermon preached before the Society for Relief of the Destitute Sick, in St. Andrew's Church, Edinburgh, by Thomas Chalmers, D. D. and L. L. D.* (1780-1847.)
 
 **Verse 1.** *Blessed is he that considereth the poor.* A Piedmontese nobleman into whose company I fell, at Turin, told me the following story: "I was weary of life, and after a day such as few have known, and none would wish to remember, was hurrying along the street to the river, when I felt a sudden check, I turned and beheld a little boy, who had caught the skirt of my cloak in his anxiety to solicit my notice. His look and manner were irresistible. No less so was the lesson he had learnt—`There are six of us, and we are dying for want of food.' `Why should I not, 'said I, to myself, `relieve this wretched family? I have the means, and it will not delay me many minutes. But what if it does?' The scene of misery he conducted me to I cannot describe. I threw them my purse, and their burst of gratitude overcame me. It filled my eyes, it went as a cordial to my heart. `I will call again tomorrow, 'I cried. `Fool that I was to think of leaving a world where such pleasure was to be had, and so cheaply!'" *Samuel Rogers* (1763-1855) *in "Italy."* 
 
@@ -132,7 +132,7 @@ And plants relief for coming miseries. **
 
 **Verses 1, 3.** It is a blessed thing to receive when a man hath need; but it is a more blessed thing to give than to receive. *Blessed* (saith the prophet David) *is he that considereth the poor*. What? to say, alas, poor man! the world is hard with him, I would there were a course taken to do him good? No, no; but to so consider him as to give; to give till the poor man be satisfied, to draw out one's sheaf, aye, one's very soul to the hungry. But what if troubles should come? were it not better to keep money by one? Money will not deliver one. It may be an occasion to endanger one, to bring one into, rather than help one out of trouble; but if a man be a merciful man, *God will deliver him,* either by himself, or by some other man or matter. Aye, but what if *sickness* come? Why, *the Lord will strengthen him upon the bed of languishing*; and, which is a great ease and kindness; God, as it were, himself *will make all his bed in his sickness*. Here poor people have the advantage: such must not say, Alas, I am a poor woman, what work of mercy can I do? for they are they who best can make the beds of sick folk, which we see is a great act of mercy, in that it is said, that *the Lord himself will make their bed in their sickness.* And there are none so poor, but they may *make the beds* of the sick. *Richard Capel.* 
 
-**Verses 1, 5.** He that considereth. Mine enemies. Strigelius has observed, there is a perpetual antithesis in this Psalm between the few who have a due regard to the poor in spirit, and the many who afflict or desert them. *W. Wilson, D.D.* 
+**Verses 1, 5.** He that considereth. Mine enemies. Strigelius has observed, there is a perpetual antithesis in this Psalm between the few who have a due regard to the poor in spirit, and the many who afflict or desert them. *W. Wilson, D. D.* 
 
 **Verse 2.** *The Lord will preserve him, and keep him alive.* It is worthy of remark, that *benevolent persons,* who *"consider the poor, "* and especially the *sick poor;* who search cellars, garrets, back lanes, and such abodes of misery, to find them out (even in the places where contagion keeps its seat), very seldom fall a prey to their own benevolence. The Lord, in an especial manner, keeps them *alive,* and preserves them; while many, who endeavour to keep far from the contagion, are assailed by it, and fall victims to it. God loves the merciful man. *Adam Clarke.* 
 
@@ -158,11 +158,11 @@ And plants relief for coming miseries. **
 
 **Verse 4.** (*last clause* ). Saul and Judas each said, "I have sinned; "but David says," I have sinned *against thee." William S. Plumer.* 
 
-**Verses 1, 5.** He that considereth. Mine enemies. Strigelius has observed, there is a perpetual antithesis in this Psalm between the few who have a due regard to the poor in spirit, and the many who afflict or desert them. *W. Wilson, D.D.* 
+**Verses 1, 5.** He that considereth. Mine enemies. Strigelius has observed, there is a perpetual antithesis in this Psalm between the few who have a due regard to the poor in spirit, and the many who afflict or desert them. *W. Wilson, D. D.* 
 
 **Verse 5.** *Mine enemies speak evil of me. To speak* is here used in the sense of *to imprecate. John Calvin.* 
 
-**Verse 5.** *His name.* It is the *name,* the character, and privileges of a true servant of God, that calls out the hatred of ungodly men, and they would gladly extirpate him from their sight. *W. Wilson, D.D.* 
+**Verse 5.** *His name.* It is the *name,* the character, and privileges of a true servant of God, that calls out the hatred of ungodly men, and they would gladly extirpate him from their sight. *W. Wilson, D. D.* 
 
 **Verse 6.** *If he come to see me, he speaketh vanity*: many fair words, but none of them true. *David Dickson.* 
 
@@ -170,9 +170,9 @@ And plants relief for coming miseries. **
 
 **Verse 6.** *His heart gathereth iniquity to itself.* 
 
-1\.By adding sin to sin, in that he covers over his malice with such horrid hypocrisy.
+1\. By adding sin to sin, in that he covers over his malice with such horrid hypocrisy.
 
-2\.By inventing or contriving all the several ways he can to ensnare me, or do me some mischief, thereby seeking to satisfy and please his corrupt lusts and affections;
+2\. By inventing or contriving all the several ways he can to ensnare me, or do me some mischief, thereby seeking to satisfy and please his corrupt lusts and affections;
 
 3\.(Which I like best), by observing all he can in me, and drawing what he can from me, and so laying all up together in his mind, as the ground of his unjust surmises and censures concerning me. *Arthur Jackson.* 
 
@@ -184,7 +184,7 @@ And plants relief for coming miseries. **
 
 **Verse 9.** *Mine own familiar friend.* He who, on visiting me, continually saluted me with the kiss of love and veneration, and the usual address: peace be to thee. *Hermann Venema.* 
 
-**Verse 9.** *Which did eat of my beard.* If the same sentiment prevailed among the Hebrews, which prevails at the present day among the Bedouin Arabs, of sacred regard to the person and property of one with whom they have eaten bread and salt, the language is very forcible. *Hath lifted up his heel*: a metaphor drawn from the horse, which attacks with its heel. This language may well have been used by our Saviour, in Joh 13:18, in the way of rhetorical illustration or emphasis. *George R. Noyes, D.D.* 
+**Verse 9.** *Which did eat of my beard.* If the same sentiment prevailed among the Hebrews, which prevails at the present day among the Bedouin Arabs, of sacred regard to the person and property of one with whom they have eaten bread and salt, the language is very forcible. *Hath lifted up his heel*: a metaphor drawn from the horse, which attacks with its heel. This language may well have been used by our Saviour, in Joh 13:18, in the way of rhetorical illustration or emphasis. *George R. Noyes, D. D.* 
 
 **Verse 9.** *Hath lifted up his heel against me.* In this phrase he seems to allude to a beast's kicking at his master by whom he is fed, or the custom of men's spurning at or trampling upon those that are cast down on the ground, in a way of despite and contempt. *Arthur Jackson.* 
 
@@ -196,7 +196,7 @@ And plants relief for coming miseries. **
 
 **Verse 11.** *By this I know that thou favourest me, because mine enemy doth not triumph over me:* not because I have no enemies, or because I have no trouble which would overcome me. Therefore when he wrote down *many troubles,* he blotted it (as it were) with his pen again, as a merchant razes his book when the debt is discharged; and instead of *many troubles,* he putteth in, *the Lord delivereth.* Because he forgiveth all sins, he is said to deliver from all troubles, to show that we have need of no Saviour, no helper, no comforter, but him. *Henry Smith.* 
 
-**Verse 11.** *By this I know that thou favourest me.* In this text we see two things. 1. How David assures himself of God's love towards him. 2. How thankful he is to God for assuring him of his love. The first he doth by two arguments; one is taken from his enemies, they were prevented of their expectation—"Therefore thou lovest me." The other is taken from his own estate, which was not one whit hurt, or impaired, but bettered by them...Here the prophet speaketh of his knowledge, and telleth us that though he knew not all things, yet he knew that God loved him, and so long as he knoweth that, he careth not greatly for other matters, how the world goeth with him, etc. And, to say the truth, he need not, for he that is sure of that, is sure of all. God loveth all his creatures as a good God, and hateth nothing that he made, but he loveth his elect children with a more especial love than the rest, as a Father in Christ Jesus, and he that is sure that God doth so favour him, is sure, I say, of all. For to him whom God loveth, he will deny no good thing, no, not his own Son; and if he gave us his Son, because he loved us, how shall he not with him give us all things else?
+**Verse 11.** *By this I know that thou favourest me.* In this text we see two things. 1. How David assures himself of God's love towards him. 2. How thankful he is to God for assuring him of his love. The first he doth by two arguments; one is taken from his enemies, they were prevented of their expectation—"Therefore thou lovest me." The other is taken from his own estate, which was not one whit hurt, or impaired, but bettered by them... Here the prophet speaketh of his knowledge, and telleth us that though he knew not all things, yet he knew that God loved him, and so long as he knoweth that, he careth not greatly for other matters, how the world goeth with him, etc. And, to say the truth, he need not, for he that is sure of that, is sure of all. God loveth all his creatures as a good God, and hateth nothing that he made, but he loveth his elect children with a more especial love than the rest, as a Father in Christ Jesus, and he that is sure that God doth so favour him, is sure, I say, of all. For to him whom God loveth, he will deny no good thing, no, not his own Son; and if he gave us his Son, because he loved us, how shall he not with him give us all things else?
 
 When the child is persuaded that his father loveth him, he is bold to ask this and that of his father: so may we be bold to ask anything of God our heavenly Father that is good for us, when we be sure that he loveth us. As Mary and Martha put Christ in mind but of two things; the first was, that Christ loved their brother Lazarus; the second was, that Lazarus was sick; "He whom thou lovest is sick:" it was no need to tell him what he should do, for they knew he would do what might be done for him, because he loved him. So we may say to the Lord, when we are sure that he loveth us: Lord, he whom thou lovest wanteth this or that for his body or his soul. We need not then appoint him what to do, or when, or how; for look what he seeth most convenient for us, and for his own glory, he will surely do it. Therefore whatsoever David knoweth, he will be sure to know this; and whatsoever he is ignorant of, yet of this he will not be ignorant; to teach is that whatsoever we seek to make sure, this must first be made sure, or else nothing is sure. Peter bids us make our election sure; Job, when he saith, "I am sure that my Redeemer liveth, "teacheth us to make our redemption sure. And here David teacheth us to make *God's favour* sure: now if we make that sure, then our election is sure, our redemption is sure, our vocation is sure, and our salvation is sure. *William Barton,* 1602.
 
@@ -210,13 +210,13 @@ When the child is persuaded that his father loveth him, he is bold to ask this a
 
 **Verse 13.** *Blessed be the Lord God of Israel from everlasting, and to everlasting. Amen, and Amen.* We are here taught, 1. To give glory to God, as *the Lord God of Israel,* a God in covenant with his people; that has done great and kind things for them, and has more and better in reserve. 2. To give him glory as an eternal God, that has both his being and his blessedness *from everlasting and to everlasting.* 3. To do this with great affection and fervour of spirit, intimated in a double seal set to it, *Amen, and Amen.* We say Amen to it, and let all others say Amen too. *Matthew Henry.* 
 
-**Verse 13.** *Amen and Amen.* As the Psalms were not written by one man, so neither do they form one book. The Psalter is, in fact, a Pentateuch, and the lines of demarcation, which divide the five books one from another, are clear and distinct enough. At the end of the 41st Psalm, of the 72nd, of the 89th, and of the 106th, we meet with the solemn, *Amen,* single or redoubled, following on a doxology, which indicates that one book ends and that another is about to begin. A closer study of the Psalms shows that each book possesses characteristics of its own. Jehovah ("the Lord") for example, is prominent as the divine name in the first book, Elohim ("God") in the second. *E. H. Plumptre, M.A., in "Biblical Studies, "* 1870.
+**Verse 13.** *Amen and Amen.* As the Psalms were not written by one man, so neither do they form one book. The Psalter is, in fact, a Pentateuch, and the lines of demarcation, which divide the five books one from another, are clear and distinct enough. At the end of the 41st Psalm, of the 72nd, of the 89th, and of the 106th, we meet with the solemn, *Amen,* single or redoubled, following on a doxology, which indicates that one book ends and that another is about to begin. A closer study of the Psalms shows that each book possesses characteristics of its own. Jehovah ("the Lord") for example, is prominent as the divine name in the first book, Elohim ("God") in the second. *E. H. Plumptre, M. A., in "Biblical Studies, "* 1870.
 
 **Verse 13.** There is also another observable difference between the two books. In the first, all those Psalms which have any inscription at all are expressly assigned to David as their author, whereas in the second we find a whole series attributed to some of the Levitical singers. *J. J. Stewart Perowne.* 
 
 **Verse 13.** How ancient the division is cannot now be clearly ascertained. Jerome, in his epistle to Marcella, and Epiphanius speak of the Psalms as having been divided by the Hebrews into five books, but when this division was made they do not inform us. The forms of ascription of praise, added at the end of each of the five books, are in the Septuagint version, from which we may conclude that this distribution had been made before that version was executed. It was probably made by Ezra, after the return of the Jews from Babylon to their own country, and the establishment of the worship of God in the new temple, and it was perhaps made in imitation of a similar distribution of the books of Moses. In making this division of the Hebrew Psalter, regard appears to have been paid to the subject matter of the Psalms. *John Calvin.* 
 
-**Verse 13.** These forty-one Psalms, it has been observed, forming the first book, relate chiefly to the ministry of Christ upon earth, preparing those who were looking for the consolation of Israel, for his appearing amongst them. Accordingly, the second book, commencing with Psalm 42, may refer chiefly to the infant church of Christ. *W. Wilson, D.D.* 
+**Verse 13.** These forty-one Psalms, it has been observed, forming the first book, relate chiefly to the ministry of Christ upon earth, preparing those who were looking for the consolation of Israel, for his appearing amongst them. Accordingly, the second book, commencing with Psalm 42, may refer chiefly to the infant church of Christ. *W. Wilson, D. D.* 
 
 **Verse 13.** May not the growth of the Book of Psalms be illustrated by the case of our Modern Hymn Books which in the course of years require first one appendix and then another, so as to incorporate the growing psalmody of the church? In this case the purely Davidic Psalms of the first division formed the nucleus to which other sacred songs were speedily added. *C. H. S.* 
 
@@ -224,19 +224,19 @@ When the child is persuaded that his father loveth him, he is bold to ask this a
 
 **Verse 1.** (*first clause* ). The incidental blessings resulting from considering the pious poor.
 
-1\.We learn gratitude.
+1\. We learn gratitude.
 
-2\.We see patience.
+2\. We see patience.
 
-3\.We often remark the triumphs of great grace.
+3\. We often remark the triumphs of great grace.
 
-4\.We obtain light on Christian experience.
+4\. We obtain light on Christian experience.
 
-5\.We have their prayers.
+5\. We have their prayers.
 
-6\.We feel the pleasure of beneficence.
+6\. We feel the pleasure of beneficence.
 
-7\.We enter into communion with the lowly Saviour.
+7\. We enter into communion with the lowly Saviour.
 
 **Verse 1.** The support of the Small pox Hospitals recommended. *Bishop Squire*, 1760. Scores of sermons of this kind have been preached from this text.
 
@@ -252,11 +252,11 @@ When the child is persuaded that his father loveth him, he is bold to ask this a
 
 **Verse 4.** *Heal my soul.* 
 
-1\.The hereditary disease, breaking out in many disorders—open sin, unbelief, decline of grace, etc.
+1\. The hereditary disease, breaking out in many disorders—open sin, unbelief, decline of grace, etc.
 
-2\.Spiritual health struggling with it; shown in spiritual pain, desire, prayer, effort.
+2\. Spiritual health struggling with it; shown in spiritual pain, desire, prayer, effort.
 
-3\.The well proved Physician. Has healed, and will, by his word, his blood, his Spirit, &c.
+3\. The well proved Physician. Has healed, and will, by his word, his blood, his Spirit, &c.
 
 **Verse 4.** *I have sinned against thee.* This confession is personal, plain, without pretence of excuse, comprehensive and intelligent, for it reveals the very heart of sin—"against thee."
 
@@ -274,33 +274,33 @@ When the child is persuaded that his father loveth him, he is bold to ask this a
 
 **Verse 12.** This text reveals the insignia of those whom grace has distinguished.
 
-1\.Their integrity is manifest.
+1\. Their integrity is manifest.
 
-2\.Their character is divinely sustained.
+2\. Their character is divinely sustained.
 
-3\.They dwell in the favour of God.
+3\. They dwell in the favour of God.
 
-4\.Their position is stable and continues.
+4\. Their position is stable and continues.
 
-5\.Their eternal future is secure.
+5\. Their eternal future is secure.
 
 **Verse 13.** 
 
-1\.The object of praise—Jehovah, the covenant God.
+1\. The object of praise—Jehovah, the covenant God.
 
-2\.The nature of the praise—without beginning or end.
+2\. The nature of the praise—without beginning or end.
 
-3\.Our participation in the praise—"Amen and Amen."
+3\. Our participation in the praise—"Amen and Amen."
 
-The ancient rabbins saw in the Five Books of the Psalter the image of the Five Books of the Law. This way of looking on the Psalms as a second Pentateuch, the echo of the first, passed over into the Christian church, and found favour with some early fathers. It has commended itself to the acceptance of good recent expositors, like Dr. Delitzsch, who calls the Psalter "the congregation's five fold word to the Lord, even as the *Thora* (the Law) is the Lord's five fold word to the Congregation." This mat be mere fancy, but its existence from ancient times shows that the five fold division attracted early notice. *William Binnie, D.D.* 
+The ancient rabbins saw in the Five Books of the Psalter the image of the Five Books of the Law. This way of looking on the Psalms as a second Pentateuch, the echo of the first, passed over into the Christian church, and found favour with some early fathers. It has commended itself to the acceptance of good recent expositors, like Dr. Delitzsch, who calls the Psalter "the congregation's five fold word to the Lord, even as the *Thora* (the Law) is the Lord's five fold word to the Congregation." This mat be mere fancy, but its existence from ancient times shows that the five fold division attracted early notice. *William Binnie, D. D.* 
 
-God presented Israel with the Law, a Pentateuch, and grateful Israel responded with a Psalter, a Pentateuch of praise. *F.L.K.* 
+God presented Israel with the Law, a Pentateuch, and grateful Israel responded with a Psalter, a Pentateuch of praise. *F. L. K.* 
 
 ## Works Upon The Forty-First Psalm
 
 "David's Evidence; or, the Assurance of God's Love: declared in seven Sermons upon the three last verses of the Forty-first Psalme. By WILLIAM BURTON. Minister of the Word at Reading in Berkshire...1602." 4to.
 
-The ancient Rabbins saw in the Five Books of the Psalter the image of the Five Books of the Law. This way of looking at the Psalms as a second Pentateuch, the echo of the first, passed over into the Christian church, and found favour with some early fathers. It has commended itself to the acceptance of good recent expositors, like Dr. Delitzsch, who calls the Psalter "the congregation's five fold word to the Lord, even as the *Thora* (the Law) is the Lord's five fold word to the Congregation." This mat be mere fancy, but its existence from ancient times shows that the five fold division attracted early notice. *William Binnie, D.D.* 
+The ancient Rabbins saw in the Five Books of the Psalter the image of the Five Books of the Law. This way of looking at the Psalms as a second Pentateuch, the echo of the first, passed over into the Christian church, and found favour with some early fathers. It has commended itself to the acceptance of good recent expositors, like Dr. Delitzsch, who calls the Psalter "the congregation's five fold word to the Lord, even as the *Thora* (the Law) is the Lord's five fold word to the Congregation." This mat be mere fancy, but its existence from ancient times shows that the five fold division attracted early notice. *William Binnie, D. D.* 
 
 God presented Israel with the Law, a Pentateuch, and grateful Israel responded with s Psalter, a Pentateuch of praise, in acknowledgment of the divine gift. *J. L. K.* 
 

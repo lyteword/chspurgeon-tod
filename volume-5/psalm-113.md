@@ -146,7 +146,7 @@ In Psalm 118 (just before leaving the Upper Room to go to Gethsemane), he poured
 
 **Verse 1.** *Praise ye the LORD. Praise.* The wllh is repeated. This repetition is not without significance. It is for the purpose of waking us up out of our torpor. We are all too dull and slow in considering and praising the blessings of God. There is, therefore, necessity for these stimuli. Then this repetition signifies assiduity and perseverance in sounding forth the praises of God. It is not sufficient once and again to praise God, but his praises ought to be always sung in the Church.— *Mollerus.* 
 
-**Verse 1.** *Praise ye the Lord.* This praising God rests not in the mere speculation or idle contemplation of the Divine excellence, floating only in the brain, or gliding upon the tongue, but in such quick and lively apprehensions of them as to sink down into the heart, and there beget affections suitable to them; for it will make us love him for his goodness, respect him for his greatness, fear him for his justice, dread him for his power, adore him for his wisdom, and for all his attributes make us live in constant awe and obedience to him. This is to praise God, without which all other courting and complimenting of him is but mere flattery and hypocrisy...God Almighty endowed us with higher and nobler faculties than other creatures, for this end, that we should set forth his praise; for though other things were made to administer the matter and occasion, yet man alone was designed and qualified to exercise the act of glorifying God...In short, God Almighty hath so closely twisted his own glory and our happiness together, that at the same time we advance the one we promote the other.— *Matthew Hole,* 1730.
+**Verse 1.** *Praise ye the Lord.* This praising God rests not in the mere speculation or idle contemplation of the Divine excellence, floating only in the brain, or gliding upon the tongue, but in such quick and lively apprehensions of them as to sink down into the heart, and there beget affections suitable to them; for it will make us love him for his goodness, respect him for his greatness, fear him for his justice, dread him for his power, adore him for his wisdom, and for all his attributes make us live in constant awe and obedience to him. This is to praise God, without which all other courting and complimenting of him is but mere flattery and hypocrisy... God Almighty endowed us with higher and nobler faculties than other creatures, for this end, that we should set forth his praise; for though other things were made to administer the matter and occasion, yet man alone was designed and qualified to exercise the act of glorifying God... In short, God Almighty hath so closely twisted his own glory and our happiness together, that at the same time we advance the one we promote the other.— *Matthew Hole,* 1730.
 
 **Verse 1.** *Praise, O ye servants of the LORD.* From the exhortation to praise God, and the declaration of his deserving to be praised; learn, that as it is all men's duty to praise the Lord, so in special it is the duty of his ministers, and officers of his house. First, because their office doth call for the discharge of it publicly. Next, because as they should be best acquainted with the reasons of his praise, so also should they be the fittest instruments to declare it. And lastly, because the ungodly are deaf unto the exhortation, and dumb in the obedience of it; therefore when he hath said, *"Praise ye the Lord, "* he subjoins, *"Praise, O ye servants of the Lord."* — *David Dickson.* 
 
@@ -172,7 +172,7 @@ Be your theme Jehovah's praise.
 
 Richard Mant.
 
-**Verse 2.** *Blessed be the name of the LORD.* Let then, O man, thy labouring soul strive to conceive (for 'tis impossible to express) what an immense debt of gratitude thou owest to him, who by his creating goodness called thee out of nothing to make thee a partaker of reason and even a sharer of immortality with himself; who by his preserving goodness designs to conduct thee safe through the various stages of thy eternal existence; and who by his redeeming goodness hath prepared for thee a happiness too big for the comprehension of a human understanding. Canst thou receive such endearments of love to thee and all mankind with insensibility and coldness?...In the whole compass of language what word is expressive enough to paint the black ingratitude of that man who is unaffected by, and entirely regardless of, the goodness of God his Creator and the mercies of Christ?— *Jeremiah Seed,* 1747.
+**Verse 2.** *Blessed be the name of the LORD.* Let then, O man, thy labouring soul strive to conceive (for 'tis impossible to express) what an immense debt of gratitude thou owest to him, who by his creating goodness called thee out of nothing to make thee a partaker of reason and even a sharer of immortality with himself; who by his preserving goodness designs to conduct thee safe through the various stages of thy eternal existence; and who by his redeeming goodness hath prepared for thee a happiness too big for the comprehension of a human understanding. Canst thou receive such endearments of love to thee and all mankind with insensibility and coldness?... In the whole compass of language what word is expressive enough to paint the black ingratitude of that man who is unaffected by, and entirely regardless of, the goodness of God his Creator and the mercies of Christ?— *Jeremiah Seed,* 1747.
 
 **Verse 2.** *Blessed be the name of the LORD,* etc. No doubt the disciples that sat at that paschal table would repeat with mingled feelings of thanksgiving and sadness that ascription of praise. *Blessed be the name of the LORD from this time forth and for evermore.* But what Israelite in all the paschal chambers at Jerusalem on that night, as he sang the hallel or hymn, or which of the disciples at the sorrowing board of Jesus, could have understood or entered into the full meaning of the expression, *"from this time forth?"* From what time? I think St. John gives us a clue to the very hour and moment of which the Psalmist, perhaps unconsciously, spake. He tells us, that when the traitor Judas had received the sop, he immediately went out; and that when he was gone out to clench as it were and ratify his treacherous purpose, Jesus said, " *Now* is the Son of man glorified, and God is glorified in Him." From that time forth, when by the determinate counsel and foreknowledge of God, the Son of man was about to be delivered into the hands of wicked men, and crucified and slain, as Jesus looked at those around him, as sorrow had indeed filled their hearts, and as with all seeing, prescient eye he looked onwards and beheld all those that should hereafter believe on him through their word, with what significance and emphasis of meaning may we imagine the blessed Jesus on that night of anguish to have uttered these words of the hymn, *"Blessed be the name of the LORD from this time forth and for evermore"!* "A few more hours and the covenant will be sealed in my own blood; the compact ratified, when I hang upon the cross." And with what calm and confident assurance of triumph does he look upon that cross of shame; with what overflowing love does he point to it and say, "And I, if I be lifted up, will draw all men unto me"! It is the very same here in this Paschal Psalm; and how must the Saviour's heart have rejoiced even in the contemplation of those sufferings that awaited him, as he uttered this prediction, *"From the rising of the sun unto the going down of the same the LORD'S name is to be praised"!* "That which thou sowest is not quickened except it die:" and thus from that hour to the present the Lord hath added daily to the church those whom in every age and in every clime he hath chosen unto salvation, till, in his own appointed fulness of time, from the east and from the west, from the north and from the south, all nations shall do him service, and the "earth be filled with the knowledge of the Lord as the waters cover the sea."— *Barton Bouchier.* 
 
@@ -180,9 +180,9 @@ Richard Mant.
 
 **Verse 3.** *From the rising of the sun unto the going down of the same.* That is everywhere, from east to west. These western parts of the world are particularly prophesied of to enjoy the worship of God after the Jews which were in the east; and these islands of ours that lie in the sea, into which the sun is said to go down, which is an expression of the old Greek poets; and the prophet here useth such a word in the Hebrew, where the west is called, according to the vulgar conceit, the sunset, or the sun's going down, or going in.— *Samuel Torshell,* 1641.
 
-**Verses 4-5.** The LORD is high...The LORD our God dwelleth on high. But how *high* is he? *Answer* 
+**Verses 4-5.** The LORD is high... The LORD our God dwelleth on high. But how *high* is he? *Answer* 
 
-1\.So high, that all creatures bow before him and do homage to him according to their several aptitudes and abilities. John brings them all in, attributing to him the crown of glory, putting it from themselves, but setting it upon his head, as a royalty due only to him. (Re 5:13)
+1\. So high, that all creatures bow before him and do homage to him according to their several aptitudes and abilities. John brings them all in, attributing to him the crown of glory, putting it from themselves, but setting it upon his head, as a royalty due only to him. (Re 5:13)
 
 (a) Some by way of subjection, stooping to him: angels and saints worship him, acknowledging his highness, by denying their own, but setting up his will as their supreme law and excellency.
 
@@ -190,13 +190,13 @@ Richard Mant.
 
 (c) Thirdly, even inanimate creatures, by compliance with, and ready subjection to, the impressions of his power, Hab 3:9-11 Isa 48:13 Da 4:35.
 
-2\.He is so high that he surmounts all created capacity to comprehend him, Job 11:7-9. So that indeed, in David's phrase, his greatness is *"unsearchable, "* Ps 145:3. In a word, he is so high,
+2\. He is so high that he surmounts all created capacity to comprehend him, Job 11:7-9. So that indeed, in David's phrase, his greatness is *"unsearchable, "* Ps 145:3. In a word, he is so high,
 
 (a) That no bodily eye hath ever, or can possibly see him.
 
 (b) Neither can the eye of the understanding perfectly reach him. He dwells in inaccessible light that no mortal eye can attain to.— *Condensed from a sermon by Thomas Hedges, entitled, "A Glimpse of God's Glory, "* 1642.
 
-**Verse 6.** *Who humbleth himself.* Whatever may be affirmed of God, may be affirmed of him infinitely, and whatever he is, he is infinitely. So the psalmist, in this place, does not speak of God as humble, but as infinitely and superlatively so, humble beyond all conception and comparison; he challenges the whole universe of created nature, from the highest immortal spirit in heaven to the lowest mortal on earth, to show a being endued with so much humility, as the adorable majesty of the great God of Heaven and earth...If some instances of the Divine humility surprise, the following may amaze us: To see the great King of heaven stooping from his height, and condescending himself to offer terms of reconciliation to his rebellious creatures! To see offended majesty courting the offenders to accept of pardon! To see God persuading, entreating and beseeching men to return to him with such earnestness and importunity, as if his very life were bound up in them, and his own happiness depended upon theirs! To see the adorable Spirit of God, with infinite long suffering and gentleness, submitting to the contempt and insults of such miserable, despicable wretches as sinful mortals are! Is not this amazing?— *Valentine Nalson,* 1641-1724.
+**Verse 6.** *Who humbleth himself.* Whatever may be affirmed of God, may be affirmed of him infinitely, and whatever he is, he is infinitely. So the psalmist, in this place, does not speak of God as humble, but as infinitely and superlatively so, humble beyond all conception and comparison; he challenges the whole universe of created nature, from the highest immortal spirit in heaven to the lowest mortal on earth, to show a being endued with so much humility, as the adorable majesty of the great God of Heaven and earth... If some instances of the Divine humility surprise, the following may amaze us: To see the great King of heaven stooping from his height, and condescending himself to offer terms of reconciliation to his rebellious creatures! To see offended majesty courting the offenders to accept of pardon! To see God persuading, entreating and beseeching men to return to him with such earnestness and importunity, as if his very life were bound up in them, and his own happiness depended upon theirs! To see the adorable Spirit of God, with infinite long suffering and gentleness, submitting to the contempt and insults of such miserable, despicable wretches as sinful mortals are! Is not this amazing?— *Valentine Nalson,* 1641-1724.
 
 **Verse 6.** *Who humbleth himself to behold.* If it be such condescension for God to behold things in heaven and earth, what an amazing condescension was it for the Son of God to come from heaven to earth and take our nature upon him, that he might seek and save them that were lost! Here indeed he humbled himself.— *Matthew Henry.* 
 
@@ -234,11 +234,11 @@ Richard Mant.
 
 **Whole Psalm.** The psalm contains three parts:
 
-1\.An exhortation to God's servants to praise him.
+1\. An exhortation to God's servants to praise him.
 
-2\.A form set down how and where to praise him, ver. 2, 3.
+2\. A form set down how and where to praise him, ver. 2, 3.
 
-3\.The reasons to persuade us to it.
+3\. The reasons to persuade us to it.
 
 (a) By his infinite power, ver. 4, 5.
 
@@ -246,23 +246,23 @@ Richard Mant.
 
 **Verse 1.** The repetitions show,
 
-1\.The importance of praise.
+1\. The importance of praise.
 
-2\.Our many obligations to render it.
+2\. Our many obligations to render it.
 
-3\.Our backwardness in the duty.
+3\. Our backwardness in the duty.
 
-4\.The heartiness and frequency with which it should be rendered.
+4\. The heartiness and frequency with which it should be rendered.
 
-5\.The need of calling upon others to join with us.
+5\. The need of calling upon others to join with us.
 
 **Verse 1.** 
 
-1\.To whom praise is due: "the Lord."
+1\. To whom praise is due: "the Lord."
 
-2\.From whom it is due: "ye servants of the Lord."
+2\. From whom it is due: "ye servants of the Lord."
 
-3\.For what is it due: his "name."
+3\. For what is it due: his "name."
 
 a. For all names descriptive of what he is in himself.
 
@@ -270,47 +270,47 @@ b. For all names descriptive of what he is to his servants.— *G. R.*
 
 **Verses 1, 9.** Praise ye the Lord.
 
-1\.Begin and end life with it, and do the same with holy service, patient suffering, and everything else.
+1\. Begin and end life with it, and do the same with holy service, patient suffering, and everything else.
 
-2\.Fill up the interval with praise. Run over the intervening verses.
-
-**Verse 2.** 
-
-1\.The work of heaven begun on earth: to praise the name of the Lord.
-
-2\.The work of earth continued in heaven: "and for evermore." If the praise begun on earth be continued in heaven, we must be in heaven to continue the praise.— *G. R.* 
+2\. Fill up the interval with praise. Run over the intervening verses.
 
 **Verse 2.** 
 
-1\.It is time to begin to praise: "from this time." Is there not special reason, from long arrears, from present duty, etc.?
+1\. The work of heaven begun on earth: to praise the name of the Lord.
 
-2\.There is no time for leaving off praise: "and for evermore." None supposable or excusable.
+2\. The work of earth continued in heaven: "and for evermore." If the praise begun on earth be continued in heaven, we must be in heaven to continue the praise.— *G. R.* 
+
+**Verse 2.** 
+
+1\. It is time to begin to praise: "from this time." Is there not special reason, from long arrears, from present duty, etc.?
+
+2\. There is no time for leaving off praise: "and for evermore." None supposable or excusable.
 
 **Verse 3.** God is to be praised.
 
-1\.All the day.
+1\. All the day.
 
-2\.All the world over.
+2\. All the world over.
 
-3\.Publicly in the light.
+3\. Publicly in the light.
 
-4\.Amidst daily duties.
+4\. Amidst daily duties.
 
-5\.Always—because it is always day somewhere.
+5\. Always—because it is always day somewhere.
 
 **Verse 3.** 
 
-1\.Canonical hours abolished.
+1\. Canonical hours abolished.
 
-2\.Holy places abolished—since we cannot be always in them.
+2\. Holy places abolished—since we cannot be always in them.
 
-3\.Every time and place consecrated.
+3\. Every time and place consecrated.
 
 **Verses 5-6.** 
 
-1\.The greatness of God as viewed from below, ver. 5.
+1\. The greatness of God as viewed from below, ver. 5.
 
-2\.The condescension of God as viewed from above, ver. 6.
+2\. The condescension of God as viewed from above, ver. 6.
 
 (a) In creation.
 
@@ -320,49 +320,49 @@ b. For all names descriptive of what he is to his servants.— *G. R.*
 
 **Verses 5-6.** The unparalleled condescension of God.
 
-1\.None are so great, and therefore able to stoop so low.
+1\. None are so great, and therefore able to stoop so low.
 
-2\.None are so good, and therefore so willing to stoop.
+2\. None are so good, and therefore so willing to stoop.
 
-3\.None are so wise, and therefore so able to "behold" or know the needs of little things.
+3\. None are so wise, and therefore so able to "behold" or know the needs of little things.
 
-4\.None are infinite, and therefore able to enter into minutiae and sympathize with the smallest grief: Infinity is seen in the minute as truly as in the immense.
+4\. None are infinite, and therefore able to enter into minutiae and sympathize with the smallest grief: Infinity is seen in the minute as truly as in the immense.
 
 **Verse 6.** 
 
-1\.The same God rules in heaven and earth.
+1\. The same God rules in heaven and earth.
 
-2\.Both spheres are dependent for happiness upon his beholding them.
+2\. Both spheres are dependent for happiness upon his beholding them.
 
-3\.They both enjoy his consideration.
+3\. They both enjoy his consideration.
 
-4\.All things done in them are equally under his inspection.
+4\. All things done in them are equally under his inspection.
 
 **Verse 7.** The gospel and its special eye to the poor.
 
 **Verses 7-8.** 
 
-1\.Where men are? In the dust of sorrow and on the dunghill of sin.
+1\. Where men are? In the dust of sorrow and on the dunghill of sin.
 
-2\.Who interferes to help them? He who dwelleth on high.
+2\. Who interferes to help them? He who dwelleth on high.
 
-3\.What does he effect for them? "Raiseth, lifteth, setteth among princes, among princes of his people."
+3\. What does he effect for them? "Raiseth, lifteth, setteth among princes, among princes of his people."
 
 **Verse 8.** Elevation to the peerage of heaven; or, the Royal Family increased.
 
 **Verse 9.** For mothers' meetings. "A joyful mother of children."
 
-1\.It is a joy to be a mother.
+1\. It is a joy to be a mother.
 
-2\.It is specially so to have living, healthy, obedient children.
+2\. It is specially so to have living, healthy, obedient children.
 
-3\.But best of all to have Christian children.... Praise is due to the Lord who gives such blessings.
+3\. But best of all to have Christian children.... Praise is due to the Lord who gives such blessings.
 
 **Verse 9.** 
 
-1\.A household God, or, God in the Household: "He maketh, "etc. Have you children? It is of God. Have you lost children? It is of God. Have you been without children? It is of God.
+1\. A household God, or, God in the Household: "He maketh, "etc. Have you children? It is of God. Have you lost children? It is of God. Have you been without children? It is of God.
 
-2\.Household worship, or, the God of the Household: "Praise ye the Lord."
+2\. Household worship, or, the God of the Household: "Praise ye the Lord."
 
 (a) In the family.
 

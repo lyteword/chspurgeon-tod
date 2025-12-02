@@ -78,7 +78,7 @@ Psalms 62, and 63 compared. ONLY AND EARLY. There is a sweet and profitable less
 
 **Verse 1.** *My soul is silent before God.* As if he had said: to me as a man God has put in subjection all his creatures; to me as a king he has subjected the whole of Judaea, the Philistines, the Moabites, Syrians, Idumeans, Ammonites, and other tribes; having taken me from the sheep cotes he has adorned me with a crown and sceptre now these thirty years, and extended my kingdom to the sea, and to the great river Euphrates; it is not without reason, then, that I subject myself to God alone in this affliction, wherein Absalom thirsts to crush me, especially since he reveals the deliverance prepared for me, and from him alone can I expect it. *Thomas Le Blanc—1669, in Psalmorum Davidicorum Analysis.* 
 
-**Verse 1.** *Is silent.* The Hebrew word used is hymwd *dumijah,* that is, silent, resting, expecting, reflecting, solicitous, and observing. For, first, we ought to be subject to God as silent disciples before a master...Whatever God has allowed to happen to me, yet I will be silent before him, and from my heart admire, both enduring his strokes and receiving his teaching... Secondly, we ought to be subject to God as creatures keeping quiet before their Creator... "Woe unto him that striveth with his Maker." Isa 45:9. Thirdly, we ought to be subject to God as clay in the hands of the potter, ready for the form into which he wishes *to fashion us... "As clay is in the potter's hand, so are ye in mine hand, O house of Israel."* Jer 18:6. Fourthly, we ought to be subject to God, as a maid servant to her master, observing his wish, even in the most menial affairs... Fifthly, we ought to be subject to God, as a wife to her husband (*sponsa sponso* ), who in her love is solicitous and careful to do whatever may be pleasing to him. *"My beloved is mine, and I am his."* Canticles 2:16. And, *"I am my beloved's."* Canticles 6:3. *Thomas Le Blanc.* 
+**Verse 1.** *Is silent.* The Hebrew word used is hymwd *dumijah,* that is, silent, resting, expecting, reflecting, solicitous, and observing. For, first, we ought to be subject to God as silent disciples before a master... Whatever God has allowed to happen to me, yet I will be silent before him, and from my heart admire, both enduring his strokes and receiving his teaching... Secondly, we ought to be subject to God as creatures keeping quiet before their Creator... "Woe unto him that striveth with his Maker." Isa 45:9. Thirdly, we ought to be subject to God as clay in the hands of the potter, ready for the form into which he wishes *to fashion us... "As clay is in the potter's hand, so are ye in mine hand, O house of Israel."* Jer 18:6. Fourthly, we ought to be subject to God, as a maid servant to her master, observing his wish, even in the most menial affairs... Fifthly, we ought to be subject to God, as a wife to her husband (*sponsa sponso* ), who in her love is solicitous and careful to do whatever may be pleasing to him. *"My beloved is mine, and I am his."* Canticles 2:16. And, *"I am my beloved's."* Canticles 6:3. *Thomas Le Blanc.* 
 
 **Verse 1.** After almost every quiet prayer and holy meditation in the divine presence, we have the consciousness that there was an ear which heard us, and a heart that received our sighs. The effect of a silent colloquy with God is so soothing! There was a time when I used greatly to wonder at these words of Luther:—
 
@@ -128,7 +128,7 @@ As though he were a leaning wall—
 
 **Verses 6-7.** Twice in this Psalm hath he repeated this, in the second and in the sixth verses, *He is my rock and my salvation, and my defence,* and (as it is enlarged in the seventh verse) *my refuge and my glory.* If my *defence,* what temptation shall wound me? If my *rock,* what storm shall shake me? If my *salvation,* what melancholy shall defeat me? If my *glory,* what calumny shall defame me? *John Dunne.* 
 
-**Verses 6-7.** How quickly the soul of the faithful returns again to the God of its confidence. He spared a moment to admonish the ungodly, but like the dove of Noah he returns to the ark. Observe how the expressions of this holy confidence are repeated, with every pleasing variety of expression, to denote the comfort of his heart. Reader, ask yourself—are such views of Christ your views of him? Do you know him in those covenant characters? Is Jesus your rock, your salvation, your defence? *Robert Hawker, D.D.* 
+**Verses 6-7.** How quickly the soul of the faithful returns again to the God of its confidence. He spared a moment to admonish the ungodly, but like the dove of Noah he returns to the ark. Observe how the expressions of this holy confidence are repeated, with every pleasing variety of expression, to denote the comfort of his heart. Reader, ask yourself—are such views of Christ your views of him? Do you know him in those covenant characters? Is Jesus your rock, your salvation, your defence? *Robert Hawker, D. D.* 
 
 **Verse 7.** (*first clause* ). On the shields of the Greeks, Neptune was depicted; on the shields of the Trojans, Minerva; because in them they put their confidence, and in their protection deemed themselves secure... Now, Christ is the insignia of our shields. Often does David say, God is his protector. The Hebrew is *magen;* that is, shield, buckler, as Ps 18:2,30. *Thomas Le Blanc.* 
 
@@ -174,7 +174,7 @@ O, who would wish to be thy king!"
 
 The rich poor man's emphatically poor."
 
-...O! who can convince a rich man that he sets his heart upon riches? For considerably above half a century I have spoken on this head, with all the plainness that was in my power. But with how little effect! I doubt whether I have in all that time convinced fifty misers of covetousness. When the lover of money was described ever so clearly, and painted in the strongest colours, who applied it to himself? To whom did God and all that knew him say, "Thou art the man?" If he speaks to any of you that are present, O do not stop your ears! Rather say, with Zacchaeus, "Behold, Lord, the half of my goods I give to the poor; and if I have done any wrong to any man, I restore him fourfold." He did not mean that he had done this in time past; but that he determined to do so for the time to come. I charge thee before God, thou lover of money, to "go and do likewise.!" I have a message from God unto thee, O rich man! whether thou wilt hear or whether thou wilt forbear. Riches have increased with thee; at the peril of thy soul, "set not thine heart upon them!" Be thankful to him that gave thee such a talent, so much power of doing good. Yet dare not rejoice over them but with fear and trembling. *Cave ne inhaereas,* says pious Kempis, *ne capiaris et pereas;* "Beware thou cleave not unto them, lest thou be entangled and perish." Do not make them thy end, thy chief delight, thy happiness, thy god! See that thou expect not happiness in money, nor anything that is purchasable thereby; in gratifying either the desire of the flesh, the desire of the eyes, or the pride of life. *John Wesley's Sermon "On the Danger of Increasing Riches."* 
+... O! who can convince a rich man that he sets his heart upon riches? For considerably above half a century I have spoken on this head, with all the plainness that was in my power. But with how little effect! I doubt whether I have in all that time convinced fifty misers of covetousness. When the lover of money was described ever so clearly, and painted in the strongest colours, who applied it to himself? To whom did God and all that knew him say, "Thou art the man?" If he speaks to any of you that are present, O do not stop your ears! Rather say, with Zacchaeus, "Behold, Lord, the half of my goods I give to the poor; and if I have done any wrong to any man, I restore him fourfold." He did not mean that he had done this in time past; but that he determined to do so for the time to come. I charge thee before God, thou lover of money, to "go and do likewise.!" I have a message from God unto thee, O rich man! whether thou wilt hear or whether thou wilt forbear. Riches have increased with thee; at the peril of thy soul, "set not thine heart upon them!" Be thankful to him that gave thee such a talent, so much power of doing good. Yet dare not rejoice over them but with fear and trembling. *Cave ne inhaereas,* says pious Kempis, *ne capiaris et pereas;* "Beware thou cleave not unto them, lest thou be entangled and perish." Do not make them thy end, thy chief delight, thy happiness, thy god! See that thou expect not happiness in money, nor anything that is purchasable thereby; in gratifying either the desire of the flesh, the desire of the eyes, or the pride of life. *John Wesley's Sermon "On the Danger of Increasing Riches."* 
 
 **Verse 10.** *If riches increase,* etc. "The lust of riches, "says Valerian, "stirs with its stimulus the hearts of men, as oxen perpetually plough the soil." Hugo, on Isaiah, says: "The more deeply riches are sown in the heart through love, the more deeply will they pierce through grief." *Thomas Le Blanc.* 
 
@@ -198,11 +198,11 @@ The rich poor man's emphatically poor."
 
 1\. *What* he did? *Waited upon God.* Believed, was patient, was silent in resignation, was obedient.
 
-2\.To whom he did it? To his God, who is true, a sovereign, gracious, etc.
+2\. To whom he did it? To his God, who is true, a sovereign, gracious, etc.
 
-3\.How he did it? With his soul, truly and only.
+3\. How he did it? With his soul, truly and only.
 
-4\.What came of it? Salvation present, personal, eternal, etc.
+4\. What came of it? Salvation present, personal, eternal, etc.
 
 **Verse 2.** *God a rock.* David speaks of him as high and strong, and as a rock to stand upon, a rock of defence and refuge, a rock of habitation (Ps 71:3, in Hebrew), and a rock to be praised. Ps 95:1. See the Concordance for many hints. "Christ the Rock:" a Sermon on 1Co 10:4. By RALPH ROBINSON, in *"Christ All and in All."* 
 
@@ -226,9 +226,9 @@ The rich poor man's emphatically poor."
 
 **Verse 11.** 
 
-1\.How God speaks. *"Once, "* plainly, powerfully, immutably, etc.
+1\. How God speaks. *"Once, "* plainly, powerfully, immutably, etc.
 
-2\.How we should hear. *Twice,* continually, in heart as well as ear, observantly in practice, in spirit as well as in letter.
+2\. How we should hear. *Twice,* continually, in heart as well as ear, observantly in practice, in spirit as well as in letter.
 
 **Verses 11-12.** The constant union of power and mercy in the language of Scripture.
 

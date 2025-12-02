@@ -66,7 +66,7 @@ What a choice word is that of our English version, a rare compound of precious t
 
 ### Verse 13
 
-*Then will I teach transgressors thy ways.* It was his fixed resolve to be a teacher of others; and assuredly none instruct others so well as those who have been experimentally taught of God themselves. Reclaimed poachers make the best gamekeepers. Huntingdon's degree of S.S., or Sinner Saved, is more needful for a soul winning evangelist than either M.A. or D.D. The pardoned sinner's matter will be good, for he has been taught in the school of experience, and his manner will be telling, for he will speak sympathetically, as one who has felt what he declares. The audience the psalmist would choose is memorable—he would instruct transgressors like himself; others might despise them, but, "a fellow feeling makes us wondrous kind." If unworthy to edify saints, he would creep in along with the sinners, and humbly tell them of divine love. The mercy of God to one is an illustration of his usual procedure, so that our own case helps us to understand his "ways, "or his general modes of action: perhaps, too, David under that term refers to the preceptive part of the word of God, which, having broken, and having suffered thereby, he felt that he could vindicate and urge upon the reverence of other offenders. *And sinners shall be converted unto thee.* My fall shall be the restoration of others. Thou wilt bless my pathetic testimony to the recovery of many who, like myself, have turned aside unto crooked ways. Doubtless this Psalm and the whole story of David, have produced for many ages the most salutary results in the conversion of transgressors, and so evil has been overruled for good.
+*Then will I teach transgressors thy ways.* It was his fixed resolve to be a teacher of others; and assuredly none instruct others so well as those who have been experimentally taught of God themselves. Reclaimed poachers make the best gamekeepers. Huntingdon's degree of S. S., or Sinner Saved, is more needful for a soul winning evangelist than either M. A. or D. D. The pardoned sinner's matter will be good, for he has been taught in the school of experience, and his manner will be telling, for he will speak sympathetically, as one who has felt what he declares. The audience the psalmist would choose is memorable—he would instruct transgressors like himself; others might despise them, but, "a fellow feeling makes us wondrous kind." If unworthy to edify saints, he would creep in along with the sinners, and humbly tell them of divine love. The mercy of God to one is an illustration of his usual procedure, so that our own case helps us to understand his "ways, "or his general modes of action: perhaps, too, David under that term refers to the preceptive part of the word of God, which, having broken, and having suffered thereby, he felt that he could vindicate and urge upon the reverence of other offenders. *And sinners shall be converted unto thee.* My fall shall be the restoration of others. Thou wilt bless my pathetic testimony to the recovery of many who, like myself, have turned aside unto crooked ways. Doubtless this Psalm and the whole story of David, have produced for many ages the most salutary results in the conversion of transgressors, and so evil has been overruled for good.
 
 ### Verse 14
 
@@ -108,7 +108,7 @@ In those days of joyful prosperity thy saints shall present in great abundance t
 
 **Verse 1.** *Have mercy upon me, O God.* I tremble and blush to mention my name, for my former familiarities with thee only make me more confounded at being recognized by thee after my guilt. I therefore say not, "Lord, remember David, "as on a happier occasion; nor as propitiating thee, I used to say, to thy "servant, "or, "to the son of thy handmaid." I suggest nothing that should recall my former relation to thee, and so enhance my wickedness. Ask not, then, Lord, who I am, but only forgive me who confess my sin, condemn my fault, and beseech thy pity. *Have mercy upon me, O God.* I dare not say *my* God, for that were presumption. I have lost thee by sin, I have alienated myself from thee by following the enemy, and therefore am unclean. I dare not approach thee, but standing afar off and lifting up my voice with great devotion and contrition of heart, I cry and say, *Have mercy upon me, O God. From "A Commentary on the Seven Penitential Psalms, chiefly from ancient sources." By the Right Rev. A. P. Forbes, Bishop of Brechin,* 1857.
 
-**Verse 1.** *Have mercy.* The Hebrew word here translated *have mercy.* signifieth without cause or desert; Ps 35:19 69:4 Eze 14:23; and freely, without paying any price, Ex 21:11. And it is made use of in Le 6:8, where Noah is said to have found *grace* in the eyes of the Lord, that is, special favour, such as the Lord beareth to his chosen in Christ Jesus. *Charles D. Coetlogon, A.M., in "The Portraiture of the Christian Penitent,"* 1775.
+**Verse 1.** *Have mercy.* The Hebrew word here translated *have mercy.* signifieth without cause or desert; Ps 35:19 69:4 Eze 14:23; and freely, without paying any price, Ex 21:11. And it is made use of in Le 6:8, where Noah is said to have found *grace* in the eyes of the Lord, that is, special favour, such as the Lord beareth to his chosen in Christ Jesus. *Charles D. Coetlogon, A. M., in "The Portraiture of the Christian Penitent,"* 1775.
 
 **Verse 1.** *Mercy, lovingkindness, tender mercies.* I cannot but observe here, the gradation in the sense of the three words made use of, to express the divine compassion, and the propriety of the order in which they are placed, which would be regarded as a real excellence and beauty in any classical writer. The first (yngx), denotes that kind of affection which is expressed by moaning over any object that we love and pity—that *otorge,* natural affection and tenderness, which even brute creatures discover to their young ones, by the several noises which they respectively make over them; and particularly the shrill noise of the camel, by which it testifies its love to its foal. The second, (Kdoxk), denotes a strong proneness, a ready, large, and liberal disposition to goodness and compassion powerfully prompting to all instances of kindness and bounty; flowing as freely and plentifully as milk into the breasts, or as waters from a perpetual fountain. This denotes a higher degree of goodness than the former. The third, (Kymxr), denotes what the Greeks express by oplagcnizeoyai; that most tender pity which we signify by the moving of the heart and bowels, which argues the highest degree of compassion of which human nature is susceptible. And how reviving is the belief and consideration of these abundant and tender compassions of God to one in David's circumstances, whose mind laboured under the burden of the most heinous complicated guilt, and the fear of the divine displeasure and vengeance! *Samuel Chandler.* 
 
@@ -126,11 +126,11 @@ In those days of joyful prosperity thy saints shall present in great abundance t
 
 **Verses 1, 5.** Transgressions...iniquity...sin.
 
-1\.It is *transgressions*, (evp), *pesha,* rebellion.
+1\. It is *transgressions*, (evp), *pesha,* rebellion.
 
-2\.It is *iniquity,* (Nwe), *avon,* crooked dealing.
+2\. It is *iniquity,* (Nwe), *avon,* crooked dealing.
 
-3\.It is *sin*, (tajx), *chattath,* error and wandering. *Adam Clarke.* 
+3\. It is *sin*, (tajx), *chattath,* error and wandering. *Adam Clarke.* 
 
 **Verse 2.** *Wash me.* David prays that the Lord would *wash* him; therefore sin defiles, and he was made foul and filthy by his sin; and to wash him much, and to rinse and bathe him, to show that sin had exceedingly defiled him and stained him both in soul and body, and made him loathsome, and therefore he desireth to be washed, and cleansed, and purged from the pollution of sin. Hence we may learn what a vile, filthy and miserable thing sin is in the sight of God: it stains a man's body, it stains a man's soul, it makes him more vile than the vilest creature that lives: no toad is so vile and loathsome in the sight of man, as a sinner, stained and defiled with sin, is in the sight of God, till he be cleansed and washed from it in the blood of Christ. *Samuel Smith.* 
 
@@ -144,7 +144,7 @@ In those days of joyful prosperity thy saints shall present in great abundance t
 
 **Verse 2.** *Cleanse me from my sin.* Observe, it is from the guilt, and not from the punishment, that he thus asked deliverance. That the sword should never depart from his house; that the sin, begun, not only secretly even in its full accomplishment, but far more secretly in the recesses of David's heart, should be punished before all Israel and before the sun; that the child so dear to David should be made one great punishment of his offence; these things, so far as this Psalm is concerned, might, or might not be. It is of the offence against God; of the defiling, although it were not then so expressly declared, God's temple by impurity, that David speaks. *Ambrose, in J. M. Neale's Commentary.* 
 
-**Verse 2.** *Sin.* The original word signifies to miss an aim, as an archer does who shoots short of his mark, beyond, or beside it. It is also used for treading aside, or tripping, in the act of walking. In a spiritual sense it denotes deviation from a rule, whether by omission or commission. *Thomas T. Biddulph, A.M., in Lectures on the Fifty-first Psalm,* 1835.
+**Verse 2.** *Sin.* The original word signifies to miss an aim, as an archer does who shoots short of his mark, beyond, or beside it. It is also used for treading aside, or tripping, in the act of walking. In a spiritual sense it denotes deviation from a rule, whether by omission or commission. *Thomas T. Biddulph, A. M., in Lectures on the Fifty-first Psalm,* 1835.
 
 **Verse 2.** Sin is filthy to think of, filthy to speak of, filthy to hear of, filthy to do; in a word, there is nothing in it but vileness. *Archibald Symson.* 
 
@@ -156,7 +156,7 @@ In those days of joyful prosperity thy saints shall present in great abundance t
 
 **Verse 3.** *MY sin.* David owneth his sin, and confesseth it his own. Here is our natural wealth: what can we call our own but sin? Our food and raiment, the necessaries of life, are borrowings. We came hungry and naked into the world, we brought none of these with us, and we deserved none of them here. Our sin came with us, as David after confesseth. We have right of inheritance in sin, taking it by traduction and transmission from our parents: we have right of possession. So Job: "Thou makest me to possess the sins of my youth." *Samuel Page.* 
 
-**Verse 3.** *My SIN.* It is sin, as sin, not its punishment here, not hereafter, not simply any of its evil consequences; but sin, the sin against God, the daring impiety of my breaking the good and holy law of this living, loving God. *Thomas Alexander, D.D., in "The Penitent's Prayer,"* 1861.
+**Verse 3.** *My SIN.* It is sin, as sin, not its punishment here, not hereafter, not simply any of its evil consequences; but sin, the sin against God, the daring impiety of my breaking the good and holy law of this living, loving God. *Thomas Alexander, D. D., in "The Penitent's Prayer,"* 1861.
 
 **Verse 3.** *Ever before me.* Sorrow for sin exceeds sorrow for suffering, in the continuance and durableness thereof: the other, like a landlord, quickly come, quickly gone; this is a continual dropping or running river, keeping a constant stream. *My sins,* saith David, *are ever before me;* so also is the sorrow for sin in the soul of a child of God, morning, evening, day, night, when sick, when sound, fasting, at home, abroad, ever within him. This grief begins at his conversion, continues all his life, ends only at his death. *Thomas Fuller.* 
 
@@ -206,7 +206,7 @@ In those days of joyful prosperity thy saints shall present in great abundance t
 
 **Verse 8.** *Make me to hear joy and gladness.* This is the exceeding great love of the Lord toward his children, that he hath not only provided a sure salvation for them through the remission of their sins in Christ Jesus, but also seals up in their heart the testimony thereof by his Holy Spirit of adoption, that for their present consolation, lest they should be swallowed up of heaviness through continual temptations. Though he speak not to all his children as he did to Daniel, by an angel, "O man, greatly beloved of God, "nor as he did to the blessed Virgin Mary, "Hail, Mary, freely beloved, "yet doth he witness the same to the hearts of his children by an inward testimony: when they hear it they are alive; when they want it they are but dead; their souls refuse all other comforts whatsoever. *William Cowper.* 
 
-**Verse 8.** *Make me to hear joy and gladness.* As a Christian is the most sorrowful man in the world, so there is none more glad than he. For the cause of his joy is greatest. In respect his misery was greatest, his delivery greatest, therefore his joy greatest. From hell and death is he freed, to life in heaven is he brought...The person from whom he seeketh this joy is God: *Make me to hear,* saith he; whereby he would teach us that this joy cometh only from God; it is he who is the fountain of joy and all pleasure, for "all good things come from above." Natural joys proceed from a natural and fleshly fountain; spiritual joys spring only from God: so he who seeketh those joys beneath seeketh hot water under cold ice. *Archibald Symson.* 
+**Verse 8.** *Make me to hear joy and gladness.* As a Christian is the most sorrowful man in the world, so there is none more glad than he. For the cause of his joy is greatest. In respect his misery was greatest, his delivery greatest, therefore his joy greatest. From hell and death is he freed, to life in heaven is he brought... The person from whom he seeketh this joy is God: *Make me to hear,* saith he; whereby he would teach us that this joy cometh only from God; it is he who is the fountain of joy and all pleasure, for "all good things come from above." Natural joys proceed from a natural and fleshly fountain; spiritual joys spring only from God: so he who seeketh those joys beneath seeketh hot water under cold ice. *Archibald Symson.* 
 
 **Verse 8.** *Make me to hear joy and gladness.* Another reference to the expiation of the leper, whose ear was to be touched with the blood of the trespass offering and the oil, as well as thumb and toe, to show that his faculties were now prepared for the service of God; so David prays that his ears may be sanctified to the hearing of joy and gladness; this an unsanctified heart can never receive. *W. Wilson.* 
 
@@ -226,7 +226,7 @@ In those days of joyful prosperity thy saints shall present in great abundance t
 
 **Verse 10.** *Create in me a clean heart. Creating,* to speak properly, is to make of nought, and is here used improperly. The prophet speaketh according to his own feeling and present judgement of himself, as though he had lost all, and had no goodness in himself. No doubt the prophet's heart was in part clean, though not so much as he desired. These things thus opened, here cometh a question first to be answered. *Quest.* Whether David could have lost the cleanness of heart, having once had it? *Ans.* No. The gifts and calling of God, that is (as I take it), the gifts of effectual calling, are such as God never repenteth of or taketh away. Faith, hope, and charity are abiding gifts, as sure as the election of God, which is unchangeable. Indeed, the children of God, if we only considered them in themselves with their enemies, night fall away, but being founded upon the unchangeable nature of God, and immutability of his counsel, they cannot, the gates of hell shall not prevail against them, the elect cannot be deceived or plucked out of Christ's hands. Nay, certain it is that David did not actually leave his former cleanness. For sure it is, his heart smiting him (as here it did), so doing before in less matters, it was not wholly void of cleanness. And again, it could not pray for cleanness if it were not somewhat clean. This is most sure, that by grievous sins much filthiness cometh to the soul, as by a boisterous wind a tree may lose his leaves and some branches, so as that the party sinning may be brought into as great passions almost as if he had lost all, but the desire of grace is an infallible certainty of some grace of that kind. The prophet therefore desireth not a clean heart because he had it not in any sort, but because he could not so well perceive it in himself, and take such comfort in it as he had dome before, and for that he desired it a great deal more than now he had it. So learned, so rich men, think themselves not learned, not rich, in respect of that which they do desire, and when the sun is up, the moon seemeth to have no light. *George Estey, in "Certain Godly and Learned Expositions,"* 1603.
 
-**Verse 10.** *Create in me a clean heart, O God,* etc. This "creation" is from nothing. David uses the same word of our creation which Moses uses of "the creation of the heaven and the earth." Our creation "in Jesus Christ" is no mere strengthening of our powers, no mere aiding of our natural weakness by the might of the grace of God, it is not a mere amendment, improvement of our moral habits; it is a creation out of nothing, of that which we had not before. There was nothing in us whereof to make it. We were decayed, corrupt, dead in trespasses and sins. What is dead becometh not alive, except by the infusion of what it had not. What is corrupt receiveth not soundness, save by passing away itself and being replaced by a new production. "The old man" passeth not into the new man, but is "put off." It is not the basis of the new life, but a hindrance to it. It must be "put off" and the new man "put on, "created in Christ Jesus. *E. B. Pusey, D.D.,* 1853.
+**Verse 10.** *Create in me a clean heart, O God,* etc. This "creation" is from nothing. David uses the same word of our creation which Moses uses of "the creation of the heaven and the earth." Our creation "in Jesus Christ" is no mere strengthening of our powers, no mere aiding of our natural weakness by the might of the grace of God, it is not a mere amendment, improvement of our moral habits; it is a creation out of nothing, of that which we had not before. There was nothing in us whereof to make it. We were decayed, corrupt, dead in trespasses and sins. What is dead becometh not alive, except by the infusion of what it had not. What is corrupt receiveth not soundness, save by passing away itself and being replaced by a new production. "The old man" passeth not into the new man, but is "put off." It is not the basis of the new life, but a hindrance to it. It must be "put off" and the new man "put on, "created in Christ Jesus. *E. B. Pusey, D. D.,* 1853.
 
 **Verse 10.** (*first clause* ). He used the word *creat* (Heb. *Bara* ), a word only used of the work of God, and showing that the change in him could be wrought only by God. *Christopher Wordsworth.* 
 
@@ -242,7 +242,7 @@ In those days of joyful prosperity thy saints shall present in great abundance t
 
 **Verse 11.** *Cast me not away.* Lord, though I, alas! have cast thee from me, yet cast me not away: hide not thy face from me, although I so often have refused to look at thee; leave me not without help, to perish in my sins, though I have aforetime left thee. *Fra Thomé de Jesu.* 
 
-**Verse 11.** *Take not thy Holy Spirit from me.* The words of this verse imply that the Spirit had not altogether been taken away from him, however much his gifts had been temporarily obscured...Upon one point he had fallen into a deadly lethargy, but he was not "given over to a reprobate mind; "and it is scarcely conceivable that the rebuke of Nathan the prophet should have operated so easily and suddenly in arousing him had there been no latent spark of godliness still remaining...The truth on which we are now insisting is an important one, as many learned men have been inconsiderately drawn into the opinion that the elect, by falling into mortal sin, may lose the Spirit altogether, and be alienated from God. The contrary is clearly declared by Peter, who tells us that the word by which we are born again is an incorruptible seed 1Pe 1:23; and John is equally explicit in informing us that the elect are preserved from falling away altogether. 1Jo 3:9. However much they may appear for a time to have been cast off by God, it is afterwards seen that grace must have been alive in their breasts even during that interval when it seemed to be extinct. Nor is there any force in the objection that David speaks as if he feared that he might be deprived of the Spirit. It is natural that the saints, when they have fallen into sin, and have thus done what they could to expel the grace of God, should feel an anxiety upon this point; but it is their duty to hold fast the truth, that grace is the incorruptible seed of God, which never can perish in any heart where it has been deposited. This is the spirit displayed by David. Reflecting upon his offence, he is agitated with fears, and yet rests in the persuasion that, being a child of God, he would not be deprived of what, indeed, he had justly forfeited. *John Calvin.* 
+**Verse 11.** *Take not thy Holy Spirit from me.* The words of this verse imply that the Spirit had not altogether been taken away from him, however much his gifts had been temporarily obscured... Upon one point he had fallen into a deadly lethargy, but he was not "given over to a reprobate mind; "and it is scarcely conceivable that the rebuke of Nathan the prophet should have operated so easily and suddenly in arousing him had there been no latent spark of godliness still remaining... The truth on which we are now insisting is an important one, as many learned men have been inconsiderately drawn into the opinion that the elect, by falling into mortal sin, may lose the Spirit altogether, and be alienated from God. The contrary is clearly declared by Peter, who tells us that the word by which we are born again is an incorruptible seed 1Pe 1:23; and John is equally explicit in informing us that the elect are preserved from falling away altogether. 1Jo 3:9. However much they may appear for a time to have been cast off by God, it is afterwards seen that grace must have been alive in their breasts even during that interval when it seemed to be extinct. Nor is there any force in the objection that David speaks as if he feared that he might be deprived of the Spirit. It is natural that the saints, when they have fallen into sin, and have thus done what they could to expel the grace of God, should feel an anxiety upon this point; but it is their duty to hold fast the truth, that grace is the incorruptible seed of God, which never can perish in any heart where it has been deposited. This is the spirit displayed by David. Reflecting upon his offence, he is agitated with fears, and yet rests in the persuasion that, being a child of God, he would not be deprived of what, indeed, he had justly forfeited. *John Calvin.* 
 
 **Verse 12.** *Restore.* It is no small comfort to a man that hath lost his receipt for a debt paid when he remembers that the man he deals with is a good and just man, though his discharge is not presently to be found. That God whom thou hast to deal with is very gracious; what thou hast lost he is ready to restore (the evidence of thy grace I mean). David begged this, and obtained it. Yea, saith faith, if it were true what thou fearest, that thy grace was never true, there is mercy enough in God's heart to pardon all thy former hypocrisy if thou comest in the sincerity of thy heart; and so faith persuades the soul by an act of adventure to cast itself upon God in Christ. Wilt not thou, saith faith, expect to find as much mercy at God's hands, as thou canst look for at a man's? It is not beyond the line of created mercy to forgive many unkindnesses, much falseness and unfaithfulness, upon an humble, sincere acknowledgment of the same. The world is not so bad but it abounds with parents who can do thus much for their children, and masters for their servants; and is that hard for God to do which is so easy in his creature? Thus faith vindicates God's name. And so long as we have not lost sight of God's merciful heart, our head will be kept above water, though we want the evidence of our own grace. *William Gurnall.* 
 
@@ -252,7 +252,7 @@ In those days of joyful prosperity thy saints shall present in great abundance t
 
 **Verse 12.** *Uphold ne with thy free spirit.* A loving mother chooses a fitting place, and a fitting time, to let her little child fall; it is learning to walk, it is getting over confident, it may come to a dangerous place, and if possessed of all this confidence, may fall and destroy itself. So she permits it to fall at such a place, and in such a way as that it may be hurt, wholesomely hurt, but not dangerously so. It has now lost its confidence, and clings all the more fondly and trustingly to the strong hand that is able to hold up all its goings. So this David, this little child of the great God, has fallen; it is a sore fall, all his bones are broken, but it has been a precious and a profitable lesson to him; he has no confidence any longer in himself, his trust is not now in an arm of flesh. "Uphold me with thy free spirit." *Thomas Alexander.* 
 
-**Verse 12.** (*last clause* ). *Let a free spirit sustain me;* that is, let me not be enslaved, as I have been, by my sinful passions. *Henry Dimock, M.A.,* 1791.
+**Verse 12.** (*last clause* ). *Let a free spirit sustain me;* that is, let me not be enslaved, as I have been, by my sinful passions. *Henry Dimock, M. A.,* 1791.
 
 **Verse 13.** *Then will I teach transgressors thy ways,* etc. We see our duty craves that when we have received mercy from God for ourselves, we should make vantage of it for the edification of others. Every talent received from God should be put to profit, but specially the talent of mercy; as it is greatest, so the Lord requires greater fruit of it, for his own glory, and for the edification of our brethren. Seeing we are vessels of mercy, should not the scent and sweet odour of mercy go from us to others? This duty Christ craved from Peter: "And thou, when thou art converted, confirm thy brethren." And this duty, as David here promises, so we may read how he did perform it: "Come unto me, all ye that fear God, and I will tell you what he hath done for my soul." The property of a Christian is, *fides per delectionem efficax,* faith worked by love. What availeth it to pretend faith toward God, where there is no love toward thy neighbour? and wherein can thy love be declared more than in this, to draw thy neighbour to the participation of that same merit whereunto God hath called thee? By the law a man was bound to bring home his neighbour's wandering beast if he had met with it before; how much more, then, to turn again his neighbour himself when he wanders from the Lord his God? If two men walking on the way should both fall into one pit, and the one being relieved out of it should go his way and forget his neighbour, might it not justly be called a barbarous and inhuman cruelty? We have all fallen into one and the same mire of iniquity; since the Lord hath put out his merciful hand to draw us out of this prison of sin, shall we refuse to put out our hand to see if possibly we may draw up our brethren with us? *William Cowper (Bishop).* 
 
@@ -294,19 +294,19 @@ The Psalm is upon its surface so full of suggestions for sermons that I have not
 
 **Verse 1.** 
 
-1\.The Prayer.
+1\. The Prayer.
 
 (a) For mercy, not justice. Mercy is the sinner's attribute—as much a part of the divine nature as justice. The possibility of sin is implied in its existence. The actual commission of sin is implied in its display.
 
 (b) For pardon, not pity merely, but forgiveness.
 
-2\.The plea.
+2\. The plea.
 
 (a) For the pardon of great sins on account of great mercies, and lovingkindness.
 
 (b) Many sins on account of multitude of mercies.
 
-3\.Hell deserving sins on account of tender mercies. We who have sinned are human, he who pardons is divine.
+3\. Hell deserving sins on account of tender mercies. We who have sinned are human, he who pardons is divine.
 
 "Great God, thy *nature* hath no bound,
 
@@ -314,13 +314,13 @@ So let thy pardoning love be found."
 
 **Verse 3.** 
 
-1\.Confession. "I acknowledge, "etc.
+1\. Confession. "I acknowledge, "etc.
 
-2\.Humiliation, not a mere confession with the lips, but ever before me—in its guilt—defilement—consequences in this life and hereafter.
+2\. Humiliation, not a mere confession with the lips, but ever before me—in its guilt—defilement—consequences in this life and hereafter.
 
 **Verses 3-4, 11-12, 17.** 
 
-1\.Scripture estimate of sin.
+1\. Scripture estimate of sin.
 
 (a) Personal accountability— *My sin.* 
 
@@ -328,27 +328,27 @@ So let thy pardoning love be found."
 
 (c) Sin estimated as separation from God.
 
-2\.Spiritual restoration. First step—Sacrifice of a broken spirit. Last step—Spirit of liberty. *Thy free spirit. F. W. Robertson.* 
+2\. Spiritual restoration. First step—Sacrifice of a broken spirit. Last step—Spirit of liberty. *Thy free spirit. F. W. Robertson.* 
 
 **Verse 6.** See T. Goodwin's Treatise, entitled, "An Unregenerate Man's Guiltiness before God, in respect of Sin and Punishment." Book 9 cap. 1-2. (Nichol's edition, Vol. X., p. 324 *et seq.* )
 
 **Verse 7.** Here is,
 
-1\.Faith in the act of an atonement for sin. "I shall be clean."
+1\. Faith in the act of an atonement for sin. "I shall be clean."
 
-2\.Faith in the method of its application. "Purge me, "etc. Sprinkled as the blood of sacrifices.
+2\. Faith in the method of its application. "Purge me, "etc. Sprinkled as the blood of sacrifices.
 
-3\.Faith in its efficacy. "I shall be whiter, "etc.
+3\. Faith in its efficacy. "I shall be whiter, "etc.
 
 **Verse 10.** 
 
-1\.The change to be effected.
+1\. The change to be effected.
 
 (a) A clean heart.
 
 (b) A right spirit.
 
-2\.The power by which it is accomplished.
+2\. The power by which it is accomplished.
 
 (a) A creative power, such as created the world at first.
 
@@ -358,23 +358,23 @@ So let thy pardoning love be found."
 
 **Verses 12-13.** A threefold desire.
 
-1\.To be *happy* —"Restore," etc.
+1\. To be *happy* —"Restore," etc.
 
-2\.To be *consistent* —"Uphold," etc.
+2\. To be *consistent* —"Uphold," etc.
 
-3\.To be *useful* —"Then will I teach," etc. *—W. Jackson.* 
+3\. To be *useful* —"Then will I teach," etc. *—W. Jackson.* 
 
 **Verse 13.** 
 
-1\.It is not our duty to seek the conversion of others until we are converted ourselves.
+1\. It is not our duty to seek the conversion of others until we are converted ourselves.
 
-2\.The greater enjoyment we have in the ways of God, the more faithfully and earnestly we shall make them known to others.
+2\. The greater enjoyment we have in the ways of God, the more faithfully and earnestly we shall make them known to others.
 
-3\.The more faithfully and earnestly we make them known to others the more they will be influenced by them.
+3\. The more faithfully and earnestly we make them known to others the more they will be influenced by them.
 
 **Verse 15.** 
 
-1\.Confession. His lips are sealed on account—
+1\. Confession. His lips are sealed on account—
 
 (a) Of his fall—and well they might be.
 
@@ -382,39 +382,39 @@ So let thy pardoning love be found."
 
 (c) Of want of zeal.
 
-2\.Petition, "Open thou, "etc. Not my understanding merely and heart, but "lips."
+2\. Petition, "Open thou, "etc. Not my understanding merely and heart, but "lips."
 
-3\.Resolution. Then he would speak freely in God's praise.
+3\. Resolution. Then he would speak freely in God's praise.
 
 **Verse 15.** 
 
-1\.When God does not open our lips we had better keep them closed.
+1\. When God does not open our lips we had better keep them closed.
 
-2\.When he does open them we ought not to close them.
+2\. When he does open them we ought not to close them.
 
-3\.When he opens them it is not to speak in our own praise, and seldom in praise of others, but always in his own praise.
+3\. When he opens them it is not to speak in our own praise, and seldom in praise of others, but always in his own praise.
 
-4\.We should use this prayer whenever we are about to speak in his name. "O Lord, open, "etc.
+4\. We should use this prayer whenever we are about to speak in his name. "O Lord, open, "etc.
 
 **Verses 16-17.** 
 
-1\.Men would gladly do something towards their own salvation if they could. "Thou desirest not, "etc., else would I give it.
+1\. Men would gladly do something towards their own salvation if they could. "Thou desirest not, "etc., else would I give it.
 
-2\.All that they can do is not of the least avail. All the ceremonial observances of Jewish or Gentile churches could not procure pardon for the least transgression of the moral law.
+2\. All that they can do is not of the least avail. All the ceremonial observances of Jewish or Gentile churches could not procure pardon for the least transgression of the moral law.
 
-3\.The only offering of man which God will not despise is a broken and a contrite heart.
+3\. The only offering of man which God will not despise is a broken and a contrite heart.
 
-4\.All other requirement for his salvation God himself will provide.
+4\. All other requirement for his salvation God himself will provide.
 
 **Verse 18.** 
 
-1\.For whom is the prayer offered—for the church or Zion?
+1\. For whom is the prayer offered—for the church or Zion?
 
 (a) Next to our own welfare we should seek the welfare of Zion.
 
 (b) All should seek it by prayer.
 
-2\.For what is the prayer offered?
+2\. For what is the prayer offered?
 
 (a) The kind of good, not worldly or ecclesiastical, but spiritual.
 
@@ -424,9 +424,9 @@ So let thy pardoning love be found."
 
 **Verse 19.** 
 
-1\.When we are accepted of God our offerings are accepted." Then," etc.
+1\. When we are accepted of God our offerings are accepted." Then," etc.
 
-2\.We should then make the richest offerings in our power, our time, talents, influence, etc.
+2\. We should then make the richest offerings in our power, our time, talents, influence, etc.
 
 (a) Holy obedience.
 
@@ -434,17 +434,17 @@ So let thy pardoning love be found."
 
 (c) Zeal for divine ordinances. "Upon thine altar."
 
-3\.God will take pleasure in such services. "Then shalt thou be pleased."
+3\. God will take pleasure in such services. "Then shalt thou be pleased."
 
-1\.Because from his own redeemed.
+1\. Because from his own redeemed.
 
-2\.Because given in the name of the Redeemer. With such sacrifices God is well pleased.
+2\. Because given in the name of the Redeemer. With such sacrifices God is well pleased.
 
 ## Works Upon The Fifty-First Psalm
 
 Exposition of the Fifty-first Psalm, by MARTIN LUTHER, in "Select works of Martin Luther, translated by REV. HENRY COLE." Vol. I., pp. 51-197.
 
-"An Exposition upon the 51 Psalm, "in *"Certain Godly and learned Expositions upon divers parts of Scripture.* As they were preached and afterwards more briefly penned by that worthy man of God, Maister GEORGE ESTEY...Late preacher of the word of God in St. Edmund's Burie." 1603. (4to.)
+"An Exposition upon the 51 Psalm, "in *"Certain Godly and learned Expositions upon divers parts of Scripture.* As they were preached and afterwards more briefly penned by that worthy man of God, Maister GEORGE ESTEY... Late preacher of the word of God in St. Edmund's Burie." 1603. (4to.)
 
 "David's Penitential Psalm opened: in thirtie severall Lectures *thereon.* By SAM. HIERON. 1617." (4to.)
 
@@ -464,9 +464,9 @@ Exposition of the Fifty-first Psalm, by MARTIN LUTHER, in "Select works of Marti
 
 Exposition of Psalm LI., in "Chandler's Life of David." Vol. 2 pg 254-273.
 
-"The Portraiture of the Christian Penitent: attempted in a course of *Sermons upon Psalm LI*...By the Rev. CHA. DE COETLOGON, A.M. 1775."
+"The Portraiture of the Christian Penitent: attempted in a course of *Sermons upon Psalm LI*... By the Rev. CHA. DE COETLOGON, A. M. 1775."
 
-"Lectures on the Fifty-first Psalm, delivered in the Parish Church *of St. James', Bristol.* By the Rev. THOMAS T. BIDDULPH, A.M. 1835."
+"Lectures on the Fifty-first Psalm, delivered in the Parish Church *of St. James', Bristol.* By the Rev. THOMAS T. BIDDULPH, A. M. 1835."
 
-"The Penitent's Prayer: a Practical Exposition of the Fifty-first *Psalm.* By the Rev. THOMAS ALEXANDER, M.A., Chelsea."
+"The Penitent's Prayer: a Practical Exposition of the Fifty-first *Psalm.* By the Rev. THOMAS ALEXANDER, M. A., Chelsea."
 

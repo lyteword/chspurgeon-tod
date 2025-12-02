@@ -52,7 +52,7 @@ weight: 52
 
 **Verse 1.** (*first clause* ). *Why doth he glory in malice that is mighty?* that is, he that in malice is mighty, why doth he glory? There is need that a man be mighty, but in goodness, not in malice. Is it any great thing to glory in malice? To build a house belong to few men, any ignorant man you please can pull down. To sow wheat, to dress the crop, to wait until it ripen, and in that fruit on which one has laboured to rejoice, doth belong to few men: with one spark any man you please can burn all the crop.... What art thou about to do, O, mighty man, what are thou about to do, boasting thyself much? Thou art about to kill a man: this thing also a scorpion, this also a fever, this also a poisonous fungus can do. To this is thy mightiness reduced, that it be made equal to a poisonous fungus! *Augustine.* 
 
-**Verse 1.** By *mischief* is understood not simply what evil he had done, but the prosperity which he now enjoyed, obtained through mischief; as is clear both from the word *boasting* and from the seventh verse...Formerly he was the chief of Saul's shepherds 1Sa 21:8, but by that wicked destruction of the priests of God by Saul, and the execution of the cruel sentence, he obtained the chief place near to the king 1Sa 22:9. *Hermann Venema.* 
+**Verse 1.** By *mischief* is understood not simply what evil he had done, but the prosperity which he now enjoyed, obtained through mischief; as is clear both from the word *boasting* and from the seventh verse... Formerly he was the chief of Saul's shepherds 1Sa 21:8, but by that wicked destruction of the priests of God by Saul, and the execution of the cruel sentence, he obtained the chief place near to the king 1Sa 22:9. *Hermann Venema.* 
 
 **Verse 1.** *O mighty man.* These words may be added by way of irony, as if he had said, A great deal of valour and prowess you have shown in slaying a company of unarmed men, the priests of the Lord, yea, women and children, no way able to resist you or else to imply the ground of his vain boasting, to wit, either his present greatness, as being a man in great place, and of great power with Saul; or the great preferments he expected from Saul. *Arthur Jackson.* 
 
@@ -98,11 +98,11 @@ This appears to express of the Hebrew words, which our translators render, *like
 
 **Verse 9.** He compares himself
 
-1\.With an *olive tree,* a tree a ways green, lasting long and fruitful, whose fruit is most useful and grateful: so he paints his future state as joyful, glorious, lasting, and useful and pleasing to men: plainly a reference is made to the *royal* and prophetic office, in both of which he represents himself as an *olive tree,* by supplying others with oil through his rule and instruction:
+1\. With an *olive tree,* a tree a ways green, lasting long and fruitful, whose fruit is most useful and grateful: so he paints his future state as joyful, glorious, lasting, and useful and pleasing to men: plainly a reference is made to the *royal* and prophetic office, in both of which he represents himself as an *olive tree,* by supplying others with oil through his rule and instruction:
 
-2\.With *the olive* growing luxuriantly, and abounding in spreading bough, and so, spacious and large...
+2\. With *the olive* growing luxuriantly, and abounding in spreading bough, and so, spacious and large...
 
-3\.But why does he add *in the house of God?* That he might indicate, unless I am deceived:
+3\. But why does he add *in the house of God?* That he might indicate, unless I am deceived:
 
 (a) That he should possess a dwelling in that place where the *house of God* was, whence he was now exiled through the calumnies of Doeg and the attacks of Saul stirred up thereby:
 

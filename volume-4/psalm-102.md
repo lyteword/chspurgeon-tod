@@ -178,9 +178,9 @@ And to the Eternal Father breathes his plaint. *John Keble.*
 
 **Verse 5.** That grief readily causes the body to pine away is very well known. It is related of Cardinal Wolsey, by an eye-witness, that when he heard that his master's favour was turned from him, he was wrung with such an agony of grief, which continued a whole night, that in the morning his face was dwindled away into half its usual dimensions.
 
-**Verse 6.** *I am like a pelican of the wilderness.* The Kaath was a bird of solitude that was to be found in the *"wilderness, "i.e.*, far from the habitations of man. This is one of the characteristics of the pelican, which loves not the neighbourhood of human beings, and is fond of resulting to broad, uncultivated lands, where it will not be disturbed. In them it makes its nest and hatches its young, and to them it retires after feeding, in order to digest in quiet the ample meal which it has made. Mr. Tristram well suggests that the metaphor of the Psalmist may allude to the habit common to the pelican and its kin, of sitting motionless for hours after it has gorged itself with food, its head sunk on its shoulders, and its bill resting on its breast. *J.G. Wood.* 
+**Verse 6.** *I am like a pelican of the wilderness.* The Kaath was a bird of solitude that was to be found in the *"wilderness, "i.e.*, far from the habitations of man. This is one of the characteristics of the pelican, which loves not the neighbourhood of human beings, and is fond of resulting to broad, uncultivated lands, where it will not be disturbed. In them it makes its nest and hatches its young, and to them it retires after feeding, in order to digest in quiet the ample meal which it has made. Mr. Tristram well suggests that the metaphor of the Psalmist may allude to the habit common to the pelican and its kin, of sitting motionless for hours after it has gorged itself with food, its head sunk on its shoulders, and its bill resting on its breast. *J. G. Wood.* 
 
-**Verse 6.** *A pelican of the wilderness.* Here only *at Hulet* have I seen the pelican of the wilderness, as David calls it. I once had one of them shot just below this place, and, as it was merely wounded in the wing, I had a good opportunity to study its character. It was certainly the most sombre, austere bird I ever saw. It gave one the blues merely to look at it. David could find no more expressive type of solitude and melancholy by which to illustrate his own sad state. It seemed as large as a half-grown donkey, and when fairly settled on its stout legs, it looked like one. The pelican is never seen but in these unfrequented solitudes. *W.M. Thomson.* 
+**Verse 6.** *A pelican of the wilderness.* Here only *at Hulet* have I seen the pelican of the wilderness, as David calls it. I once had one of them shot just below this place, and, as it was merely wounded in the wing, I had a good opportunity to study its character. It was certainly the most sombre, austere bird I ever saw. It gave one the blues merely to look at it. David could find no more expressive type of solitude and melancholy by which to illustrate his own sad state. It seemed as large as a half-grown donkey, and when fairly settled on its stout legs, it looked like one. The pelican is never seen but in these unfrequented solitudes. *W. M. Thomson.* 
 
 **Verse 6.** Consider that thou needest not complain, like Elijah, that thou art left *alone*, seeing the best of God's *saints* in all ages have smarted in the same kind—instance in *David* :indeed sometimes he boasts how he "lay in green pastures, and was led by still waters; "but after he bemoans that he "sinks in deep mire, where there was no standing." What is become of those green pastures? parched up with the drought. Where are those still waters troubled with the tempest of affliction. The same David compares himself to an *"owl, "* and in the next Psalm resembles himself to an *"eagle."* Do two fowls fly of more different kind? The one the *scorn*, the other the *sovereign* ;the one the *slowest*, the other the *swiftest* ;the one the most *sharp-sighted*, the other the most *dim-eyed* of all birds. Wonder not, then, to find in thyself sudden and strange alterations. It fared thus with all God's servants in their agonies of temptation; and be confident thereof, though now run aground with grief, in due time thou shalt be all afloat with comfort. *Thomas Fuller.* 
 
@@ -202,7 +202,7 @@ Molest her ancient solitary reign. **
 
 **Verse 7.** *A sparrow alone upon the house-top.* When one of them has lost its mate—a matter of every-day occurrence—he will sit on the house-top alone, and lament by the hour his sad bereavement. *W. M. Thomson.* 
 
-**Verse 7.** *I am as a sparrow alone,* etc. It is evident that the "sparrow alone and melancholy upon the house-tops" cannot be the lively, gregarious sparrow which assembles in such numbers on these favourite feeding-places *the house-tops of the East*. We must therefore look for some other bird, and naturalists are now agreed that we may accept the *Blue Thrush (Petrocossyphus cyaneus)* as the particular tzippor, or small bird, which sits alone on the house-tops. The colour of this bird is a dark blue, whence it derives its popular name. Its habits exactly correspond with the idea of solitude and melancholy. The Blue Thrushes never assemble in flocks, and it is very rare to see more than a pair together. It is fond of sitting on the tops of houses, uttering its note, which, however agreeable to itself, is monotonous and melancholy to human ear. *J.G. Wood, in "Bible Animals."* 
+**Verse 7.** *I am as a sparrow alone,* etc. It is evident that the "sparrow alone and melancholy upon the house-tops" cannot be the lively, gregarious sparrow which assembles in such numbers on these favourite feeding-places *the house-tops of the East*. We must therefore look for some other bird, and naturalists are now agreed that we may accept the *Blue Thrush (Petrocossyphus cyaneus)* as the particular tzippor, or small bird, which sits alone on the house-tops. The colour of this bird is a dark blue, whence it derives its popular name. Its habits exactly correspond with the idea of solitude and melancholy. The Blue Thrushes never assemble in flocks, and it is very rare to see more than a pair together. It is fond of sitting on the tops of houses, uttering its note, which, however agreeable to itself, is monotonous and melancholy to human ear. *J. G. Wood, in "Bible Animals."* 
 
 **Verse 7.** *A sparrow.* Most readers are struck with the incongruity of the image, as it appears in our version, intended by the Psalmist to express a condition of distress and desolation. The sparrow is found, indeed, all over the East, in connection with houses, as it is with ourselves; but it is everywhere one of the most social of birds, cheerful to impertinence; and mischievously disposed, instead of being retiring in its habits, and melancholy in its demeanour. The word, in the original, is a general term for all the small birds, insectivorous and frugivirous, denominated clean, and that might be eaten according to the law, the thrushes, larks, wagtails, finches, as well as sparrows. It seems to be, indeed, a mere imitation of their common note, like the one which we have in the word "chirrup." Most critics are, therefore, content with the rendering, "solitary bird, "or "solitary little bird." But this is very unsatisfactory. It does not identify the species: and there is every probability that there must have been a particular bird which the Psalmist, writing at the close of the Babylonish captivity, had in his eye, corresponding to his representation of it, and illustrative of his isolated condition. Such there is at the present day, of common occurrence in Southern Europe and Western Asia. Its history is very little known to the world, and its existence has hitherto escaped the notice of all biblical commentators. Remarkably enough, the bird is commonly, but erroneously, called a sparrow, for it is a real thrush in size, in shape, in habits, and in song. It differs singularly from the rest of the tribe, throughout all the East, by a marked preference for sitting solitary upon the habitation of man. It never associates with any other, and only at one season with its own mate; and even then it is often seen quite alone upon the house-top, where it warbles its sweet and plaintive strains, and continues its song, moving from roof to roof. America has its solitary thrush, of another species, and of somewhat different habits. The dark solitary cane and myrtle swamps of the southern states are there the favourite haunts of the recluse bird; and the more dense and gloomy these are the more certainly is it to be found flitting in them.— *"The Biblical Treasury"*.
 
@@ -254,11 +254,11 @@ Molest her ancient solitary reign. **
 
 **Verse 18.** Expositors observe upon this text, that this redeemed Church takes no thought *concerning themselves*, about their own *ease, pleasure, wealth, gain,* or anything else which might accrue unto themselves by this deliverance, to make their own life easy or sweet; but their thoughts and studies are wholly laid out, how the present and succeeding generations should give all glory to God for it.... There are three special reasons why this should be the great work of the Lord's saved and rescued people, and why indeed they can do no other than study thus to exalt him.
 
-1\.One is, because they well know that the Lord hath reserved nothing to himself but only his glory; the benefits he gives to them; all the sweetness and honey that can be found in them he gives them leave to suck out; but his glory and his praise is his own, and that which he hath wholly reserved; of that he is jealous, lest it should either be denied, eclipsed, diminished, or any the least violation offered to it in any kind. All God's people know this of him, and therefore they cannot but endeavour to preserve it for him.
+1\. One is, because they well know that the Lord hath reserved nothing to himself but only his glory; the benefits he gives to them; all the sweetness and honey that can be found in them he gives them leave to suck out; but his glory and his praise is his own, and that which he hath wholly reserved; of that he is jealous, lest it should either be denied, eclipsed, diminished, or any the least violation offered to it in any kind. All God's people know this of him, and therefore they cannot but endeavour to preserve it for him.
 
-2\.Secondly, besides, they know, as God is jealous in that point, so it is all the work that he hath appointed them to do; he hath therefore separated them to himself out of all nations of the world, to be his peculiar ones for this very end, that they might give him all the glory and praise of his mercy. "I have( said God) *created* him, *formed*, and *made* him for my glory." Isa 43:7. This is the law of his new creation, which is as powerful in them as the law of nature, or the first creation, is in the rest of his works. And therefore with a holy and spiritual naturalness (if I may so call it) the hearts of all the saints are carried to give God the glory, as really as the stones are carried to the centre, or the fire to fly upwards: this is fixed in their hearts, the work of grace hath moulded them to it, that they can do no other but endeavour to exalt God, it being the very end why their spiritual life and all their other privileges are conferred upon them.
+2\. Secondly, besides, they know, as God is jealous in that point, so it is all the work that he hath appointed them to do; he hath therefore separated them to himself out of all nations of the world, to be his peculiar ones for this very end, that they might give him all the glory and praise of his mercy. "I have( said God) *created* him, *formed*, and *made* him for my glory." Isa 43:7. This is the law of his new creation, which is as powerful in them as the law of nature, or the first creation, is in the rest of his works. And therefore with a holy and spiritual naturalness (if I may so call it) the hearts of all the saints are carried to give God the glory, as really as the stones are carried to the centre, or the fire to fly upwards: this is fixed in their hearts, the work of grace hath moulded them to it, that they can do no other but endeavour to exalt God, it being the very end why their spiritual life and all their other privileges are conferred upon them.
 
-3\.Yea, thirdly, they know their own interests are much concerned in God's glory, they never are losers by it: if in any work of God he want his praise, they will want their comfort; but if God be a gainer, they shall certainly be no losers. Whatever is poured upon the head of Christ—what ointment soever of praise or glory, it will in a due proportion fall down to the skirts of his garments; nor is there any other way to have any sweetness, comfort, praise, or glory to be derived unto themselves, but by giving all unto him to whom alone it belongeth, and then although he will never give away his glory—the glory of being the *fountain*, the *first, supreme, original giver* of all good; yet they shall have the glory of instruments, and of fellow workers with him, which is a glory and praise sufficient. *Stephen Marshall.* 
+3\. Yea, thirdly, they know their own interests are much concerned in God's glory, they never are losers by it: if in any work of God he want his praise, they will want their comfort; but if God be a gainer, they shall certainly be no losers. Whatever is poured upon the head of Christ—what ointment soever of praise or glory, it will in a due proportion fall down to the skirts of his garments; nor is there any other way to have any sweetness, comfort, praise, or glory to be derived unto themselves, but by giving all unto him to whom alone it belongeth, and then although he will never give away his glory—the glory of being the *fountain*, the *first, supreme, original giver* of all good; yet they shall have the glory of instruments, and of fellow workers with him, which is a glory and praise sufficient. *Stephen Marshall.* 
 
 **Verse 18** (*first clause* ). Calvin translates thus,— *This shall be registered for the generations to come;* and observes,—"The Psalmist intimates, that this will be a memorable work of God, the praise of which shall be handed down to succeeding ages. Many things are worthy of praise, which are soon forgotten; but the prophet distinguishes between the salvation of the Church, for which he makes supplication, and common benefits. By the word *register* he means that the history of this would be worthy of having a place in the public records, that the remembrance of it might be transmitted to future generations."
 
@@ -312,83 +312,83 @@ But, *Ninthly*, If you would have his eternity yet more express, see Heb 7:3, wh
 
 **Title &mdash;** 
 
-1\.Afflicted men may pray.
+1\. Afflicted men may pray.
 
-2\.Afflicted men should pray even when overhelmed.
+2\. Afflicted men should pray even when overhelmed.
 
-3\.Afflicted men can pray—for what is wanted is a pouring out of their complaint, not an oratorical display.
+3\. Afflicted men can pray—for what is wanted is a pouring out of their complaint, not an oratorical display.
 
-4\.Afflicted men are accepted in prayer—for this prayer is placed on record.
+4\. Afflicted men are accepted in prayer—for this prayer is placed on record.
 
 **Verses 1-2.** Five steps to the mercy-seat. The Psalmist prays for,
 
-1\.Audience: "Hear my prayer."
+1\. Audience: "Hear my prayer."
 
-2\.Access: "Let my cry come before thee."
+2\. Access: "Let my cry come before thee."
 
-3\.Unveiling: "Hide not thy face."
+3\. Unveiling: "Hide not thy face."
 
-4\.An intent ear: "Incline thine ear."
+4\. An intent ear: "Incline thine ear."
 
-5\.Answer. *C. Davis.* 
+5\. Answer. *C. Davis.* 
 
 **Verses 1, 17, 19-20.** An interesting discourse may be founded upon these passages.
 
-1\.The Lord entreated to hear—Ps 102:1.
+1\. The Lord entreated to hear—Ps 102:1.
 
-2\.The Promise given that he will hear—Ps 102:17.
+2\. The Promise given that he will hear—Ps 102:17.
 
-3\.The Record that the Lord has heard—Ps 102:19-20.
+3\. The Record that the Lord has heard—Ps 102:19-20.
 
 **Verse 2.** 
 
-1\.Prayer in trouble is most needed.
+1\. Prayer in trouble is most needed.
 
-2\.Prayer in trouble is most heeded.
+2\. Prayer in trouble is most heeded.
 
-3\.Prayer in trouble is most speeded: "Answer me speedily."
+3\. Prayer in trouble is most speeded: "Answer me speedily."
 
 Or,
 
-1\.Prayer in trouble: "In the day, "etc.
+1\. Prayer in trouble: "In the day, "etc.
 
-2\.The prayer of trouble: "Hide not thy face; "not remove the trial, but be with me in it. A fiery furnace is a paradise when God is with us there. *G. R.* 
+2\. The prayer of trouble: "Hide not thy face; "not remove the trial, but be with me in it. A fiery furnace is a paradise when God is with us there. *G. R.* 
 
 **Verse 2** (*first elause* ). He deprecates the loss of the divine countenance when under trouble.
 
-1\.That would intensify it a thousandfold.
+1\. That would intensify it a thousandfold.
 
-2\.That would deprive him of strength to bear the trouble.
+2\. That would deprive him of strength to bear the trouble.
 
-3\.That would prevent his acting so as to glorify God in the trouble.
+3\. That would prevent his acting so as to glorify God in the trouble.
 
-4\.That might injure the result of the trouble.
+4\. That might injure the result of the trouble.
 
 **Verse 2** (*last clause* ).
 
-1\.We often need to be answered speedily.
+1\. We often need to be answered speedily.
 
-2\.God can so answer.
+2\. God can so answer.
 
-3\.God has so answered.
+3\. God has so answered.
 
-4\.God has promised so to answer.
+4\. God has promised so to answer.
 
 **Verses 3-11.** 
 
-1\.The causes of grief. (a) The brevity of life. Ps 102:3. (b) Bodily pain. Ps 102:3. (c) Dejection of spirit. Ps 102:4- 5. (d) Solitariness. Ps 102:6-7. (e) Reproach. Ps 102:8. (f) Humiliation. Ps 102:9. (g) The hidings of God's countenance. Ps 102:10. (h) Wasting away. Ps 102:11.
+1\. The causes of grief. (a) The brevity of life. Ps 102:3. (b) Bodily pain. Ps 102:3. (c) Dejection of spirit. Ps 102:4- 5. (d) Solitariness. Ps 102:6-7. (e) Reproach. Ps 102:8. (f) Humiliation. Ps 102:9. (g) The hidings of God's countenance. Ps 102:10. (h) Wasting away. Ps 102:11.
 
-2\.The eloquence of grief. (a) The brevit of life is as vanishing "smoke." (b) Bodily pain is fire in the bones. (c) Dejection of spirit is "withered grass." Who can eat when the heart is sad? (d) Solitariness is like "The pelican in the wilderness, the owl in the desert, and the sparrow upon the housetop." (e) Reproach is being surrounded by madmen—"they that are mad." (f) Humiliation is "eating ashes like bread, "and "drinking tears." (g) The hidings of God's countenance is lifting up in order to be cast down. (h) Wasting away is a shadow declining and grass withering. *G. R.* 
+2\. The eloquence of grief. (a) The brevit of life is as vanishing "smoke." (b) Bodily pain is fire in the bones. (c) Dejection of spirit is "withered grass." Who can eat when the heart is sad? (d) Solitariness is like "The pelican in the wilderness, the owl in the desert, and the sparrow upon the housetop." (e) Reproach is being surrounded by madmen—"they that are mad." (f) Humiliation is "eating ashes like bread, "and "drinking tears." (g) The hidings of God's countenance is lifting up in order to be cast down. (h) Wasting away is a shadow declining and grass withering. *G. R.* 
 
 **Verse 4.** Unbelieving sorrow makes us forget to use proper means for our support.
 
-1\.We forget the promises.
+1\. We forget the promises.
 
-2\.Forget the past and its expcriences.
+2\. Forget the past and its expcriences.
 
-3\.Forget the Lord Jesus, our life.
+3\. Forget the Lord Jesus, our life.
 
-4\.Forget the everlasting love of God. This leads to weakness, faintness, etc., and is to be avoided.
+4\. Forget the everlasting love of God. This leads to weakness, faintness, etc., and is to be avoided.
 
 **Verse 6.** This as a text, together with Ps 103:5, makes an interesting contrast, and gives scope for much experimental teaching.
 
@@ -398,11 +398,11 @@ Or,
 
 **Verse 10.** 
 
-1\.The trial of trials— *thine* indignation and *thy* wrath.
+1\. The trial of trials— *thine* indignation and *thy* wrath.
 
-2\.The aggravation of that trial—former favour, "thou hast lifted me up, "etc.
+2\. The aggravation of that trial—former favour, "thou hast lifted me up, "etc.
 
-3\.The best behaviour under it: see Ps 102:9, 12-13.
+3\. The best behaviour under it: see Ps 102:9, 12-13.
 
 **Verse l0** (*last cause* ). The prosperity of a church or an individual often followed by declension; worldly aggrandisement frequently succeeded by affliction; great joy in the Lord very generally succeeded by trial.
 
@@ -414,23 +414,23 @@ Or,
 
 **Verse 13.** 
 
-1\.Zion often needs restoration. It needs "mercy."
+1\. Zion often needs restoration. It needs "mercy."
 
-2\.Its restoration is certain: "Thou shalt arise," etc.
+2\. Its restoration is certain: "Thou shalt arise," etc.
 
-3\.The seasons of its restoration are determined. There is a "time" to favour her; a "set" time.
+3\. The seasons of its restoration are determined. There is a "time" to favour her; a "set" time.
 
-4\.Intimations of those coming seasons are often given "The time, the set time, is come." *G. R.* 
+4\. Intimations of those coming seasons are often given "The time, the set time, is come." *G. R.* 
 
 **Verses 13-14.** 
 
-1\.Visitation expected.
+1\. Visitation expected.
 
-2\.Predestination relied upon.
+2\. Predestination relied upon.
 
-3\.Evidence observed.
+3\. Evidence observed.
 
-4\.Enquiry suggested—Do we take pleasure in her stones? etc.
+4\. Enquiry suggested—Do we take pleasure in her stones? etc.
 
 **Verses 13-14.** The interest of the Lord's people in the concerns of Zion one of the surest signs of her returning prosperity.
 
@@ -438,61 +438,61 @@ Or,
 
 **Verse 16.** God is Zion's purchaser, architect, builder, inhabitant, Lord.
 
-1\.Zion built up. Conversions frequent; confessions numerous; union firm; edification solid; missions extended.
+1\. Zion built up. Conversions frequent; confessions numerous; union firm; edification solid; missions extended.
 
-2\.God glorified. In its very foundation; by its ministry; by difficulties and enemies; by poor workers, and poor materials; and even by our failures.
+2\. God glorified. In its very foundation; by its ministry; by difficulties and enemies; by poor workers, and poor materials; and even by our failures.
 
-3\.Hope excited. Because we may expect the Lord to glorify himself.
+3\. Hope excited. Because we may expect the Lord to glorify himself.
 
-4\.Inquiry suggested. Am I concerned, as built, or building? not merely doctrinally, but experimentally?
+4\. Inquiry suggested. Am I concerned, as built, or building? not merely doctrinally, but experimentally?
 
 **Verse 17.** 
 
-1\.The destitute pray.
+1\. The destitute pray.
 
-2\.They pray most.
+2\. They pray most.
 
-4\.They pray best.
+4\. They pray best.
 
-4\.They pray most effectually. Or the surest way to succeed in prayer is to pray as the destitute; show the reason of this.
+4\. They pray most effectually. Or the surest way to succeed in prayer is to pray as the destitute; show the reason of this.
 
 **Verse 18.** 
 
-1\.A memorial.
+1\. A memorial.
 
-2\.A magnificat. *W. Durban.* 
+2\. A magnificat. *W. Durban.* 
 
 **Verses 18-21.** 
 
-1\.Misery in extremis.
+1\. Misery in extremis.
 
-2\.Divinity observant.
+2\. Divinity observant.
 
-3\.Deity actively assisting.
+3\. Deity actively assisting.
 
-4\.Glory consequently published.
+4\. Glory consequently published.
 
 **Verses 19-22.** 
 
-1\.The notice which God takes of the world, Ps 102:19. (a) The place from which he beholds it: "from heaven, " not from an earthly point of view. (b) The character in which he beholds it; "from the height of his sanctuary, "from the mercy-seat.
+1\. The notice which God takes of the world, Ps 102:19. (a) The place from which he beholds it: "from heaven, " not from an earthly point of view. (b) The character in which he beholds it; "from the height of his sanctuary, "from the mercy-seat.
 
-2\.What attracts his notice most in the world. The groaning of the prisoner and of those appointed to death.
+2\. What attracts his notice most in the world. The groaning of the prisoner and of those appointed to death.
 
-3\.The purpose for which he notices them. "To loose, " etc.;" to declare," etc. (a) For human comfort. (b) For his own glory.
+3\. The purpose for which he notices them. "To loose, " etc.;" to declare," etc. (a) For human comfort. (b) For his own glory.
 
-4\.When his notice is thus fixed upon the earth. "When, " etc., Ps 102:22. *G. R.* 
+4\. When his notice is thus fixed upon the earth. "When, " etc., Ps 102:22. *G. R.* 
 
 **Verse 23.** For the sick.
 
-1\.Submission—The Lord sent the trial—" *He* weakeneth," etc.
+1\. Submission—The Lord sent the trial—" *He* weakeneth," etc.
 
-2\.Service—exonerated from some work, he now requires of me patience, earnestness, etc.
+2\. Service—exonerated from some work, he now requires of me patience, earnestness, etc.
 
-3\.Preparation—for going home.
+3\. Preparation—for going home.
 
-4\.Prayer—for others to occupy my place.
+4\. Prayer—for others to occupy my place.
 
-5\.Expectation—I shall soon be in heaven, now that my days are shortened.
+5\. Expectation—I shall soon be in heaven, now that my days are shortened.
 
 **Verse 24.** 
 
@@ -502,41 +502,41 @@ Or,
 
 **Verse 25-27.** 
 
-1\.The unchangeableness of God amidst past changes: "of old," etc. (a) He was the same before as after he had laid the foundations of the earth. (b) He was the same after as before.
+1\. The unchangeableness of God amidst past changes: "of old," etc. (a) He was the same before as after he had laid the foundations of the earth. (b) He was the same after as before.
 
-2\.The unchangeableness of God amidst future changes. "They shall perish," etc. (a) The same before they perish as after. (b) After as before.
+2\. The unchangeableness of God amidst future changes. "They shall perish," etc. (a) The same before they perish as after. (b) After as before.
 
-3\.The unchangeableness of God in the past and the future. "Thou art the same," etc. *G. R.* 
-
-**Verse 26-27.** 
-
-1\.How far God may change—only in his garments, or outward manifestations of creation and providence.
-
-2\.Wherein he cannot change—his nature, attributes, covenant, love, etc.
-
-3\.The comfortable truths which may be safely inferred, or which gather support from this fact.
+3\. The unchangeableness of God in the past and the future. "Thou art the same," etc. *G. R.* 
 
 **Verse 26-27.** 
 
-1\.The material universe of God. (a) No more to him than a garment to the wearer. (b) Ever waxing old, but he the same. (c) Soon to be changed and left to perish, but of his years no end.
+1\. How far God may change—only in his garments, or outward manifestations of creation and providence.
 
-2\.Our relation to each (a) Let us never love the dress more than the wearer. (b) Nor trust more in the changeful than in the abiding. (c) Nor live for that which will die out.
+2\. Wherein he cannot change—his nature, attributes, covenant, love, etc.
+
+3\. The comfortable truths which may be safely inferred, or which gather support from this fact.
+
+**Verse 26-27.** 
+
+1\. The material universe of God. (a) No more to him than a garment to the wearer. (b) Ever waxing old, but he the same. (c) Soon to be changed and left to perish, but of his years no end.
+
+2\. Our relation to each (a) Let us never love the dress more than the wearer. (b) Nor trust more in the changeful than in the abiding. (c) Nor live for that which will die out.
 
 **Verse 28.** The true apostolical succession.
 
-1\.There always will be saints.
+1\. There always will be saints.
 
-2\.They will frequently be the seed of the saints after the flesh.
+2\. They will frequently be the seed of the saints after the flesh.
 
-3\.They will always be the spiritual seed of the godly, for God converts one by means of another.
+3\. They will always be the spiritual seed of the godly, for God converts one by means of another.
 
-4\.We should order our efforts with an eye to the church's future.
+4\. We should order our efforts with an eye to the church's future.
 
 ## Works Upon The Hundred And Second Psalm
 
 BISHOP FISHER'S *Treatise on the Penitential Psalms.* (See "Treasury of David, "Vol. II., pg 114.) There is an edition in 12mo., printed in the year MDCCXIV., besides those referred to as above.
 
-In *"Meditations on Twenty select Psalms*, by Sir SIR ANTHONY COPE, Chamberlain to Queen Katherine Parr. Reprinted from the edition of 1547;...By WILLIAM H. COPE. M.A. 1848, "there is a Meditation on this Psalm.
+In *"Meditations on Twenty select Psalms*, by Sir SIR ANTHONY COPE, Chamberlain to Queen Katherine Parr. Reprinted from the edition of 1547;... By WILLIAM H. COPE. M. A. 1848, "there is a Meditation on this Psalm.
 
  *Meditations and Disquisitions upon the Seven Psalms of David, commonly called the Penitentiall Psalmes,* By *Sir RICHARD BAKER*, *Knight*. 1639. *pg 139-180.* 
 

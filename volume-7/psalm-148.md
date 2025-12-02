@@ -70,7 +70,7 @@ Even of the children of Israel. The Lord knoweth them that are his. He knows the
 
 **Psalms 148:1 to 150:6.** The last three Psalms are *a triad of wondrous praise,* ascending from praise to higher raise until it becomes "joy unspeakable and full of glory"—exultation which knows no bounds. The joy overflows the soul, and spreads throughout the universe; every creature is magnetized by it, and drawn into the chorus. Heaven is full of praise, the earth is full of praise, praises rise from under the earth, "everything that hath breath" joins in the rapture. God is encompassed by a loving, praising creation. Man, the last in creation, but the first in song, knows not how to contain himself. He dances, he sings, he commands all the heavens, with all their angels, to help him, "beasts and all cattle, creeping things and flying fowl" must do likewise, even "dragons" must not be silent, and "all deeps" must yield contributions. He presses even dead things into his service, timbrels, trumpets, harps, organs, cymbals, high sounding cymbals, if by any means, and by all means, he may give utterance to his love and joy.— *John Pulsford.* 
 
-**Whole Psalm.** In this splendid anthem the Psalmist calls upon the whole creation, in its two great divisions (according to the Hebrew conception) of heaven and earth, to praise Jehovah: things with and things without life, beings rational and irrational, are summoned to join the mighty chorus. This Psalm is the expression of the loftiest devotion, and it embraces at the same time the most comprehensive view of the relation of the creature to the Creator. Whether it is exclusively the utterance of a heart filled to the full with the thought of the infinite majesty of God, or whether it is also an anticipation, a prophetic forecast, of the final glory of creation, when at the manifestation of the sons of God, the creation itself also shall be redeemed from the bondage of corruption (Ro 8:18-23), and the homage of praise shall indeed be rendered by all things that are in heaven and earth and under the earth, is a question into which we need not enter.— *J.J. Stewart Perowne.* 
+**Whole Psalm.** In this splendid anthem the Psalmist calls upon the whole creation, in its two great divisions (according to the Hebrew conception) of heaven and earth, to praise Jehovah: things with and things without life, beings rational and irrational, are summoned to join the mighty chorus. This Psalm is the expression of the loftiest devotion, and it embraces at the same time the most comprehensive view of the relation of the creature to the Creator. Whether it is exclusively the utterance of a heart filled to the full with the thought of the infinite majesty of God, or whether it is also an anticipation, a prophetic forecast, of the final glory of creation, when at the manifestation of the sons of God, the creation itself also shall be redeemed from the bondage of corruption (Ro 8:18-23), and the homage of praise shall indeed be rendered by all things that are in heaven and earth and under the earth, is a question into which we need not enter.— *J. J. Stewart Perowne.* 
 
 **Whole Psalm.** Milton, in his Paradise Lost (Book 5, line 153, & c.), has elegantly imitated this Psalm, and put it into the mouth of Adam and Eve as their morning hymn in a state of innocency.— *James Anderson.* 
 
@@ -78,7 +78,7 @@ Even of the children of Israel. The Lord knoweth them that are his. He knows the
 
 **Verse 1.** *Praise ye the Lord*, etc. All things praise, and yet he says, *"Praise ye."* Wherefore doth he say, *"Praise ye",* when they are praising? Because he delighteth in their praising, and therefore it pleaseth him to add, as it were, his own encouragement. Just as, when you come to men who are doing any good work with pleasure in their vineyard or in their harvest field, or in some other matter of husbandry, you are pleased at what they are doing, and say, "Work on", "Go on"; not that they may begin to work, when you say this, but, because you are pleased at finding them working, you add your approbation and encouragement. For by saying, "Work on", and encouraging those who are working, you, so to speak, work with them in wish. In this sort of encouragement, then, the Psalmist, filled with the Holy Ghost, saith this.— *Augustine.* 
 
-**Verse 1.** The thrice repeated exhortation, *"Praise...Praise...Praise",* in this first verse is not merely imperative, nor only hortative, but it is an exultant hallelujah.— *Martin Geier.* 
+**Verse 1.** The thrice repeated exhortation, *"Praise... Praise... Praise",* in this first verse is not merely imperative, nor only hortative, but it is an exultant hallelujah.— *Martin Geier.* 
 
 **Verse 1.** *From the heavens: praise him in the heights.* Or, high places. As God in framing the world begun above, and wrought downward, so doth the Psalmist proceed in this his exhortation to all creatures to praise the Lord.— *John Trapp.* 
 
@@ -92,7 +92,7 @@ Even of the children of Israel. The Lord knoweth them that are his. He knows the
 
 **Verse 2.** *Praise ye him, all his hosts.* That is, his creatures (those above especially which are as his *cavalry*) called his "hosts", for,
 
-1\.Their number;
+1\. Their number;
 
 2, their order;
 
@@ -100,19 +100,19 @@ Even of the children of Israel. The Lord knoweth them that are his. He knows the
 
 **Verse 3.** *Praise ye him, sun and moon*, etc. How does the *sun* specially praise Jehovah?
 
-1\.By its beauty. Jesus son of Sirach calls it the "globe of beauty."
+1\. By its beauty. Jesus son of Sirach calls it the "globe of beauty."
 
-2\.By its fulness. Dion calls it "the image of the Divine capacity."
+2\. By its fulness. Dion calls it "the image of the Divine capacity."
 
-3\.By its exaltation. Pliny calls it *caeli rector,* "the ruler of heaven."
+3\. By its exaltation. Pliny calls it *caeli rector,* "the ruler of heaven."
 
-4\.By its perfect brightness. Pliny adds that it is "the mind and soul of the whole universe."
+4\. By its perfect brightness. Pliny adds that it is "the mind and soul of the whole universe."
 
-5\.By its velocity and constancy of motion. Martian calls it "the Guide of Nature."
+5\. By its velocity and constancy of motion. Martian calls it "the Guide of Nature."
 
 God the Supreme was depicted by the ancients holding in his hand a wreath of stars, to show the double conception, that they both obey and adorn him.— *Thomas Le Blanc.* 
 
-**Verses 3-4.** Let the sun, the fount of light, and warmth, and gladness, the greater light which rules the day, the visible emblem of the Uncreated Wisdom, the Light which lighteth every man, the centre round whom all our hopes and fears, our wants and prayers, our faith and love, are ever moving,—let the moon, the lesser light which rules the night, the type of the Church, which giveth to the world the light she gains from the Sun of Righteousness,—let the stars, so vast in their number, so lovely in their arrangement and their brightness, which God hath appointed in the heavens, even as he hath appointed his elect to shine for ever and ever,—let all the heavens with all their wonders and their worlds, the depths of space above, and the waters which are above the firmament, the images of God's Holy Scripture and of the glories and the mysteries contained therein,—let these ever praise him who made and blessed them in the beginning of the creation.— *J.W. Burgon.* 
+**Verses 3-4.** Let the sun, the fount of light, and warmth, and gladness, the greater light which rules the day, the visible emblem of the Uncreated Wisdom, the Light which lighteth every man, the centre round whom all our hopes and fears, our wants and prayers, our faith and love, are ever moving,—let the moon, the lesser light which rules the night, the type of the Church, which giveth to the world the light she gains from the Sun of Righteousness,—let the stars, so vast in their number, so lovely in their arrangement and their brightness, which God hath appointed in the heavens, even as he hath appointed his elect to shine for ever and ever,—let all the heavens with all their wonders and their worlds, the depths of space above, and the waters which are above the firmament, the images of God's Holy Scripture and of the glories and the mysteries contained therein,—let these ever praise him who made and blessed them in the beginning of the creation.— *J. W. Burgon.* 
 
 **Verses 3-4.** 
 
@@ -150,7 +150,7 @@ Of thy creation, finished, yet renewed,
 
 For ever.— *William Cullen Bryant,* 1794-1878.
 
-**Verse 6.** *He hath made a decree*, etc. Rather, *He hath made an ordinance, and will not transgress it.* This is more obvious and natural than to supply a new subject to the second verb, "and none of them transgress it." This anticipates, but only in form, the modern scientific doctrine of the inviolability of natural order. It is the imperishable faithfulness of God that renders the law invariable.— *A.S. Aglen.* 
+**Verse 6.** *He hath made a decree*, etc. Rather, *He hath made an ordinance, and will not transgress it.* This is more obvious and natural than to supply a new subject to the second verb, "and none of them transgress it." This anticipates, but only in form, the modern scientific doctrine of the inviolability of natural order. It is the imperishable faithfulness of God that renders the law invariable.— *A. S. Aglen.* 
 
 **Verse 7.** *Dragons.* The word *tanninim,* rendered *"dragons",* is a word which may denote whales, sharks, serpents, or sea monsters of any kind (Job 7:1 Eze 29:3).— *John Morison.* 
 
@@ -172,13 +172,13 @@ But if these reasons will not satisfy you, though they have done many others, a 
 
 Or, fourthly and lastly, which I think to be a good reason: *zeal makes men speak and utter things impossible;* the fire of zeal will so transport him that it will make him speak things unreasonable, impossible, as Moses in his zeal desired God, for the safety of Israel, "to blot his name out of his book"; and Paul wished himself "anathema", accursed or separate from Christ, for his brethren's salvation, which was a thing impossible, it could not be.— *John Everard, in "Some Gospel Treasures,"* 1653.
 
-**Verses 7-10.** The ox and the ass acknowledge their master. The winds and the sea obey him. It should seem that as there is a religion above man, the religion of angels, so there may be a religion beneath man, the religion of dumb creatures. For wheresoever there is a service of God, in effect it is a religion. Thus according to the several degrees and difference of states—the state of nature, grace, and glory—religion may likewise admit of degrees.— *G.G., in a sermon entitled "The Creatures Praysing God,"* 1662.
+**Verses 7-10.** The ox and the ass acknowledge their master. The winds and the sea obey him. It should seem that as there is a religion above man, the religion of angels, so there may be a religion beneath man, the religion of dumb creatures. For wheresoever there is a service of God, in effect it is a religion. Thus according to the several degrees and difference of states—the state of nature, grace, and glory—religion may likewise admit of degrees.— *G. G., in a sermon entitled "The Creatures Praysing God,"* 1662.
 
 **Verse 8.** This verse arrays in striking order three elements that are ever full of movement and power— *ignea, aquea, aërea;* fire (or caloric), water (or vapour), and air (or wind). The first includes meteors, lightnings and thunders; the second, snow, hoar frost, dew, mist and rain; the third, breezes, tempests and hurricanes.— *Hermann Venema.* 
 
 **Verse 8.** *Fire and hail.* These are contrasted with one another. *Snow and mist.* The mist is the vapour raised by the heat of the sun, and therefore suitably contrasted with the snow, which is the effect of cold. *"Stormy wind"* (Ps 107:25), which accompanies the changes of temperature in the air.— *James G. Murphy.* 
 
-**Verse 8.** *Snow.* As sure as every falling flake of winter's snow has a part in the great economy of nature, so surely has every Word of God which falls within the sanctuary its end to accomplish in the moral sphere. I have stood on a winter day and seen the tiny flakes in little clouds lose themselves one by one in the rushing river. They seemed to die to no purpose—to be swallowed up by an enemy which ignored both their power and their existence. And so have I seen the Word of God fall upon human hearts. Sent of God, from day to day and from year to year, I have seen it dropping apparently all lack of results into the fierce current of unbelief—into the fiercer gulf stream of worldliness which was sweeping through the minds and the lives of the hearers. But as I stood upon the river's bank and looked upon what seemed to be the death of the little fluttering crystal, a second thought assured me that it was but death into life, and that every tiny flake which wept its live away in the rushing waters, became incorporate with the river's being. So when I have seen the Word of God fall apparently fruitless upon the restless, seething, rushing current of human life, a recovered faith in the immutable declaration of God has assured me that what I looked upon was not a chance or idle death, but rather the falling of the soldier, after that he had wrought his life force into the destiny of a nation and into the history of a world. And so it must ever be. The Word of God ever reaches unto its end.— *S.S. Mitchell, in a Sermon entitled "The Coming of the Snow and the Coming of the Word,"* 1884.
+**Verse 8.** *Snow.* As sure as every falling flake of winter's snow has a part in the great economy of nature, so surely has every Word of God which falls within the sanctuary its end to accomplish in the moral sphere. I have stood on a winter day and seen the tiny flakes in little clouds lose themselves one by one in the rushing river. They seemed to die to no purpose—to be swallowed up by an enemy which ignored both their power and their existence. And so have I seen the Word of God fall upon human hearts. Sent of God, from day to day and from year to year, I have seen it dropping apparently all lack of results into the fierce current of unbelief—into the fiercer gulf stream of worldliness which was sweeping through the minds and the lives of the hearers. But as I stood upon the river's bank and looked upon what seemed to be the death of the little fluttering crystal, a second thought assured me that it was but death into life, and that every tiny flake which wept its live away in the rushing waters, became incorporate with the river's being. So when I have seen the Word of God fall apparently fruitless upon the restless, seething, rushing current of human life, a recovered faith in the immutable declaration of God has assured me that what I looked upon was not a chance or idle death, but rather the falling of the soldier, after that he had wrought his life force into the destiny of a nation and into the history of a world. And so it must ever be. The Word of God ever reaches unto its end.— *S. S. Mitchell, in a Sermon entitled "The Coming of the Snow and the Coming of the Word,"* 1884.
 
 **Verse 8.** The *stormy wind* is the swift messenger of God, Ps 147:15. The hurricane fulfils the divine command. See Mt 8:27. "Even the winds and the sea obey him." The *"wind"* is the minister of judgment. See Eze 13:13. The words of this verse have special use; for men are exceedingly apt to ascribe the violence of tempests to blind chance.— *Martin Geier.* 
 
@@ -190,7 +190,7 @@ Or, fourthly and lastly, which I think to be a good reason: *zeal makes men spea
 
 **Verse 9.** *Fruitful trees and all cedars.* The praise of God is in the rustling voices of the trees. They fulfil his purpose in giving fruit to refresh, and shelter and shadow for a covert, and their murmur is the soft cadence that chants mercy and grace. In India, the ancients reported that the trees were worshipped as divine, and death was a penalty awarded to those who cut them down. In classic mythology the groves were the homes of gods. Jehovah decreed that an ark of safety for man, and also a temple for himself, should be constructed of wood. Thus more than any other created things, the trees of the wood have redounded to his glory.— *Le Blanc.* 
 
-**Verse 9.** *Fruitful trees.* Rather *fruit trees;* the fruit bearing tree being representative of one division of the vegetable world, planted and reared by man; the "cedars" of the other, which are (Ps 104:16) of God's own plantation. So in Ps 148:10 we have *wild* animals and *domesticated* animals.— *A.S. Aglen.* 
+**Verse 9.** *Fruitful trees.* Rather *fruit trees;* the fruit bearing tree being representative of one division of the vegetable world, planted and reared by man; the "cedars" of the other, which are (Ps 104:16) of God's own plantation. So in Ps 148:10 we have *wild* animals and *domesticated* animals.— *A. S. Aglen.* 
 
 **Verse 9.** *Trees.* 
 
@@ -242,9 +242,9 @@ Consider with what mercies your days have been filled up. God's mercies have bee
 
 **Verses 12-13.** The Psalms are church songs, and all who belong to the church are to sing them. *Both young men, and maidens; old men, and children; let them praise the name of the LORD.* The ripe believer who can triumph in the steadfast hope of God's glory, is to lend his voice to swell the song of the church when she cries to God out of the depths; and the penitent, who is still sitting in darkness, is not to refrain his voice when the church pours out in song her sense of God's love. The whole church has fellowship in the Psalms.— *William Binnie, in "The Psalms, their History, Teachings, and Use,"* 1870.
 
-**Verses 12-13.** *Old men...Let them praise the name of the LORD.* It is a favourite speculation of mine that if spared to sixty we then enter on the seventh decade of human life, and that this, if possible, should be turned into the Sabbath of our earthly pilgrimage and spent sabbatically, as if on the shores of an eternal world, or in the outer courts, as it were, of the temple that is above, the tabernacle in heaven.— *Thomas Chalmers.* 
+**Verses 12-13.** *Old men... Let them praise the name of the LORD.* It is a favourite speculation of mine that if spared to sixty we then enter on the seventh decade of human life, and that this, if possible, should be turned into the Sabbath of our earthly pilgrimage and spent sabbatically, as if on the shores of an eternal world, or in the outer courts, as it were, of the temple that is above, the tabernacle in heaven.— *Thomas Chalmers.* 
 
-**Verse 13.** *Let them praise.* Exactly as at the close of the first great division of the anthem (Ps 148:5), and, in the same way as there, the reason for the exhortation follows in the next clause. But it is a different reason. It is no longer because he has given them a decree, bound them as passive, unconscious creatures by a law which they cannot transgress. (It is the fearful mystery of the reasonable will that it can transgress the law.) It is because his name is exalted, so that the eyes of men can see, and the hearts and tongues of men confess it; it is because he has graciously revealed himself to, and mightily succoured, the people whom he loves, the nation who are near to him. If it be said that what was designed to be a Universal Anthem is thus narrowed at its close, it must be remembered that, however largely the glory of God was written on the visible creation, it was only to the Jew that any direct revelation of his character had been made.— *J.J. Stewart Perowne.* 
+**Verse 13.** *Let them praise.* Exactly as at the close of the first great division of the anthem (Ps 148:5), and, in the same way as there, the reason for the exhortation follows in the next clause. But it is a different reason. It is no longer because he has given them a decree, bound them as passive, unconscious creatures by a law which they cannot transgress. (It is the fearful mystery of the reasonable will that it can transgress the law.) It is because his name is exalted, so that the eyes of men can see, and the hearts and tongues of men confess it; it is because he has graciously revealed himself to, and mightily succoured, the people whom he loves, the nation who are near to him. If it be said that what was designed to be a Universal Anthem is thus narrowed at its close, it must be remembered that, however largely the glory of God was written on the visible creation, it was only to the Jew that any direct revelation of his character had been made.— *J. J. Stewart Perowne.* 
 
 **Verse 13.** *The name of Jehovah.* Jehovah is a name of great power and efficacy, a name that hath in it five vowels, without which no language can be expressed; a name that hath in it also three syllables, to signify the Trinity of Persons, the eternity of God, One in Three, and Three in One; a name of such dread and reverence amongst the Jews, that they tremble to name it, and therefore they use the name *Adonai* (Lord) in all their devotions. And thus ought every one to stand in awe, and sin not by taking the name of God in vain; but to sing praises, to honour, to remember, to declare, to exalt, and bless it; for holy and reverend, only worthy and excellent is his name.— *Rayment,* 1630.
 
@@ -256,7 +256,7 @@ Consider with what mercies your days have been filled up. God's mercies have bee
 
 **Whole Psalm.** 
 
-1\.What is implied in the invitation to the natural creation to praise God.
+1\. What is implied in the invitation to the natural creation to praise God.
 
 a) That praise is due to God on its account.
 
@@ -264,7 +264,7 @@ b) That it is due from those for whose benefit it was created.
 
 c) That it is a reproof to those who do not praise God who are actually capable of it. "If these should hold their peace, the stones would immediately cry out."
 
-2\.What is implied in the invitation to innocent beings to praise God. "Praise ye the Lord from the heavens. Praise ye him all his angels, praise ye him all his hosts": Ps 148:1-2.
+2\. What is implied in the invitation to innocent beings to praise God. "Praise ye the Lord from the heavens. Praise ye him all his angels, praise ye him all his hosts": Ps 148:1-2.
 
 a) That they owe their creation in innocence to God.
 
@@ -272,51 +272,51 @@ b) That they owe their preservation in innocence to him.
 
 c) That they owe the reward of their innocence to him.
 
-3\.What is implied in the invitation to fallen beings to praise God: "Kings of the earth and all people", etc.: Ps 148:11-13.
+3\. What is implied in the invitation to fallen beings to praise God: "Kings of the earth and all people", etc.: Ps 148:11-13.
 
 a) That God is merciful and ready to forgive. "Not willing that any should perish", etc. They would not be called upon to praise God if they were irrecoverably lost. Our Lord would not when on earth accept praise from an evil spirit.
 
 b) That means of restoration from the fall are provided by God for men. Without this they would have no hope, and could offer no praise.
 
-4\.What is implied in the invitation to the redeemed to praise God: Ps 148:14.
+4\. What is implied in the invitation to the redeemed to praise God: Ps 148:14.
 
 a) That God is their God.
 
-b) That all his perfections are engaged for their present and eternal welfare.— *G.R.* 
+b) That all his perfections are engaged for their present and eternal welfare.— *G. R.* 
 
 **Verse 1.** *Praise ye the Lord.* 
 
-1\.The Voice—of Scripture, of nature, of grace, of duty.
+1\. The Voice—of Scripture, of nature, of grace, of duty.
 
-2\.The Ear on which it rightly falls—of saints and sinners, old and young, healthy and sick. It falls on our ear.
+2\. The Ear on which it rightly falls—of saints and sinners, old and young, healthy and sick. It falls on our ear.
 
-3\.The Time when it is heard. Now, ever, yet also at special times.
+3\. The Time when it is heard. Now, ever, yet also at special times.
 
-4\.The Response which we will give. Let us now praise with heart, life, lip.
+4\. The Response which we will give. Let us now praise with heart, life, lip.
 
 **Verse 1.** (*second and third clauses* ).
 
-1\.The character of the praises of heaven.
+1\. The character of the praises of heaven.
 
-2\.How far they influence us who are here below.
+2\. How far they influence us who are here below.
 
-3\.The hope which we have of uniting in them.
+3\. The hope which we have of uniting in them.
 
 **Verse 2.** 
 
-1\.The angels as praiseful servants.
+1\. The angels as praiseful servants.
 
-2\.The other hosts of God, and how they praise him.
+2\. The other hosts of God, and how they praise him.
 
-3\.The rule without exception: *"all—all."* Imagine one heavenly being living without praising the Lord!
+3\. The rule without exception: *"all—all."* Imagine one heavenly being living without praising the Lord!
 
 **Verse 3.** 
 
-1\.God's praise continual both day and night.
+1\. God's praise continual both day and night.
 
-2\.Light the leading fountain of this praise.
+2\. Light the leading fountain of this praise.
 
-3\.Life behind all, calling for the praise.
+3\. Life behind all, calling for the praise.
 
 **Verses 5-6.** Creation and conservation, two chief reasons for praise.
 
@@ -324,13 +324,13 @@ b) That all his perfections are engaged for their present and eternal welfare.�
 
 **Verse 8.** Canon Liddon preached in St. Paul's on Sunday afternoon, December 23, 1883, and took for his text Ps 148:8, *Wind and storm fulfilling his word.* He spoke of the divine use of destructive forces.
 
-1\.In the physical world we see wind and storm fulfilling God's word.
+1\. In the physical world we see wind and storm fulfilling God's word.
 
 a) The Bible occasionally lifts the veil, and shows us how destructive forces of Nature have been the servants of God.
 
 b) Modern history illustrates this vividly.
 
-2\.In the human, spiritual, and moral world, we find new and rich application of the words of the text.
+2\. In the human, spiritual, and moral world, we find new and rich application of the words of the text.
 
 a) In the State we see the storm of invasion and the storm of revolution fulfilling God's word.
 
@@ -344,37 +344,37 @@ c) In the experience of individual life we see outward troubles, and inward stor
 
 **Verses 11-18.** 
 
-1\.The universal King. Alone in excelling. Supreme in glory.
+1\. The universal King. Alone in excelling. Supreme in glory.
 
-2\.The universal summons. Of all nations, ranks, classes and ages. Foreshadowing the Judgment.
+2\. The universal summons. Of all nations, ranks, classes and ages. Foreshadowing the Judgment.
 
-3\.The universal duty: praise,—constant, emphatic, growing.— *W.B.H.* 
+3\. The universal duty: praise,—constant, emphatic, growing.— *W. B. H.* 
 
 **Verse 12.** God to be served by strength and beauty, experience and expectation.
 
 **Verse 12.** *And children.* A Children's Address.
 
-1\.Where the children are found (Ps 148:11-12). In royal and distinguished society: yet not lost or overlooked.
+1\. Where the children are found (Ps 148:11-12). In royal and distinguished society: yet not lost or overlooked.
 
-2\.What they are called to. "Praise the Lord." Even they have abundant reason.
+2\. What they are called to. "Praise the Lord." Even they have abundant reason.
 
-3\.What are the lessons of the subject?
+3\. What are the lessons of the subject?
 
 a) Children should come up with their parents on the Sabbath.
 
 b) Children should unite in heart and voice in God's praises.
 
-c) Children should seek fitness for this praise by believing in Christ.— *W.B.H.* 
+c) Children should seek fitness for this praise by believing in Christ.— *W. B. H.* 
 
 **Verse 14.** The Favoured People and their God.
 
-1\.What he does for them.
+1\. What he does for them.
 
-2\.What he makes them: "Saints."
+2\. What he makes them: "Saints."
 
-3\.Who they are: "Children of Israel."
+3\. Who they are: "Children of Israel."
 
-4\.Where they are: "Near unto him."
+4\. Where they are: "Near unto him."
 
-5\.What they do for him: "Praise ye the Lord."
+5\. What they do for him: "Praise ye the Lord."
 

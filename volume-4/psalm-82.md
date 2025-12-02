@@ -52,9 +52,9 @@ Asaph's sermon before the judges is now before us. He speaks very plainly, and h
 
 **Verse 1.** *God standeth in the congregation of the mighty,* or, *of God.* These words are exegetical, and help to illustrate what he had said before: *God standeth in the congregation of God.* What is that? Why he judgeth as supreme amongst the judges of the world. He stands not as a cipher, or a bare spectator, but he himself makes one amongst them.
 
-1\.He judgeth actively amongst them. We look upon men, and think the judgment is theirs, but it is God that exerciseth judgment amongst them.
+1\. He judgeth actively amongst them. We look upon men, and think the judgment is theirs, but it is God that exerciseth judgment amongst them.
 
-2\.Passively, he is so in the midst of these earthly gods, that if they do unjustly he will execute justice on them, and judge the judges of the world; for though they be great, yet there is a greater than they, to whom they must shortly give an account. *Thomas Hall.* 1659-60.
+2\. Passively, he is so in the midst of these earthly gods, that if they do unjustly he will execute justice on them, and judge the judges of the world; for though they be great, yet there is a greater than they, to whom they must shortly give an account. *Thomas Hall.* 1659-60.
 
 **Verse 1.** *In the congregation.* Rulers must understand that they are not placed over stocks and stones, nor over swine and dogs, but over the congregation of God: they must therefore be afraid of acting against God himself when they act unjustly. *Martin Luther.* 
 
@@ -86,11 +86,11 @@ Asaph's sermon before the judges is now before us. He speaks very plainly, and h
 
 **Verse 7.** 
 
-1\.Ye shall fall from the highest pinnacle of honour and reputation. The place of magistracy, which knoweth you now, will know you no more. One of the ancients, standing by Caesars tomb, crieth out, *Ubi nunc pulchritudo Caesaris? quo abiit magnificentia ejus?* Where is now the beauty; what is become of the magnificence; where are the armies now; where the honours, the triumphs, the trophies of Caesar? All was gone when Caesar was gone. You honours and your worships, your power, and your places, all die with you, if not before you.
+1\. Ye shall fall from the highest pinnacle of honour and reputation. The place of magistracy, which knoweth you now, will know you no more. One of the ancients, standing by Caesars tomb, crieth out, *Ubi nunc pulchritudo Caesaris? quo abiit magnificentia ejus?* Where is now the beauty; what is become of the magnificence; where are the armies now; where the honours, the triumphs, the trophies of Caesar? All was gone when Caesar was gone. You honours and your worships, your power, and your places, all die with you, if not before you.
 
-2\.Ye fall from your greatest treasures and possessions. As ye brought nothing into the world, so it is certain ye shall carry nothing out of the world. 1Ti 6:7. Saladin, the mighty monarch of the east, is gone, and hath carried no more along with him than ye see— *i.e.,* a shirt hung up for that purpose—said the priest that went before the bier.
+2\. Ye fall from your greatest treasures and possessions. As ye brought nothing into the world, so it is certain ye shall carry nothing out of the world. 1Ti 6:7. Saladin, the mighty monarch of the east, is gone, and hath carried no more along with him than ye see— *i.e.,* a shirt hung up for that purpose—said the priest that went before the bier.
 
-3\.Ye fall from all your friends and relations; when ye die, they that were near and dear to you will leave you. *George Swinnock.* 
+3\. Ye fall from all your friends and relations; when ye die, they that were near and dear to you will leave you. *George Swinnock.* 
 
 **Verse 7.** *Impressiveness* is a leading characteristic of the "death" or "fall" of "princes:" such incidents, from a variety of causes, are most striking. But can the same remark be commonly made respecting the decease of the children of poverty? Regard being had to the startling effect which the demise of the potentate is calculated to produce,—has the departure of the *peasant,* for example, in itself, the same tendency to beget solemnity and awe, so that, even under this point of view, the peasant might be justly affirmed to *fall like one of the princes* Indeed, if you think of the outward circumstances attending *his* last moments; and then, immediately afterwards, of those which belong to the close of the life of the dweller in regal or stately halls, there would seem to be hardly any ground here for instituting the slightest comparison: but I would have you to associate the man, as he lies on the eve of dissolution, not with others, his superiors in rank, in a similar case, but with *himself,* when, in the full vigour of existence, he walked to and fro, and performed his own humble but laborious share of this world's business; and, as you subsequently mark how the great Destroyer has crushed all his energies, and left but a corpse behind, you will surely admit that there is as wide a difference between the individual as he *was* and as he *is,* as there can possibly be between the scenes at the death beds, respectively, of princes and of the poor. Yes, and as *impressive* a difference too; so that you have only to allow the exhibition of the striking change to have its legitimate effect upon the mind, and then, so far as that effect will be concerned, you may declare of the rural labourer, that *"he has fallen like one of the princes; "* seeing that he has given a lesson every whit as awakening and as emphatic in its admonitions as could the other. *Hugh B. Moffatt,* 1861.
 
@@ -110,7 +110,7 @@ Asaph's sermon before the judges is now before us. He speaks very plainly, and h
 
 **Verse 5.** 
 
-1\.The characters of wicked princes.
+1\. The characters of wicked princes.
 
 (a) Ignorance: *They know not.* 
 
@@ -118,7 +118,7 @@ Asaph's sermon before the judges is now before us. He speaks very plainly, and h
 
 (c) Unrestrained perverseness: *They walk on,* etc.
 
-2\.The consequences to others: *All the foundations,* etc.
+2\. The consequences to others: *All the foundations,* etc.
 
 (a) Of personal security.
 
@@ -136,11 +136,11 @@ Asaph's sermon before the judges is now before us. He speaks very plainly, and h
 
 **Verse 8.** 
 
-1\.The invocation: *Arise,* etc.
+1\. The invocation: *Arise,* etc.
 
-2\.The prediction: *For thou shalt,* etc.—G. R.
+2\. The prediction: *For thou shalt,* etc.—G. R.
 
 ## Works Upon The Eighty-Second Psalm
 
-"The Beauty of Magistracy. An Exposition of Psalm 82." By THOMAS HALL, B.D. 1659-60. (In SWINNOCK'S WORKS. Vol. 4. Nichol's Edition.)
+"The Beauty of Magistracy. An Exposition of Psalm 82." By THOMAS HALL, B. D. 1659-60. (In SWINNOCK'S WORKS. Vol. 4. Nichol's Edition.)
 

@@ -98,15 +98,15 @@ As David earnestly sought for God, so there were men of another order who as eag
 
 **Verse 2.** *To see thy power*, etc.
 
-1\.It is, or should be, the desire of every Christian to see and enjoy more and more of the glory of God.
+1\. It is, or should be, the desire of every Christian to see and enjoy more and more of the glory of God.
 
-2\.That the accomplishment of this design is to be sought by a devout and diligent attendance upon the worship of the sanctuary. How is God's character in the sanctuary manifested to believers?
+2\. That the accomplishment of this design is to be sought by a devout and diligent attendance upon the worship of the sanctuary. How is God's character in the sanctuary manifested to believers?
 
 (a) By the ministry of reconciliation—by the exhibition of gospel truth.
 
 (b) Believers grow in their knowledge of the divine character in the sanctuary, by observing and feeling the application of those great doctrines to the souls of men, by the power and influence of the Holy Spirit.
 
-3\.The effects that result to the believer in his history and experience, from an increasing knowledge of the power and glory of God. The effects of this knowledge are great and manifold.
+3\. The effects that result to the believer in his history and experience, from an increasing knowledge of the power and glory of God. The effects of this knowledge are great and manifold.
 
 (a) The believer, by fresh displays of the divine glory, is disenchanted from the fascination of the world.
 
@@ -114,17 +114,17 @@ As David earnestly sought for God, so there were men of another order who as eag
 
 (c) By seeing the divine power and glory in the sanctuary, we shall have our strength renewed to go on our Christian course afresh.
 
-4\.A view of the divine glory crucifies our lusts, and puts the corruptions of our heart to death.
+4\. A view of the divine glory crucifies our lusts, and puts the corruptions of our heart to death.
 
-5\.Fresh views of the divine power and glory nourish our humility.
+5\. Fresh views of the divine power and glory nourish our humility.
 
-6\.These views of the divine glory in the sanctuary arm us for our conflict with the last enemy.
+6\. These views of the divine glory in the sanctuary arm us for our conflict with the last enemy.
 
 Concluding remarks:
 
-1\.That it is a characteristic of every good man, that he is devoutly attached to the solemnities of public worship.
+1\. That it is a characteristic of every good man, that he is devoutly attached to the solemnities of public worship.
 
-2\.That his object in going to the sanctuary is definite and distinct. *John Angell James.* 
+2\. That his object in going to the sanctuary is definite and distinct. *John Angell James.* 
 
 **Verse 2.** *So as I have seen thee in the sanctuary.* To converse with ordinances, and not to converse with God; to have to do with ordinances, and not to have to do with God, alas! they are but dry breasts, and a miscarrying womb that will never bring forth the fruits of holiness. Ordinances without God are but like bones that have no marrow in them; they are but like shells without a kernel. Your hearing will be in vain; and your praying will be in vain; there will be no spirit moving, no voice answering, no heart warnings, no soul refreshing, no God meetings. *William Strong (1654), in the "Saints' Communion."* 
 
@@ -148,11 +148,11 @@ Concluding remarks:
 
 **Verse 6.** *Upon my bed.* The *bed* may be looked upon as a place for the remembrance of God in it, according to a threefold notion.
 
-1\.As *a place of choice.* In the bed, of choice, rather than anywhere else, where I am left to my liberty. David when he had a mind to remember God, he would make choice of his bed for it, as most suitable and agreeable to it. In case of excessive weariness contracted to the body from some occasion (this is often put accidentally in Scripture), "To commune with our hearts upon our bed, "etc., the occasion of it here; it may fall out that the bed may be the fittest place for such a duty as this. Ps 4:4.
+1\. As *a place of choice.* In the bed, of choice, rather than anywhere else, where I am left to my liberty. David when he had a mind to remember God, he would make choice of his bed for it, as most suitable and agreeable to it. In case of excessive weariness contracted to the body from some occasion (this is often put accidentally in Scripture), "To commune with our hearts upon our bed, "etc., the occasion of it here; it may fall out that the bed may be the fittest place for such a duty as this. Ps 4:4.
 
-2\.As it is *a place of necessity.* In my bed at least, when I cannot anywhere else, as having restraints upon me. David, when (as now it was with him) he was detained from the public ordinances, whether by sickness, or any other impediment which he could not withstand, yet he would not now wholly forget God; he would remember him even in his bed. This is another notion in which we may take it.
+2\. As it is *a place of necessity.* In my bed at least, when I cannot anywhere else, as having restraints upon me. David, when (as now it was with him) he was detained from the public ordinances, whether by sickness, or any other impediment which he could not withstand, yet he would not now wholly forget God; he would remember him even in his bed. This is another notion in which we may take it.
 
-3\.As *a place of indifference;* that is, there as well as anywhere besides. I will not only remember thee when I am up, when I shall make it my business to remember thee, but even in my bed too. I will take an occasion and opportunity to remember thee there. By commending myself to thee, when I lie down to rest, and acknowledging and owning of thee when I first awake. *Thomas Horton.* 
+3\. As *a place of indifference;* that is, there as well as anywhere besides. I will not only remember thee when I am up, when I shall make it my business to remember thee, but even in my bed too. I will take an occasion and opportunity to remember thee there. By commending myself to thee, when I lie down to rest, and acknowledging and owning of thee when I first awake. *Thomas Horton.* 
 
 **Verse 6.** There were *night watches* kept in the tabernacle, for praising God (Ps 134:1), which it is probable David, when he had liberty, joined with the Levites in: but now he could not keep place with them, he kept time with them, and wished himself among them. *Matthew Henry.* 
 
@@ -160,7 +160,7 @@ Concluding remarks:
 
 I shall consider what is implied in the soul's following hard after God, and then enquire the reason of it.
 
-1\.Following hard after God supposes,
+1\. Following hard after God supposes,
 
 (a) A previous acquaintance with him. An unknown good, be it ever so desirable in itself, cannot be the object of desire. Hence, when God shines into the heart, it is to give the light of the knowledge of the glory of God in the face of Jesus Christ, as the foundation of all gracious exercises, and especially as the source of all fervent desires after him.
 
@@ -170,7 +170,7 @@ I shall consider what is implied in the soul's following hard after God, and the
 
 (d) Perseverance in seeking. *To follow* implies this, and to follow *hard* implies it more strongly. It is as if the psalmist had said, "Does God retire? I will pursue. Does he withhold the blessing? I will wrestle with him till I obtain it. He long waited to be gracious, and I will now wait till he is so."
 
-2\.We are to enquire the reason why David thus followed hard after God.
+2\. We are to enquire the reason why David thus followed hard after God.
 
 (a) Guilt and distress followed hard after him.
 
@@ -192,11 +192,11 @@ I shall consider what is implied in the soul's following hard after God, and the
 
 **Verse 10.** *They shall fall.* The word is ordinarily applied to *water.* 2Sa 14:14 La 3:49. But here, by the immediate mention of the *sword,* it is restrained to the *effusion of blood,* and being in the third person plural, in the active sense, it is after the Hebrew idiom to be interpreted in the passive sense, *they shall pour out by the hand of the sword, i.e., they shall be poured out by the sword,* the *hand* of the *sword* being no more than the edge of the sword. *Henry Hammond.* 
 
-**Verse 10.** *They shall be a portion for foxes.* Beasts were given to men for their food, but here men are given to beasts for a prey. A lamentable spectacle to see the vilest of all creatures ravenously feast themselves with the flesh of the noblest, and irrespectively hale and tear in pieces the caskets which whilome enclosed the richest jewel in the world. Is it not against the law of nature that men should become beasts' meat; yea, the meat of such beasts as are carrion, and not man's meat? Questionless it is, yet nature giveth her consent to this kind of punishment of unnatural crimes. For it is consonant to reason, that the law of nature should be broken in their punishment who brake it in their sin; that they who devoured men like beasts should be devoured of beasts like men, that they who with their hands offered unnatural violence to their sovereign should suffer the like by the claws and teeth of wild beasts, their slaves; that they who bear a fox in their breast in their life, should be entombed in the belly of a fox at their death. St. Austin, expounding this whole prophecy of Christ, yieldeth a special reason of this judgment of God by which the Jews were condemned to foxes. The Jews, saith he, therefore killed Christ that they might not lose their country; but, indeed, they therefore lost their country because they killed Christ; because they refused the Lamb, and chose Herod the fox before him, therefore by the just retribution of the Almighty, they were allotted to the foxes for their portion. Notwithstanding this allusion of St. Austin to foxes in special, Jansenius and other expositors extend this grant in my text to all wild beasts and fowls, which are, as it were, impatient with the fox, and have full power and liberty given them to seize upon the corpses of traitors to God and their country; but foxes bear the name because they abound in those parts where was such store of them, that Samson in a short time, with a wet finger, caught three hundred. *Daniel Featley, D.D., in "Clavis Mystica,"* 1636.
+**Verse 10.** *They shall be a portion for foxes.* Beasts were given to men for their food, but here men are given to beasts for a prey. A lamentable spectacle to see the vilest of all creatures ravenously feast themselves with the flesh of the noblest, and irrespectively hale and tear in pieces the caskets which whilome enclosed the richest jewel in the world. Is it not against the law of nature that men should become beasts' meat; yea, the meat of such beasts as are carrion, and not man's meat? Questionless it is, yet nature giveth her consent to this kind of punishment of unnatural crimes. For it is consonant to reason, that the law of nature should be broken in their punishment who brake it in their sin; that they who devoured men like beasts should be devoured of beasts like men, that they who with their hands offered unnatural violence to their sovereign should suffer the like by the claws and teeth of wild beasts, their slaves; that they who bear a fox in their breast in their life, should be entombed in the belly of a fox at their death. St. Austin, expounding this whole prophecy of Christ, yieldeth a special reason of this judgment of God by which the Jews were condemned to foxes. The Jews, saith he, therefore killed Christ that they might not lose their country; but, indeed, they therefore lost their country because they killed Christ; because they refused the Lamb, and chose Herod the fox before him, therefore by the just retribution of the Almighty, they were allotted to the foxes for their portion. Notwithstanding this allusion of St. Austin to foxes in special, Jansenius and other expositors extend this grant in my text to all wild beasts and fowls, which are, as it were, impatient with the fox, and have full power and liberty given them to seize upon the corpses of traitors to God and their country; but foxes bear the name because they abound in those parts where was such store of them, that Samson in a short time, with a wet finger, caught three hundred. *Daniel Featley, D. D., in "Clavis Mystica,"* 1636.
 
 **Verse 10.** *They shall be a portion for foxes.* If the body of a human being were to be left on the ground, the *jackals* would certainly leave but little traces of it; and in the olden times of warfare, they must have held high revelry in the battle fields after the armies had retired. It is to this propensity of the *jackal* that David refers—himself a man of war, who had fought on many a battle field, and must have seen the carcases of the slain mangled by those nocturnal prowlers. *J. G. Wood.* 
 
-**Verse 10.** What a doom is that which David pronounces upon those who seek the soul of the righteous to destroy it: *They shall be a portion for foxes;* by which *jackals* are meant, as I suppose. These sinister, guilty, woebegone brutes, when pressed with hunger, gather in gangs among the graves, and yell in rage, and fight like fiends over their midnight orgies; but on the battle field is their great carnival. Oh! let me never even dream that any one dear to me has *fallen by the sword,* and lies there to be torn, and gnawed at, and dragged about by these hideous howlers. *W. M. Thomson, D.D., in "The Land and the Book,"* 1861.
+**Verse 10.** What a doom is that which David pronounces upon those who seek the soul of the righteous to destroy it: *They shall be a portion for foxes;* by which *jackals* are meant, as I suppose. These sinister, guilty, woebegone brutes, when pressed with hunger, gather in gangs among the graves, and yell in rage, and fight like fiends over their midnight orgies; but on the battle field is their great carnival. Oh! let me never even dream that any one dear to me has *fallen by the sword,* and lies there to be torn, and gnawed at, and dragged about by these hideous howlers. *W. M. Thomson, D. D., in "The Land and the Book,"* 1861.
 
 **Verse 11.** *Every one that sweareth by him, i.e.,* to David, that comes into his interest, and takes an oath of allegiance to him, shall glory in his success. Or, *that swears by him, i.e.,* by the blessed name of God, and not by any idol. De 6:15. And then it means all good people that make a sincere and open profession of God's name: they shall glory in God; they shall glory in David's advancement: "They that fear thee will be glad when they see me." They that heartily espouse the cause of Christ, shall glory in its victory at last. "If we suffer with him, we shall reign with him." *Matthew Henry.* 
 
@@ -204,31 +204,31 @@ I shall consider what is implied in the soul's following hard after God, and the
 
 **Verse 1.** (*first clause* ). While the Atheist says, "No God, "and the heathen worship "gods many, "the true believer says, "O God, thou art my God." He is so,
 
-1\.By choice.
+1\. By choice.
 
-2\.By covenant.
+2\. By covenant.
 
-3\.By confession.
+3\. By confession.
 
 **Verse 1.** (*second clause* ). Seeking God *early.* 
 
-1\.Early in respect of *life.* 
+1\. Early in respect of *life.* 
 
-2\.Early in respect of *diligence.* 
+2\. Early in respect of *diligence.* 
 
-3\.Early in respect of *(fervour.)* 
+3\. Early in respect of *(fervour.)* 
 
-4\.Early in respect of *times* or *continuance. Alexander Shanks.* 
+4\. Early in respect of *times* or *continuance. Alexander Shanks.* 
 
 **Verse 1.** (*second clause* ). *Earnest seeking.* That which is longed for will be eagerly sought.
 
-1\.The soul is *resolute. I will seek.* 
+1\. The soul is *resolute. I will seek.* 
 
-2\.The soul is *reasonable. I will seek.* 
+2\. The soul is *reasonable. I will seek.* 
 
-3\.The soul is *ready. Early* will I.
+3\. The soul is *ready. Early* will I.
 
-4\.The soul is *persevering.* 
+4\. The soul is *persevering.* 
 
 Let this be the resolution of both saved and unsaved. *G. J. K.* 
 
@@ -270,9 +270,9 @@ Let this be the resolution of both saved and unsaved. *G. J. K.*
 
 **Verse 7.** A well founded resolve.
 
-1\.Upon what based.
+1\. Upon what based.
 
-2\.How expressed. *J. S. B.* 
+2\. How expressed. *J. S. B.* 
 
 **Verse 8.** 
 
@@ -282,43 +282,43 @@ Let this be the resolution of both saved and unsaved. *G. J. K.*
 
 **Verse 8.** "A mighty hunter before the Lord."
 
-1\.The object of pursuit: *Thee.* 
+1\. The object of pursuit: *Thee.* 
 
-2\.The manner of pursuit: *Hard after.* 
+2\. The manner of pursuit: *Hard after.* 
 
-3\.The dangers encountered. *J. S. B.* 
+3\. The dangers encountered. *J. S. B.* 
 
 **Verse 8.** (*second clause* ). God's right hand upholds his people three ways.
 
-1\.As to *sin;* lest they should fall by it.
+1\. As to *sin;* lest they should fall by it.
 
-2\.As to *suffering;* lest they should sink under it.
+2\. As to *suffering;* lest they should sink under it.
 
-3\.As to *duty;* lest they should decline from it. *W. Jay.* 
+3\. As to *duty;* lest they should decline from it. *W. Jay.* 
 
 **Verses 9-10.** 
 
-1\.The enemies of the Christian. Evil spirits, evil men, evil habits, etc., etc.
+1\. The enemies of the Christian. Evil spirits, evil men, evil habits, etc., etc.
 
-2\.Their intent. To destroy the soul.
+2\. Their intent. To destroy the soul.
 
-3\.Their fall. Certain, shameful, destructive.
+3\. Their fall. Certain, shameful, destructive.
 
-4\.Their future. Hell is reserved for them *G. J. K.* 
+4\. Their future. Hell is reserved for them *G. J. K.* 
 
 **Verse 11.** Three topics.
 
-1\.Royal rejoicing.
+1\. Royal rejoicing.
 
-2\.Lawful swearing.
+2\. Lawful swearing.
 
-3\.Evil speaking.
+3\. Evil speaking.
 
 ## Works Upon The Sixty-Third Psalm
 
 CHANDLER'S *"Life of David"* contains an Exposition of this Psalm. Vol. 1, pp. 130-4.
 
-"An Exposition of the 63 Psalm, "in eight Sermons, in *"Choice and Practical Expositions on four Select Psalms*... By THOMAS HORTON, D.D., 1675." (Folio.)
+"An Exposition of the 63 Psalm, "in eight Sermons, in *"Choice and Practical Expositions on four Select Psalms*... By THOMAS HORTON, D. D., 1675." (Folio.)
 
 Twelve Sermons (on Ps 63:1-8) in "Sermons on various Practical *Subjects.* By ALEXANDER SHANKS (1731-1799), late Minister of the Associate Congregation of Jedburgh, Edinburgh, 1081."
 

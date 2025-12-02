@@ -60,7 +60,7 @@ weight: 97
 
 ## Explanatory Notes & Quaint Sayings
 
-**Whole Psalm.** The two preceding psalms are songs of joy and thanksgiving, in which the gladness of Christ's people is poured forth as they go to meet their triumphant Lord at his second advent, and to bring him back in glory to assume his kingdom. The present psalm, in language sufficiently explicit, describes the completion of this great event, "the Lord reigneth"; Messiah is on his throne, and now the words of Ps 2:6, are fulfilled, "I have set my king upon my holy hill of Sion." Messiah's first act of sovereignty is judgment. Scriptures bearing upon that event are 2Th 1:7 Jude 1:14 Isa 66:15. The character of these judgments is given in the psalm: clouds and darkness encircling his throne, where, however, righteousness and mercy dwell; a fire which burns up his enemies round about; lightnings flashing upon the world, the earth trembling, and the hills melting like wax at the presence of the Lord, at the presence of the Lord of the whole earth. Peter, in his second Epistle, and third chapter, evidently refers to these events as yet future in his day.— *R.H. Ryland.* 
+**Whole Psalm.** The two preceding psalms are songs of joy and thanksgiving, in which the gladness of Christ's people is poured forth as they go to meet their triumphant Lord at his second advent, and to bring him back in glory to assume his kingdom. The present psalm, in language sufficiently explicit, describes the completion of this great event, "the Lord reigneth"; Messiah is on his throne, and now the words of Ps 2:6, are fulfilled, "I have set my king upon my holy hill of Sion." Messiah's first act of sovereignty is judgment. Scriptures bearing upon that event are 2Th 1:7 Jude 1:14 Isa 66:15. The character of these judgments is given in the psalm: clouds and darkness encircling his throne, where, however, righteousness and mercy dwell; a fire which burns up his enemies round about; lightnings flashing upon the world, the earth trembling, and the hills melting like wax at the presence of the Lord, at the presence of the Lord of the whole earth. Peter, in his second Epistle, and third chapter, evidently refers to these events as yet future in his day.— *R. H. Ryland.* 
 
 **Verse 1.** *The LORD reigneth.* Here's good news, glad tidings: *"The Lord reigneth."* It cannot be published without *praise,* without *rejoicing,* without *singing,* without *blessing.* We should dishonour this truth if we did not publish it; if we should with silence suppress it; if we should not speak well of it. It is so sweet and comfortable, that it fills the whole world with joy; and calls on every ear, and every tongue, and every heart, to be glad, to rejoice, and to praise God. Let the earth rejoice; let the multitude of isles be glad. As though he should say, Let nothing fear but hell: let nothing be disquieted but devils. Let the *lowest,* the *poorest* of the people of God, though but *earth,* yet let them rejoice in this, *"The LORD reigneth"*...
 
@@ -88,11 +88,11 @@ The Lord doth reign. This is not to be passed by; it's in the present tense. Thi
 
 3\."The Lord reigneth" *upon a throne of grace!* "let the earth rejoice." It is the mediatorial government of the Messiah which the Psalmist had more immediately in view, and this is the principal cause of joy to the earth and its guilty inhabitants.
 
-4\.And, lastly, the Lord will reign ere long upon *a throne of universal judgment* conspicuous to the assembled universe, "let the earth therefore rejoice, and the multitude of the isles be glad."— *Condensed from a Sermon by Samuel Davies,* 1724-1761.
+4\. And, lastly, the Lord will reign ere long upon *a throne of universal judgment* conspicuous to the assembled universe, "let the earth therefore rejoice, and the multitude of the isles be glad."— *Condensed from a Sermon by Samuel Davies,* 1724-1761.
 
 **Verse 1.** *Let the earth rejoice.* The earth is called upon to rejoice because the Lord reigneth; and well it may, on the day of its enlargement and final emancipation from evil, which seems to be here set forth—a day of judgment, and so also a day of terror and destruction to the enemies of God and goodness—a day when at his presence "the elements shall melt with fervent heat"; but his own righteousness and glory shall be manifested in the sight of all people. Then will the worldly, who serve idols in loving the creature more than the Creator, be confounded and overthrown; but then, too, will the righteous lift up their heads and rejoice because of God's judgments.— *Thomas Chalmers.* 
 
-**Verse 1.** *The multitude of the isles.* In Poole's Synopsis we find from the various interpretations of different authors that the word may mean maritime regions, places beyond sea usually reached in ships, and all countries bordering on the ocean.— *C.H.S.* 
+**Verse 1.** *The multitude of the isles.* In Poole's Synopsis we find from the various interpretations of different authors that the word may mean maritime regions, places beyond sea usually reached in ships, and all countries bordering on the ocean.— *C. H. S.* 
 
 **Verse 1.** *The isles.* Figuratively the isles may be taken for all the churches. Why isles? because the waves of all temptations roar around them. But as an isle may be beaten by the waves which on every side dash around it, yet cannot be broken, and rather itself doth break the advancing waves, than by them is broken: so also the churches of God, springing up throughout the world, have suffered the persecutions of the ungodly, who roar around them on every side; and behold the isles stand fixed, and at last the sea is calmed.— *Augustine.* 
 
@@ -112,7 +112,7 @@ The Lord doth reign. This is not to be passed by; it's in the present tense. Thi
 
 "Then pray, sir, excuse me, but do not you think you may trust him to govern it quite as well as long as you live?"
 
-To this question Whitelock had nothing to reply; but turning about, soon fell fast asleep, till he was summoned to embark.— *G.S. Bowes, in "Illustrative Gatherings."* 1862.
+To this question Whitelock had nothing to reply; but turning about, soon fell fast asleep, till he was summoned to embark.— *G. S. Bowes, in "Illustrative Gatherings."* 1862.
 
 **Verse 2.** *Clouds and darkness are round about him.* The figurative language in the poetical parts of the Old Testament is frequently taken from the historical books, and refers to the facts therein recorded: thus the appearances of God to the saints and patriarchs in old times is the origin of the figure in our text. If you look at the history of these appearances, you will find they were all accompanied with clouds and darkness. The cloud of the Lord went before the children of Israel when they departed from the land of bondage. This cloud had a dark and bright side, and was a symbol of the divine presence. Thus it preceded the people in all their marches, as a pillar of fire by night, and of a cloud by day. When Solomon dedicated the temple, the glory of the Lord filled the house, and the priest could not enter into the house of the Lord, because the glory of the Lord filled the house. When God descended upon Mount Sinai, "there were thunders and lightnings, and a thick cloud upon the mount, and the voice of the trumpet exceeding loud. And Mount Sinai was altogether on a smoke, because the Lord descended upon it in fire; and the smoke thereof ascended as the smoke of a furnace, and the whole mount quaked greatly. And the Lord came down upon Mount Sinai, upon the top of the mount" (Ex 19:16,18,20). When our Saviour was transfigured before three of his disciples, "a bright cloud overshadowed them", from which proceeded the voice of the Father, saying, "This is my beloved Son, in whom I am well pleased; hear ye him." And Peter, who was present there, afterwards referring to the fact, says that the voice proceeded "from the excellent glory." Thus, in all the symbols of the divine presence, there was a mixture of splendour with darkness and obscurity. So it is in the operations of Providence: in a moral and figurative sense, we may say that clouds and darkness surround all the operations of divine power and wisdom. Clouds are emblems of obscurity; darkness, of distress. The works of God's providence are often obscure and productive of distress to mankind, though righteousness and judgment are the habitation of his throne.— *Robert Hall.* 
 
@@ -160,7 +160,7 @@ Sends all his awful judgments down.
 
 — *Aeschylus (R. Potter's translation,* 1808.)
 
-**Verse 3.** *A fire goeth before him.* Like a marshall or advance guard before a royal presence, or as the javelin men who precede a judge. Fire is the sign both of grace and wrath (Ex 3:2 Ps 18:9.) Majesty marches forth in both displays of Deity.— *C.H.S. from Poli Synopsis.* 
+**Verse 3.** *A fire goeth before him.* Like a marshall or advance guard before a royal presence, or as the javelin men who precede a judge. Fire is the sign both of grace and wrath (Ex 3:2 Ps 18:9.) Majesty marches forth in both displays of Deity.— *C. H. S. from Poli Synopsis.* 
 
 **Verse 3.** *A fire goeth before him.* That fire which Christ came to send upon the earth, the kindling blaze of the Holy Ghost, which came down in tongues of fire at Pentecost, to burn freely throughout the world, for the destruction of obstinate unbelievers, and the purifying of those who gladly received the Word. And of this the prophet spake, saying, "I will send a fire on Magog, and among them that dwell carelessly its the isles: and they shall know that I am the LORD." (Eze 39:6.) This divine flame goes still before the face of the Lord in his coming to every faithful soul, as it kindles with longing for him, and burns up all its sins therewith, as he heaps his coals of fire upon its head, to soften and purify it. "It must needs be", teaches a great saint, (S. Bernard.) "that the fervour of holy desire must go before his face to every soul to which he means to come, a flame which will burn up all the mildew of sin, and make ready a place for the Lord. And then the soul knows that the Lord is at hand, when it feels itself kindled with that fire, and it saith with the prophet, `My heart was hot within me; then spake I with my tongue.'"(Ps 39:3).— *Augustine, and others, quoted by Neale and Littledale.* 
 
@@ -168,9 +168,9 @@ Sends all his awful judgments down.
 
 **Verse 4.** *His lightnings enlightened the world.* This passage is applied by Munster to the rapid increase of the kingdom of Christ: for the sound of the Gospel sped through all the world like lightning. There is a prediction almost to this effect in Zec 9:14: "His arrow shall go forth as the lightning, and the Lord God shall blow the trumpet."— *Martin Geier.* 
 
-**Verse 4.** *The earth saw and trembled.* The bare sight of thee caused the earth to tremble (Ps 77:16).— *A.R. Faussett.* 
+**Verse 4.** *The earth saw and trembled.* The bare sight of thee caused the earth to tremble (Ps 77:16).— *A. R. Faussett.* 
 
-**Verse 5.** *The hills melted like wax at the presence of the LORD.* For a parallel passage see Mic 1:4. There the words are applied to the judgment of God about to fall on the people of the covenant: here they are applied to the judgment on the God opposing world. The fact that judgment has begun at the house of God is a token that judgments of a far more destructive kind will overtake the (openly) ungodly and sinners (1Pe 4:7). *"The hills"* symbolize the heights or man's self exalting pride of intellect, wealth, and power.— *A.R. Faussett.* 
+**Verse 5.** *The hills melted like wax at the presence of the LORD.* For a parallel passage see Mic 1:4. There the words are applied to the judgment of God about to fall on the people of the covenant: here they are applied to the judgment on the God opposing world. The fact that judgment has begun at the house of God is a token that judgments of a far more destructive kind will overtake the (openly) ungodly and sinners (1Pe 4:7). *"The hills"* symbolize the heights or man's self exalting pride of intellect, wealth, and power.— *A. R. Faussett.* 
 
 **Verse 5.** *The Lord of the whole earth.* In this title lies concealed the reason for the liquefaction of the hills, for the God who here manifests himself is he who created the earth, and is able therefore to reduce it to nothing.— *Martin Geier.* 
 
@@ -190,17 +190,17 @@ Sends all his awful judgments down.
 
 **Verse 7.** *Worship him, all ye gods*, or *Let all the angels of God worship him.* The matter of the psalm itself makes it manifest that the Holy Ghost treats in it about God's bringing in the firstborn into the world, and the setting up of his kingdom in him. A kingdom is described wherein God would reign, which should destroy idolatry and false worship; a kingdom wherein the isles of the Gentiles should rejoice, being called to an interest therein; a kingdom that was to be preached, proclaimed, declared, unto the increase of light and holiness in the world, with the manifestation of the glory of God unto the ends of all the earth: every part whereof declareth the kingdom of Christ to be intended in the psalm, and consequently that it is a prophecy of the bringing in of the first begotten into the world. Our inquiry is, whether the angels be intended in these words. They are Myhla-lk *omnes dii;* and are so rendered by Jerome, *Adorate eum, omnes dii;* and by our authorised version, *"Worship him, all ye gods."* The preceding words are, *"Confounded be all they that serve graven images",* Mylylab Myllhtmh, *that boast themselves in* or *of "idols", "vanities, nothings",* as the word signifies, wherein ensues this apostrophe, *"Worship him,* Myhla-lb, *all ye gods."* And who they are is our present inquiry. Some, as all the modern Jews, say that it is the gods of the Gentiles, those whom they worship, that are intended; so making Myhla and owlyla, *"gods",* and *"vain idols",* to be the same in this place. But
 
-1\.It cannot be that the psalmist should exhort the *idols of the heathen,* some whereof were *devils,* some *dead men,* some *inanimate parts of the creations,* unto a reverential worshipping of God reigning over all. Hence the Targumist, seeing the vanity of that interpretation, perverts the words, and renders them, "Worship before Him, all ye nations which serve idols."
+1\. It cannot be that the psalmist should exhort the *idols of the heathen,* some whereof were *devils,* some *dead men,* some *inanimate parts of the creations,* unto a reverential worshipping of God reigning over all. Hence the Targumist, seeing the vanity of that interpretation, perverts the words, and renders them, "Worship before Him, all ye nations which serve idols."
 
-2\.Myhla, "Elohim", is so far in this place from being exegetical of Mylyla *"gods",* or *"vain idols";* that it is put in direct opposition to it, as is evident from the words themselves.
+2\. Myhla, "Elohim", is so far in this place from being exegetical of Mylyla *"gods",* or *"vain idols";* that it is put in direct opposition to it, as is evident from the words themselves.
 
-3\.The word Elohim, which most frequently denotes the true God, doth never alone, and absolutely taken, signify *false gods* or idols, but only when it is joined with some other word discovering its application, as *his god,* or *their gods,* or *the gods of this or that people,* in which case it is rendered by the LXX., (Septuagint) sometimes eidwlon an "idol"; sometimes ceiropoihton, an "idol made with hands"; sometimes bdelugma an "abomination." But here it hath no such limitation or restriction.
+3\. The word Elohim, which most frequently denotes the true God, doth never alone, and absolutely taken, signify *false gods* or idols, but only when it is joined with some other word discovering its application, as *his god,* or *their gods,* or *the gods of this or that people,* in which case it is rendered by the LXX., (Septuagint) sometimes eidwlon an "idol"; sometimes ceiropoihton, an "idol made with hands"; sometimes bdelugma an "abomination." But here it hath no such limitation or restriction.
 
 Whereas, therefore, there are some creatures who, by reason of some peculiar excellency and likeness unto God, or subordination unto him in their work, are called gods, it must be those, or some of them, that are intended in the expression. Now these are either *magistrates* or *angels.* 
 
 1\. *Magistrates* are somewhere called elohim, because of the representation they make of God in his power, and their peculiar subordination unto him in their working. The Jews, indeed, contend that no other magistrates but those only of the great Sanhedrim are anywhere called gods; but that concerns not our present inquiry. Some magistrates are so called, but none of them are intended by the psalmist, there being no occasion administered unto him of any such apostrophe unto them.
 
-2\.Angels are called elohim: Degomenoi yeoi, 1Co 8:5. They have the name of God attributed unto them, and these are they whom the psalmist speaks unto. Having called on the whole creation to rejoice in the bringing forth of the kingdom of God, and pressed his exhortation upon things on the earth, he turns unto the ministering angels, and calls on them to the discharge of their duty unto the King of that kingdom. Hence the Targamist, in the beginning of Ps 96:1-13 expressly mentioned "his high angels", joining in his praise and worship, using the Greek word aggelov, for distinction's sake, as on the same account it often occurs in the Targum.
+2\. Angels are called elohim: Degomenoi yeoi, 1Co 8:5. They have the name of God attributed unto them, and these are they whom the psalmist speaks unto. Having called on the whole creation to rejoice in the bringing forth of the kingdom of God, and pressed his exhortation upon things on the earth, he turns unto the ministering angels, and calls on them to the discharge of their duty unto the King of that kingdom. Hence the Targamist, in the beginning of Ps 96:1-13 expressly mentioned "his high angels", joining in his praise and worship, using the Greek word aggelov, for distinction's sake, as on the same account it often occurs in the Targum.
 
 We have thus evinced that the psalm treats about the bringing in of the firstborn into the world; as also that they are the ministering angels who are here commanded to worship him.— *John Owen.* 
 
@@ -236,7 +236,7 @@ Of her Tithonus rising, sowed the earth
 
 With dewy light.
 
-— *C.R. Kennedy's Translation of Virgil.* 
+— *C. R. Kennedy's Translation of Virgil.* 
 
 **Verse 11.** *Light is sown.* 
 
@@ -252,7 +252,7 @@ Advancing, sowed the earth with orient pearl.
 
 1\. *Of God's eternal decree,* in his power, promise, grace and love. These are the "upper springs."
 
-2\.In the field of their *graces,* and holy *duties;* these are the "nether springs"; both which fall into one river, and "make glad the city of God"; both these fields yield a plentiful harvest of comfort to the godly.— *John Sheffield, in "The Rising Sun,"* 1654.
+2\. In the field of their *graces,* and holy *duties;* these are the "nether springs"; both which fall into one river, and "make glad the city of God"; both these fields yield a plentiful harvest of comfort to the godly.— *John Sheffield, in "The Rising Sun,"* 1654.
 
 **Verse 11.** *Sown.* The righteous man's harvest is secret and hidden. It lieth, like the corn covered in the ground; "their life is hid"; and "it is not manifest what they shall be"; "no eye hath seen, or ear heard, neither hath it entered into the heart of man, what the Lord hath laid up for them that love him" (Col 3:3 1Jo 3:2 1Co 2:9). Name what you can, and it will be a mystery, a secret thing, that belongs to the upright in heart. First, is not the decree of God a hidden thing? a depth unsearchable? and able to make a man astonished? Did not Paul cry out, "O the depth of the riches both of the wisdom and knowledge of God! how unsearchable are his judgments, and his ways past finding out!" (Ro 12:33). And is not the incarnation of Christ a secret too? what more to be admired than that God should become man, and be manifested in the flesh? The very angels desired to peep into this mystery. 1Ti 3:16 1Pe 1:12 Isa 7:14. Again, the conversion and regeneration of a sinner is admirable; it's a noble, yet a secret work: Nicodemus a great doctor could not see it. And if natural births be so strange, what shall we judge of this? Moreover, peace of conscience and joy in the Holy Ghost is no open matter; none knoweth it, but he that hath it. So is the earnest of the Spirit, and true seal of salvation; the power, life and sweetness of the word; the remission and pardon of sin, with certainty of salvation. And in the fifth place, the harvest is secret, if we consider where it is growing. One close is, *the secret purpose of God;* and who can understand it? A second is, *his word;* and how hardly is that to be searched into? A third is, *a man's own heart;* and is not that both secret and deceitful? And last of all, the very principal part of the harvest is hid *with Christ in heaven;* and when he appears, it will appear what it shall be.— *John Barlow.* 
 
@@ -262,19 +262,19 @@ Advancing, sowed the earth with orient pearl.
 
 **Verse 12.** *Rejoice in the Lord.* 
 
-1\.Our rejoicing in the Lord denotes our taking a very sincere and cordial pleasure in whatever relates to the ever blessed God, particularly his existence, perfections, and providence; the discoveries of his will to us, especially in his word; the interest we have in him, and the relations wherein we stand to him; his continual protection, guidance and influence; his gracious intercourse with us in the duties of religious worship; and, finally, the hope he has given us of fulness of joy, in his beatific and most glorious presence above.
+1\. Our rejoicing in the Lord denotes our taking a very sincere and cordial pleasure in whatever relates to the ever blessed God, particularly his existence, perfections, and providence; the discoveries of his will to us, especially in his word; the interest we have in him, and the relations wherein we stand to him; his continual protection, guidance and influence; his gracious intercourse with us in the duties of religious worship; and, finally, the hope he has given us of fulness of joy, in his beatific and most glorious presence above.
 
-2\.Rejoicing in the Lord signifies that our joy in God is superior to all our other joys, otherwise it is a joy unworthy of him, and no way, or not savingly, profitable to us.
+2\. Rejoicing in the Lord signifies that our joy in God is superior to all our other joys, otherwise it is a joy unworthy of him, and no way, or not savingly, profitable to us.
 
-3\.Whatever else we rejoice in, we are to rejoice in such a manner, that we may be properly said to rejoice in the Lord, even when other things are the immediate occasions of our joy. The God we serve is not an envious and a malevolent Being, but exceeding liberal and kind; he has created us with an inextinguishable desire after happiness, as a secret intimation that he intends to make us happy, if we do not make ourselves miserable; and while our principal happiness is lodged in himself, and to be found nowhere else, (in which he has shown the singular regard he has to our nature), he feeds our hearts with a thousand little rivulets of joy and satisfaction from created objects: our bodies are endowed with a variety of senses and appetites, and our souls with powers and faculties of their own; nor was any one sense or faculty made in vain, or to lie always idle and useless; but every sense, and much more every mental faculty, has not one, but a great number of things provided to entertain it. But then the soul is not to lose itself in this maze and labyrinth of delight; it is not by this variety to be diverted from that one infinite good, who eminently contains in himself all the various kinds and degrees of true joy.— *Henry Grove,* 1683-1737/8.
+3\. Whatever else we rejoice in, we are to rejoice in such a manner, that we may be properly said to rejoice in the Lord, even when other things are the immediate occasions of our joy. The God we serve is not an envious and a malevolent Being, but exceeding liberal and kind; he has created us with an inextinguishable desire after happiness, as a secret intimation that he intends to make us happy, if we do not make ourselves miserable; and while our principal happiness is lodged in himself, and to be found nowhere else, (in which he has shown the singular regard he has to our nature), he feeds our hearts with a thousand little rivulets of joy and satisfaction from created objects: our bodies are endowed with a variety of senses and appetites, and our souls with powers and faculties of their own; nor was any one sense or faculty made in vain, or to lie always idle and useless; but every sense, and much more every mental faculty, has not one, but a great number of things provided to entertain it. But then the soul is not to lose itself in this maze and labyrinth of delight; it is not by this variety to be diverted from that one infinite good, who eminently contains in himself all the various kinds and degrees of true joy.— *Henry Grove,* 1683-1737/8.
 
 **Verse 12.** *Rejoice...and give thanks.* Two things are to be observed: One, that he unites joy in the Lord and praise of God. Rightly: for it is not possible for a man to praise the Lord truly and from the soul, unless he rejoices in Him. Another, that he connects the praise of God with the remembrance of his holiness. And with good reason: for it is the chief use of divine praise, that by the exercise thereof, we should keep fresh in our souls the remembrance of God and of all the blessings received from Him. Thus this verse contains the root and fruit of divine praise. The root is joy in God; the fruit is the remembrance of God and his goodness.— *Musculus.* 
 
 **Verse 12.** *Ye righteous...all ye that are upright in heart.* Some may say the *just* or the *righteous* man may thus rejoice; but where are any such? "Who can say", saith Solomon, "I have made my heart clean, I am pure from my sin?" No; "There is not a just man upon earth, that doeth good, and sinneth not." A vain thing may as seem then to exhort men to rejoice, when the condition annexed is such as excludes all from rejoicing To what end is it to incite the *just* to rejoice when there are none such that may rejoice? The answer is ready at hand in the latter part of the verse. By *just* are meant all such as are *"upright in heart",* which clause is added partly to exclude the hypocrite, and partly to temper and qualify the rigour of the term before used, if it were strictly and exactly taken. So that it is a note as well of *extent,* as of *restraint.* 
 
-1\.Of *restraint,* to exclude from this joy, and all right therein, all dissemblers, all counterfeit Christians, all hollow hearted hypocrites, that repent in the face but not in the heart; that make a sour face that they may seem to fast, saith our Saviour, that justify themselves in the sight of men, but God seeth their hearts what they are, and seeth them to be far other than either they should be, or they pretend themselves to be.
+1\. Of *restraint,* to exclude from this joy, and all right therein, all dissemblers, all counterfeit Christians, all hollow hearted hypocrites, that repent in the face but not in the heart; that make a sour face that they may seem to fast, saith our Saviour, that justify themselves in the sight of men, but God seeth their hearts what they are, and seeth them to be far other than either they should be, or they pretend themselves to be.
 
-2\.Of *extent,* to extend and enlarge this joy, the ground of it and the right to it, to all that are single and sincere hearted; and so to give and afford a share and a portion in it as well to those that are sincerely righteous on earth, as to those that are perfectly righteous in heaven. It is as a *key* to let in the one. It is as a *bolt* to bar out the other.— *Thomas Gataker.* 
+2\. Of *extent,* to extend and enlarge this joy, the ground of it and the right to it, to all that are single and sincere hearted; and so to give and afford a share and a portion in it as well to those that are sincerely righteous on earth, as to those that are perfectly righteous in heaven. It is as a *key* to let in the one. It is as a *bolt* to bar out the other.— *Thomas Gataker.* 
 
 ## Hints to the Village Preacher
 
@@ -282,31 +282,31 @@ Advancing, sowed the earth with orient pearl.
 
 **Verses 3-6.** The accompaniments of Christ's gospel advent.
 
-1\.The fire of his Spirit.
+1\. The fire of his Spirit.
 
-2\.The light of the word.
+2\. The light of the word.
 
-3\.The commotion in the world.
+3\. The commotion in the world.
 
-4\.The removal of obstacles.
+4\. The removal of obstacles.
 
-5\.The display of the divine glory.
+5\. The display of the divine glory.
 
 **Verses 4-5.** 
 
-1\.The terrors which accompanied the giving of the law: "his lightnings", etc.
+1\. The terrors which accompanied the giving of the law: "his lightnings", etc.
 
-2\.The reasons for those terrors. (a) To show the guilt of man. (b) His inability to keep the law. (c) To show his need of a law fulfiller on his behalf.— *G.R.* 
+2\. The reasons for those terrors. (a) To show the guilt of man. (b) His inability to keep the law. (c) To show his need of a law fulfiller on his behalf.— *G. R.* 
 
 **Verses 4-6.** A description of the giving of the law.
 
-1\.The lawgiver's heralds, or, *conviction,* Ps 97:4.
+1\. The lawgiver's heralds, or, *conviction,* Ps 97:4.
 
-2\.The effect of his presence, or, *contrition,* Ps 97:5.
+2\. The effect of his presence, or, *contrition,* Ps 97:5.
 
-3\.The proclamation of the law, or, *instruction* (as by a voice from heaven, Ps 97:6).
+3\. The proclamation of the law, or, *instruction* (as by a voice from heaven, Ps 97:6).
 
-4\.The effect of the lawgiving, or, divine *manifestation* (Ps 97:6, latter clause).— *C.D.* 
+4\. The effect of the lawgiving, or, divine *manifestation* (Ps 97:6, latter clause).— *C. D.* 
 
 **Verse 5.** The presence of God in the church her invincible power.
 
@@ -314,29 +314,29 @@ Advancing, sowed the earth with orient pearl.
 
 **Verse 8.** 
 
-1\.The world is terrified at the divine judgments.
+1\. The world is terrified at the divine judgments.
 
-2\.The church rejoices in them, "Zion heard", etc.;
+2\. The church rejoices in them, "Zion heard", etc.;
 
 or,
 
-1\.When the world is glad the church is sad.
+1\. When the world is glad the church is sad.
 
-2\.When the world is sad the church is glad.— *G.R.* 
-
-**Verse 10.** 
-
-1\.What you do now: "Love the Lord." Reciprocally, personally, supremely, habitually, progressively.
-
-2\.What you must do: "Hate evil." Evil working, evil writing, evil speaking, evil thinking; renounce evil, master it, supplant it.— *W.J.* 
+2\. When the world is sad the church is glad.— *G. R.* 
 
 **Verse 10.** 
 
-1\.The distinguishing peculiarity of the people of God: "Ye that love the Lord."
+1\. What you do now: "Love the Lord." Reciprocally, personally, supremely, habitually, progressively.
 
-2\.Its manifestation: "Hate evil."
+2\. What you must do: "Hate evil." Evil working, evil writing, evil speaking, evil thinking; renounce evil, master it, supplant it.— *W. J.* 
 
-3\.Its reward: "The Lord preserveth", etc.; "He delivereth", etc.— *G.R.* 
+**Verse 10.** 
+
+1\. The distinguishing peculiarity of the people of God: "Ye that love the Lord."
+
+2\. Its manifestation: "Hate evil."
+
+3\. Its reward: "The Lord preserveth", etc.; "He delivereth", etc.— *G. R.* 
 
 **Verses 10-11.** David notes in God three characteristics of a true friend: First with fidelity and good will He keepeth the souls of the pious. Secondly, with his power and majesty He delivereth them from their enemies. Thirdly, with his wisdom and holiness He enlightens and refreshes them.— *Le Blanc.* 
 
@@ -364,19 +364,19 @@ or,
 
 **Verse 12.** *Give thanks at the remembrance of his holiness.* Be thankful for—
 
-1\.Its unsullied perfection.
+1\. Its unsullied perfection.
 
-2\.Its wondrous forbearance.
+2\. Its wondrous forbearance.
 
-3\.Its place in our salvation.
+3\. Its place in our salvation.
 
-4\.Its approachableness through Christ.
+4\. Its approachableness through Christ.
 
-5\.Its predicted triumphs.— *W.J.* 
+5\. Its predicted triumphs.— *W. J.* 
 
 **Verse 12.** 
 
-1\.A remembrance at which the world does not give thanks.
+1\. A remembrance at which the world does not give thanks.
 
-2\.Reasons which make it a matter of thanksgiving with the righteous. Its bearing on the way of salvation; on the doctrines of the gospel; on the law of the Christian life.— *C.D.* 
+2\. Reasons which make it a matter of thanksgiving with the righteous. Its bearing on the way of salvation; on the doctrines of the gospel; on the law of the Christian life.— *C. D.* 
 

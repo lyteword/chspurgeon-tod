@@ -106,25 +106,25 @@ The Lord began with his chosen nation upon a great scale, doing great wonders fo
 
 **Verse 7.** To *answer in the secret place of thunder,* refers us to the pillar of cloud and fire, the habitation of the awful Majesty of God, whence God glanced with angry eyes upon the Egyptians, filled them with consternation and overthrew them. *Venema.* 
 
-**Verse 10.** *Open thy mouth wide, and I will fill it.* Surely this teaches us, that the greater and more valuable the blessings are which we implore from the divine beneficence, the more sure shall we be to receive them in answer to prayer...But, though men are to be blamed, that they so seldom acknowledge God in any thing, yet they are still more to be blamed, that they seek not from him the chief good. Men may, however, possibly cry to God for inferior things, and apply in vain. Even good men may ask for temporal blessings, and not receive them; because the things we suppose good, may *not* be good, or not good *for us,* or not good for us *at present.* But none shall seek God for the best of blessings in vain. If we ask *enough,* we shall have it. While the worldling drinks in happiness, if it will bear the name, with the mouth of an insect, the Christian imbibes bliss with the mouth of an angel. His pleasures are the same in kind, with the pleasure of the infinitely happy God. *John Ryland.* 
+**Verse 10.** *Open thy mouth wide, and I will fill it.* Surely this teaches us, that the greater and more valuable the blessings are which we implore from the divine beneficence, the more sure shall we be to receive them in answer to prayer... But, though men are to be blamed, that they so seldom acknowledge God in any thing, yet they are still more to be blamed, that they seek not from him the chief good. Men may, however, possibly cry to God for inferior things, and apply in vain. Even good men may ask for temporal blessings, and not receive them; because the things we suppose good, may *not* be good, or not good *for us,* or not good for us *at present.* But none shall seek God for the best of blessings in vain. If we ask *enough,* we shall have it. While the worldling drinks in happiness, if it will bear the name, with the mouth of an insect, the Christian imbibes bliss with the mouth of an angel. His pleasures are the same in kind, with the pleasure of the infinitely happy God. *John Ryland.* 
 
 **Verse 10.** *Open thy mouth wide, and I will fill it.* You may easily over expect the creature, but you cannot over expect God: "Open thy mouth wide, and I will fill it; "widen and dilate the desires and expectations of your souls, and God is able to fill every chink to the vastest capacity. This honours God, when we greaten our expectations upon him, it is a sanctifying of God in our hearts. *Thomas Case (1598-1682), in "Morning Exercises."* 
 
 **Verse 10.** *Open thy mouth wide.* This implies,
 
-1\.Warmth and fervency in prayer. To open the mouth is in effect to open the heart, that it may be both engaged and enlarged... We may be said to open our mouths wide when our affections are quick and lively, and there is a correspondence between the feelings of the heart and the request of the lips; or when we really pray, and not merely seem to do so. This is strongly and beautifully expressed in Ps 119:131: *I opened my mouth, and panted: for I longed for thy commandments.* 
+1\. Warmth and fervency in prayer. To open the mouth is in effect to open the heart, that it may be both engaged and enlarged... We may be said to open our mouths wide when our affections are quick and lively, and there is a correspondence between the feelings of the heart and the request of the lips; or when we really pray, and not merely seem to do so. This is strongly and beautifully expressed in Ps 119:131: *I opened my mouth, and panted: for I longed for thy commandments.* 
 
-2\.It implies a holy fluency and copiousness of expression, so as to order our cause before him, and fill our mouths with arguments. When the good man gets near to God, he has much business to transact with him, many complaints to make, and many blessings to implore; and, as such seasons do not frequently occur, he's the more careful to improve them. He then pours out his whole soul, and is at no loss for words; for when the heart is full, the tongue overflows. Sorrow and distress will even make those eloquent who are naturally slow of speech.
+2\. It implies a holy fluency and copiousness of expression, so as to order our cause before him, and fill our mouths with arguments. When the good man gets near to God, he has much business to transact with him, many complaints to make, and many blessings to implore; and, as such seasons do not frequently occur, he's the more careful to improve them. He then pours out his whole soul, and is at no loss for words; for when the heart is full, the tongue overflows. Sorrow and distress will even make those eloquent who are naturally slow of speech.
 
-3\.Enlarged hope and expectation. We may be too irreverent in our approaches to God, and too peremptory in our application; but if the matter and manner of our prayer be right, we cannot be too confident in our expectations from him... Open thy mouth wide then, O Christian; stretch out thy desires to the uttermost, grasp heaven and earth in thy boundless wishes, and believe there is enough in God to afford the full satisfaction. Not only come, but come with boldness to the throne of grace: it is erected for sinners, even the chief of sinners. Come to it then, and wait at it, till you obtain mercy and find grace to help in time of need. Those who expect most from God are likely to receive the most. The desire of the righteous, let it be ever so extensive, shall be granted. *Benjamin Beddome.* 
+3\. Enlarged hope and expectation. We may be too irreverent in our approaches to God, and too peremptory in our application; but if the matter and manner of our prayer be right, we cannot be too confident in our expectations from him... Open thy mouth wide then, O Christian; stretch out thy desires to the uttermost, grasp heaven and earth in thy boundless wishes, and believe there is enough in God to afford the full satisfaction. Not only come, but come with boldness to the throne of grace: it is erected for sinners, even the chief of sinners. Come to it then, and wait at it, till you obtain mercy and find grace to help in time of need. Those who expect most from God are likely to receive the most. The desire of the righteous, let it be ever so extensive, shall be granted. *Benjamin Beddome.* 
 
 **Verse 10.** *I will fill it.* Consider the import of the promise: *Open thy mouth wide, and I will fill it.* "Ask, and ye shall receive; seek, and ye shall find." Particularly,
 
-1\.If we open our mouths to God in prayer, he will fill them more and more with suitable petitions and arguments. When we attempt to open the mouth, God will open it still wider. Thus he dealt with Abraham when he interceded for Sodom; the longer he prayed, the more submissive and yet the more importunate he became. By praying we increase our ability to pray, and find a greater facility in the duty. "To him that hath shall be given, and he shall have more abundantly."
+1\. If we open our mouths to God in prayer, he will fill them more and more with suitable petitions and arguments. When we attempt to open the mouth, God will open it still wider. Thus he dealt with Abraham when he interceded for Sodom; the longer he prayed, the more submissive and yet the more importunate he became. By praying we increase our ability to pray, and find a greater facility in the duty. "To him that hath shall be given, and he shall have more abundantly."
 
-2\.God will fill the mouth with abundant thanksgivings. Many of David's psalms begin with prayer, and end with the most animated praises. No mercies so dispose to thankfulness as those which are received in answer to prayer; for according to the degree of desire will be the sweetness of fruition...
+2\. God will fill the mouth with abundant thanksgivings. Many of David's psalms begin with prayer, and end with the most animated praises. No mercies so dispose to thankfulness as those which are received in answer to prayer; for according to the degree of desire will be the sweetness of fruition...
 
-3\.We shall be filled with those blessings we pray for, if they are calculated to promote our real good and the glory of God. Do we desire fresh communications of grace, and manifestations of divine love; a renewed sense of pardoning mercy, and an application of the blood of Christ? Do we want holiness, peace, and assurance? Do we want to hear from God, to see him, and be like him? The promise is, *My God shall supply all your need according to his riches in glory by Christ Jesus,* Php 4:19. You shall have what you desire, and be satisfied: it shall be enough, and you shall think it so. "The Lord will give grace and glory: no good thing will he withhold from them that walk uprightly." *Benjamin Beddome.* 
+3\. We shall be filled with those blessings we pray for, if they are calculated to promote our real good and the glory of God. Do we desire fresh communications of grace, and manifestations of divine love; a renewed sense of pardoning mercy, and an application of the blood of Christ? Do we want holiness, peace, and assurance? Do we want to hear from God, to see him, and be like him? The promise is, *My God shall supply all your need according to his riches in glory by Christ Jesus,* Php 4:19. You shall have what you desire, and be satisfied: it shall be enough, and you shall think it so. "The Lord will give grace and glory: no good thing will he withhold from them that walk uprightly." *Benjamin Beddome.* 
 
 **Verse 10.** The custom is said still to exist in Persia that when the king wishes to do a visitor, an ambassador for instance, especial honour, he desires him to open his mouth wide; and the king then crams it as full of sweetmeats as it will hold; and sometimes even with jewels. Curious as this custom is, it is doubtless referred to in Ps 81:10: *Open thy mouth wide, and I will fill it;* not with baubles of jewels, but with far richer treasure. *John Gadsby.* 
 
@@ -134,7 +134,7 @@ The Lord began with his chosen nation upon a great scale, doing great wonders fo
 
 **Verse 11.** *Israel would none of me.* That is, would not be content alone with me, would not *take quiet contentment in me* (as the Hebrew word signifies); the Lord was not good enough for them, but their hearts went out from him to other things. *Thomas Sheppard, 1605-1649.* 
 
-**Verse 12.** *So I gave them up.* The word *give up* suggests the idea of a *divorce,* whereby a husband sends away a capricious wife, and commands her to live by herself...Transferred to God, it teaches us nothing else than that God withdraws his *protecting* and *guiding* hand from the people, and leaves them to themselves; so that he ceases to chasten and defend them, but, on the other hand, suffers them *to become hardened and to perish. Venema.* 
+**Verse 12.** *So I gave them up.* The word *give up* suggests the idea of a *divorce,* whereby a husband sends away a capricious wife, and commands her to live by herself... Transferred to God, it teaches us nothing else than that God withdraws his *protecting* and *guiding* hand from the people, and leaves them to themselves; so that he ceases to chasten and defend them, but, on the other hand, suffers them *to become hardened and to perish. Venema.* 
 
 **Verse 12.** *So I gave them up unto their own hearts' lusts,* etc. A man may be given up to Satan for the destruction of the flesh, that the soul may be saved, but to be given up to sin is a thousand times worse, because that is the fruit of divine anger, in order to the damnation of the soul; here God wounds like an enemy and like a cruel one, and we may boldly say, God never punished any man or woman with this spiritual judgment in kindness and love. *John Shower (1657-1715), in "The Day of Grace."* 
 
@@ -174,11 +174,11 @@ ANSWER.—Yes; too often. It is what he usually does, when his leadings are not 
 
 **Verses 1-3.** 
 
-1\.Praise should be sincere. It can come from the people of God only.
+1\. Praise should be sincere. It can come from the people of God only.
 
-2\.It should be constant: they should praise God at all times.
+2\. It should be constant: they should praise God at all times.
 
-3\.It should be special. There should be seasons of special praise.
+3\. It should be special. There should be seasons of special praise.
 
 (a) Appointed by God, as Sabbaths and solemn feasts.
 
@@ -186,7 +186,7 @@ ANSWER.—Yes; too often. It is what he usually does, when his leadings are not 
 
 deliverances and special mercies.
 
-4\.It should be public: "sing aloud:" "bring hither, "etc. *G. R.* 
+4\. It should be public: "sing aloud:" "bring hither, "etc. *G. R.* 
 
 **Verse 4.** The rule of ordinances and worship; pleas for going beyond it; instances in various churches; the sin and danger of such will worship.
 
@@ -196,47 +196,47 @@ deliverances and special mercies.
 
 **Verse 7.** 
 
-1\.Answered prayers,—bonds of gratitude.
+1\. Answered prayers,—bonds of gratitude.
 
-2\.Former testing times,—warning memories.
+2\. Former testing times,—warning memories.
 
-3\.The present a time for new answers as it is also for fresh tests.
+3\. The present a time for new answers as it is also for fresh tests.
 
 **Verse 7.** *Waters of Meribah.* The various test points of the believer's life.
 
 **Verses 8-10.** 
 
-1\.A compassionate Father, calling to his child: *O my people, and I will testify unto thee: O Israel, if thou wilt hearken unto me.* 
+1\. A compassionate Father, calling to his child: *O my people, and I will testify unto thee: O Israel, if thou wilt hearken unto me.* 
 
-2\.A jealous sovereign, laying down his law: *There shall no strange god be in thee.* 
+2\. A jealous sovereign, laying down his law: *There shall no strange god be in thee.* 
 
-3\.An all sufficient Friend, challenging confidence: *I am the Lord thy God: open thy mouth wide, and I will fill it. Richard Cecil.* 1748-1810.
+3\. An all sufficient Friend, challenging confidence: *I am the Lord thy God: open thy mouth wide, and I will fill it. Richard Cecil.* 1748-1810.
 
 **Verses 8, 11, 13.** The command, the disobedience, the regret.
 
 **Verses 11, 12.** 
 
-1\.The sin of Israel. They would not hearken. The mouth is opened in attentive hearing: *open thy mouth wide; but* my people, etc. Their sin was greatly aggravated
+1\. The sin of Israel. They would not hearken. The mouth is opened in attentive hearing: *open thy mouth wide; but* my people, etc. Their sin was greatly aggravated
 
-1\.By what God had done for them.
+1\. By what God had done for them.
 
-2\.By the gods they had preferred to him.
+2\. By the gods they had preferred to him.
 
-2\.The punishment.
+2\. The punishment.
 
-1\.Its greatness: *I gave them up,* etc.
+1\. Its greatness: *I gave them up,* etc.
 
-2\.Its justice: *They would none of me. G. R.* 
+2\. Its justice: *They would none of me. G. R.* 
 
 **Verses 8, 11, 13.** The command, the disobedience, the regret.
 
 **Verse 13.** The excellent estate of an obedient believer.
 
-1\.Enemies subdued.
+1\. Enemies subdued.
 
-2\.Enjoyments perpetuated.
+2\. Enjoyments perpetuated.
 
-3\.Abundance possessed.
+3\. Abundance possessed.
 
 **Verses 13-14.** The sin and loss of the backslider.
 
@@ -244,11 +244,11 @@ deliverances and special mercies.
 
 **Verse 16.** 
 
-1\.Spiritual dainties.
+1\. Spiritual dainties.
 
-2\.By whom provided.
+2\. By whom provided.
 
-3\.To whom given.
+3\. To whom given.
 
-4\.With what result—"satisfied."
+4\. With what result—"satisfied."
 

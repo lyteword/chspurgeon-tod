@@ -72,7 +72,7 @@ weight: 79
 
 **Verses 1-4.** In the time of the Maccabees, Demetrius, the son of Seleuces, sent Bacchides to Jerusalem; who slew the scribes, who came to require justice, and the Assideans, the first of the children of Israel who sought peace of them. Bacchides "took of them threescore men, and slew them in one day, according to the words which he wrote, the flesh of thy saints have they cast out, and their blood have they shed round about Jerusalem, and there was none to bury them." And in that last and most fearful destruction, when the eagles of Rome were gathered round the doomed city, and the temple of which God had said, "Let us depart hence; "when one stone was not to be left upon another, when the fire was to consume the sanctuary, and the foundations of Sion were to be ploughed up; when Jerusalem was to be filled with slain, and the sons of Judah were to be crucified round her walls in such thick multitudes that no more room was left for death; when insult, and shame, and scorn was the lot of the child of Israel, as he wandered an outcast, a fugitive in all lands; when all these bitter and deadly things came upon Jerusalem, it was as a punishment for many and long repeated crimes; it was the accomplishment of a warning which had been often sent in vain. Yea, fiercely did thy foes assault thee, O Jerusalem, but thy sins more fiercely still!— *"Plain Commentary."* 
 
-**Verses 1, 4, 5.** Entering the inhabited part of the old city, and winding through some crooked, filthy lanes, I suddenly found myself on turning a sharp corner, in a spot of singular interest; the "Jews' place of Wailing." It is a small paved quadrangle; on one side are the backs of low modern houses, without door or window; on the other is the lofty wall of the Haram, of recent date above, but having below five courses of bevelled stones in a perfect state of preservation. Here the Jews are permitted to approach the sacred enclosure, and wail over the fallen temple, whose very dust is dear to them, and in whose stones they still take pleasure. Ps 102:14. It was Friday, and a crowd of miserable devotees had assembled—men and women of all ages and all nations dressed in the quaint costumes of every country of Europe and Asia. Old men were there,—pale, haggard, careworn men tottering on pilgrim staves; and little girls with white faces, and lustrous black eyes, gazing wistfully now at their parents, now at the old wall. Some were on their knees, chanting mournfully from a book of Hebrew prayers, swaying their bodies to and fro; some were prostrate on the ground, pressing forehead and lips to the earth; some were close to the wall, burying their faces in the rents and crannies of the old stones; some were kissing them, some had their arms spread out as if they would clasp them to their bosoms, some were bathing them with tears, and all the while sobbing as if their hearts would burst. It was a sad and touching spectacle. Eighteen centuries of exile and woe have not dulled their hearts' affections, or deadened their feelings of devotion. Here we see them assembled from the ends of the earth, poor, despised, down trodden outcasts,—amid the desolations of their fatherland, beside the dishonoured ruins of their ancient sanctuary,—chanting now in accents of deep pathos, and now of wild woe, the prophetic words of their own psalmist,— *O God the heathen are come into thine inheritance; thy holy temple have they defiled...We are become a reproach to our neighbours, a scorn and derision to them that are round about us. How long, Lord? wilt thou be angry for ever?—J. L. Porter, in "The Giant Cities of Bashan."* 1865.
+**Verses 1, 4, 5.** Entering the inhabited part of the old city, and winding through some crooked, filthy lanes, I suddenly found myself on turning a sharp corner, in a spot of singular interest; the "Jews' place of Wailing." It is a small paved quadrangle; on one side are the backs of low modern houses, without door or window; on the other is the lofty wall of the Haram, of recent date above, but having below five courses of bevelled stones in a perfect state of preservation. Here the Jews are permitted to approach the sacred enclosure, and wail over the fallen temple, whose very dust is dear to them, and in whose stones they still take pleasure. Ps 102:14. It was Friday, and a crowd of miserable devotees had assembled—men and women of all ages and all nations dressed in the quaint costumes of every country of Europe and Asia. Old men were there,—pale, haggard, careworn men tottering on pilgrim staves; and little girls with white faces, and lustrous black eyes, gazing wistfully now at their parents, now at the old wall. Some were on their knees, chanting mournfully from a book of Hebrew prayers, swaying their bodies to and fro; some were prostrate on the ground, pressing forehead and lips to the earth; some were close to the wall, burying their faces in the rents and crannies of the old stones; some were kissing them, some had their arms spread out as if they would clasp them to their bosoms, some were bathing them with tears, and all the while sobbing as if their hearts would burst. It was a sad and touching spectacle. Eighteen centuries of exile and woe have not dulled their hearts' affections, or deadened their feelings of devotion. Here we see them assembled from the ends of the earth, poor, despised, down trodden outcasts,—amid the desolations of their fatherland, beside the dishonoured ruins of their ancient sanctuary,—chanting now in accents of deep pathos, and now of wild woe, the prophetic words of their own psalmist,— *O God the heathen are come into thine inheritance; thy holy temple have they defiled... We are become a reproach to our neighbours, a scorn and derision to them that are round about us. How long, Lord? wilt thou be angry for ever?—J. L. Porter, in "The Giant Cities of Bashan."* 1865.
 
 **Verse 2.** *"The dead bodies of thy servants, "* etc. It is a true saying of S. Augustine, The care of our funeral, the manner of our burial, the exequial pomp, all these *magis sunt vivorum solatia quam subsidia mortuorum,* are rather comforts for the living than any way helps for the dead. To be interred profiteth not the party deceased; his body feels it not, his soul regards it not; and we know that many holy martyrs have been excluded from burial, who in a Christian scorn thereof bespoke their persecutors in words of those which were slain at Pharsalia: "You effect nothing by this anger; what matters it whether disease dissolve the body, or the funeral pile!" But yet there is an honesty (*i.e.* a right, a proper respect) which belongeth to the dead body of man. Jehu commanded Jezebel to be buried; David thanked the people of Jabesh Gilead for burying of Saul. Peter, who commanded Ananias and Sapphira, those false abdicators of their patrimony, to die, commanded to have them buried being dead. It is an axiom of charity, *Mortuo non prohibeas gratiam,* withhold not kindness from the dead. It shows our love and regard for men in our own flesh to see them buried; it manifests our faith and hope of the resurrection; and therefore when that body which is to rise again, and to be made glorious and immortal in heaven, shall be cast to the fowls of the air or beasts of the field, it argues in God great indignation against sin (Jer 22:19, of Jehoiakim, "He shall be buried as an ass is buried, and cast forth without the gates of Jerusalem"); in man inhuman and barbarous cruelty.— *John Dunster, in "Prodromus."* 1613.
 
@@ -162,11 +162,11 @@ Is even on him there.
 
 **Verse 5.** 
 
-1\.The cause of anger: jealousy.
+1\. The cause of anger: jealousy.
 
-2\.The moderation of it. If it continued for ever, the people would perish, the promises be unfulfilled, the covenant fail, and the Lord's honour be impeached.
+2\. The moderation of it. If it continued for ever, the people would perish, the promises be unfulfilled, the covenant fail, and the Lord's honour be impeached.
 
-3\.The staying of it. By prayer; by pleading his name, his glory, and the blood of Jesus.
+3\. The staying of it. By prayer; by pleading his name, his glory, and the blood of Jesus.
 
 **Verse 8.** A sinner's confession, petition, and plea.
 
@@ -176,19 +176,19 @@ Is even on him there.
 
 I. The Prayer. "Help us," etc.
 
-1\.Purge away sin.
+1\. Purge away sin.
 
-2\.Deliver us from our troubles.
+2\. Deliver us from our troubles.
 
-3\.Help us to serve thee in future.
+3\. Help us to serve thee in future.
 
 II. The Plea.
 
-1\.For thy name's sake.
+1\. For thy name's sake.
 
-2\.The glory of thy name.
+2\. The glory of thy name.
 
-3\.The glory of thy name as our salvation. The order in both cases is inverted.— *G. R.* 
+3\. The glory of thy name as our salvation. The order in both cases is inverted.— *G. R.* 
 
 **Verse 10.** The revenge for the martyrs, which it is lawful and incumbent upon us to desire.
 
@@ -196,11 +196,11 @@ II. The Plea.
 
 I. The prisoner.
 
-1\.Under forced bondage to sin.
+1\. Under forced bondage to sin.
 
-2\.Under the bondage of conviction.
+2\. Under the bondage of conviction.
 
-3\.In the dungeon of despair.
+3\. In the dungeon of despair.
 
 II. The prisoner's application for relief.
 
@@ -234,9 +234,9 @@ II. Obligation admitted: "So we," etc., when thou hast interposed for our delive
 
 III. Resolution formed.
 
-1\.To give thanks for ever.
+1\. To give thanks for ever.
 
-2\.To transmit his praise to generations following.— *G. R* 
+2\. To transmit his praise to generations following.— *G. R* 
 
 ## Works Upon The Seventy-Ninth Psalm
 

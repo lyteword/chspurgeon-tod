@@ -248,7 +248,7 @@ O thou who changest not, abide with me."
 
 **Whole Psalm.** This Psalm was very probably composed by David, and given to the Levites to sing every day: 1Ch 16:41. Solomon his son followed his example, and made use of it in singing at the dedication of the Temple (2Ch 7:3-6); as Jehoshaphat seems to have done when he went out to war against his enemies (2Ch 20:21).— *John Gill.* 
 
-**Whole Psalm.** The grand peculiarity of form in this Psalm...is the regular recurrence, at the close of every verse, of a burden or *refrain*...It has been a favourite idea with interpreters that such repetitions necessarily imply alternate or responsive choirs. But the other indications of this usage in the Psalter are extremely doubtful, and every exegetical condition may be satisfied by simply supposing that the singers, in some cases, answered their own questions, and that in others, as in that before us, the people united in the burden or chorus, as they were wont to do in the Amen.— *Joseph Addison Alexander.* 
+**Whole Psalm.** The grand peculiarity of form in this Psalm...is the regular recurrence, at the close of every verse, of a burden or *refrain*... It has been a favourite idea with interpreters that such repetitions necessarily imply alternate or responsive choirs. But the other indications of this usage in the Psalter are extremely doubtful, and every exegetical condition may be satisfied by simply supposing that the singers, in some cases, answered their own questions, and that in others, as in that before us, the people united in the burden or chorus, as they were wont to do in the Amen.— *Joseph Addison Alexander.* 
 
 **Whole Psalm.** The Psalm is called by the Greek church *Polyeleos,* from its continual mention of the mercy of God.— *Neale and Littledale.* 
 
@@ -340,15 +340,15 @@ Then trust him, and keep fast his hand,
 
 He leads thee to thy Fatherland.
 
-— *B.S., in "The Christian Treasury,"* 1865.
+— *B. S., in "The Christian Treasury,"* 1865.
 
 **Verses 1-9.** Like the preceding Psalm, this Psalm allies itself to the Book of Deuteronomy. The first clauses of Ps 136:2-3 (*God of gods* and *Lord of Lords*) are taken from De 10:17; Ps 136:12, first clause (*with a strong hand and stretched out arm*) from De 4:34, and De 5:15. Ps 136:16, first clause, is like De 8:15 (cf. Jer 2:6).— *Franz Delitzsch.* 
 
 **Verses 1-26.** All repetitions are not vain, nor is all length in prayer to be accounted babbling. For repetitions may be used,
 
-1\.When they express *fervency* and *zeal:* and so we read, Christ prayed over the same prayer thrice (Mt 26:44); "O my Father, if it be possible, let this cup pass from me." And another evangelist showeth that he did this out of special fervency of spirit (Lu 22:44); "Being in an agony, he prayed more earnestly."
+1\. When they express *fervency* and *zeal:* and so we read, Christ prayed over the same prayer thrice (Mt 26:44); "O my Father, if it be possible, let this cup pass from me." And another evangelist showeth that he did this out of special fervency of spirit (Lu 22:44); "Being in an agony, he prayed more earnestly."
 
-2\.This repetition is not to be disapproved when there is a *special emphasis,* and spiritual elegancy in it, as in Ps 136:1-26 you have it twenty-six times repeated, *For his mercy endureth for ever*, because there was a special reason in it, the Psalmist's purpose there being to show the unweariedness, and the unexhausted riches of God's free grace; that notwithstanding all the former experiences they had had, God is where he was at first. We waste by giving, our drop is soon spent; but God is not wasted by bestowing, but hath the same mercy to do good to his creatures, as before. Though he had done all those wonders for them, yet his mercy was as ready to do good to them still. All along God saved and blessed his people, *"For his mercy endureth for ever."* — *Thomas Manton.* 
+2\. This repetition is not to be disapproved when there is a *special emphasis,* and spiritual elegancy in it, as in Ps 136:1-26 you have it twenty-six times repeated, *For his mercy endureth for ever*, because there was a special reason in it, the Psalmist's purpose there being to show the unweariedness, and the unexhausted riches of God's free grace; that notwithstanding all the former experiences they had had, God is where he was at first. We waste by giving, our drop is soon spent; but God is not wasted by bestowing, but hath the same mercy to do good to his creatures, as before. Though he had done all those wonders for them, yet his mercy was as ready to do good to them still. All along God saved and blessed his people, *"For his mercy endureth for ever."* — *Thomas Manton.* 
 
 **Verse 2.** *The God of gods. "God of gods"* is an Hebrew superlative, because he is far above all gods, whether they be so reputed or deputed.— *Robert Harris.* 
 
@@ -386,7 +386,7 @@ He leads thee to thy Fatherland.
 
 **Verse 8.** *The sun. The lantern of the world (lucerna Mundi),* as Copernicus names the sun, enthroned in the centre—according to Theon of Smyrna, the all vivifying, pulsating *heart of the universe,* is the primary source of light and of radiating heat, and the generator of numerous terrestrial, electromagnetic processes, and indeed of the greater part of the organic vital activity upon our planet, more especially that of the vegetable kingdom. In considering the expression of solar force, in its widest generality, we find that it gives rise to alterations on the surface of the earth,—partly by gravitative attraction,—as in the ebb and flow of the ocean (if we except the share taken in the phenomenon by lunar attraction), partly by light and heat generating transverse vibrations of ether, as in the fructifying admixture of the aerial and aqueous envelopes of our planet, from the contact of the atmosphere with the vaporizing fluid element in seas, lakes, and rivers. The solar action operates, moreover, by differences of heat, in exciting atmospheric and oceanic currents; the latter of which have continued for thousands of years (though in an inconsiderable degree) to accumulate or waste away alluvial strata, and thus change the surface of the inundated land; it operates in the generation and maintenance of the electromagnetic activity of the earth's crust, and that of the oxygen contained in the atmosphere; at one time calling forth calm and gentle forces of chemical attraction, and variously determining organic life in the endosmose of cell walls and in tissue of muscular and nervous fibres; at another time evoking light processes in the atmosphere, such as the coloured coruscations of the polar light, thunder and lightning, hurricanes and waterspouts.
 
-Our object in endeavouring to compress in one picture the *influences of solar action,* in as far as they are independent of the orbit and the position of the axis of our globe, has been clearly to demonstrate, by an exposition of the connection existing between great, and at first sight heterogeneous, phenomena, how physical nature may be depicted in the *History of the Cosmos* as a whole, moved and animated by internal and frequently self adjusting forces. But the waves of light not only exert a decomposing and combining action on the corporeal world; they not only call forth the tender germs of plants from the earth, generate the green colouring matter (chlorophyll) within the leaf, and give colour to the fragrant blossom—they not only produce myriads of reflected images of the Sun in the graceful play of the waves, as in the moving grass of the field—but the rays of celestial light, in the varied gradations of their intensity and duration, are also mysteriously connected with the inner life of man, his intellectual susceptibilities, and the melancholy or cheerful tone of his feelings. This is what Pliny the elder referred to in these words, *"Caeli tristram discutit sol, et humani nubila animi serenat."* ("The sun chases sadness from the sky, and dissipates the clouds which darken the human heart.")— *F.H. Alexandar Von Humboldt* (1769-1859), *"Cosmos."* 
+Our object in endeavouring to compress in one picture the *influences of solar action,* in as far as they are independent of the orbit and the position of the axis of our globe, has been clearly to demonstrate, by an exposition of the connection existing between great, and at first sight heterogeneous, phenomena, how physical nature may be depicted in the *History of the Cosmos* as a whole, moved and animated by internal and frequently self adjusting forces. But the waves of light not only exert a decomposing and combining action on the corporeal world; they not only call forth the tender germs of plants from the earth, generate the green colouring matter (chlorophyll) within the leaf, and give colour to the fragrant blossom—they not only produce myriads of reflected images of the Sun in the graceful play of the waves, as in the moving grass of the field—but the rays of celestial light, in the varied gradations of their intensity and duration, are also mysteriously connected with the inner life of man, his intellectual susceptibilities, and the melancholy or cheerful tone of his feelings. This is what Pliny the elder referred to in these words, *"Caeli tristram discutit sol, et humani nubila animi serenat."* ("The sun chases sadness from the sky, and dissipates the clouds which darken the human heart.")— *F. H. Alexandar Von Humboldt* (1769-1859), *"Cosmos."* 
 
 **Verse 8.** *The sun.* 
 
@@ -538,7 +538,7 @@ I might draw considerations (for thanksgiving) from the *Author* of the mercy, *
 
 **Verse 25.** *Who giveth food to all flesh.* In the close the Psalmist speaks of the paternal providence of God as extending not only to all mankind, but to every living creature, suggesting that we have no reason to feel surprise at his sustaining the character of a kind and provident father to his own people, when he condescends to care for the cattle, and the asses of the field, and the crow, and the sparrow. Men are much better than brute beasts, and there is a great difference between some men and others, though not in merit, yet as regards the privilege of the divine adoption, and the Psalmist is to be considered as reasoning from the less to the greater and enhancing the incomparably superior mercy which God shows to his own children.— *John Calvin.* 
 
-**Verse 25.** *Who giveth food to all flesh.* Of Edward Taylor, better known as "Father Taylor", the Sailor Preacher of Boston, it is said that his prayers were more like the utterances of an Oriental, abounding in imagery, than a son of these colder western climes. The Sunday before he was to sail for Europe, he was entreating the Lord to care well for his church during his absence. All at once he stopped and ejaculated, "What have I done? Distrust the providence of heaven! A God that gives a whale a ton of herrings for a breakfast, will he not care for my children?" and then went on, closing his prayer in a more confiding strain.— *C.H. Spurgeon, in "Eccentric Preachers",* 1880.
+**Verse 25.** *Who giveth food to all flesh.* Of Edward Taylor, better known as "Father Taylor", the Sailor Preacher of Boston, it is said that his prayers were more like the utterances of an Oriental, abounding in imagery, than a son of these colder western climes. The Sunday before he was to sail for Europe, he was entreating the Lord to care well for his church during his absence. All at once he stopped and ejaculated, "What have I done? Distrust the providence of heaven! A God that gives a whale a ton of herrings for a breakfast, will he not care for my children?" and then went on, closing his prayer in a more confiding strain.— *C. H. Spurgeon, in "Eccentric Preachers",* 1880.
 
 **Verse 26.** *The God of heaven.* The phrase *"God of heaven"* is not found in the earlier Scriptures. We meet it nowhere else in the Psalms; but we meet it in 2Ch 36:23 Ezr 1:2 5:11-12 6:9 7:12,23 Ne 1:4 2:4 Da 2:18-19,44 Jon 1:9. It is twice found in the Apocalypse, Re 11:13 16:11. It is a sublime and appropriate designation of the true God, expressive of his glorious elevation above the passions and perturbations of earth. To him all flesh should give thanks, for all receive his mercy in many forms and ways. His favours come down on generation after generation, and to his willing, obedient people they shall flow on during eternal ages.— *William Swan Plumer.* 
 
@@ -550,15 +550,15 @@ I might draw considerations (for thanksgiving) from the *Author* of the mercy, *
 
 **Verse 1.** 
 
-1\.Consider his name—"Jehovah."
+1\. Consider his name—"Jehovah."
 
-2\.Carry out your joyful duty: "O give thanks."
+2\. Carry out your joyful duty: "O give thanks."
 
-3\.Contemplate the two reasons given—goodness and enduring mercy.
+3\. Contemplate the two reasons given—goodness and enduring mercy.
 
 **Verse 1.** 
 
-1\.Many subjects for praise.
+1\. Many subjects for praise.
 
 a) For the goodness of God: "He is good" (Ps 136:1).
 
@@ -570,7 +570,7 @@ d) For his works of creation in particular (Ps 136:5-9).
 
 e) For his works of Providence (Ps 136:10-26).
 
-2\.The chief subject for praise: *For his mercy endureth for ever.* 
+2\. The chief subject for praise: *For his mercy endureth for ever.* 
 
 a) For mercy. This is the sinner's principal need.
 
@@ -582,35 +582,35 @@ c) For mercy enduring for ever. If they who have sinned need mercy for ever, the
 
 **Verses 1-3.** 
 
-1\.The triplet of names: "Jehovah", "the God of gods", "the Lord of lords."
+1\. The triplet of names: "Jehovah", "the God of gods", "the Lord of lords."
 
-2\.The threefold adjuration, "O give thanks."
+2\. The threefold adjuration, "O give thanks."
 
-3\.The irrepressible attribute and argument "for his mercy", etc.— *W.B.H.* 
+3\. The irrepressible attribute and argument "for his mercy", etc.— *W. B. H.* 
 
 **Verses 1-26.** For his mercy endureth for ever. See "Spurgeon's Sermons", No. 787: "A Song, a Solace, a Sermon, and a Summons."
 
 **Verse 4.** 
 
-1\.The Lord does great wonders of mercy.
+1\. The Lord does great wonders of mercy.
 
-2\.He does them unaided.
+2\. He does them unaided.
 
-3\.He does them as none else can do.
+3\. He does them as none else can do.
 
-4\.He should have unique praise.
+4\. He should have unique praise.
 
 **Verse 4.** *The great lone Wonder worker.* 
 
-1\.God was alone in the wonderwork of Creation: Ge 1:1-31.
+1\. God was alone in the wonderwork of Creation: Ge 1:1-31.
 
-2\.Alone in the wonderwork of Redemption: Isa 63:5.
+2\. Alone in the wonderwork of Redemption: Isa 63:5.
 
-3\.Is alone in the wonderwork of Providence: Ps 104:27-28.
+3\. Is alone in the wonderwork of Providence: Ps 104:27-28.
 
-4\.Alone in the wonderwork of Sanctification: 1Th 5:23-24.
+4\. Alone in the wonderwork of Sanctification: 1Th 5:23-24.
 
-5\.Will be alone in the wonderwork of Universal Triumph: 1Co 15:25.— *C.A.D.* 
+5\. Will be alone in the wonderwork of Universal Triumph: 1Co 15:25.— *C. A. D.* 
 
 **Verse 4.** The merciful in the wonderful. The wonderful in the merciful.
 
@@ -618,107 +618,107 @@ c) For mercy enduring for ever. If they who have sinned need mercy for ever, the
 
 **Verses 7-9.** 
 
-1\.The constancy of rule.
+1\. The constancy of rule.
 
-2\.The association of light with rule.
+2\. The association of light with rule.
 
-3\.The perpetuity of mercy in this matter.
+3\. The perpetuity of mercy in this matter.
 
 **Verses 8-9.** 
 
-1\.The glory of the day of joy.
+1\. The glory of the day of joy.
 
-2\.The comforts of the night of sorrow.
+2\. The comforts of the night of sorrow.
 
-3\.The hand of God in each.
+3\. The hand of God in each.
 
 **Verse 10.** Mercy and judgment. In the stroke that filled Egypt with anguish there was conspicuous mercy.
 
-1\.Even to Egypt; the sharp stroke should have wrought repentance. So God still strives with men.
+1\. Even to Egypt; the sharp stroke should have wrought repentance. So God still strives with men.
 
-2\.Evidently to Israel; they being thus delivered; their firstborn saved.
+2\. Evidently to Israel; they being thus delivered; their firstborn saved.
 
-3\.Emphatically to the who world: power made known, Christ foreshadowed, an important link in the chain of redemption.— *W.B.H.* 
+3\. Emphatically to the who world: power made known, Christ foreshadowed, an important link in the chain of redemption.— *W. B. H.* 
 
 **Verse 11.** The bringing out of God's people from their natural state, from their misery, and from association with the ungodly, a great marvel of everlasting mercy.
 
-**Verse 11.** Effectual calling; the intervention at the determined moment of the mercy of infinite ages.— *W.B.H.* 
+**Verse 11.** Effectual calling; the intervention at the determined moment of the mercy of infinite ages.— *W. B. H.* 
 
 **Verse 12.** Displays of divine power in the history of the saints a reason for song.
 
 **Verses 13-14.** God to be praised not only,
 
-1\.For clearing our way; but also,
+1\. For clearing our way; but also,
 
-2\.For giving faith to traverse it. The last as great a mercy as the first.
+2\. For giving faith to traverse it. The last as great a mercy as the first.
 
 **Verses 13-15.** Mercy queen of the Exodus.
 
-1\.Her sceptre upon the sea. What cannot Love divine conquer for its chosen!
+1\. Her sceptre upon the sea. What cannot Love divine conquer for its chosen!
 
-2\.Her standard in the van. Whither shall saints fear to follow her?
+2\. Her standard in the van. Whither shall saints fear to follow her?
 
-3\.Her frown upon the pursuers; life to the beloved, fatal to the foe.
+3\. Her frown upon the pursuers; life to the beloved, fatal to the foe.
 
-4\.To her let there be brought the chaplet of our praises.— *W.B.H.* 
+4\. To her let there be brought the chaplet of our praises.— *W. B. H.* 
 
 **Verse 15.** Final victory.
 
-1\.Battalions of evil annihilated.
+1\. Battalions of evil annihilated.
 
-2\.Love unharmed mounting immortal above the wave: "for his mercy endureth for ever."
+2\. Love unharmed mounting immortal above the wave: "for his mercy endureth for ever."
 
-3\.Heaven resonant with the song of Moses and the Lamb, to him give thanks.— *W.B.H.* 
+3\. Heaven resonant with the song of Moses and the Lamb, to him give thanks.— *W. B. H.* 
 
 **Verse 16.** 
 
-1\.Personal care: "To him which led."
+1\. Personal care: "To him which led."
 
-2\.Peculiar interest: "His people."
+2\. Peculiar interest: "His people."
 
-3\.Persevering goodness: "Through the wilderness."
+3\. Persevering goodness: "Through the wilderness."
 
 **Verse 16.** *Led through the Wilderness.* 
 
-1\.God's people must enter the wilderness for trial, for self knowledge, for development of graces, for preparation for Canaan.
+1\. God's people must enter the wilderness for trial, for self knowledge, for development of graces, for preparation for Canaan.
 
-2\.God leads his people while in the wilderness. Their route, their provision, their discipline, their protection.
+2\. God leads his people while in the wilderness. Their route, their provision, their discipline, their protection.
 
-3\.God will bring his people out of the wilderness.— *C.A.D.* 
+3\. God will bring his people out of the wilderness.— *C. A. D.* 
 
 **Verses 17-22.** See "Spurgeon's Sermons", No. 1285: "Sihon and Og; or, Mercies in Detail."
 
 **Verse 21.** 
 
-1\.Our portion, a heritage.
+1\. Our portion, a heritage.
 
-2\.Our title deed, a royal grant: "And gave."
+2\. Our title deed, a royal grant: "And gave."
 
-3\.Our praise, due to enduring mercy.
+3\. Our praise, due to enduring mercy.
 
 **Verse 23.** Prayer of the dying thief turned into a song.
 
-**Verses 23-24.** The gracious remembrance and the glorious redemption.— *C.A.D.* 
+**Verses 23-24.** The gracious remembrance and the glorious redemption.— *C. A. D.* 
 
 **Verse 24.** Our enemies, our accomplished redemption, the author of it, and his reason for effecting it.
 
-**Verse 24.** The multiplied redemptions of the Christian life, and their inexhaustible spring.— *W.B.H.* 
+**Verse 24.** The multiplied redemptions of the Christian life, and their inexhaustible spring.— *W. B. H.* 
 
 **Verse 25.** Divine housekeeping.
 
-1\.The Royal Commissariat.
+1\. The Royal Commissariat.
 
-2\.Its spiritual counterpart: God's august providing for our immortal nature.
+2\. Its spiritual counterpart: God's august providing for our immortal nature.
 
-3\.The queenly grace that hath the keeping of the keys: "for his mercy", etc.
+3\. The queenly grace that hath the keeping of the keys: "for his mercy", etc.
 
-— *W.B.H.* 
+— *W. B. H.* 
 
 **Verse 26.** Consider,
 
-1\.How he rules in heaven.
+1\. How he rules in heaven.
 
-2\.How he rules earth from heaven.
+2\. How he rules earth from heaven.
 
-3\.How mercy is the eternal element of that rule, and therefore he is the eternal object of praise.
+3\. How mercy is the eternal element of that rule, and therefore he is the eternal object of praise.
 

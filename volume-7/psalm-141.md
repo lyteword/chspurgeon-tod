@@ -80,7 +80,7 @@ These are the *"dainties"*, for which an impotent longing and desire do betray t
 
 **Verse 2.** *Let my prayer be set forth before thee.* Margin, *directed.* The Hebrew word means to fit; to establish; to make firm. The Psalmist desires that his prayer should not be like that which is feeble, languishing, easily dissipated; but that it should be like that which is firm and secure.— *Albert Barnes.* 
 
-**Verse 2.** *Let my prayer be set forth before thee as incense.* Literally, Let my prayer, incense, be set in order before Thee,—implying that prayer was in the reality what incense was in the symbol...Passing to New Testament Scripture, though still only to that portion which refers to Old Testament times, we are told of the people without being engaged in player, while Zacharias was offering incense within the Sanctuary (Lu 1:10); they were in spirit going along with the priestly service. And in the book of Revelation the prayers of saints are once and again identified with the offering of incense on the golden altar before the throne. Re 5:8 8:3-4.— *Patrick Fairbairn, in "The Typology of Scripture."* 
+**Verse 2.** *Let my prayer be set forth before thee as incense.* Literally, Let my prayer, incense, be set in order before Thee,—implying that prayer was in the reality what incense was in the symbol... Passing to New Testament Scripture, though still only to that portion which refers to Old Testament times, we are told of the people without being engaged in player, while Zacharias was offering incense within the Sanctuary (Lu 1:10); they were in spirit going along with the priestly service. And in the book of Revelation the prayers of saints are once and again identified with the offering of incense on the golden altar before the throne. Re 5:8 8:3-4.— *Patrick Fairbairn, in "The Typology of Scripture."* 
 
 **Verse 2.** *Set forth.* Prayer is knowing work, believing work, thinking work, searching work, humbling work, and nothing worth if heart and hand do not join in it.— *Thomas Adam,* 1701-1784.
 
@@ -88,13 +88,13 @@ These are the *"dainties"*, for which an impotent longing and desire do betray t
 
 **Verse 2.** *As incense.* That in general by incense prayer is signified, the Scripture expressly testifieth. And there is a fourfold resemblance between them:
 
-1\.In that *it was beaten and pounded* before it was used. So doth acceptable prayer proceed from a broken and contrite heart: Ps 51:17.
+1\. In that *it was beaten and pounded* before it was used. So doth acceptable prayer proceed from a broken and contrite heart: Ps 51:17.
 
 2\. *It was of no use until fire was put under it*, and that taken from the altar. Nor is that prayer of any virtue or efficacy which is no *kindled by the fire from above, the Holy Spirit of God, which we have from our altar, Christ Jesus.* 
 
 3\. *It naturally ascended upwards towards heaven*, as all offerings in the Hebrew are calledtwle,"ascensions", uprisings. And this is the design of prayer, to ascend unto the throne of God: "I will direct unto thee, and will look up"; that is, pray: Ps 5:3.
 
-4\.It yielded a sweet savour; which was one end of it in temple services, wherein there was so much burning of flesh and blood. So doth prayer yield a sweet savour unto God; a savour of rest, wherein he is well pleased.— *John Owen.* 
+4\. It yielded a sweet savour; which was one end of it in temple services, wherein there was so much burning of flesh and blood. So doth prayer yield a sweet savour unto God; a savour of rest, wherein he is well pleased.— *John Owen.* 
 
 **Verse 2.** *As incense...as the evening sacrifice.* Though this address of mine must necessarily want all that solemnity of preparation required in the service of thy holy Tabernacle, the cloud of incense and perfume, etc., the "mincha" or oblation of fine flour, etc., yet let the purity and fervour of my heart, and the innocency of my hands, now lifted up to thee in tiffs sad hour of my distress, be accepted instead of all these, and prevail for deliverance and a safe retreat to me and my companions.— *Charles Peters* (—1777), in *"A Critical Dissertation on the Book of Job,"* 1751.
 
@@ -102,7 +102,7 @@ These are the *"dainties"*, for which an impotent longing and desire do betray t
 
 **Verse 2.** *My hands.* Spreading forth our hands in believing and fervent prayer is the only way of grasping mercy.— *F. E., in "The Saints of Ebenezer,"* 1667.
 
-**Verse 2.** In the gorgeous ceremonial worship of the Hebrews, none of the senses were excluded from taking part in the service...The sense of smell occupied, perhaps, the most prominent place; for the acceptance of the worship was always indicated by a symbol borrowed from this sense: "The Lord smelled a sweet savour." The prayer of the people ascended as incense, and the lifting up of their hands as the evening sacrifice. The offering of incense formed the essential part of the religious service. The altar of incense occupied one of the most conspicuous and honoured positions in the tabernacle and temple... On this altar a censer full of incense poured forth its fragrant clouds every morning and evening; and yearly, as the day of atonement came round, when the high priest entered the holy of holies, he filled a censer with live coals from the sacred fire on the altar of burnt offerings, and bore it into the sanctuary, where lie threw upon the burning coals the "sweet incense beaten small", which he had brought in his hand. Without this smoking censer lie was forbidden, on pain of death, to enter into the awful shrine of Jehovah. Notwithstanding the washing of his flesh, and the linen garments with which he was clothed, tie dare not enter the holiest of all with the blood of atonement, unless he could personally shelter himself under a cloud of incense.
+**Verse 2.** In the gorgeous ceremonial worship of the Hebrews, none of the senses were excluded from taking part in the service... The sense of smell occupied, perhaps, the most prominent place; for the acceptance of the worship was always indicated by a symbol borrowed from this sense: "The Lord smelled a sweet savour." The prayer of the people ascended as incense, and the lifting up of their hands as the evening sacrifice. The offering of incense formed the essential part of the religious service. The altar of incense occupied one of the most conspicuous and honoured positions in the tabernacle and temple... On this altar a censer full of incense poured forth its fragrant clouds every morning and evening; and yearly, as the day of atonement came round, when the high priest entered the holy of holies, he filled a censer with live coals from the sacred fire on the altar of burnt offerings, and bore it into the sanctuary, where lie threw upon the burning coals the "sweet incense beaten small", which he had brought in his hand. Without this smoking censer lie was forbidden, on pain of death, to enter into the awful shrine of Jehovah. Notwithstanding the washing of his flesh, and the linen garments with which he was clothed, tie dare not enter the holiest of all with the blood of atonement, unless he could personally shelter himself under a cloud of incense.
 
 It has been supposed by some writers that incense was invented for the purpose of concealing or neutralizing the noxious effluvia caused by the number of beasts slaughtered every day in the sanctuary. Other writers have attached a mystical import to it, and believed that it was a symbol of the breath of the world arising in praise to the Creator, the four ingredients of which it was composed representing the four elements. While a third class, looking upon the tabernacle as the palace of God, the theocratic King of Israel, and the ark of the covenant as his throne, regarded the incense as merely corresponding to the perfume so lavishly employed about the person and appointments of an Oriental monarch. It may doubtless have been intended primarily to serve these purposes and convey these meanings, but it derived its chief importance in connection with the ceremonial observances of the Mosaic ritual from the fact of its being the great symbol of prayer. It was offered at the time when the people were in the posture and act of devotion; and their prayers were supposed to be presented to God by the priest, and to ascend to him in the smoke and odour of that fragrant offering. Scripture is full of allusions to it, understood in this beautiful symbolical sense. Acceptable, prevailing prayer was a sweet smelling savour to the Lord; and prayer that was unlawful, or hypocritical, or unprofitable, was rejected with disgust by the organ of smell.
 
@@ -110,13 +110,13 @@ Doubtless the Jews felt, when they saw the soft white clouds of fragrant smoke r
 
 **Verse 3.** *Set a watch, O LORD, before my mouth*, etc.
 
-1\.A man would never use this language without a conviction of *the importance of the subject*...Everything is transacted by speech, in natural, civil, and religious concerns: how much, therefore, depends on the good or evil management of the tongue! What an ardour of holy love and friendship, or of anger and malice, may a few words fan into a flame! The tongue is the principal instrument in the cause of God; and it is the chief engine of the devil; give him this, and lie asks no more—there is no mischief or misery he will not accomplish by it. The use, the influence of it, therefore, is inexpressible; and words are never to be considered only as *effects*, but as *causes*, the operation of which can never be fully imagined. Let us suppose a case, a case, I fear, but too common. You drop, in the thoughtlessness of conversation, or for the sake of argument or wit, some irreligious, sceptical, expression—it lodges in the memory of a child, or a servant—it takes root in a soil favourable to such seed—it gradually springs up, and brings forth fruit, in the profanation of the Sabbath; the neglect of the means of grace; in the reading of improper books; in the choice of dangerous companions;—who can tell where it will end? But there is a Being who knows where it began. It will be acknowledged that some have it in their power, by reason of their office, talents, and influence, to do much more injury than others; but none are so insignificant as to be harmless.
+1\. A man would never use this language without a conviction of *the importance of the subject*... Everything is transacted by speech, in natural, civil, and religious concerns: how much, therefore, depends on the good or evil management of the tongue! What an ardour of holy love and friendship, or of anger and malice, may a few words fan into a flame! The tongue is the principal instrument in the cause of God; and it is the chief engine of the devil; give him this, and lie asks no more—there is no mischief or misery he will not accomplish by it. The use, the influence of it, therefore, is inexpressible; and words are never to be considered only as *effects*, but as *causes*, the operation of which can never be fully imagined. Let us suppose a case, a case, I fear, but too common. You drop, in the thoughtlessness of conversation, or for the sake of argument or wit, some irreligious, sceptical, expression—it lodges in the memory of a child, or a servant—it takes root in a soil favourable to such seed—it gradually springs up, and brings forth fruit, in the profanation of the Sabbath; the neglect of the means of grace; in the reading of improper books; in the choice of dangerous companions;—who can tell where it will end? But there is a Being who knows where it began. It will be acknowledged that some have it in their power, by reason of their office, talents, and influence, to do much more injury than others; but none are so insignificant as to be harmless.
 
-2\.A man would never use this language without a conviction that *he is in danger of transgression*. And if David was conscious of a liableness to err, shall we ever presume on our safety? Our danger arises from the depravity of our nature. "The heart is deceitful above all things, and desperately wicked"; and "who can bring a clean thing out of an unclean?" Our danger arises from the contagion of example. There is nothing in which mankind are more universally culpable than in the disorders of speech. Yet with these we are constantly surrounded; and to these we have been accustomed from our impressible infancy. We are in danger from the frequency of speech. "In the multitude of words there wanteth not sin." We must of necessity speak often; but we often speak without necessity. Duty calls us to intermingle much with our fellow creatures; but we are too little in the closet, and too much in the crowd—and when we are in company we forget the admonition, "Let every man be swift to hear, and slow to speak."
+2\. A man would never use this language without a conviction that *he is in danger of transgression*. And if David was conscious of a liableness to err, shall we ever presume on our safety? Our danger arises from the depravity of our nature. "The heart is deceitful above all things, and desperately wicked"; and "who can bring a clean thing out of an unclean?" Our danger arises from the contagion of example. There is nothing in which mankind are more universally culpable than in the disorders of speech. Yet with these we are constantly surrounded; and to these we have been accustomed from our impressible infancy. We are in danger from the frequency of speech. "In the multitude of words there wanteth not sin." We must of necessity speak often; but we often speak without necessity. Duty calls us to intermingle much with our fellow creatures; but we are too little in the closet, and too much in the crowd—and when we are in company we forget the admonition, "Let every man be swift to hear, and slow to speak."
 
-3\.A man would never use this language without a conviction of *inability to preserve himself*. The Bible teaches us this truth, not only doctrinally, but historically. The examples of good men, and men eminent in godliness, confirm it in the very article before us. Moses, the meekest man in the earth, "spake unadvisedly with his lips." You have heard of the patience of Job, but he "cursed the day of his birth"; and Jeremiah, the prophet of the Lord, did the same. Peter said, "Though all men should be offended because of thee, I will never be offended; though I should die with thee, yet will I not deny thee." But how did he use his tongue a few hours after? Then "began he to curse and to swear, saying, I know not the man!"
+3\. A man would never use this language without a conviction of *inability to preserve himself*. The Bible teaches us this truth, not only doctrinally, but historically. The examples of good men, and men eminent in godliness, confirm it in the very article before us. Moses, the meekest man in the earth, "spake unadvisedly with his lips." You have heard of the patience of Job, but he "cursed the day of his birth"; and Jeremiah, the prophet of the Lord, did the same. Peter said, "Though all men should be offended because of thee, I will never be offended; though I should die with thee, yet will I not deny thee." But how did he use his tongue a few hours after? Then "began he to curse and to swear, saying, I know not the man!"
 
-4\.A man would never use this language without a conviction *of the wisdom of applying to God for the assistance he needs*. Prayer is the effect of our weakness, and the expression of our dependence. It confesses the agency of God.
+4\. A man would never use this language without a conviction *of the wisdom of applying to God for the assistance he needs*. Prayer is the effect of our weakness, and the expression of our dependence. It confesses the agency of God.
 
 (a) In the first place—God is equal to our preservation.
 
@@ -160,7 +160,7 @@ Doubtless the Jews felt, when they saw the soft white clouds of fragrant smoke r
 
 **Verse 5.** *It shall be a kindness.* 
 
-1\.It is a kindness *reducere errarvin*, to bring back the wandering.
+1\. It is a kindness *reducere errarvin*, to bring back the wandering.
 
 2\. *Senate cegrotum*, to recover the sick.
 
@@ -214,7 +214,7 @@ Doubtless the Jews felt, when they saw the soft white clouds of fragrant smoke r
 
 **Verse 8.** *Leave not my soul destitute,* or, *"Cast not out my soul."* That is, cast not my life away, as water, which is of no account, is cast out of a vessel containing it.— *Daniel Cresswell.* 
 
-**Verse 8.** *Leave not my soul destitute.* His soul knew what it was to be *"destitute"*; he had known the misery of spiritual beggary and soul poverty. It was not with him as natural poverty is with the rich, a matter of speculation, a mere matter of theory; but a matter of personal and painful experience...It is in the margin *"Make not my soul bare"*, Strip me not of every hope; leave me not completely naked; abandon me not to nature's beggary and misery; let me not go down into the pit with all my sins upon my head; leave not my soul destitute of pardon and peace.— *Joseph C. Philpot.* 
+**Verse 8.** *Leave not my soul destitute.* His soul knew what it was to be *"destitute"*; he had known the misery of spiritual beggary and soul poverty. It was not with him as natural poverty is with the rich, a matter of speculation, a mere matter of theory; but a matter of personal and painful experience... It is in the margin *"Make not my soul bare"*, Strip me not of every hope; leave me not completely naked; abandon me not to nature's beggary and misery; let me not go down into the pit with all my sins upon my head; leave not my soul destitute of pardon and peace.— *Joseph C. Philpot.* 
 
 **Verses 8-10.** 
 
@@ -244,99 +244,99 @@ I wait mine hour to pass victorious by.
 
 **Verse 1.** 
 
-1\.The Perpetuity of Prayer: "I cry. I cry."
+1\. The Perpetuity of Prayer: "I cry. I cry."
 
-2\.The Personality: "unto thee", "unto me."
+2\. The Personality: "unto thee", "unto me."
 
-3\.The Practicalness: "Make haste; give ear."
+3\. The Practicalness: "Make haste; give ear."
 
 **Verse 1.** Holy haste.
 
-1\.The saint hasting to God.
+1\. The saint hasting to God.
 
-2\.The saint hastening God.
+2\. The saint hastening God.
 
-3\.God's sure hastening to his help.— *W. B. H.* 
+3\. God's sure hastening to his help.— *W. B. H.* 
 
 **Verses 1-2.** 
 
-1\.Prayer put forth:
+1\. Prayer put forth:
 
 a) With urgency: "Make haste unto me."
 
 b) With fervency: "Give ear", etc.
 
-2\.Prayer set forth: "Let my prayer be set forth", etc. When hearing is obtained there is composure and order in prayer. When the fire is kindled the incense rises.
+2\. Prayer set forth: "Let my prayer be set forth", etc. When hearing is obtained there is composure and order in prayer. When the fire is kindled the incense rises.
 
-3\.Prayer held forth: "The lifting up of my hands as the evening sacrifice", as constant and accepted.— *G. R.* 
+3\. Prayer held forth: "The lifting up of my hands as the evening sacrifice", as constant and accepted.— *G. R.* 
 
 **Verse 2.** True prayer acceptable as incense and as the evening sacrifice. It is spiritual, solemn, ordained of God, brings Christ to remembrance.
 
 **Verse 3.** 
 
-1\.The mouth a door.
+1\. The mouth a door.
 
-2\.A watchman needed.
+2\. A watchman needed.
 
-3\.The Lord fulfilling that office.
+3\. The Lord fulfilling that office.
 
 **Verse 4.** Total abstinence from evil desires, practices, and delights.
 
 **Verse 4.** A prayer,
 
-1\.For the repression of every evil tendency in the heart: "Incline not my heart", etc.
+1\. For the repression of every evil tendency in the heart: "Incline not my heart", etc.
 
-2\.For the prevention of any association with the wicked in their sinful works: "To practise", etc.
+2\. For the prevention of any association with the wicked in their sinful works: "To practise", etc.
 
-3\.For a holy contempt of the temporal pleasure or profit placed in our way through the sin of others: "Let me not eat", etc. Note, many who will not engage in a wicked act do not object to participate in its gains.— *J. F.* 
+3\. For a holy contempt of the temporal pleasure or profit placed in our way through the sin of others: "Let me not eat", etc. Note, many who will not engage in a wicked act do not object to participate in its gains.— *J. F.* 
 
 **Verse 4.** Deprecation of,
 
-1\.Devil's desires.
+1\. Devil's desires.
 
-2\.Devil's deeds.
+2\. Devil's deeds.
 
-3\.Devil's dainties.— *W. B. H.* 
+3\. Devil's dainties.— *W. B. H.* 
 
 **Verse 5.** Rebukes of good men.
 
-1\.Invited.
+1\. Invited.
 
-2\.Appreciated: "it shall be a kindness."
+2\. Appreciated: "it shall be a kindness."
 
-3\.Utilized: "an excellent oil."
+3\. Utilized: "an excellent oil."
 
-4\.Cheerfully endured: "not break my head."
+4\. Cheerfully endured: "not break my head."
 
-5\.Repaid, by our prayers for them in time of trouble.
+5\. Repaid, by our prayers for them in time of trouble.
 
 **Verse 5.** (*last clause.*) "Intercessory Prayer." See" Spurgeon's Sermons", No. 1,049.
 
 **Verse 6.** 
 
-1\.Times of trouble will come to the careless.
+1\. Times of trouble will come to the careless.
 
-2\.Then they will be more ready to hear the gospel.
+2\. Then they will be more ready to hear the gospel.
 
-3\.Then they will find sweetness in that which they formerly refused.
+3\. Then they will find sweetness in that which they formerly refused.
 
 **Verse 6.** A Desert Oasis.
 
-1\.The world is a stony place, hard, barren.
+1\. The world is a stony place, hard, barren.
 
-2\.Often pride and self trust suffer overthrowing there.
+2\. Often pride and self trust suffer overthrowing there.
 
-3\.Then words of God by his sent servant make an oasis in the desert.
+3\. Then words of God by his sent servant make an oasis in the desert.
 
 — *W. B. H.* 
 
 **Verses 7-8.** A cemetery scene.
 
-1\.Dry bones of the dead about the grave.
+1\. Dry bones of the dead about the grave.
 
-2\.Weary bones of the aged and sick around the grave.
+2\. Weary bones of the aged and sick around the grave.
 
-3\.All bones being from day to day made ready for the grave.
+3\. All bones being from day to day made ready for the grave.
 
-4\.Bones finding rest in God: "mine eyes are unto thee, O God", etc.
+4\. Bones finding rest in God: "mine eyes are unto thee, O God", etc.
 

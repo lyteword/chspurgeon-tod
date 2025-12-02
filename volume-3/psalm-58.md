@@ -84,7 +84,7 @@ No, we call and call, and call in vain, till the arm of the Lord is revealed. Th
 
 **Verse 4.** *Poison.* There is such a thing as poison; but where to be found? *Ubicunque fuerit, in homine quis quaereret?* Wheresoever it is, in man who would look for it? God made man's body of the dust; he mingled no poison with it. He inspires his soul from heaven; he breathes no poison with it. He feeds him with bread; he conveys no poison with it. *Unde venenum?* Whence is the poison? Mt 13:27—"Didst not thou, O Lord, sow good seed in thy field?" *Unde zizaniae* —"From whence then hath it tares?" Whence? *Hoc fecit inimicus* —"The enemy hath done this." We may perceive the devil in it. That great serpent, the red dragon, hath poured into wicked hearts this poison. His own poison, *malitiam,* wickedness. *Cum infundit peccatum, infundit venenum* —"When he pours in sin he pours in poison." Sin is poison. Original depravity is called corruption; actual poison. The violence and virulence of this venomous quality comes not at first. *Nemo fit repente pessimus* —No man becomes worst at the first dash. We are born corrupt, we have made ourselves poisonous. There be three degrees, as it were so may ages, in sin. *First* —secret sin; an ulcer lying in the bones, but skinned over with hypocrisy. *Secondly* —open sin, bursting forth into manifest villany. The former is corruption, the second is eruption. *Thirdly* —frequented and confirmed sin, and that is rank poison, envenoming soul and body. *Thomas Adams,* 1614.
 
-**Verse 4.** *Adder.* Hebrew ntb *pethen,* the Egyptian cobra (*Naja hage* ), one of the venomous *Colubrine* Snakes (*Colubri* ). This is one of the so called hooded snakes, with which serpent charmers chiefly deal. The Spectacled Snake proper (*Naja tripudians*) is a closely related species. The well known Cobra di Capello is another. They are all noted for their deadly bite. The hollow fangs communicate with a poison gland, which being pressed in the act of biting, sends a few drops into the puncture. The venom quickly acts on the whole system, and death soon ensues. *John Duns, D.D., in "Biblical Natural Science,"* 1868.
+**Verse 4.** *Adder.* Hebrew ntb *pethen,* the Egyptian cobra (*Naja hage* ), one of the venomous *Colubrine* Snakes (*Colubri* ). This is one of the so called hooded snakes, with which serpent charmers chiefly deal. The Spectacled Snake proper (*Naja tripudians*) is a closely related species. The well known Cobra di Capello is another. They are all noted for their deadly bite. The hollow fangs communicate with a poison gland, which being pressed in the act of biting, sends a few drops into the puncture. The venom quickly acts on the whole system, and death soon ensues. *John Duns, D. D., in "Biblical Natural Science,"* 1868.
 
 **Verse 4.** *The deaf adder.* Certain it is, says a modern writer upon the Psalms, that the common adder or viper here in England, the bite of which too, by the way, is very venomous, if it is not wholly *deaf,* has the sense of hearing very imperfectly. This is evident from the danger there is of treading upon these animals, unless you happen to see them; for if they do not see you, and you do not disturb them, they never endeavour to avoid you, which when they are disturbed and do see you, they are very solicitous of doing. Allowing, then, that there is a species of these noxious animals, which either not having the sense of hearing at all, or having it only in a low degree, may very well be said to be deaf; this may help to explain the present poetical passage of the psalmist. He very elegantly compares the pernicious and destructive practices of wicked men to the venom of a serpent; and his mentioning this species of animals, seems to have brought to his mind another property of at least one sort of them, in which they likewise resembled perverse and obstinate sinners, who are deaf to all advice, utterly irreclaimable, and not to be persuaded. This the adder resembled, which is a very venomous animal, and moreover is deaf, or very near it. And perhaps his saying that *she stoppeth her ear,* may be no more than a poetical expression for deafness; just as the *mole,* which in common speech is said to be *blind,* might in a poetical phrase, be said to shut her eyes; as in fact she does when you expose her to the light. The next clause, *Which refuseth to hear,* etc., is another poetical expression for the same thing. *Samuel Burder, in "The Scripture Expositor,"* 1810.
 
@@ -106,11 +106,11 @@ No, we call and call, and call in vain, till the arm of the Lord is revealed. Th
 
 **Verse 6.** *Break their teeth,* destroy the fangs of these serpents, in which *their poison* is contained. This will amount to the same meaning as above. Save me from the *adders,* the sly and poisonous slanderers: save me also from the *lions* —the tyrannical and bloodthirsty men. *Adam Clarke.* 
 
-**Verse 6.** *Great teeth.* mwetlm, according to Michaelis and Gesenius, are the *eye teeth,* which in lions are sharp and terrible. *George Phillips, B.D., in "The Psalms in Hebrew: With a Commentary,"* 1846.
+**Verse 6.** *Great teeth.* mwetlm, according to Michaelis and Gesenius, are the *eye teeth,* which in lions are sharp and terrible. *George Phillips, B. D., in "The Psalms in Hebrew: With a Commentary,"* 1846.
 
 **Verses 6-9.** David's enemies were strong and fierce as young lions: he therefore prayed that *their teeth might be broken,* even their strongest teeth, their *grinders,* with which they were ready to devour him; that so they might be disabled from doing mischief. They overwhelmed him like an inundation: but he desired it might prove a land flood, which is soon wasted. They were about to shoot at him: but he would have their bows, or their arrows, to be shivered to pieces, and become like straw, and do no execution, and he prayed that they might waste insensibly as the snail, which leaves its substance all along its track; and that they might come to nothing, like an abortion. He also predicted, that their prosperous rage (which resembled the crackling of thorns under a pot), would soon be extinct, and produce no effect; while the Lord in his wrath would hurry them into speedy destruction; as a furious whirlwind drives a living man down a precipice, or into a dreadful pit. *Thomas Scott,* 1747-1821.
 
-**Verse 8.** *As a snail which melteth away as it goeth,* literally, *which goeth in melting* (or slime), the noun being in the accusative as describing the nature of the action, and the allusion being to the slimy trail which the snail leaves behind it, so that *it seems* to waste away. Evidently this is nothing more than a poetical hyperbole, and need not be explained, therefore, as a popular error or a mistake in natural history.—J. J. Stewart Perowne, B.D., in "The Book of Psalms; a New *Translation, with Introduction and Notes,"* 1864.
+**Verse 8.** *As a snail which melteth away as it goeth,* literally, *which goeth in melting* (or slime), the noun being in the accusative as describing the nature of the action, and the allusion being to the slimy trail which the snail leaves behind it, so that *it seems* to waste away. Evidently this is nothing more than a poetical hyperbole, and need not be explained, therefore, as a popular error or a mistake in natural history.—J. J. Stewart Perowne, B. D., in "The Book of Psalms; a New *Translation, with Introduction and Notes,"* 1864.
 
 **Verse 8.** *As a snail which melteth,* etc. This is a very remarkable and not very intelligible passage. The Jewish Bible renders the passage in a way which explains the idea which evidently prevailed at the time the Psalms were composed: "As a snail let him melt as he passeth on." The ancients had an idea that the slimy track made by a snail as it crawled along was subtracted from the substance of its body, and that in consequence the farther it crept the smaller it became until at last it wasted entirely away. The commentators on the Talmud took this view of the case. The Hebrew word, lwlbv *shablul,* which undoubtedly does signify a snail of some kind, is thus explained:—"The Shablul is a creeping thing; when it comes out of its shell, saliva pours from itself until it becomes liquid, and so dies." Other explanations of this passage have been offered, but there is no doubt that the view taken by these commentators is the correct one, and that the psalmist, when he wrote the terrible series of denunciations in which the passage occurs, had in his mind the popular belief regarding the gradual wasting away of the snail as it "passeth on." It is needless to say that no particular species of snail is mentioned, and almost as needless to state that in Palestine there are many species of snails, to any or all of which these words are equally applicable. *J. G. Wood, in "Bible Animals."* 1869.
 
@@ -150,11 +150,11 @@ No, we call and call, and call in vain, till the arm of the Lord is revealed. Th
 
 **Verse 3.** 
 
-1\.The natural effects of original sin are seen in early suffering and death.
+1\. The natural effects of original sin are seen in early suffering and death.
 
-2\.Its moral effects are seen in the early commission of actual sin.
+2\. Its moral effects are seen in the early commission of actual sin.
 
-3\.Early depravity is evinced in the conscious guilt of telling lies. *G. R.* 
+3\. Early depravity is evinced in the conscious guilt of telling lies. *G. R.* 
 
 **Verse 3.** (*first clause* ). The inner pandemonium, or the calendar of the heart's crime.
 
@@ -164,11 +164,11 @@ No, we call and call, and call in vain, till the arm of the Lord is revealed. Th
 
 **Verse 5.** The serpent charmer.
 
-1\.He charms with moral persuasion, promise, threatening, etc.
+1\. He charms with moral persuasion, promise, threatening, etc.
 
-2\.He charms wisely, earnestly, affectionately, argumentively.
+2\. He charms wisely, earnestly, affectionately, argumentively.
 
-3\.He charms in vain; the will is averse. Hence the need of divine grace and of the gospel.
+3\. He charms in vain; the will is averse. Hence the need of divine grace and of the gospel.
 
 **Verse 8.** The snail like course of ungodly men. Their sin destroys their property, health, time, influence, life.
 

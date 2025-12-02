@@ -52,13 +52,13 @@ Resting on his sure word, we feel that joy which is here commanded, and in the s
 
 **Title &mdash;** This is the only Psalm in the whole collection entitled *"A Psalm of Praise."* It is supposed to have received this appellation because peculiarly adapted, if not designed to be sung, when the *sacrifices of thanksgiving* were offered. See Le 7:12. The Greeks think it was written by David, who here invites all the world to join with the Israelites in the service of God, whose divine sovereignty he here recognises. *Samuel Burder.* 
 
-**Whole Psalm.** If we are right in regarding Psalms 93-99 as forming one continuous series, one great prophetic oratorio, whose title is "Jehovah is King, "and through which there runs the same great idea, this Psalm may be regarded as the doxology which closes the strain. We find lingering in it notes of the same great harmony. It breathes the same gladness; it is filled with the same hope, that all nations shall bow down before Jehovah, and confess that he is God. *J.J.S. Perowne.* 
+**Whole Psalm.** If we are right in regarding Psalms 93-99 as forming one continuous series, one great prophetic oratorio, whose title is "Jehovah is King, "and through which there runs the same great idea, this Psalm may be regarded as the doxology which closes the strain. We find lingering in it notes of the same great harmony. It breathes the same gladness; it is filled with the same hope, that all nations shall bow down before Jehovah, and confess that he is God. *J. J. S. Perowne.* 
 
 **Whole Psalm.** This Psalm contains a promise of Christianity, as winter at its close contains the promise of spring. The trees are ready to bud, the flowers are just hidden by the light soil, the clouds are heavy with rain, the sun shines in his strength; only a genial wind from the south is wanted to give a new life to all things. *"The Speaker's Commentary, "* 1873.
 
 **Whole Psalm.** Luther would have immortalized his name had he done no more than written the majestic air and harmony to which we are accustomed to sing this Psalm, and which, when the mind is in a truly worshipping frame, seems to bring heaven down to earth, and to raise earth to heaven, giving us anticipations of the pure and sublime delights of that noble and general assembly in which saints and angels shall for ever celebrate the praises of God. *Ingram Cobbin.* 
 
-**Verse 2.** The first half of this verse is from Ps 2:11, only that instead of *"with fear, "* there, where the psalmist has to do with fierce rebels, there is substituted here *"gladness"* or joy. *F.W. Hengstenberg.* 
+**Verse 2.** The first half of this verse is from Ps 2:11, only that instead of *"with fear, "* there, where the psalmist has to do with fierce rebels, there is substituted here *"gladness"* or joy. *F. W. Hengstenberg.* 
 
 **Verse 2.** *Serve the LORD with gladness.* It is a sign the oil of grace hath been poured into the heart "when the oil of gladness" shines on the countenance. Cheerfulness credits religion. *Thomas Watson.* 
 
@@ -68,13 +68,13 @@ Resting on his sure word, we feel that joy which is here commanded, and in the s
 
 **Verse 3.** *It is he that made us... we are his.* Now, the ground of God's property in all things is his creating of all... Accordingly, you may observe in many scriptures, where the Lord's propriety is asserted, this, as the ground of it, is annexed: Ps 89:11-12, the heavens, the earth, the whole world, and all therein is thine. Why so? "Thou hast founded them." And so are all the regions and quarters of the world, northern and southern, western and eastern; for Tabor was on the west and Hermon on the east; all are thine, for thou hast created them. So sea and land, Ps 95:5. As all things measured by time, so time itself, the measure of all, Ps 74:16-17. "Thou hast made the light, " *i.e.* the moon for the night and the sun for the day. He lays claim to all the climes of the earth, and all the seasons of the year on this account; he made them. This will be more evident and unquestionable, if we take notice of these particulars:
 
-1\.He made all for himself. He was not employed by any to make it for another, for in that case sometimes the maker is not the owner; but the Lord did employ himself in that great work, and for himself did he undertake and finish it. Pr 16:4 Col 1:15-16.
+1\. He made all for himself. He was not employed by any to make it for another, for in that case sometimes the maker is not the owner; but the Lord did employ himself in that great work, and for himself did he undertake and finish it. Pr 16:4 Col 1:15-16.
 
-2\.He made all things of nothing, either without any matter at all, or without any but what himself had before made of nothing. A potter when he makes an earthenware vessel, if the clay be not his own which he makes it of, he is not the full owner of the vessel, though he formed it: "the form is his, the matter is another's; "but since the Lord made all of nothing, or of such matter as himself had made, all is wholly his, matter and form, all entirely.
+2\. He made all things of nothing, either without any matter at all, or without any but what himself had before made of nothing. A potter when he makes an earthenware vessel, if the clay be not his own which he makes it of, he is not the full owner of the vessel, though he formed it: "the form is his, the matter is another's; "but since the Lord made all of nothing, or of such matter as himself had made, all is wholly his, matter and form, all entirely.
 
-3\.He made all without the help or concurrence of any other. There was none that assisted him, or did in the least co-operate with him in the work of creation... Those that assist and concur with another in the making of a thing may claim a share in it; but here lies no such claim in this case, where the Lord alone did all, alone made all. All is his only.
+3\. He made all without the help or concurrence of any other. There was none that assisted him, or did in the least co-operate with him in the work of creation... Those that assist and concur with another in the making of a thing may claim a share in it; but here lies no such claim in this case, where the Lord alone did all, alone made all. All is his only.
 
-4\.He upholds all things in the same manner as he created, continues the being of all things in the same way as he gave it. He does it of himself, without other support, without any assistant. All would fall into nothing in a moment, if he did not every moment bear them up. So that all things on this account have still their being from him every moment, and their well-being too, and all the means which conduce to it; and therefore all are his own. *David Clarkson.* 
+4\. He upholds all things in the same manner as he created, continues the being of all things in the same way as he gave it. He does it of himself, without other support, without any assistant. All would fall into nothing in a moment, if he did not every moment bear them up. So that all things on this account have still their being from him every moment, and their well-being too, and all the means which conduce to it; and therefore all are his own. *David Clarkson.* 
 
 **Verse 3.** *It is he that hath made us.* The emperor Henry, while out hunting on the Lord's day called Quinquagesima, his companions being scattered, came unattended to the entrance of a certain wood; and seeing a church hard by, he made for it, and feigning himself to be a soldier, simply requested a mass of the priest. Now that priest was a man of notable piety, but so deformed in person that he seemed a monster rather than a man. When he had attentively considered him, the emperor began to wonder exceedingly why God, from whom all beauty proceeds, should permit so deformed a man to administer his sacraments. But prescntly, when mass commenced, and they came to the passage, *Know ye that the Lord he is God,* which was chanted by a boy, the priest rebuked the boy for singing negligently, and said with a loud voice, *It is he that hath made us, and not we ourselves.* Struck by these words, and believing the priest to be a prophet, the emperor raised him, much against his will, to the archbishopric of Cologne, which see he adorned by his devotion and excellent virtues. *From "Roger of Wendover's* (1237) *Flowers of History."* 
 
@@ -88,17 +88,17 @@ Resting on his sure word, we feel that joy which is here commanded, and in the s
 
 1\. *That the Lord he is God,* the only living and true God; that he is a being infinitely perfect, self-existent, and self-sufficient, and the fountain of all being.
 
-2\.That he is our Creator: *It is he that hath made us, and not we ourselves.* We do not, we could not make ourselves; it is God's prerogative to be his own cause; our being is derived and depending.
+2\. That he is our Creator: *It is he that hath made us, and not we ourselves.* We do not, we could not make ourselves; it is God's prerogative to be his own cause; our being is derived and depending.
 
-3\.That therefore *he is our rightful owner*. The Masorites, by altering one letter in the Hebrew, read it, "He made us, and his we are, "or, "to him we belong." Put both the readings together, and we learn, that because God "made us, and not we ourselves, "therefore we are not our own but his.
+3\. That therefore *he is our rightful owner*. The Masorites, by altering one letter in the Hebrew, read it, "He made us, and his we are, "or, "to him we belong." Put both the readings together, and we learn, that because God "made us, and not we ourselves, "therefore we are not our own but his.
 
-4\.That *he is our sovereign Ruler*. *We are his people,* or subjects, and he is our prince, our rector or governor, that gives laws to us as moral agents, and will call us to an account for what we do.
+4\. That *he is our sovereign Ruler*. *We are his people,* or subjects, and he is our prince, our rector or governor, that gives laws to us as moral agents, and will call us to an account for what we do.
 
-5\.That *he is our bountiful Benefactor* ;we are not only his sheep whom he is entitled to, but *the sheep of his pasture,* whom he takes care of.
+5\. That *he is our bountiful Benefactor* ;we are not only his sheep whom he is entitled to, but *the sheep of his pasture,* whom he takes care of.
 
-6\.That he is a God of infinite mercy and good (Ps 100:5); *The Lord is good,* and therefore doth good; *his mercy his everlasting.* 
+6\. That he is a God of infinite mercy and good (Ps 100:5); *The Lord is good,* and therefore doth good; *his mercy his everlasting.* 
 
-7\.That he is a God of inviolable truth and faithfulness; *His truth endureth to all generations,* and no word of his shall fall to the ground as antiquated or revoked. *Matthew Henry.* 
+7\. That he is a God of inviolable truth and faithfulness; *His truth endureth to all generations,* and no word of his shall fall to the ground as antiquated or revoked. *Matthew Henry.* 
 
 **Verse 4.** *Enter into his gates;* for to the most guilty are the gates of his church open. *Francis Hill Tucker.* 
 
@@ -124,29 +124,29 @@ Resting on his sure word, we feel that joy which is here commanded, and in the s
 
 **Verse 2.** *Serve the LORD with gladness.* 
 
-1\.For he is the best of beings.
+1\. For he is the best of beings.
 
-2\.For his commandments are not grievous.
+2\. For his commandments are not grievous.
 
-3\.For he is your Saviour, as well as Creator; your friend, as well as Lord.
+3\. For he is your Saviour, as well as Creator; your friend, as well as Lord.
 
-4\.The angels, so much greater than yourself, know no reason why they should not serve him with gladness.
+4\. The angels, so much greater than yourself, know no reason why they should not serve him with gladness.
 
-5\.In serving him you serve yoreself.
+5\. In serving him you serve yoreself.
 
-6\.You make religion attractive.
+6\. You make religion attractive.
 
-7\.You get fitness for heaven. *George Bowen.* 
+7\. You get fitness for heaven. *George Bowen.* 
 
 **Verse 2** (*first clause*) A true heart,
 
-1\.Is humble— *serves*.
+1\. Is humble— *serves*.
 
-2\.Is pious—"serve the Lord."
+2\. Is pious—"serve the Lord."
 
-3\.Is active— *serves*.
+3\. Is active— *serves*.
 
-4\.Is consequently joyful—"with gladness."
+4\. Is consequently joyful—"with gladness."
 
 **Verse 2.** (*first clause* ). "Serving the Lord with gladness." See "Spurgeon's Sermons, "No. 769.
 
@@ -158,17 +158,17 @@ Resting on his sure word, we feel that joy which is here commanded, and in the s
 
 **Verse 4.** 
 
-1\.The privileges of access.
+1\. The privileges of access.
 
-2\.The duty of thankfulness.
+2\. The duty of thankfulness.
 
-3\.The reasons for enjoying both.
+3\. The reasons for enjoying both.
 
 **Verse 5.** 
 
-1\.The inexhaustible fount—the goodness of God.
+1\. The inexhaustible fount—the goodness of God.
 
-2\.The ever-flowing stream—the mercy of God.
+2\. The ever-flowing stream—the mercy of God.
 
-3\.The fathomless oceansthe truth of God. "O the depths!" *W. Durban.* 
+3\. The fathomless oceansthe truth of God. "O the depths!" *W. Durban.* 
 

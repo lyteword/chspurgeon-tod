@@ -166,17 +166,17 @@ Early may fly the Babylonian woe." *John Milton.*
 
 **Verses 8-11.** In these words the following particulars are to be observed.
 
-1\.A certain spiritual *disease* charged on some persons, *viz.* darkness, and *blindness* of mind, appearing in their ignorance and folly.
+1\. A certain spiritual *disease* charged on some persons, *viz.* darkness, and *blindness* of mind, appearing in their ignorance and folly.
 
-2\.The great *degree* of this disease; so as to render the subjects of it *fools*. *Ye fools, when will ye be wise?* And so as to reduce them to a degree of *brutishness. Ye brutish among the people.* This ignorance and folly were to such a degree as to render men like beasts.
+2\. The great *degree* of this disease; so as to render the subjects of it *fools*. *Ye fools, when will ye be wise?* And so as to reduce them to a degree of *brutishness. Ye brutish among the people.* This ignorance and folly were to such a degree as to render men like beasts.
 
-3\.The *obstinacy* of this disease; expressed in that interrogation, *When will ye be wise?* Their blindness and folly were not only very great, but deeply rooted and established, resisting all manner of cure.
+3\. The *obstinacy* of this disease; expressed in that interrogation, *When will ye be wise?* Their blindness and folly were not only very great, but deeply rooted and established, resisting all manner of cure.
 
-4\.Of what *nature* this blindness is. It is especially in things pertaining to God. They were strangely *ignorant* of his perfections, like beasts: and had *foolish* notions of him, as though he did not see, nor know: and as though he would not execute justice, by chastising and punishing wicked men.
+4\. Of what *nature* this blindness is. It is especially in things pertaining to God. They were strangely *ignorant* of his perfections, like beasts: and had *foolish* notions of him, as though he did not see, nor know: and as though he would not execute justice, by chastising and punishing wicked men.
 
-5\.The *unreasonableness* and *sottishness* of the notion they had of God, that he did not hear, did not *observe* their reproaches of him and his people, is shown by observing that he *planted* the ear. It is very *unreasonable* to suppose that he who gave power of perceiving words to others, should not perceive them himself. And the sottishness of their being insensible of God's all seeing eye, and particularly of his seeing their wicked actions, appears, in that God is the being who *formed* the eye, and gave others a *power* of seeing. The sottishness of their apprehension of God, as though he did not know what they did, is argued from his being the *fountain* and original of all knowledge. The unreasonableness of their expecting to escape God's just chastisement and judgments for sin, is set forth by his chastising even the *heathen*, who did not sin against that light, or against so great mercies, as the wicked in Israel did; nor had ever made such a profession as they.
+5\. The *unreasonableness* and *sottishness* of the notion they had of God, that he did not hear, did not *observe* their reproaches of him and his people, is shown by observing that he *planted* the ear. It is very *unreasonable* to suppose that he who gave power of perceiving words to others, should not perceive them himself. And the sottishness of their being insensible of God's all seeing eye, and particularly of his seeing their wicked actions, appears, in that God is the being who *formed* the eye, and gave others a *power* of seeing. The sottishness of their apprehension of God, as though he did not know what they did, is argued from his being the *fountain* and original of all knowledge. The unreasonableness of their expecting to escape God's just chastisement and judgments for sin, is set forth by his chastising even the *heathen*, who did not sin against that light, or against so great mercies, as the wicked in Israel did; nor had ever made such a profession as they.
 
-6\.We may observe, that this dreadful disease is ascribed to *mankind in general*. *The Lord knoweth the thoughts of MAN, that they are vanity.* The psalmist had been setting forth the vanity and unreasonableness of the thoughts of *some* of the children of men; and immediately upon it he observes, that this vanity and foolishness of thought is *common* and *natural to mankind*. From these particulars we may fairly deduce the following doctrinal observation: *That there is an extreme and brutish blindness in things of religion, which naturally possesses the hearts of mankind. Jonathan Edwards.* 
+6\. We may observe, that this dreadful disease is ascribed to *mankind in general*. *The Lord knoweth the thoughts of MAN, that they are vanity.* The psalmist had been setting forth the vanity and unreasonableness of the thoughts of *some* of the children of men; and immediately upon it he observes, that this vanity and foolishness of thought is *common* and *natural to mankind*. From these particulars we may fairly deduce the following doctrinal observation: *That there is an extreme and brutish blindness in things of religion, which naturally possesses the hearts of mankind. Jonathan Edwards.* 
 
 **Verses 8-15.** God hath ability, bowels, verity. Ability, *He that made the eye, cannot he see? He that planted the ear, cannot he hear?* Ps 94:8-11. Bowels, *He doth but chasten his, not cast them off*, Ps 94:12-14. Verity, *this is but until a pit be made for the wicked*, Ps 94:13. Mordecai is frowned upon, but till a gallows be made for Haman, and then judgment returns unto righteousness. *Nicholas Lockyer.* 
 
@@ -216,15 +216,15 @@ Nor is the curious structure of the eye itself all that is worthy of our attenti
 
 **Verse 11.** The Lord knoweth the thoughts of man, that they are *vanity.* What a humbling thought is here suggested to us! Let us examine it.
 
-1\.If vanity had been ascribed to the meaner parts of the creation—if all inanimate and irrational beings, whose days are as a shadow, and who know not whence they came nor whither they go, had thus been characterized—it had little more than accorded with our own ideas. But the humiliating truth belongs to man, the *lord* of the lower creation—to man, that distinguished link in the chain of being which unites in his person mortality and immortality, heaven and earth. "The LORD knoweth the thoughts of *man*, that they are vanity."
+1\. If vanity had been ascribed to the meaner parts of the creation—if all inanimate and irrational beings, whose days are as a shadow, and who know not whence they came nor whither they go, had thus been characterized—it had little more than accorded with our own ideas. But the humiliating truth belongs to man, the *lord* of the lower creation—to man, that distinguished link in the chain of being which unites in his person mortality and immortality, heaven and earth. "The LORD knoweth the thoughts of *man*, that they are vanity."
 
-2\.Had vanity been ascribed only to the exercise of our sensual or mortal part, or of that which we possess in common with other animals, it had been less humiliating. But the charge is pointed at that which is the peculiar glory of man the intellectual part, his *thoughts*. It is here, if anywhere, that we excel the creatures which are placed around us. We can contemplate our own existence, dive into the past and the future, and understand whence we came and whither we go. Yet in this tender part; we are touched. Even the *"thoughts"* of man are vanity.
+2\. Had vanity been ascribed only to the exercise of our sensual or mortal part, or of that which we possess in common with other animals, it had been less humiliating. But the charge is pointed at that which is the peculiar glory of man the intellectual part, his *thoughts*. It is here, if anywhere, that we excel the creatures which are placed around us. We can contemplate our own existence, dive into the past and the future, and understand whence we came and whither we go. Yet in this tender part; we are touched. Even the *"thoughts"* of man are vanity.
 
-3\.If vanity had been ascribed merely to those loose and trifling excursions of the imagination which fall not under the influence of choice, a kind of comers and goers, which are ever floating in the mind, like insects in the air on a summer's evening, it had been less affecting. The soul of man seems to be necessarily active. Everything we see, hear, taste, feel, or perceive, has some influence upon thought, which is moved by it as leaves on the trees are moved by every breeze of wind. But "thoughts" here include those exercises of the mind in which it is voluntarily or intensely engaged, and in which we are in earnest; even all our schemes, contrivances, and purposes. One would think, if there were anything in man to be accounted of, it should be those exercises in which his intellectual faculty is seriously and intensely employed. Yet the Lord knoweth that even these are vanity.
+3\. If vanity had been ascribed merely to those loose and trifling excursions of the imagination which fall not under the influence of choice, a kind of comers and goers, which are ever floating in the mind, like insects in the air on a summer's evening, it had been less affecting. The soul of man seems to be necessarily active. Everything we see, hear, taste, feel, or perceive, has some influence upon thought, which is moved by it as leaves on the trees are moved by every breeze of wind. But "thoughts" here include those exercises of the mind in which it is voluntarily or intensely engaged, and in which we are in earnest; even all our schemes, contrivances, and purposes. One would think, if there were anything in man to be accounted of, it should be those exercises in which his intellectual faculty is seriously and intensely employed. Yet the Lord knoweth that even these are vanity.
 
-4\.If during our state of childhood and youth only vanity had been ascribed to our thoughts, it would have been less surprising. This is a truth of which numberless parents have painful proof; yea, and of which children themselves, as they grow up to maturity, are generally conscious. Vanity at this period, however, admits of some apology. The obstinacy and folly of some young people, while they provoke disgust, often excite a tear of pity. But the charge is exhibited against *man.* "Man *at his best estate* is altogether vanity."
+4\. If during our state of childhood and youth only vanity had been ascribed to our thoughts, it would have been less surprising. This is a truth of which numberless parents have painful proof; yea, and of which children themselves, as they grow up to maturity, are generally conscious. Vanity at this period, however, admits of some apology. The obstinacy and folly of some young people, while they provoke disgust, often excite a tear of pity. But the charge is exhibited against *man.* "Man *at his best estate* is altogether vanity."
 
-5\.The decision proceeds from a quarter from which there can be no appeal. *"The LORD knoweth"* it. Opinions dishonourable to our species may sometimes arise from ignorance, sometimes from spleen and disappointment, and sometimes from a gloomy turn of mind, which views mankind through a distorted medium. But the judgment given in this passage is the decision of Him who cannot err; a decision therefore to which, if we had no other proof, it becomes us to accede. *Andrew Fuller.* 
+5\. The decision proceeds from a quarter from which there can be no appeal. *"The LORD knoweth"* it. Opinions dishonourable to our species may sometimes arise from ignorance, sometimes from spleen and disappointment, and sometimes from a gloomy turn of mind, which views mankind through a distorted medium. But the judgment given in this passage is the decision of Him who cannot err; a decision therefore to which, if we had no other proof, it becomes us to accede. *Andrew Fuller.* 
 
 **Verse 11.** *They are vanity.* The Syriac version is, *For they are a vapour.* Compare Jas 4:14. *John Gill.* 
 
@@ -308,17 +308,17 @@ Now what are these *"comforts"* of God which the psalmist does more especially i
 
 **Verse 1.** 
 
-1\.Retribution the prerogative of God alone.
+1\. Retribution the prerogative of God alone.
 
-2\.Under what aspects may we desire his rendering it.
+2\. Under what aspects may we desire his rendering it.
 
-3\.How, and when he will surely fulfil this righteous wish.
+3\. How, and when he will surely fulfil this righteous wish.
 
 **Verse 1.** 
 
-1\.Vengeance belongs to God and not to man.
+1\. Vengeance belongs to God and not to man.
 
-2\.Vengeance is better in the hands of God than of man. *Let us fall into the hands of God,* etc. *G. R.* 
+2\. Vengeance is better in the hands of God than of man. *Let us fall into the hands of God,* etc. *G. R.* 
 
 **Verse 2.** The peculiar provocation of the sin of pride and its kindred vices. Its influence on the proud, on their follow men, and upon God himself.
 
@@ -326,53 +326,53 @@ Now what are these *"comforts"* of God which the psalmist does more especially i
 
 I. The sweet potion of the wicked—present triumph.
 
-2\.The gall which embitters it—it is but temporary, and is prayed against. *C. A. Davis.* 
+2\. The gall which embitters it—it is but temporary, and is prayed against. *C. A. Davis.* 
 
 **Verses 5-10.** 
 
-1\.High handed oppression by the wicked (Ps 94:5-6).
+1\. High handed oppression by the wicked (Ps 94:5-6).
 
-2\.Hard hearted indifference to Divine supervision (Ps 94:7).
+2\. Hard hearted indifference to Divine supervision (Ps 94:7).
 
-3\.Clear headed demonstration of the Divine cognisance and vengeance (Ps 94:8-10). *C.A.D.* 
+3\. Clear headed demonstration of the Divine cognisance and vengeance (Ps 94:8-10). *C. A. D.* 
 
 **Verses 6-9.** 
 
-1\.Conspicuous sin.
+1\. Conspicuous sin.
 
-2\.Absurd supposition.
+2\. Absurd supposition.
 
-3\.Overwhelming argument.
+3\. Overwhelming argument.
 
 **Verse 8.** The duration of the reign of evil.
 
-1\.Till it has filled up its measure of guilt.
+1\. Till it has filled up its measure of guilt.
 
-2\.Till it has proved its own folly.
+2\. Till it has proved its own folly.
 
-3\.Till it has developed the graces and prayers of saints.
+3\. Till it has developed the graces and prayers of saints.
 
-4\.Till it has emptied man of all human trust and driven us to look to the Lord alone, his Spirit, and his advent.
+4\. Till it has emptied man of all human trust and driven us to look to the Lord alone, his Spirit, and his advent.
 
 **Verse 8.** Practical Atheists.
 
-1\.Truly described.
+1\. Truly described.
 
-2\.Wisely counselled. *C.A.D.* 
+2\. Wisely counselled. *C. A. D.* 
 
 **Verses 8-11.** 
 
-1\.The Exhortation (Ps 94:8).
+1\. The Exhortation (Ps 94:8).
 
-2\.The Expostulation (Ps 94:9-10).
+2\. The Expostulation (Ps 94:9-10).
 
-3\.The Affirmation (Ps 94:11). *G. R.* 
+3\. The Affirmation (Ps 94:11). *G. R.* 
 
-**Verses 9-10.** True Rationalism; or, Reason's Revelation of God. *U.A.D.* 
+**Verses 9-10.** True Rationalism; or, Reason's Revelation of God. *U. A. D.* 
 
 **Verse 11.** 
 
-1\.With respect to the present world, consider what multitudes of thoughts are employed in vain.
+1\. With respect to the present world, consider what multitudes of thoughts are employed in vain.
 
 (a) In seeking satisfaction where it is not to be found.
 
@@ -384,7 +384,7 @@ I. The sweet potion of the wicked—present triumph.
 
 (e) In laying plans which must be disconcerted.
 
-2\.Let us see what are man's thoughts with regard to religion, and the concerns of a future life.
+2\. Let us see what are man's thoughts with regard to religion, and the concerns of a future life.
 
 (a) What are the thoughts of the heathen world about religion?
 
@@ -402,117 +402,117 @@ I. The sweet potion of the wicked—present triumph.
 
 **Verses 12-13.** 
 
-1\.The Blessed. (a) Divinely taught. (b) Divinely chastised.
+1\. The Blessed. (a) Divinely taught. (b) Divinely chastised.
 
-2\.The Blessing. (a) Rest in Affliction. (b) Rest from Affliction. *G. R.* 
-
-**Verse 14.** 
-
-1\.Fear implied. That God will cast off, forsake, etc.
-
-2\.Fear denied. God will not cast off—will not forsake. *G. R.* 
+2\. The Blessing. (a) Rest in Affliction. (b) Rest from Affliction. *G. R.* 
 
 **Verse 14.** 
 
-1\.Display his bright doctrine on a dark background. What if the converse were true? Considerations that might lead us to apprehend it true.
+1\. Fear implied. That God will cast off, forsake, etc.
 
-2\.Joyfully regard the glowing truth itself. The doctrine declared. The reasons hinted (His people. His inheritance). The confidence expressed. *C.A.D.* 
+2\. Fear denied. God will not cast off—will not forsake. *G. R.* 
+
+**Verse 14.** 
+
+1\. Display his bright doctrine on a dark background. What if the converse were true? Considerations that might lead us to apprehend it true.
+
+2\. Joyfully regard the glowing truth itself. The doctrine declared. The reasons hinted (His people. His inheritance). The confidence expressed. *C. A. D.* 
 
 **Verse 15.** 
 
-1\.Judgment suspended.
+1\. Judgment suspended.
 
-2\.Judgment returned.
+2\. Judgment returned.
 
-3\.Judgment acknowledged. *G. R.* 
+3\. Judgment acknowledged. *G. R.* 
 
 **Verse 16.** 
 
-1\.The question asked by the church of her champions.
+1\. The question asked by the church of her champions.
 
-2\.The answer of every true hearted man.
+2\. The answer of every true hearted man.
 
-3\.The yet more encouraging answer of her Lord.
+3\. The yet more encouraging answer of her Lord.
 
 **Verses 16-17.** The sole source of succour.
 
-1\.A loud cry for help. As from a champion, or advocate.
+1\. A loud cry for help. As from a champion, or advocate.
 
-2\.Earth's answer. A dead silence, disturbed only by echo (Ps 94:17).
+2\. Earth's answer. A dead silence, disturbed only by echo (Ps 94:17).
 
-3\.The succouring voice that breaks the silence—the Lord's (Ps 94:17). *C.A.D.* 
+3\. The succouring voice that breaks the silence—the Lord's (Ps 94:17). *C. A. D.* 
 
 **Verse 18.** The blessedness of the confession of weakness.
 
-1\.The confession.
+1\. The confession.
 
-2\.The succour.
+2\. The succour.
 
-3\.The time.
+3\. The time.
 
-4\.The acknowledgment. *C.A.D.* 
+4\. The acknowledgment. *C. A. D.* 
 
 **Verse 19.** 
 
-1\.In the multitude of my unbelieving thoughts thy comforts delight my soul.
+1\. In the multitude of my unbelieving thoughts thy comforts delight my soul.
 
-2\.In the multitude of my penitential thoughts thy comforts, etc.
+2\. In the multitude of my penitential thoughts thy comforts, etc.
 
-3\.In the multitude of my worldly thoughts, etc.
+3\. In the multitude of my worldly thoughts, etc.
 
-4\.In the multitude of my family or social thoughts, etc.
+4\. In the multitude of my family or social thoughts, etc.
 
-5\.Of my desponding thoughts, etc.
+5\. Of my desponding thoughts, etc.
 
-6\.Of my prospective thoughts, etc.
+6\. Of my prospective thoughts, etc.
 
 Or
 
-1\.There is no consolation for man in himself.
+1\. There is no consolation for man in himself.
 
-2\.There is no consolation for him in other creatures.
+2\. There is no consolation for him in other creatures.
 
-3\.His only consolation is in God. *G.R.* 
+3\. His only consolation is in God. *G. R.* 
 
 **Verse 19.** 
 
-1\.The soul jostled in the thoroughfare of anxious thoughts.
+1\. The soul jostled in the thoroughfare of anxious thoughts.
 
-2\.The delectable company nevertheless enjoyed. *C.A.D.* 
+2\. The delectable company nevertheless enjoyed. *C. A. D.* 
 
 **Verse 20.** "It is the law of the land, you know, "—the limit of this authority both in temporal and spiritual matters.
 
 **Verse 20.** 
 
-1\.God can have no fellowship with the wicked.
+1\. God can have no fellowship with the wicked.
 
-2\.The wicked can have no fellowship with God. *G. R.* 
+2\. The wicked can have no fellowship with God. *G. R.* 
 
 **Verse 20.** Divine politics.
 
-1\.There are thrones erected in opposition to the throne of God, "thrones of iniquity, " *e.g.* which trespass on civil liberty, which infringe religious equality, which derive revenue from evil commerce, etc.
+1\. There are thrones erected in opposition to the throne of God, "thrones of iniquity, " *e.g.* which trespass on civil liberty, which infringe religious equality, which derive revenue from evil commerce, etc.
 
-2\.Such thrones, whatever their pretensions, are excluded from divine fellowship; between them and God a great gulf is fixed. *C.A.D.* 
+2\. Such thrones, whatever their pretensions, are excluded from divine fellowship; between them and God a great gulf is fixed. *C. A. D.* 
 
 **Verses 21-22.** 
 
-1\.The Danger of the righteous (Ps 94:21).
+1\. The Danger of the righteous (Ps 94:21).
 
-2\.Their Defence (Ps 94:22). *G. R.* 
+2\. Their Defence (Ps 94:22). *G. R.* 
 
 **Verse 2** 1-23.
 
-1\.Sentence passed in the court of injustice (Ps 94:21).
+1\. Sentence passed in the court of injustice (Ps 94:21).
 
-2\.An element in the case not considered by the court (Ps 94:22).
+2\. An element in the case not considered by the court (Ps 94:22).
 
-3\.The sentence consequently alighting on the right heads (Ps 94:23). (This passage, under a very thin veil, exhibits Christ. Mt 27:1) *C.A.D.* 
+3\. The sentence consequently alighting on the right heads (Ps 94:23). (This passage, under a very thin veil, exhibits Christ. Mt 27:1) *C. A. D.* 
 
 **Verse 23.** 
 
-1\.None may punish God's enemies but himself. "He shall bring, "etc.
+1\. None may punish God's enemies but himself. "He shall bring, "etc.
 
-2\.None need punish them but himself. (a) It will be complete,—"shall cut them off." (b) Certain. "Yea, "etc. *G.R.* 
+2\. None need punish them but himself. (a) It will be complete,—"shall cut them off." (b) Certain. "Yea, "etc. *G. R.* 
 
 ## Works Upon The Ninety-Fourth Psalm
 

@@ -82,7 +82,7 @@ In the case of slanderers, they so literally sting with their tongues, which are
 
 **Verses  1, 4, 6, 8.** Good men live by prayer. He who gets to the throne of grace is covered by the cloud of glory, through which no sun can smite by day, nor moon by night.— *William Swan Plumer.* 
 
-**Verses 1, 7-11.** On the first reading of this Psalm one is inclined to think that there is somewhat of fierceness and bitterness in it, which is hardly consistent with the character of a child of God, and therefore unbecoming in David...And yet I really think that a little more examination of the language of this Psalm will lead us to believe that we are doing David wrong in affixing anything like a meaning or desire of vindictiveness to his words. Assuredly we can find no fault with one who takes his wrongs in prayer to God; who, like Hezekiah, takes the roll of his cares, and sorrows, and trials, and spreads it before the Lord. And this is what David does in the very first verse: *"Deliver me, O Lord, from the evil man; preserve me from the violent man."* I do not think a person who does this, who, when smarting under a sense of injury and wrong, goes at once to God and lays open his heart to him, is likely to go very far wrong; for even though he may have begun in somewhat of an unkindly spirit, yet prayer opens before us such a sight and sense of our own guiltiness and wrongs towards God, and thereby exercises such an abasing, as well as healing and soothing, influence over our feelings towards others, that we might almost be assured that he whose prayer might begin even with a vehement enumeration of his own wrongs, would end with something very like a determination to bless them that cursed, and to do good to them that hated him. You will observe, too, how, from first to last, David leaves his cause in God's hands; it is not "my sword and my bow that shall help me"; he counted them vain things to help a man; and therefore, as he had so often said in other Psalms; "The Lord was his shield and his defence", and as God had already shielded his head in the day of battle, so he prays for the same protection against his enemies now.— *Barton Bouchier.* 
+**Verses 1, 7-11.** On the first reading of this Psalm one is inclined to think that there is somewhat of fierceness and bitterness in it, which is hardly consistent with the character of a child of God, and therefore unbecoming in David... And yet I really think that a little more examination of the language of this Psalm will lead us to believe that we are doing David wrong in affixing anything like a meaning or desire of vindictiveness to his words. Assuredly we can find no fault with one who takes his wrongs in prayer to God; who, like Hezekiah, takes the roll of his cares, and sorrows, and trials, and spreads it before the Lord. And this is what David does in the very first verse: *"Deliver me, O Lord, from the evil man; preserve me from the violent man."* I do not think a person who does this, who, when smarting under a sense of injury and wrong, goes at once to God and lays open his heart to him, is likely to go very far wrong; for even though he may have begun in somewhat of an unkindly spirit, yet prayer opens before us such a sight and sense of our own guiltiness and wrongs towards God, and thereby exercises such an abasing, as well as healing and soothing, influence over our feelings towards others, that we might almost be assured that he whose prayer might begin even with a vehement enumeration of his own wrongs, would end with something very like a determination to bless them that cursed, and to do good to them that hated him. You will observe, too, how, from first to last, David leaves his cause in God's hands; it is not "my sword and my bow that shall help me"; he counted them vain things to help a man; and therefore, as he had so often said in other Psalms; "The Lord was his shield and his defence", and as God had already shielded his head in the day of battle, so he prays for the same protection against his enemies now.— *Barton Bouchier.* 
 
 **Verses 1, 11.** Three special forms of Satanic energy are individualized. The evil or wicked man, the violent man, and the man of tongue are severally appealed from by the suppliant speaker of the prayer of faith.— *Arthur Pridham.* 
 
@@ -112,7 +112,7 @@ The poison of the soul is only *sin*, and this is like to poison in many respect
 
 **Verse 3.** Often the tongue of the serpent is spoken of as the seat of its venom. This is popular, not scientific language.— *William Swan Plumer.* 
 
-**Verse 3.** *Adder.* The word *acshub* (pronounced, ak-shoob), only occurs in this one passage. The precise species represented by this word is unknown. Buxtorf, however, explains the word as the Spitter, "illud genus quod venelmm proeul exspuit." Now, if we accept this derivation, we must take the word *acshub* as a synonym for *pethen*. We have already identified the Pethen with the Naja haje, a snake which has the power of expelling the poison to some distance, when it is out of reach of its enemy. Whether the snake really intends to eject the poison, or whether it is merely flung from the hollow fangs by the force of the suddenly checked stroke, is uncertain. That the Haje cobra can expel its poison is an acknowledged fact, and the Dutch colonists of the Cape have been so familiarly acquainted with this habit, that they have called this reptile by the name of Spuugh Slange, or Spitting Snake, a name which, if we accept Buxtorf's etymology, is precisely equivalent to the word acshub.— *J.G. Wood*, in *"Bible Animals."* 
+**Verse 3.** *Adder.* The word *acshub* (pronounced, ak-shoob), only occurs in this one passage. The precise species represented by this word is unknown. Buxtorf, however, explains the word as the Spitter, "illud genus quod venelmm proeul exspuit." Now, if we accept this derivation, we must take the word *acshub* as a synonym for *pethen*. We have already identified the Pethen with the Naja haje, a snake which has the power of expelling the poison to some distance, when it is out of reach of its enemy. Whether the snake really intends to eject the poison, or whether it is merely flung from the hollow fangs by the force of the suddenly checked stroke, is uncertain. That the Haje cobra can expel its poison is an acknowledged fact, and the Dutch colonists of the Cape have been so familiarly acquainted with this habit, that they have called this reptile by the name of Spuugh Slange, or Spitting Snake, a name which, if we accept Buxtorf's etymology, is precisely equivalent to the word acshub.— *J. G. Wood*, in *"Bible Animals."* 
 
 **Verses 3, 5, 8.** Selah. We meet with Selah here for the first time since Psalm 89. From Psalm 90 to Psalm 140 no Selah occurs. Why omitted in these fifty we cannot tell any more than why so often recurring in others. However, there are only about forty Psalms in all in which it is used.— *Andrew A. Bonar.* 
 
@@ -172,7 +172,7 @@ The poison of the soul is only *sin*, and this is like to poison in many respect
 
 **Verses 1-5.** 
 
-1\.The particular source of David's affliction: it was from men. In this he was a type of Christ.
+1\. The particular source of David's affliction: it was from men. In this he was a type of Christ.
 
 a) Their wickedness: "the evil man."
 
@@ -188,7 +188,7 @@ f) Their avowed design: "they have purposed to overthrow my goings" (Ps 140:4).
 
 g) Their intrigues (Ps 140:5).
 
-2\.His universal remedy: "Deliver me, O Lord"; "preserve" and help me. His defence is,
+2\. His universal remedy: "Deliver me, O Lord"; "preserve" and help me. His defence is,
 
 a) In God.
 
@@ -196,13 +196,13 @@ b) In prayer to God.— *G. R.*
 
 **Verses 1-5.** In our position, age, and country, we are not in danger of violence from men, as was David; still, no man is absolutely safe front the danger.
 
-1\.Mention some eases not yet impossible.
+1\. Mention some eases not yet impossible.
 
 a) A Christian workman, because he cannot comply with unrighteous customs, excites the animosity of his fellow workers. They will do him mischief, spoil his work, steal his tools, speak evil of him, until his employer discharges him to restore peace in the factory.
 
 b) A Christian clerk or shop assistant, because his presence is a check upon his sinful companions, may have snares laid for him, etc.
 
-2\.Suggest advice, useful, should such a case arise.
+2\. Suggest advice, useful, should such a case arise.
 
 a) Resort to God with a "Deliver me", and a "Preserve me."
 
@@ -216,47 +216,47 @@ c) Should the mischievous ones succeed, still trust in God, who can make their m
 
 **Verse 5.** The Dangers of Society.
 
-1\.The secrecy of the attacks of the ungodly: "hid a snare."
+1\. The secrecy of the attacks of the ungodly: "hid a snare."
 
-2\.The variety of their weapons: "and cords."
+2\. The variety of their weapons: "and cords."
 
-3\.The cunning choice of position: "by the wayside."
+3\. The cunning choice of position: "by the wayside."
 
-4\.The object of their designs: "for me": they desire to destroy the man himself.
+4\. The object of their designs: "for me": they desire to destroy the man himself.
 
 **Verse 5.** *The Net by the Wayside*, or, covert temptations; temptations brought near, and made applicable to daily life.
 
 **Verse 6.** 
 
-1\.The language of assurance.
+1\. The language of assurance.
 
-2\.The plea for acceptance in prayer.
+2\. The plea for acceptance in prayer.
 
 **Verses 6-7.** David comforted himself,
 
-1\.In his interest in God: "I said...thou art my God."
+1\. In his interest in God: "I said...thou art my God."
 
-2\.In his access to God: he had leave to speak to him, and might expect an answer of peace: "Hear", etc.
+2\. In his access to God: he had leave to speak to him, and might expect an answer of peace: "Hear", etc.
 
-3\.In the assurance he had of help from God, and happiness in him (Ps 140:7).
+3\. In the assurance he had of help from God, and happiness in him (Ps 140:7).
 
-4\.In the experience he had formerly of God's care of him: "Thou hast covered my head in the day of battle."— *Matthew Henry.* 
+4\. In the experience he had formerly of God's care of him: "Thou hast covered my head in the day of battle."— *Matthew Henry.* 
 
 **Verses 6-8.** Three arguments to be pleaded in a prayer for protection.
 
-1\.The believer's covenanted property in God. "I said... thou art my God."
+1\. The believer's covenanted property in God. "I said... thou art my God."
 
-2\.The past mercies of God. "Thou hast covered", etc.
+2\. The past mercies of God. "Thou hast covered", etc.
 
-3\.The impropriety of the wicked being encouraged in their wickedness, Ps 140:8.— *J. F.* 
+3\. The impropriety of the wicked being encouraged in their wickedness, Ps 140:8.— *J. F.* 
 
 **Verses 6-12.** The Consolations of the Believer in Time of Trouble.
 
-1\.What he can say.
+1\. What he can say.
 
-2\.What he can remember.
+2\. What he can remember.
 
-3\.What he is assured of.
+3\. What he is assured of.
 
 **Verses 6-7, 12-13.** Times of Assault, Slander, and Temptation should be special times of Prayer and Faith. David here makes prominent five things.
 
@@ -312,7 +312,7 @@ d) Praise practised by communion.
 
 **Verse 11.** (*first clause*.)
 
-1\.Notice a few varieties of evil speakers.
+1\. Notice a few varieties of evil speakers.
 
 a) Liars; the common liar, the trade liar, the stock exchange liar, the political liar, etc.
 
@@ -324,7 +324,7 @@ d) Libertines and seducers.
 
 e) Sceptics and new theology inventors.
 
-2\.The propriety of the prayer.
+2\. The propriety of the prayer.
 
 a) Because evil speaking is intrinsically an evil thing.
 
@@ -332,7 +332,7 @@ b) It is an extensively injurious thing.
 
 c) He who would have God's truth established must needs desire that evil speaking must fail.
 
-3\.The limitation of the prayer: "In the earth."
+3\. The limitation of the prayer: "In the earth."
 
 a) It is certain an evil speaker cannot be established in heaven, nor in hell.
 
@@ -344,7 +344,7 @@ c) Then, become righteous and true, by faith in the Righteous One and the "Truth
 
 **Verse 11.** (*second clause.*) Theme—Sins committed, and not repented of, pursue men to their ruin.
 
-1\.Illustrate.
+1\. Illustrate.
 
 a) They may raise a force of opposition from men. Tarquin, Napoleon, etc.
 
@@ -354,7 +354,7 @@ c) They may arouse destructive remorse, as in Judas.
 
 d) Certainly they will pursue to the judgment seat, and hunt the soul into hell.
 
-2\.Apply.
+2\. Apply.
 
 a) How fearful a thing must sin be.
 
@@ -364,7 +364,7 @@ c) Flee from the avenging pursuers to Christ, the only and safe refuge.— *J. F
 
 **Verse 11.** (*second clause.*) The hunt and pursuit of the violent sinner.
 
-1\.The progress of the chase.
+1\. The progress of the chase.
 
 a) At first the victim is ignorant of it.
 
@@ -372,39 +372,39 @@ b) But ere long he finds Scripture, conscience, God, Death, at his heels.
 
 c) His own sins cry loudest after him.
 
-2\.The issue of the hunt. Hemmed in, overthrown, lost for ever, unless he repent.
+2\. The issue of the hunt. Hemmed in, overthrown, lost for ever, unless he repent.
 
-3\.Another Huntsman. "The Son of man is come to seek and save that which was lost."— *W. B. H.* 
+3\. Another Huntsman. "The Son of man is come to seek and save that which was lost."— *W. B. H.* 
 
 **Verse 12.** 
 
-1\.The known fact.
+1\. The known fact.
 
-2\.The reasons for being so assured of it.
+2\. The reasons for being so assured of it.
 
-3\.The conduct arising out of the knowledge.
+3\. The conduct arising out of the knowledge.
 
 **Verse 12.** Something worth knowing.
 
-1\.By the afflicted and the poor who trust in the Lord.
+1\. By the afflicted and the poor who trust in the Lord.
 
-2\.By the oppressors who afflict and do the wrong.
+2\. By the oppressors who afflict and do the wrong.
 
-3\.By all men, that they may trust in the Lord, and praise him for his compassion towards the needy, and for his even handed justice.— *J. F.* 
+3\. By all men, that they may trust in the Lord, and praise him for his compassion towards the needy, and for his even handed justice.— *J. F.* 
 
 **Verses 12-13.** 
 
-1\.Trust under all circumstances (Ps 140:12).
+1\. Trust under all circumstances (Ps 140:12).
 
-2\.Gratitude for all things: "The righteous shall give thanks unto thy name."
+2\. Gratitude for all things: "The righteous shall give thanks unto thy name."
 
-3\.Safety at all times: "The upright shall dwell in thy presence."— *G. R.* 
+3\. Safety at all times: "The upright shall dwell in thy presence."— *G. R.* 
 
 **Verse 13.** One of the noblest forms of praise,—dwelling in the presence of God. Or, reverent regard to God's presence, holy communion with the Lord, confiding rest in God's dealings, obedient doing of the heavenly will—the best way of giving thanks to God.
 
 **Verse 13.** Two assertions beyond contradiction.
 
-1\.The righteous are sure to give thanks to God, let others be as thankless as they will. For,
+1\. The righteous are sure to give thanks to God, let others be as thankless as they will. For,
 
 a) They recognise all their good as coming from God.
 
@@ -414,7 +414,7 @@ c) They are anxious to do right, because they are righteous; and that involves t
 
 d) Thankfulness is a part of the joy derived from what they enjoy.
 
-2\.The upright are sure to dwell in God's presence.
+2\. The upright are sure to dwell in God's presence.
 
 a) In the sense of setting the Lord before them.
 

@@ -78,11 +78,11 @@ The fountains of my bliss in thee.'"
 
 **Verse 1.** *—His foundation is in the holy mountains.* The foundation that God has given his city is in "the holy mountains." What are these holy mountains? What can they be but the eternal purpose of Jehovah—the purpose out of which the being of the Church and the whole dispensation of Divine love have sprung? What but those attributes of mercy, justice, holiness, and sovereignty, from the ineffable embrace and holy cooperation of which it comes to pass that his chosen people are redeemed? What but the promise of life that was given in Christ to the elect before the world began? What but the everlasting covenant, "ordered in all things and sure" from which grace and salvation proceed? What but these things, and Christ himself, the Rock of Ages, on which rock we know that the Church is so firmly founded, that the gates of hell cannot prevail against her? Yes, these are the holy mountains, whereon the city of God is built, and in which its deep and sure foundations are laid. The sure decree, the divine perfections, the promise of him that cannot lie, the oath and covenant of God, and the incarnate Son himself, are the holy mountains, the perpetual hills, whose summits are gloriously crowned by the city of the Great King. There the city sits securely, beautiful for situation, the joy of the whole earth.— *Andrew Gray*.
 
-**Verse 1.** *Mountains.* The situation of Jerusalem is in several respects singular amongst the cities of Palestine. Its elevation is remarkable, occasioned, not from its being on the summit of one of the numerous hills of Judaea, like most of the towns and villages, but because it is on the edge of one of the highest table lands of the country. Hebron, indeed, is higher still, by some hundred feet; and from the south, accordingly, the approach to Jerusalem is by a slight descent. But from every other side, the ascent is perpetual; and, to the traveller approaching Jerusalem from the west or east, it must always have presented the appearance, beyond any other capital of the then known world—we may add, beyond any important city that has ever existed on the earth—of a mountain city; breathing, as compared with the sultry plains of the Jordan or of the coast, a mountain air; enthroned, as compared with Jericho or Damascus, Gaza or Tyre, on a mountain fastness. In this respect it concentrated in itself the character of the whole country of which it was to be the capital—the "mountain throne", the "mountain sanctuary", of God. "The `mount' of God is as the `mount' of Bashan; an high mount as the mount of Bashan. Why leap ye so, ye high `mountains'?this is the `mountain' which God desireth to dwell in"...It was emphatically the lair of the lion of Judah, of "Ariel", the Lion of God. "In Judah is God known; his name is great in Israel. In Salem is his `leafy covert', and his `rocky den' in Zion...Thou art more glorious and excellent than the `mountains of the robbers'". And this wild and fastness like character of Jerusalem was concentrated yet again in the fortress, the "stronghold" of Zion. That point, the highest in the city, the height which most readily catches the eye from every quarter, is emphatically the "hill fort", the "rocky hold" of Jerusalem—the refuge where first the Jebusite, and then the Lion of God, stood at bay against the hunters.— *Arthur Penrhyn Stanley*.
+**Verse 1.** *Mountains.* The situation of Jerusalem is in several respects singular amongst the cities of Palestine. Its elevation is remarkable, occasioned, not from its being on the summit of one of the numerous hills of Judaea, like most of the towns and villages, but because it is on the edge of one of the highest table lands of the country. Hebron, indeed, is higher still, by some hundred feet; and from the south, accordingly, the approach to Jerusalem is by a slight descent. But from every other side, the ascent is perpetual; and, to the traveller approaching Jerusalem from the west or east, it must always have presented the appearance, beyond any other capital of the then known world—we may add, beyond any important city that has ever existed on the earth—of a mountain city; breathing, as compared with the sultry plains of the Jordan or of the coast, a mountain air; enthroned, as compared with Jericho or Damascus, Gaza or Tyre, on a mountain fastness. In this respect it concentrated in itself the character of the whole country of which it was to be the capital—the "mountain throne", the "mountain sanctuary", of God. "The `mount' of God is as the `mount' of Bashan; an high mount as the mount of Bashan. Why leap ye so, ye high `mountains'?this is the `mountain' which God desireth to dwell in"... It was emphatically the lair of the lion of Judah, of "Ariel", the Lion of God. "In Judah is God known; his name is great in Israel. In Salem is his `leafy covert', and his `rocky den' in Zion... Thou art more glorious and excellent than the `mountains of the robbers'". And this wild and fastness like character of Jerusalem was concentrated yet again in the fortress, the "stronghold" of Zion. That point, the highest in the city, the height which most readily catches the eye from every quarter, is emphatically the "hill fort", the "rocky hold" of Jerusalem—the refuge where first the Jebusite, and then the Lion of God, stood at bay against the hunters.— *Arthur Penrhyn Stanley*.
 
-**Verses 1-2.** —If we suppose the Psalm to have been composed in the days of Hezekiah, it will appear quite intelligible that the Psalmist should break out so suddenly at the beginning with praise of the *security* of Sion: he merely lends his mouth in this case to the full heart of the people; *The Lord loveth the gates of Zion more than all the dwellings of Jacob*, is seen in its true light, for this preference for Sion was at that time *verified* —its gates remained closed upon the enemies, while all the rest of the country was subject to their sway.— *E.W. Hengstenberg.* 
+**Verses 1-2.** —If we suppose the Psalm to have been composed in the days of Hezekiah, it will appear quite intelligible that the Psalmist should break out so suddenly at the beginning with praise of the *security* of Sion: he merely lends his mouth in this case to the full heart of the people; *The Lord loveth the gates of Zion more than all the dwellings of Jacob*, is seen in its true light, for this preference for Sion was at that time *verified* —its gates remained closed upon the enemies, while all the rest of the country was subject to their sway.— *E. W. Hengstenberg.* 
 
-**Verse 2.** *The Lord loveth the gates*, etc. The gates of a walled city give access to it and power over it, and are therefore naturally here put for the whole. The Hebrew participle (*loving*) implies constant and habitual attachment.— *J.A. Alexander.* 
+**Verse 2.** *The Lord loveth the gates*, etc. The gates of a walled city give access to it and power over it, and are therefore naturally here put for the whole. The Hebrew participle (*loving*) implies constant and habitual attachment.— *J. A. Alexander.* 
 
 **Verse 2.** *The Lord loveth the gates of Zion.* Because of the going out and coming in of the people of God. Thus indeed the disposition of lovers is shown, that they are filled with a remarkable affection of love towards those places through which those whom they love frequently pass, as doors and gates, and those ways which they daily traverse. What other reason could God have for loving the gates of Zion?— *Musculus*.
 
@@ -92,21 +92,21 @@ The fountains of my bliss in thee.'"
 
 **Verse 2.** *The Lord loveth the gates of Zion more than all*, etc. It is here assumed that the Lord loves the dwellings of Jacob—he loves those that are true Israelites. These are succeeded by the name *Christian*, for the Christian Church is now become the true Israel of God. He loves his saints on account of that image of himself which they bear; he loves them on account of those graces which are infused into them when they are renewed by the Spirit; he loves them on account of the relation they stand in to him as his people, and as his church, who are qualified for the duties of the relation by that love of their Father, that reliance upon his care, that delight in his person, that enjoyment in his service, which belongs to dutiful and affectionate children. He loves them because they imitate his perfections in some humble measure—because they receive the word of his mouth—because they are ready to obey every call of his providence, setting themselves in the paths of his testimony wherever he may direct—because they yield themselves to God, as those that are alive from the dead, and their bodies as instruments of righteousness, no longer walking after the deeds of the flesh, but after the will of God. He takes a delight in them; the Lord delighteth in the righteous; he knoweth their way; he loves, approves, and confirms them. The most common occupations of life—the honest industry of the servants of God, is looked upon by him with approbation. By these they show forth their Father, and the praises of him who called them from darkness to light. The most ordinary duties of our calling become sacrifices to God, and religious duties, when performed in the Spirit, and directed to the great end of glorifying God. He looks with peculiar complacency on the dwellings of his people on account of those domestic devotional acknowledgments of his majesty which are there maintained, when the head walks before his family as a priest to offer praise and thanksgiving; this attracts peculiar approbation and delight. He loves to see his people training up their children in the nurture and admonition of the Lord, and their children walking after them in the paths of that obedience which he has enjoined. He delights to see the course of purity which runs in Christian families. He loves to see the progress which the younger parts of religious families make in piety, while they grow in grace, and in favour with God and man. He looks down with peculiar delight on such circles as these: there he deigns his presence, and bestows peculiar blessings. However obscure the dwellings of Jacob may be, to him they are open and manifest at all times; and whether in cottages or in palaces, his eye rests there with complacency; and he says of such places, "Here will I dwell forever and ever." Prayer and devotion sanctify every family, and diffuse a spirit of piety through all the avocations of life, so that we need not retire from the world, but are rather called to show forth the virtues of the Christian life in it. But it is said, that, although "he loves the dwellings of Jacob", yet *"he loves the gates of Zion more* than all the dwellings of Jacob"—that nothing in the dwellings of Jacob so much attracts his attention as the people of God connected together in a spiritual capacity.
 
-1\.In the first place, the Divine Being regards with peculiar complacency the worship of his saints on its own account.
+1\. In the first place, the Divine Being regards with peculiar complacency the worship of his saints on its own account.
 
-2\.On account of that union of mind and consent of heart, evinced in the assembling of God's people together, and constituting themselves into a church.
+2\. On account of that union of mind and consent of heart, evinced in the assembling of God's people together, and constituting themselves into a church.
 
-3\.Because of the testimony which the church bears toward the truth.
+3\. Because of the testimony which the church bears toward the truth.
 
-4\.Upon account of that deference to his authority, which is evinced by maintaining and keeping up the practice of those institutes which rest entirely on that authority.
+4\. Upon account of that deference to his authority, which is evinced by maintaining and keeping up the practice of those institutes which rest entirely on that authority.
 
-5\.By making the assembly of the saints the grand means of conversion.
+5\. By making the assembly of the saints the grand means of conversion.
 
-6\.That peculiar presence of God is generally vouchsafed to his saints, and made manifest to them, although it be hidden from the world, which induces the conviction that God is present of a truth.
+6\. That peculiar presence of God is generally vouchsafed to his saints, and made manifest to them, although it be hidden from the world, which induces the conviction that God is present of a truth.
 
-7\.The Divine Being shows his preference of the gates of Zion to the dwellings of Jacob, by continually maintaining in operation those gifts which are for the edification of the saints, and without which the union of the saints would be with difficulty maintained.
+7\. The Divine Being shows his preference of the gates of Zion to the dwellings of Jacob, by continually maintaining in operation those gifts which are for the edification of the saints, and without which the union of the saints would be with difficulty maintained.
 
-8\.The Divine Being shows his preference to Zion by that marvellous protection which is afforded to the interests of the church of God: whereby, though weak, and frequently reduced to a handful of disciples, yet they have been protected, and their society on earth continued.— *Robert Hall*.
+8\. The Divine Being shows his preference to Zion by that marvellous protection which is afforded to the interests of the church of God: whereby, though weak, and frequently reduced to a handful of disciples, yet they have been protected, and their society on earth continued.— *Robert Hall*.
 
 **Verse 2.** Some absent themselves from public worship, under pretence that they can serve the Lord at home as well in private. How many are apt to say, they see not but their time may be as well spent at home, in praying, reading some good book, or discoursing on some profitable subject, as in the use of ordinances in public assemblies! They see not but private prayer may be as good to them as public, or private reading and opening the Scripture as profitable as public preaching; they say of their private duties, as Naaman of the waters of Damascus, 2Ki 5:12: May I not serve the Lord as acceptably, with as much advantage, in private exercises of religion? May I not wash in these and be clean? They see not the great blessings God has annexed to public worship more than to private. Oh, but if it be thus, if one be as good as the other, what means the Lord to prefer one before the other? To what purpose did the Lord choose the gates of Zion, to place his name there, if he might have been worshipped as well in the dwellings of Jacob? How do men of this conceit run counter to the Lord? He prefers the gates of Zion, not only before one or some, but before all the dwellings of Jacob; and they prefer one such dwelling before the gates of Zion.— *David Clarkson*.
 
@@ -126,19 +126,19 @@ The fountains of my bliss in thee.'"
 
 **Verse 4.** *Born in her. The* Missionary Society set forth in the Prophets, by our Lord and by his apostles, is, the Church; and so, whereas our natural state, after Adam's fall, was alienation from God, and disunion among ourselves, would He restore "glory to God in the highest and on earth peace, good will towards men", by binding us up in one holy fellowship, and making the continuance of his blessings dependent upon that unity, which he imparted and preserves. To adduce the whole proof for this, would be to go through the whole Old Testament; for the Old Testament is direct prophecy and type, is one large prophecy of the Redeemer and his Kingdom or Church. No sooner had disunion multiplied with the multiplying of men, but in the second generation from Adam, he formed union through a Church, and "Men began to call upon the name of the Lord" (Ge 4:26), *i.e.,* they began to unite in worshipping the Lord, and amid the growing corruption, religion was no longer entrusted to the insulated care of single families, but concentrated in a church. And when, after the flood, one righteous man was called out of the fast corrupting world, unity was preserved, in that one only was called, but in that one a church was founded; for this was the reason assigned by God himself: "All the nations of the earth shall be blessed in him. For I know him, that he will command his children and his household after him, and they shall keep the way of the Lord", (Ge 18:18-19). "God called Abraham *alone*, and blessed him, and increased him" (Isa 51:2), and formed the Jewish Church out of him, that however largely it might spread, it might be bound in one by its origin of one; and he gave it also outward marks and signs between him and it, which by severing it from others, might keep it one in itself. The temporal people had their union through a temporal birth of one, and outward signs; the Christian Church has its unity by a spiritual birth, and inward graces, through the power deposited in her to give spiritual birth, so that through one mother, we are all born of one Father, God, and amongst ourselves are brethren, by being members of One, our ever blessed Lord.
 
-The unity of the Christian Church and her office of gathering all nations unto the Lord, are set forth, in many ways, in prophecy. Thus, in our Psalm, Zion is set forth as the special object of God's love, as having (in language which anticipates the Gospel) been "founded" by him "on the holy mountains", as the "city of God", whereof "glorious things are spoken." And what are these? That she should be the spiritual birthplace of all nations. It is not merely said, as in other places, that they should "come to her", should "flow into her", but that they should be "born in her." "Of Zion it shall be said, This and that man (*i.e.* all, one by one) was born in her; "and whence? all the nations of the earth, Rahab or Egypt, Babylon, Tyre, Ethiopia, Philistia, the most learned, the most powerful, the wealthiest, the furthest, and her nearest, oldest and bitterest enemy Philistia, all, being already born after the flesh, as Egyptians, Babylonians, Ethiopians, Tyrians, Philistines, should be "born in her", and by being "born there", should become children of God, citizens of the heavenly Jerusalem, written by God in the roll of his book. "The Lord shall count, when he writeth up the people, that this man was born there"; he shall account them as his, being reborn in his Church. In like manner, with regard to every prophecy, whereat men's hearts beat, as an encouragement to Missionary labours. Throughout, it is the Lord and Saviour of the Church, or the Church itself, filled with his Spirit, and restored and enlarged, and widening herself by his favour, and gathering his people into herself, his fold.— *E.B. Pusey, in a Sermon entitled, "The Church the Converter of the Heathen."* 1838.
+The unity of the Christian Church and her office of gathering all nations unto the Lord, are set forth, in many ways, in prophecy. Thus, in our Psalm, Zion is set forth as the special object of God's love, as having (in language which anticipates the Gospel) been "founded" by him "on the holy mountains", as the "city of God", whereof "glorious things are spoken." And what are these? That she should be the spiritual birthplace of all nations. It is not merely said, as in other places, that they should "come to her", should "flow into her", but that they should be "born in her." "Of Zion it shall be said, This and that man (*i.e.* all, one by one) was born in her; "and whence? all the nations of the earth, Rahab or Egypt, Babylon, Tyre, Ethiopia, Philistia, the most learned, the most powerful, the wealthiest, the furthest, and her nearest, oldest and bitterest enemy Philistia, all, being already born after the flesh, as Egyptians, Babylonians, Ethiopians, Tyrians, Philistines, should be "born in her", and by being "born there", should become children of God, citizens of the heavenly Jerusalem, written by God in the roll of his book. "The Lord shall count, when he writeth up the people, that this man was born there"; he shall account them as his, being reborn in his Church. In like manner, with regard to every prophecy, whereat men's hearts beat, as an encouragement to Missionary labours. Throughout, it is the Lord and Saviour of the Church, or the Church itself, filled with his Spirit, and restored and enlarged, and widening herself by his favour, and gathering his people into herself, his fold.— *E. B. Pusey, in a Sermon entitled, "The Church the Converter of the Heathen."* 1838.
 
 **Verses 4-6.** It is made the honour and dignity of Sion, that is, of the true Church of God, to have such and such born in it: " *this and that man* was born in *her*." There are two things signified in this expression, as branches of their honour; the one is the *quality* of the persons; and the other is the *number* of them. For the *quality* of them, *this*; for the number of them, *this and that*. To have both of these born in Sion, persons of *note and eminency*, and a *multitude and plurality* of such persons; this is a part of that dignity and renown which belongs unto it.... And so for the noun, *man*; the Hebrew word vya which is here used for a man, except qualified by some other word as joined with it, signifies a man of *worth*, not a common or ordinary person. The Church brings forth such as these, Mvh yvna, men of renown, famous and eminent men, and that in all kinds of perfections, whether natural, or civil, or spiritual; men of parts, or men of power, or men of piety. There are those in all these excellencies which have been and still are born in her.
 
 First, take it for *natural* or *acquired* abilities; men of parts, and knowledge, and wisdom, and improved understandings; the church is not without these: *this man*, *i.e.,* this *learned* man, or this *wise* man was born in Sion. All are not idiots who are Christians; no, but there are some of very rare and admirable accomplishments in all kinds and pieces of learning and secular knowledge, which are graciously qualified. There's Paul with his parchments, and Peter with his fisher's net.
 
-So also secondly, take it for civil or secular qualifications; men of dignity, and power, and estate: *"this man"*, *i.e.,* this *honourable* man, Mynp awvn, eminent in countenance, as he is called, Isa 3:2, *he* is likewise born in Sion; the mighty man, and the man of war. The Syriac interpreter was so far sensible of this, as that he expresses it in the very text; and therefore instead of saying, *"This* man was born there", he says, " *A potent man* was born there, `and *he* has established it; '"whereby (as I conceive), he takes in the word *highest*, which follows afterwards in the verse, and refers it here to this place...And again, the Chaldee paraphrast in the text, " *This King* was born there", understanding thereby Solomon, as most conceive and apprehend it.
+So also secondly, take it for civil or secular qualifications; men of dignity, and power, and estate: *"this man"*, *i.e.,* this *honourable* man, Mynp awvn, eminent in countenance, as he is called, Isa 3:2, *he* is likewise born in Sion; the mighty man, and the man of war. The Syriac interpreter was so far sensible of this, as that he expresses it in the very text; and therefore instead of saying, *"This* man was born there", he says, " *A potent man* was born there, `and *he* has established it; '"whereby (as I conceive), he takes in the word *highest*, which follows afterwards in the verse, and refers it here to this place... And again, the Chaldee paraphrast in the text, " *This King* was born there", understanding thereby Solomon, as most conceive and apprehend it.
 
-Thirdly, take it for *spirituals*, and for these accomplishments especially; *This man*, *i.e.,* this *godly* man; this is that which is most proper and essential to Sion, and to the being born in it; yea, it is that which *makes Sion* itself, in the sense we now take it. It is the highest perfection of it, and the greatest commendation to it of any thing else. This is the great honour of the church, that it forms men to such qualities and dispositions as those are, which no other place does beside...As for other places, they may perhaps now and then reach to some *other principles*, and those likewise very glorious in the eyes of the *world* —morality, and civility, and ingenuity, and smoothness of behaviour. The school of nature and common reason may sometimes come up to these, and that in a very great measure; yea, but now go a little higher, to brokenness of heart, to self denial, to love of enemies, to closing with Christ, the frame and spirit of the gospel; this is to be found nowhere but only *in Sion.* And here it is: *"This man* was born *there."* 
+Thirdly, take it for *spirituals*, and for these accomplishments especially; *This man*, *i.e.,* this *godly* man; this is that which is most proper and essential to Sion, and to the being born in it; yea, it is that which *makes Sion* itself, in the sense we now take it. It is the highest perfection of it, and the greatest commendation to it of any thing else. This is the great honour of the church, that it forms men to such qualities and dispositions as those are, which no other place does beside... As for other places, they may perhaps now and then reach to some *other principles*, and those likewise very glorious in the eyes of the *world* —morality, and civility, and ingenuity, and smoothness of behaviour. The school of nature and common reason may sometimes come up to these, and that in a very great measure; yea, but now go a little higher, to brokenness of heart, to self denial, to love of enemies, to closing with Christ, the frame and spirit of the gospel; this is to be found nowhere but only *in Sion.* And here it is: *"This man* was born *there."* 
 
 Behold Philistia, and Tyre, with Ethiopia; this man was born *there.* Here's the excellency of the ordinances, and that power and energy which is stirring in the Church of Christ; that it is able to work such a miraculous alteration *as this;* to bring men from darkness to light, from Satan to God, from a state of sin and corruption and unregeneracy, to a state of grace and holiness and regeneration; yea, from the lowest degree of the one to the highest degree of the other. That *Philistia* should turn into *Palestina*, *Tyre* into, *Jerusalem*, *Ethiopia* into *Judea* ;here's the wonder of all; the reconciling of these two opposite terms thus both together. That "princes should come out of *Egypt* ", and that *Ethiopia* should stretch out her hands to God, as it is in Ps 68:31; that the blackamoor should change his skin, and that the leopard should change his spots; and that this Ethiopian should become this Christian; "that he which was born *there*, should be born *here*." *Thomas Horton, in "Zion's Birth Register unfolded in a Sermon to the native citizens of London."* 1656.
 
-**Verses 4-6.** Foreign nations are here described not as captives or tributaries, not even as doing voluntary homage to the greatness and glory of Zion, but as actually incorporated and enrolled, by a new birth, among her sons. Even the worst enemies of their race, the tyrants and oppressors of the Jews, Egypt and Babylon, are threatened with no curse, no shout of joy is raised at the prospect of their overthrow, but the privileges of citizenship are extended to them, and they are welcomed as brothers. Nay more, God himself receives each one as a child newly born into his family, acknowledges each as his son, and enrols him with his own hand on the sacred register of his children. It is the mode of anticipating a future union and brotherhood of all the nations of the earth, not by conquest, but by incorporation into one state, and by a birthright so acquired, which is so remarkable. In some of the prophets, more especially in Isaiah, we observe the same liberal, conciliatory, comprehensive language towards foreign states, as Tyre and Ethiopia, and still more strikingly toward Egypt and Assyria (Isa 19:22-25). But the Psalm stands alone amongst the writings of the Old Testament, in representing this union of nations as a new birth unto the city of God...It is the first announcement of that great amity of nations, or rather of that universal common citizenship of which heathen philosophers dreamt, which was "in the mind of Socrates when he called himself a citizen of the world", which had become a common place of Stoic philosophy, which Judaism tried finally to realize by the admission of proselytes, through baptism, into the Jewish community; which Rome accomplished, so far as the external semblance went, first by subduing the nations, and then by admitting them to the rights of Roman citizenship. But the true fulfilment of this hope is to be found only in that kingdom which Christ has set up. He has gathered into his commonwealth all the kingdoms of the earth. He has made men one, members of the same family, by teaching them to feel that they are all children of the same Father. He has made it evident that the hope of the Jewish singer is no false hope; that there is a Father in heaven who cares for all, whatever name they bear. Thus the Psalm has received a better and higher fulfilment than that which lies on the surface of its words. It was fulfilled in Christ.— *J. J. Stewart Perowne*.
+**Verses 4-6.** Foreign nations are here described not as captives or tributaries, not even as doing voluntary homage to the greatness and glory of Zion, but as actually incorporated and enrolled, by a new birth, among her sons. Even the worst enemies of their race, the tyrants and oppressors of the Jews, Egypt and Babylon, are threatened with no curse, no shout of joy is raised at the prospect of their overthrow, but the privileges of citizenship are extended to them, and they are welcomed as brothers. Nay more, God himself receives each one as a child newly born into his family, acknowledges each as his son, and enrols him with his own hand on the sacred register of his children. It is the mode of anticipating a future union and brotherhood of all the nations of the earth, not by conquest, but by incorporation into one state, and by a birthright so acquired, which is so remarkable. In some of the prophets, more especially in Isaiah, we observe the same liberal, conciliatory, comprehensive language towards foreign states, as Tyre and Ethiopia, and still more strikingly toward Egypt and Assyria (Isa 19:22-25). But the Psalm stands alone amongst the writings of the Old Testament, in representing this union of nations as a new birth unto the city of God... It is the first announcement of that great amity of nations, or rather of that universal common citizenship of which heathen philosophers dreamt, which was "in the mind of Socrates when he called himself a citizen of the world", which had become a common place of Stoic philosophy, which Judaism tried finally to realize by the admission of proselytes, through baptism, into the Jewish community; which Rome accomplished, so far as the external semblance went, first by subduing the nations, and then by admitting them to the rights of Roman citizenship. But the true fulfilment of this hope is to be found only in that kingdom which Christ has set up. He has gathered into his commonwealth all the kingdoms of the earth. He has made men one, members of the same family, by teaching them to feel that they are all children of the same Father. He has made it evident that the hope of the Jewish singer is no false hope; that there is a Father in heaven who cares for all, whatever name they bear. Thus the Psalm has received a better and higher fulfilment than that which lies on the surface of its words. It was fulfilled in Christ.— *J. J. Stewart Perowne*.
 
 **Verses 4-7.** The main thought is that contained in Ps 87:4-7, the glorifying of Sion by the reception of the heathen into the number of its citizens; and a well defined form and arrangement of this thought forms the proper kernel of the Ps 87:1-7, "Sion, the *birth place* of the nations", which occurs in every one of the three verses (Ps 87:4-6), which are bounded by a Selah behind and before.— *E. W. Hengstenberg*.
 
@@ -152,7 +152,7 @@ Behold Philistia, and Tyre, with Ethiopia; this man was born *there.* Here's the
 
 **Verse 6.** — *Selah.* The Hebrew text addeth *"Selah",* which St. Jerome translates *semper* (always). For the Church, as a bride glorious in her husband, shall evermore be preached of; glorious things shall be spoken of her, and in her shall be continually sung the ineffable glory of the everlasting grace of God in Christ our Lord. And so the Jews for the most part interpret the word *"Selah"* by *"everlasting".* This is evident in their epitaphs, even as the Jewish epitaph is in Hebrew at Basle—"His soul continues in Paradise, Amen, Amen, Amen, forever and ever."— *Urbanus Regius (Le Roi) (1541) in "The Solace of Sion."* 
 
-**Verse 7.** *The singers; the players on instruments.* Song and music were prominent features of Divine worship in David's time. This is evident from the large number of two hundred and eighty-eight Levites who were expressly appointed for singing and the performance of music. Not less than two hundred and fifty-five singing men and singing women returned from the exile...The chief instruments used by the Levites were, according to the records of the Books of Chronicles, cymbals, harps, and lutes: according to Ps 5:1-12 (title), we should add the flute, which is frequently noticed on Egyptian monuments.— *Augustus F. Tholuck*.
+**Verse 7.** *The singers; the players on instruments.* Song and music were prominent features of Divine worship in David's time. This is evident from the large number of two hundred and eighty-eight Levites who were expressly appointed for singing and the performance of music. Not less than two hundred and fifty-five singing men and singing women returned from the exile... The chief instruments used by the Levites were, according to the records of the Books of Chronicles, cymbals, harps, and lutes: according to Ps 5:1-12 (title), we should add the flute, which is frequently noticed on Egyptian monuments.— *Augustus F. Tholuck*.
 
 **Verse 7.** (*First clause* ). *For all its inhabitants are expert musicians;* lit. *Sing like flute players*. The Hebrews seem to have surpassed all nations in the skill of poetry and music; and every citizen could sing and dance. This preeminence the Psalmist seems to hint at.— *Alexander Geddes.* 
 
@@ -198,13 +198,13 @@ Sung by flaming tongues above:
 
 Praise the mount—oh fix me on it,
 
-Mount of God's unchanging love."— *C.H.S.* 
+Mount of God's unchanging love."— *C. H. S.* 
 
 ## Hints to the Village Preacher
 
 **Verses 2-3.** 
 
-1\.The foundation of Zion.
+1\. The foundation of Zion.
 
 (a) It is but one: *"foundation."* 
 
@@ -218,7 +218,7 @@ Mount of God's unchanging love."— *C.H.S.*
 
 (f) It is situated in a glorious position.
 
-2\.The favour enjoyed by Zion.
+2\. The favour enjoyed by Zion.
 
 (a) God "loves the dwellings of Jacob." He led, fed, guarded, lighted, visited them.
 
@@ -236,7 +236,7 @@ Mount of God's unchanging love."— *C.H.S.*
 
 (h) Their fellowship is on a scale more heavenly. Let us be in the Church, and love her.
 
-3\.The fame of Zion. "Glorious things are spoken",
+3\. The fame of Zion. "Glorious things are spoken",
 
 (a) *of* her in history;
 
@@ -250,7 +250,7 @@ Here is a fruitful theme.
 
 **Verse 3.** The idea of the text presents the Church as "the city of God": let us touch upon some of the "glorious things" that are spoken of it.
 
-1\.There are glorious things with respect to the *erection* of the city.
+1\. There are glorious things with respect to the *erection* of the city.
 
 (a) There is the plan of its erection. There was never a plan so faultless, so complete, so wonderful for its beauty and grandeur. The gates, the walls, the buildings, the streets, the monuments, the fountains, the gardens, unite to proclaim it a master piece of skill. The Architect was he who built the skies.
 
@@ -260,9 +260,9 @@ Here is a fruitful theme.
 
 (d) It was standing before the flood. Noah, Enoch, Abel, dwelt in it. It is almost as old as the creation.
 
-2\.There are glorious things to tell of the *defences* of the city. It has been besieged ever since it was a city at all, and it is not taken to this hour. "We have a strong city", etc.
+2\. There are glorious things to tell of the *defences* of the city. It has been besieged ever since it was a city at all, and it is not taken to this hour. "We have a strong city", etc.
 
-3\.There are glorious things in connection with the *stores* and *supplies* on which the city depends;
+3\. There are glorious things in connection with the *stores* and *supplies* on which the city depends;
 
 (a) their excellence;
 
@@ -270,95 +270,95 @@ Here is a fruitful theme.
 
 (c) their source.
 
-4\.There are glorious things respecting the *King* of the city; his name, person, character, etc.
+4\. There are glorious things respecting the *King* of the city; his name, person, character, etc.
 
-5\.There are glorious things in connection with the *citizens* of the day.— *Andrew Gray,* 1805-1861.
+5\. There are glorious things in connection with the *citizens* of the day.— *Andrew Gray,* 1805-1861.
 
 **Verse 3.** 
 
-1\.Observe, that a city is not like a flower, a tree, or a plant—something that grows out of the earth, and is nourished from the earth, and dependent wholly on its juices. It is an artificial thing, constructed by wisdom and raised by power, as it was designed by genius and forethought.
+1\. Observe, that a city is not like a flower, a tree, or a plant—something that grows out of the earth, and is nourished from the earth, and dependent wholly on its juices. It is an artificial thing, constructed by wisdom and raised by power, as it was designed by genius and forethought.
 
-2\.A city upon earth is surrounded generally by walls.
+2\. A city upon earth is surrounded generally by walls.
 
-3\.Jerusalem (the most celebrated of cities, from which this figure is obviously drawn) was built upon the brow of a hill, an extremely conspicuous and beautiful object.
+3\. Jerusalem (the most celebrated of cities, from which this figure is obviously drawn) was built upon the brow of a hill, an extremely conspicuous and beautiful object.
 
-4\.In a city there are various buildings, and structures of various shapes, materials and value: illustrate by the different denominations, & c.
+4\. In a city there are various buildings, and structures of various shapes, materials and value: illustrate by the different denominations, & c.
 
-5\.A city has municipal laws.
+5\. A city has municipal laws.
 
-6\.It has also trade, traffic, & c.
+6\. It has also trade, traffic, & c.
 
-7\.The figure, as applied to the Church of Christ, involves the idea of safety or security, honour, & c.
+7\. The figure, as applied to the Church of Christ, involves the idea of safety or security, honour, & c.
 
-8\.There is also the idea of fewness.— *John Cumming,* 1843.
+8\. There is also the idea of fewness.— *John Cumming,* 1843.
 
 **Verse 3.** The things "spoken" of the city of God.
 
-1\.It shall be the permanent and the peculiar residence of God.
+1\. It shall be the permanent and the peculiar residence of God.
 
-2\.It shall be the scene of delightful privileges and blessings.
+2\. It shall be the scene of delightful privileges and blessings.
 
-3\.It shall be invested with absolute and inviolable security.
+3\. It shall be invested with absolute and inviolable security.
 
-4\.It shall possess renown and empire throughout the whole world.
+4\. It shall possess renown and empire throughout the whole world.
 
-5\.Its institutions and existence shall be perfected in the celestial state.— *James Parsons,* 1839.
+5\. Its institutions and existence shall be perfected in the celestial state.— *James Parsons,* 1839.
 
 **Verse 4.** (*last clause* ).
 
-1\.Behold what the "man" was: a native of "Philistia", a heathen, and an enemy to God.
+1\. Behold what the "man" was: a native of "Philistia", a heathen, and an enemy to God.
 
-2\.Behold what happened to him: he "was born there," *i.e.* new born in Zion.
+2\. Behold what happened to him: he "was born there," *i.e.* new born in Zion.
 
-3\.Behold what he became—he became by his new birth a freeman and burgess of Zion, & c.
+3\. Behold what he became—he became by his new birth a freeman and burgess of Zion, & c.
 
 **Verses 4-5.** 
 
-1\.What is not the most honourable birth place—not Rahab nor Egypt, nor Babylon, nor any earthly palace or kingdom.
+1\. What is not the most honourable birth place—not Rahab nor Egypt, nor Babylon, nor any earthly palace or kingdom.
 
-2\.What is? "Of Zion", & c.
+2\. What is? "Of Zion", & c.
 
 (a) Because it is a nobler birth; a being born again of the Spirit of God.
 
 (b) Because it is a nobler place; the residence of the Highest, and established for ever.
 
-(c) Because it brings nobler rank and privileges.— *G.R.* 
+(c) Because it brings nobler rank and privileges.— *G. R.* 
 
 **Verses 4-7.** 
 
-1\.Zion shall produce many good and great men.
+1\. Zion shall produce many good and great men.
 
-2\.Zion's interest shall be established by divine power.
+2\. Zion's interest shall be established by divine power.
 
-3\.Zion's sons shall be registered with honour.
+3\. Zion's sons shall be registered with honour.
 
-4\.Zion's songs shall be sung with joy and triumph.— *Matthew Henry.* 
+4\. Zion's songs shall be sung with joy and triumph.— *Matthew Henry.* 
 
 **Verses 4-7.** 
 
-1\.The excellence of the church is here stated.
+1\. The excellence of the church is here stated.
 
-2\.Her enlargement is here promised.— *J. Scholefield,* 1825.
+2\. Her enlargement is here promised.— *J. Scholefield,* 1825.
 
 **Verse 5.** The renowned men of the church of God.
 
-1\.Great warriors, who have fought with temptation.
+1\. Great warriors, who have fought with temptation.
 
-2\.Great poets, whose lives were Psalms.
+2\. Great poets, whose lives were Psalms.
 
-3\.Great heroes, who have lived and died for Jesus.
+3\. Great heroes, who have lived and died for Jesus.
 
-4\.Great kings, who have ruled themselves, & c. Apostles, martyrs, confessors, reformers, men renowned for virtues such as only grace can produce.
+4\. Great kings, who have ruled themselves, & c. Apostles, martyrs, confessors, reformers, men renowned for virtues such as only grace can produce.
 
 **Verse 5.** *This and that man.* The individuality of true religion.
 
-1\.Each soul sins for itself.
+1\. Each soul sins for itself.
 
-2\.Rejects or accepts the Saviour for itself.
+2\. Rejects or accepts the Saviour for itself.
 
-3\.Must be judged, and
+3\. Must be judged, and
 
-4\.Saved or lost individually. The consequent need of personal piety; the temptations to neglect it; and the habits which promote it.
+4\. Saved or lost individually. The consequent need of personal piety; the temptations to neglect it; and the habits which promote it.
 
 **Verse 5.** (*last clause* ). The Established Church of God—her Head, her protection, her power. & c.
 
@@ -366,39 +366,39 @@ Here is a fruitful theme.
 
 1\."The Lord" will make the Census.
 
-2\.He will "count" whether a man be rightly there or no.
+2\. He will "count" whether a man be rightly there or no.
 
-3\.Every man truly born in Zion shall be admitted on the register.
+3\. Every man truly born in Zion shall be admitted on the register.
 
 **Verse 6.** 
 
-1\.The time referred to. "When he writeth up", & c.; when all the true Israel is saved.
+1\. The time referred to. "When he writeth up", & c.; when all the true Israel is saved.
 
-2\.The account to be taken: "When he writeth up", & c., i.e. revises and reenters the names in the Lamb's Book of Life. Compares the called with the chosen.
+2\. The account to be taken: "When he writeth up", & c., i.e. revises and reenters the names in the Lamb's Book of Life. Compares the called with the chosen.
 
-3\.The test to be applied.
+3\. The test to be applied.
 
 (a) Their being in Zion, or having the means of grace.
 
 (b) Their being born there.
 
-4\.The completion of their number: "The Lord shall count." An exact number of stones in a perfect building and of members in a perfect body. So in Christ's Church. All make one bride.
+4\. The completion of their number: "The Lord shall count." An exact number of stones in a perfect building and of members in a perfect body. So in Christ's Church. All make one bride.
 
-5\.The notice taken of each one: "This man was born there." Men fell as a whole; they are saved individually. *—G.R.* 
+5\. The notice taken of each one: "This man was born there." Men fell as a whole; they are saved individually. *—G. R.* 
 
 **Verse 7.** 
 
-1\.In God our joy.
+1\. In God our joy.
 
-2\.From God our supplies.
+2\. From God our supplies.
 
-3\.To God our praise.
+3\. To God our praise.
 
 **Verse 7.** (*last clause* ).—All the springs within me, all the springs which flow for me, are in my God. There are "upper and nether springs", springs "shut up", "valley" springs (Ps 104:10), rock springs, & c.; but all these flow from the Lord.
 
 ## Works Upon The Eighty-Seventh Psalm
 
-In *"Sermons preached before the University of Oxford*...by John Eveleigh, D.D., 1815, "is *"Sermon, twelve, in which is proposed a New Interpretation of the Eighty-Seventh Psalm."* 
+In *"Sermons preached before the University of Oxford*...by John Eveleigh, D. D., 1815, "is *"Sermon, twelve, in which is proposed a New Interpretation of the Eighty-Seventh Psalm."* 
 
 The Solace of Sion, and Joy of Jerusalem. Or consolation of God's Church in the latter age, redeemed by the preaching of the Gospel universally. Being a godly and learned exposition of the Eighty-Seventh Psalme of the Princelye Prophet David: Written in Letine by the reverend Doctor Urbanus Regius, Pastor of Christes Church at Zelle, in Saxonie 1536. Translated into English by R. Robinson, Citizen of London, 1587.
 

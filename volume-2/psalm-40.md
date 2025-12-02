@@ -108,7 +108,7 @@ Here we enter upon one of the most wonderful passages in the whole of the Old Te
 
 **Verse 3.** *Many shall see it, and fear, and shall trust in the Lord.* The terms *fear,* and *hope,* or *trust,* do not seem at first view to harmonise; but David has not improperly joined them together, for no man will ever entertain the *hope* of the favour of God but he whose mind is first imbued with the *fear* of God. I understand *fear,* in general, to mean the feeling of piety which is produced in us by the knowledge of the power, equity, and mercy of God. *John Calvin.* 
 
-**Verse 3.** *Many shall see it, and fear, and shall trust in the Lord.* First of all they *see*. Their eyes are opened; and their opened eyes see and survey *what* they are, *where* they are, *whence* they came, and *whither* they are going...When the attention of sinners is really and decisively arrested by the propitiation of Jesus, not only are their eyes opened to their various moral relations, not only do they "see" but they *fear* too. They "see" and "fear."...Conviction follows illumination...But while the sinner only sees and fears, he is but in the initial stage of conversion, only in a state of readiness to flee from the city of destruction. He may have set out on his pilgrimage, but he has not yet reached his Father to receive the kiss of welcome and forgiveness. The consummating step has not yet been taken. He has seen indeed; he has feared too; but he still requires to *trust,* to trust in the Lord, and banish all his fears. This is the culminating point in the great change; and, unless this be reached, the other experiences will either die away, like an untimely blossom, or they will only be fuel to the unquenchable fire. *James Frame.* 
+**Verse 3.** *Many shall see it, and fear, and shall trust in the Lord.* First of all they *see*. Their eyes are opened; and their opened eyes see and survey *what* they are, *where* they are, *whence* they came, and *whither* they are going... When the attention of sinners is really and decisively arrested by the propitiation of Jesus, not only are their eyes opened to their various moral relations, not only do they "see" but they *fear* too. They "see" and "fear."... Conviction follows illumination... But while the sinner only sees and fears, he is but in the initial stage of conversion, only in a state of readiness to flee from the city of destruction. He may have set out on his pilgrimage, but he has not yet reached his Father to receive the kiss of welcome and forgiveness. The consummating step has not yet been taken. He has seen indeed; he has feared too; but he still requires to *trust,* to trust in the Lord, and banish all his fears. This is the culminating point in the great change; and, unless this be reached, the other experiences will either die away, like an untimely blossom, or they will only be fuel to the unquenchable fire. *James Frame.* 
 
 **Verse 5.** *Many, O Lord my God, are thy wonderful works which thou hast done,* etc. Behold God in the magnificence and wisdom of the works which his hands have made, even this immense universe, which is full of his glory. What art and contrivance! What regularity, harmony, and proportion, are to be seen in all his productions, in the frame of our own bodies, or those that are about us! And with what beams of majestic glory do the sun, moon, and stars proclaim how august and wonderful in knowledge their Maker is! And ought not all these numberless beauties wherewith the world is stored, which the minds of inquisitive men are ready to admire, lead up our thoughts to the great Parent of all things, and inflame our amorous souls with love to him, who is infinitely brighter and fairer than them all? Cast abroad your eyes through the nations, and meditate on the mighty acts which he hath done, and the wisdom and power of his providence, which should charm all thy affections. Behold his admirable patience, with what pity he looks down on obstinate rebels; and how he is moved with compassion when he sees his creatures polluted in their blood, and bent upon their own destruction; how long he waits to be gracious; how unwillingly he appears to give up with sinners, and execute deserved vengeance on his enemies; and then with what joy he pardons, for "with him is plenteous redemption." And what can have more force than these to win thy esteem, and make a willing conquest of thy heart? so that every object about thee is an argument of love, and furnishes fuel for this sacred fire. And whether you behold God in the firmament of his power, or the sanctuary of his grace, you cannot miss to pronounce him "altogether lovely." *William Dunlop.* 
 
@@ -120,7 +120,7 @@ Here we enter upon one of the most wonderful passages in the whole of the Old Te
 
 **Verse 5.** *They are more than can be numbered.* The pulses of Providence are quicker than those of our wrists or temples. The soul of David knew right well their multiplicity, but could not multiply them aright by any skill in arithmetic; nay, the very sum or chief heads of divine kindnesses were innumerable. His "wonderful works" and "thoughts" towards him could not be reckoned up in order by him, they were *more than could be numbered. Samuel Lee* (1625-1691), *in The Triumph of Mercy in the Chariot of Praise.* 
 
-**Verse 5.** It is Christ's speech, of whom the Psalm is made, and that relating unto his Father's resolved purposes and contrivings from eternity, and those continued unto his sending Christ into the world to die for us, as Ps 40:6-7. It follows so, as although his thoughts and purposes were but one individual act at first, and never to be altered; yet they became many, through a perpetuated reiteration of them, wherein his constancy to himself is seen...My brethren, if God have been thinking thoughts of mercy from everlasting to those that are his, what a stock and treasury do these thoughts arise to, besides those that are in his nature and disposition! This is in his actual purposes and intentions, which he hath thought, and doth think over, again and again, every moment. *Many, O Lord my God, are thy wonderful works which thou hast done, and thy thoughts which are toward us,* saith Jesus Christ; for Psalm 40 is a Psalm of Christ, and quoted by the apostle, and applied unto Christ in Hebrews 10, *How many are thy thoughts* toward us!—he speaks it in the name of the human nature—that is, to me and mine. *If I would declare and speak of them, they are more than can be numbered.* And what is the reason? Because God hath studied mercies, mercies for his children, even from everlasting. And then, "He renews his mercies every morning; "not that any mercies are new, but he actually thinketh over mercies again and again, and so he brings out of his treasury, mercies both new and old, and old are always new. What a stock, my brethren, must this needs amount unto! *Thomas Goodwin.* 
+**Verse 5.** It is Christ's speech, of whom the Psalm is made, and that relating unto his Father's resolved purposes and contrivings from eternity, and those continued unto his sending Christ into the world to die for us, as Ps 40:6-7. It follows so, as although his thoughts and purposes were but one individual act at first, and never to be altered; yet they became many, through a perpetuated reiteration of them, wherein his constancy to himself is seen... My brethren, if God have been thinking thoughts of mercy from everlasting to those that are his, what a stock and treasury do these thoughts arise to, besides those that are in his nature and disposition! This is in his actual purposes and intentions, which he hath thought, and doth think over, again and again, every moment. *Many, O Lord my God, are thy wonderful works which thou hast done, and thy thoughts which are toward us,* saith Jesus Christ; for Psalm 40 is a Psalm of Christ, and quoted by the apostle, and applied unto Christ in Hebrews 10, *How many are thy thoughts* toward us!—he speaks it in the name of the human nature—that is, to me and mine. *If I would declare and speak of them, they are more than can be numbered.* And what is the reason? Because God hath studied mercies, mercies for his children, even from everlasting. And then, "He renews his mercies every morning; "not that any mercies are new, but he actually thinketh over mercies again and again, and so he brings out of his treasury, mercies both new and old, and old are always new. What a stock, my brethren, must this needs amount unto! *Thomas Goodwin.* 
 
 **Verse 6.** *Sacrifice and offering...burnt offering and sin offering.* Four kinds are here specified, both by the psalmist and apostle: namely, *sacrifice* (xbz) *zebhach, yusia; offering,* (hxnm) *minchah, prosfora; burnt offering,* (hlwe) *olah, olokautwma; sin offering,* (hajx) *chataah, peri amartias.* Of all these we may say with the apostle, it was impossible that the blood of bulls and goats, etc., should take away sin. *Adam Clarke.* 
 
@@ -146,9 +146,9 @@ Thy hand my mortal frame prepares,
 
 And opens my willing ear.
 
- *—* *James Merrick, M.A.,* 1720-1769.
+ *—* *James Merrick, M. A.,* 1720-1769.
 
-**Verses 6-7.** In these words an allusion is made to a custom of the Jews *to bore the ears* of such as were to be their perpetual servants, and *to enrol their names in a book*, or make some instrument of the covenant. "Sacrifices and burnt offerings thou wouldst not have; "but because I am thy vowed servant, bored with an awl, and enrolled in thy book, *I said, Lo, I come; I delight to do thy will, O my God.* These words of the Psalm are alleged by S. Paul, Hebrews 10. But the first of them with a most strange difference. For whereas the psalmist hath, according to the Hebrew verity, *Sacrifice and burnt offering thou wouldst not: mine ears thou hast bored or digged,* (tyrn); S. Paul reads with the LXX, *swma kathrtisw moi, "A body thou hast prepared* or *fitted me."* What equipollency can be in sense between these two? This difficulty is so much the more augmented because most interpreters make the life of the quotation to lie in those very words where the difference is, namely, That the words, *"A body thou hast prepared* me, "are brought by the apostle to prove our Saviour's incarnation; whereunto the words in the Psalm itself (*Mine ears hast thou bored*, or *digged,* or *opened* ), take them how you will in no wise suit. I answer, therefore, That the life of the quotation lies not in the words of difference, nor can do, because this epistle was written to the Hebrews, and so first in the Hebrew tongue, where this translation of the LXX could have no place. And if the life of the quotation lay here, I cannot see how it can possibly be reconciled. It lies therefore in the words where there is no difference, namely, That Christ was such a High Priest as came to sanctify us, not with the legal offerings and sacrifices, but by his obedience in doing like a devoted servant the will of his Father. Thus, the allegation will not depend at all upon the words of difference, and so they give us liberty to reconcile them: *Mine ears hast thou bored,* saith the psalmist, *i.e.,* Thou hast accepted me for a perpetual servant, as masters are wont, according to the law, to *bore* such servants' *ears* as refuse to part from them. Now the LXX, according to whom the apostle's epistle readeth, thinking perhaps the meaning of this speech would be obscure to such as knew not that custom, chose rather to translate it generally *swma de katertisw moi, "Thou hast fitted my body, "* namely, to be thy servant, in such a manner as servants' bodies are wont to be. And so the sense is all one, though not specified to the Jewish custom of boring the ear with an awl, but left indifferently applicable to the custom of any nation in marking and stigmatising their servants' bodies. *Joseph Mede, B.D.,* 1586-1638.
+**Verses 6-7.** In these words an allusion is made to a custom of the Jews *to bore the ears* of such as were to be their perpetual servants, and *to enrol their names in a book*, or make some instrument of the covenant. "Sacrifices and burnt offerings thou wouldst not have; "but because I am thy vowed servant, bored with an awl, and enrolled in thy book, *I said, Lo, I come; I delight to do thy will, O my God.* These words of the Psalm are alleged by S. Paul, Hebrews 10. But the first of them with a most strange difference. For whereas the psalmist hath, according to the Hebrew verity, *Sacrifice and burnt offering thou wouldst not: mine ears thou hast bored or digged,* (tyrn); S. Paul reads with the LXX, *swma kathrtisw moi, "A body thou hast prepared* or *fitted me."* What equipollency can be in sense between these two? This difficulty is so much the more augmented because most interpreters make the life of the quotation to lie in those very words where the difference is, namely, That the words, *"A body thou hast prepared* me, "are brought by the apostle to prove our Saviour's incarnation; whereunto the words in the Psalm itself (*Mine ears hast thou bored*, or *digged,* or *opened* ), take them how you will in no wise suit. I answer, therefore, That the life of the quotation lies not in the words of difference, nor can do, because this epistle was written to the Hebrews, and so first in the Hebrew tongue, where this translation of the LXX could have no place. And if the life of the quotation lay here, I cannot see how it can possibly be reconciled. It lies therefore in the words where there is no difference, namely, That Christ was such a High Priest as came to sanctify us, not with the legal offerings and sacrifices, but by his obedience in doing like a devoted servant the will of his Father. Thus, the allegation will not depend at all upon the words of difference, and so they give us liberty to reconcile them: *Mine ears hast thou bored,* saith the psalmist, *i.e.,* Thou hast accepted me for a perpetual servant, as masters are wont, according to the law, to *bore* such servants' *ears* as refuse to part from them. Now the LXX, according to whom the apostle's epistle readeth, thinking perhaps the meaning of this speech would be obscure to such as knew not that custom, chose rather to translate it generally *swma de katertisw moi, "Thou hast fitted my body, "* namely, to be thy servant, in such a manner as servants' bodies are wont to be. And so the sense is all one, though not specified to the Jewish custom of boring the ear with an awl, but left indifferently applicable to the custom of any nation in marking and stigmatising their servants' bodies. *Joseph Mede, B. D.,* 1586-1638.
 
 **Verses 6-10.** Here we have in Christ for our instruction, and in David also (his type) for our example; 1. A firm purpose of obedience, in a *bored ear*, and a yielding heart. 2. A ready performance thereof: *Lo, I come.* 3. A careful observance of the word written: *In the volume of the Book it is written of me*, Ps 40:7. 4. A hearty delight in that observance, Ps 40:8. 5. A public profession and communication of God's goodness to others, Ps 40:9-10. Now, we should labour to express Christ to the world, to walk as he walked 1Jo 2:6: our lives should be in some sense parallel with his life, as the transcript with the original: he left us a copy to write by, saith St. Peter, 1Pe 2:21. *John Trapp.* 
 
@@ -162,9 +162,9 @@ And opens my willing ear.
 
 **Verse 7.** *Lo, I come,* or, *am come,* to wit, *into the world* Heb 10:5, and particularly *to Jerusalem*, to give myself a sacrifice for sin. *Henry Ainsworth.* 
 
-**Verse 7.** *The volume of the book.* What book is meant, whether the Scripture, or the book of life, is not certain, probably the latter. *W. Wilson, D.D.* 
+**Verse 7.** *The volume of the book.* What book is meant, whether the Scripture, or the book of life, is not certain, probably the latter. *W. Wilson, D. D.* 
 
-**Verse 7.** *The volume of the book.* But what volume of manuscript roll is here meant? Plainly, the one which was already extant when the psalmist was writing. If the psalmist was David himself (as the title of the Psalm seems to affirm), the only parts of the Hebrew Scriptures then extant, and of course, the only part to which he could refer, must have been the Pentateuch, and perhaps the book of Joshua. Beyond any reasonable doubt, them, the kefalis biblion (rpo tlnm) was the Pentateuch...But I apprehend the meaning of the writer to be, that the *book of the law*, which prescribes sacrifices that were merely *skiai* or *parabolai* of the great atoning sacrifice by Christ, did itself teach, by the use of these, that something of a higher and better nature was to be looked for than Levitical rites. In a word, it pointed to the Messiah; or, some of the contents of the *written* law had respect to him. *Moses Stuart, M.A., in "A Commentary on the Epistle to the Hebrews,"* 1851.
+**Verse 7.** *The volume of the book.* But what volume of manuscript roll is here meant? Plainly, the one which was already extant when the psalmist was writing. If the psalmist was David himself (as the title of the Psalm seems to affirm), the only parts of the Hebrew Scriptures then extant, and of course, the only part to which he could refer, must have been the Pentateuch, and perhaps the book of Joshua. Beyond any reasonable doubt, them, the kefalis biblion (rpo tlnm) was the Pentateuch... But I apprehend the meaning of the writer to be, that the *book of the law*, which prescribes sacrifices that were merely *skiai* or *parabolai* of the great atoning sacrifice by Christ, did itself teach, by the use of these, that something of a higher and better nature was to be looked for than Levitical rites. In a word, it pointed to the Messiah; or, some of the contents of the *written* law had respect to him. *Moses Stuart, M. A., in "A Commentary on the Epistle to the Hebrews,"* 1851.
 
 **Verse 7.** *The volume of the book* etc. When I first considered Ro 5:14, and other Scriptures in the New Testament which make the first Adam, and the whole story of him both before and after, and in his sinning or falling, to be the type and lively shadow of Christ, the second Adam; likewise observing that the apostle Paul stands admiring at the greatest of this mystery or mystical type, the Christ, the second Adam should so wonderfully be shadowed forth therein, as Eph 5:32, he cries out, "This is a great mystery, "which he speaks applying and fitting some passages about Adam and Eve unto Christ and his church; it made me more to consider an interpretation of a passage in Heb 10:7, out of Ps 40:7, which I before had not only not regarded, but wholly rejected, as being too like a postil (A marginal note) gloss. The passage is, that "when Christ came into the world, "to take our nature on him, he alleged the reason of it to be the fulfilling of a Scripture written in "the beginning of God's book, "en kefalisi Biblion, so out of the original the words may be, and are by many interpreters, translated, though our translation reads them only thus, *In the volume of the book it is written of me.* It is true, indeed, that in the fortieth Psalm, whence they are quoted, the words in the Hebrew may signify no more than that in God's book (the manner of writing which was anciently in rolls of parchment, folded up in a volume) Christ was everywhere written and spoken of. Yet the word kefalis which out of the Septuagint's translation the apostle took, signifying, as all know, the beginning of a book; and we finding such an emphasis set by the apostle in the fifth chapter of the Ephesians, upon the history of Adam in the beginning of Genesis, as containing the mystery, yea, the great mystery about Christ, it did somewhat induce, though not so fully persuade, me to think, that the Holy Ghost in those words might have some glance at the story of Adam in the first of the first book of Moses. And withal the rather because so, the words so understood do intimate a higher and further inducement to Christ to assume our nature, the scope of the speech, Hebrews 10, being to render the reason why he so willingly took man's nature: not only because God liked not sacrifice and burnt offering, which came in but upon occasion of sin, and after the fall, and could not take sin away, but further, that he was prophesied of, and his assuming a body prophetically foresighted, as in the fortieth Psalm, so even by Adam's story before the fall, recorded in the very beginning of Genesis, which many other Scriptures do expressly apply it unto. *Thomas Goodwin.* 
 
@@ -214,7 +214,7 @@ Some cordial, endearing report
 
 Of a land I shall visit no more."
 
-But the dearest connexion in the world cannot be always thinking upon you. Half his time he is in a state of unconsciousness; and how much during the other half is he engrossed! But there is no remission in the Lord's thoughts...Observe in the next place, the *wisdom* of his thoughts. You have a dear child, absent from you, and you follow him in your mind. But you know not his present circumstances. You left him in such a place; but where is he now? You left him in such a condition. But what is he now? Perhaps while you are thinking upon his health, he is groaning under a bruised limb, or a painful disorder. Perhaps, while you are thinking of his safety, some enemy is taking advantage of his innocency. Perhaps, while you are rejoicing in his prudence, he is going to take a step that will involve him for life. But when God thinketh upon you, he is perfectly acquainted with your situation, your dangers, your wants. He knows all your walking through this great wilderness, and can afford you the seasonable succour you need. For again, observe the *efficiency* of his thoughts. You think upon another, and you are anxious to guide, or defend, or relieve him. But in how many cases can you think only? Solicitude cannot control the disease of the body, cannot dissipate the melancholy of the mind. But with God all things are possible. He who thinks upon you is a God at hand and not afar off; he has all events under his control; he is the God of all grace. If, therefore, he does not immediately deliver, it is not because he is unable to redress, but because he is waiting to be gracious. *William Jay.* 
+But the dearest connexion in the world cannot be always thinking upon you. Half his time he is in a state of unconsciousness; and how much during the other half is he engrossed! But there is no remission in the Lord's thoughts... Observe in the next place, the *wisdom* of his thoughts. You have a dear child, absent from you, and you follow him in your mind. But you know not his present circumstances. You left him in such a place; but where is he now? You left him in such a condition. But what is he now? Perhaps while you are thinking upon his health, he is groaning under a bruised limb, or a painful disorder. Perhaps, while you are thinking of his safety, some enemy is taking advantage of his innocency. Perhaps, while you are rejoicing in his prudence, he is going to take a step that will involve him for life. But when God thinketh upon you, he is perfectly acquainted with your situation, your dangers, your wants. He knows all your walking through this great wilderness, and can afford you the seasonable succour you need. For again, observe the *efficiency* of his thoughts. You think upon another, and you are anxious to guide, or defend, or relieve him. But in how many cases can you think only? Solicitude cannot control the disease of the body, cannot dissipate the melancholy of the mind. But with God all things are possible. He who thinks upon you is a God at hand and not afar off; he has all events under his control; he is the God of all grace. If, therefore, he does not immediately deliver, it is not because he is unable to redress, but because he is waiting to be gracious. *William Jay.* 
 
 ## Hints to the Village Preacher
 
@@ -226,13 +226,13 @@ But the dearest connexion in the world cannot be always thinking upon you. Half 
 
 **Verse 2.** 
 
-1\.The *depth* of God's goodness to his people. It finds them often in a horrible pit and miry clay. There is a certain spider which forms a pit in sand, and lies concealed at the bottom, in order to seize upon other insects that fall into it. Thus David's enemies tried to bring him into a pit.
+1\. The *depth* of God's goodness to his people. It finds them often in a horrible pit and miry clay. There is a certain spider which forms a pit in sand, and lies concealed at the bottom, in order to seize upon other insects that fall into it. Thus David's enemies tried to bring him into a pit.
 
-2\.The *height* of his goodness. He brought me out and set my feet upon a rock. That rock is Christ. Those feet are faith and hope.
+2\. The *height* of his goodness. He brought me out and set my feet upon a rock. That rock is Christ. Those feet are faith and hope.
 
-3\.The *breadth* of his goodness establisheth my *goings,* restored me to my former place in his love, showing me still to have been his during my low estate. He was the same to me, though I felt not the same to him. My goings refer both to the past and the future.
+3\. The *breadth* of his goodness establisheth my *goings,* restored me to my former place in his love, showing me still to have been his during my low estate. He was the same to me, though I felt not the same to him. My goings refer both to the past and the future.
 
-4\.The *strength* of his goodness *established* my goings, making me stand firmer after every fall. —George Rogers.
+4\. The *strength* of his goodness *established* my goings, making me stand firmer after every fall. —George Rogers.
 
 **Verses 2-3.** The sinner's position by nature, and his rescue by grace.
 
@@ -242,11 +242,11 @@ But the dearest connexion in the world cannot be always thinking upon you. Half 
 
 **Verse 4.** (*last clause* ).
 
-1\.Find out who turn aside to lies—Atheists, Papists, self righteous, lovers of sin.
+1\. Find out who turn aside to lies—Atheists, Papists, self righteous, lovers of sin.
 
-2\.Show their folly in turning aside from God and truth, and in turning to fallacies which lead to death.
+2\. Show their folly in turning aside from God and truth, and in turning to fallacies which lead to death.
 
-3\.Show how to be preserved from the like folly, by choosing truth, truthful persons, and above all the service of God.
+3\. Show how to be preserved from the like folly, by choosing truth, truthful persons, and above all the service of God.
 
 **Verse 5.** 
 
@@ -256,7 +256,7 @@ But the dearest connexion in the world cannot be always thinking upon you. Half 
 
 3\. *They are the result of the divine thoughts respecting us.* They come not by chance, not by men, but by the hand of God, and that hand is moved by his will, and that will by his thought respecting us. Every mercy, even the least, represents some kind thought in the mind of God respecting us. God thinks of each one of his people, and every moment.
 
-4\.They are innumerable. *They cannot be reckoned up.* Could we see all the mercies of God to us and his wonderful works wrought for us individually, they would be countless as the sands, and all these countless mercies represent countless thoughts in the mind and heart of God to each one of his people. —George Rogers.
+4\. They are innumerable. *They cannot be reckoned up.* Could we see all the mercies of God to us and his wonderful works wrought for us individually, they would be countless as the sands, and all these countless mercies represent countless thoughts in the mind and heart of God to each one of his people. —George Rogers.
 
 **Verse 5.** The multitude of God's thoughts, and deeds of grace; beginning in eternity, continuing for ever; and dealing with this life, heaven, hell, sin, angels, devils, and indeed all things.
 
@@ -270,43 +270,43 @@ But the dearest connexion in the world cannot be always thinking upon you. Half 
 
 **Verse 6.** *Mine ears hast thou opened.* Readiness to hear, fixity of purpose, perfection of obedience, entireness of consecration.
 
-**Verses 6-8.** The Lord gives an ear to hear his word, a mouth to confess it, a heart to love it, and power to keep it. —James Merrick, M.A., 1720-1769.
+**Verses 6-8.** The Lord gives an ear to hear his word, a mouth to confess it, a heart to love it, and power to keep it. —James Merrick, M. A., 1720-1769.
 
 **Verses 6-8.** The Lord gives an ear to hear his word, a mouth to confess it, a heart to love it, and power to keep it.
 
 **Verse 7.** 
 
-1\.The time of Christ's coming. *Then said I.* When types were exhausted, when prophecies looked for their fulfilment, when worldly wisdom had done its utmost, when the world was almost entirely united under one empire, when the time appointed by the Father had come.
+1\. The time of Christ's coming. *Then said I.* When types were exhausted, when prophecies looked for their fulfilment, when worldly wisdom had done its utmost, when the world was almost entirely united under one empire, when the time appointed by the Father had come.
 
-2\.The design of his coming. *In the volume* was written—(a) The constitution of his person. (b) His teaching. (c) The manner of his life. (d) The design of his death. (e) His resurrection and ascension. (f) The kingdom he would establish.
+2\. The design of his coming. *In the volume* was written—(a) The constitution of his person. (b) His teaching. (c) The manner of his life. (d) The design of his death. (e) His resurrection and ascension. (f) The kingdom he would establish.
 
-3\.The voluntariness of his coming, *Lo, I come*. Though sent by the Father, he came of his own accord. "Christ Jesus came into the world." Men do not come into the world, they are sent into it. *Lo, I come*, denotes pre-existence, pre-determination, pre-operation. —George Rogers.
+3\. The voluntariness of his coming, *Lo, I come*. Though sent by the Father, he came of his own accord. "Christ Jesus came into the world." Men do not come into the world, they are sent into it. *Lo, I come*, denotes pre-existence, pre-determination, pre-operation. —George Rogers.
 
 **Verses 6-8.** The Lord gives an ear to hear his word, a mouth to confess it, a heart to love it, and power to keep it.
 
 **Verse 8.** *To do thy will, O God.* 
 
-1\.The will of God is seen in the fact of salvation. It has its origin in the will of God.
+1\. The will of God is seen in the fact of salvation. It has its origin in the will of God.
 
-2\.The will of God is seen in the plan of salvation. All things have proceeded, are proceeding, and will proceed according to that plan.
+2\. The will of God is seen in the plan of salvation. All things have proceeded, are proceeding, and will proceed according to that plan.
 
-3\.It is seen in the provision of salvation, in the appointment of his own Son to become the mediator the atoning sacrifice, the law fulfiller, the head of the church, that his plan required.
+3\. It is seen in the provision of salvation, in the appointment of his own Son to become the mediator the atoning sacrifice, the law fulfiller, the head of the church, that his plan required.
 
-4\.It is seen in the accomplishment of salvation.
+4\. It is seen in the accomplishment of salvation.
 
 **Verse 9.** Referring to our Lord; a great preacher, a great subject, a great congregation, and his great faithfulness in the work.
 
 **Verse 10.** (*first clause* ).
 
-1\.The righteousness *possessed* by God.
+1\. The righteousness *possessed* by God.
 
-2\.The righteousness *prescribed* by God.
+2\. The righteousness *prescribed* by God.
 
-3\.The righteousness *provided* by God. *James Frame.* 
+3\. The righteousness *provided* by God. *James Frame.* 
 
 **Verse 10.** 
 
-1\.The preacher must reveal his whole message. 2. He must not conceal any part: (a) Not of the righteousness of the law or the gospel; (b) Not of the lovingkindness of grace; (c) Not of any portion of the truth with flowers of rhetoric; (d) To give a partial representation; (e) To put one truth in the place of another; (f) To give the letter without the spirit. *G.R.* 
+1\. The preacher must reveal his whole message. 2. He must not conceal any part: (a) Not of the righteousness of the law or the gospel; (b) Not of the lovingkindness of grace; (c) Not of any portion of the truth with flowers of rhetoric; (d) To give a partial representation; (e) To put one truth in the place of another; (f) To give the letter without the spirit. *G. R.* 
 
 **Verse 10.** The great sin of concealing what we know of God.
 
@@ -356,23 +356,23 @@ Hide me, O Gethsemane!"
 
 **Verse 12.** (*second clause* ).
 
-1\.The soul arrested—"taken hold."
+1\. The soul arrested—"taken hold."
 
-2\.The soul bewildered—"cannot look up."
+2\. The soul bewildered—"cannot look up."
 
-3\.The soul's only refuge—prayer, Ps 40:13.
+3\. The soul's only refuge—prayer, Ps 40:13.
 
 **Verses 11-13.** As an instance of clerical ingenuity, it may be well to mention that Canon Wordsworth has a sermon from these verses upon "the duty of making responses int public prayer."
 
 **Verse 13.** 
 
-1\.The language of believing prayer—deliver me, help me; looking for deliverance and help to God only.
+1\. The language of believing prayer—deliver me, help me; looking for deliverance and help to God only.
 
-2\.Of earnest prayer—make haste to help me.
+2\. Of earnest prayer—make haste to help me.
 
-3\.Of submissive prayer—be pleased, O Lord, if according to thy good pleasure.
+3\. Of submissive prayer—be pleased, O Lord, if according to thy good pleasure.
 
-4\.Of consistent prayer. Help me, which implies efforts for his own deliverance, putting his own shoulder to the wheel.
+4\. Of consistent prayer. Help me, which implies efforts for his own deliverance, putting his own shoulder to the wheel.
 
 **Verse 14.** *Honi soit mal y pense;* or, the reward of malignity.
 
@@ -382,25 +382,25 @@ Hide me, O Gethsemane!"
 
 **Verse 17.** *The Lord thinketh upon me.* Admire the condescension, and then consider that this is—
 
-1\.A promised blessing.
+1\. A promised blessing.
 
-2\.A practical blessing—he thinks upon us to supply, protect, direct, sanctify, &c.
+2\. A practical blessing—he thinks upon us to supply, protect, direct, sanctify, &c.
 
-3\.A precious blessing—kind thoughts, continual, greatly good. He thinks of us as his creatures with pity, as his children with love, as his friends with pleasure.
+3\. A precious blessing—kind thoughts, continual, greatly good. He thinks of us as his creatures with pity, as his children with love, as his friends with pleasure.
 
-4\.A present blessing—promises, providences, visitations of grace.
+4\. A present blessing—promises, providences, visitations of grace.
 
 **Verse 17.** 
 
-1\.The less we think of ourselves the more God will think upon us.
+1\. The less we think of ourselves the more God will think upon us.
 
-2\.The less we put trust in ourselves the more we may trust in God for help and deliverance.
+2\. The less we put trust in ourselves the more we may trust in God for help and deliverance.
 
-3\.The less delay in prayer and active efforts the sooner God will appear for us.
+3\. The less delay in prayer and active efforts the sooner God will appear for us.
 
 ## Works Upon The Fortieth Psalm
 
-A Sermon upon the Fortieth Psalme, preached in the time of Public *Fast; in* "Sermons by the Rev. ROBERT BRUCE, Minister of Edinburgh, reprinted from the original edition of 1590, and 1591...Edinburgh: printed for the Wodrow Society. 1843."
+A Sermon upon the Fortieth Psalme, preached in the time of Public *Fast; in* "Sermons by the Rev. ROBERT BRUCE, Minister of Edinburgh, reprinted from the original edition of 1590, and 1591... Edinburgh: printed for the Wodrow Society. 1843."
 
 Christ and his Work: an Exposition of Psalm 40. By JAMES FRAME, 1869.
 

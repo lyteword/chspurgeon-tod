@@ -56,25 +56,25 @@ Lastly, *the privilege of these servants* :that, as to the Jews, so also to the 
 
 **Whole Psalm.** The universal kingdom.
 
-1\.The same God.
+1\. The same God.
 
-2\.The same worship.
+2\. The same worship.
 
-3\.The same reason for it.
+3\. The same reason for it.
 
 **Verse 2.** *Merciful kindness.* In God's kindness there is mercy, because,
 
-1\.Our sin deserves the reverse of kindness.
+1\. Our sin deserves the reverse of kindness.
 
-2\.Our weakness requires great tenderness.
+2\. Our weakness requires great tenderness.
 
-3\.Our fears can only be so removed.
+3\. Our fears can only be so removed.
 
 **Verse 2** (*last clause* )
 
-1\.In his attribute—he is always faithful.
+1\. In his attribute—he is always faithful.
 
-2\.In his revelation—always infallible.
+2\. In his revelation—always infallible.
 
-3\.In his action—always according to promise.
+3\. In his action—always according to promise.
 

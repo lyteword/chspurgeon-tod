@@ -80,7 +80,7 @@ Chants aloud each rusting bough."
 
 ## Explanatory Notes & Quaint Sayings
 
-**Whole Psalm.** What has been said of Psalm 67 may be fitly applied to the present psalm. We need not hesitate to add that it is a millennial anthem. It accords with the condition of the world when Christ shall sit enthroned in the willing loyalty of our race. The nations join in an acclaim of praise to him as their rightful Judge and King. There is a unanimity in the song, as if it ascended from a world purged into a temple of holiness, and whose inhabitants were indeed a royal priesthood, with one heart to make Jesus king, with one voice to sound forth one peal of melody in praise of the name above every name. Fix the eye for a moment on the precious vision of which we thus catch a glimpse. It holds true to the deepest principles of our nature, that what we contemplate as possible, much more what we anticipate as ceertain, lends us the very hope and energy conducive to its realisation. On the contrary, despair paralyses effort. Is it on this account that everywhere in prophecy, old and new, there floats before us the ideal of a recovered and rejoicing world, at times transfigured into a loftier scene, the new heavens and new earth wherein dwelleth righteousness? So largely did this thought imbue the prophetic mind, that the language of Paul warms into the animation of poetry, when even "the creature itself, "according to his own vivid personification, like some noble bird, drooping under the weight of its chain, with neck outstretched and eyeball distended, is described as looking down into the vista of coming time for its deliverance from the bondage of corruption into the glorious liberty of the sons of God (Ro 8:19). He hastens to add, that "we are saved by hope." It is true of the soul individually, we are saved by hope. It is true of our race collectively, if ever a millennium is to dawn upon it, we are saved by such a hope. Our earth may be in ruins meanwhile, blackness on the sky, barrenness on the soil, because sin is everywhere; but a change is promised. What we hope for, we labour for all the more that our hope is no dream of fancy, but has its basis in the science and certainty of absolute truth. "For as the earth hinges forth her bud, and as the garden causeth the things that are sown in it to spring forth; so the Lord God will cause righteousness and praise to spring forth before all the nations." (Isa 61:11) The tuning of the instrument is sometimes heard before the music comes. The mother teaches her child to lisp a hymn before he comprehends its full scope and meaning. And so here, in this holy psalm, the Jerusalem from above, the mother of us all, trains us to the utterance of a song suitable to seasons of millennial glory, when the Moloch of oppression, the Mammon of our avarice, the Ashtaroth of fiery lust, every erring creed, every false religion, shall have given place to the worship of the one true and living God—to the faith and love of Christ. "Let the peoples praise thee, O God; let all the peoples praise thee." *W.H. Gould, in "The Mission Hymn of the Hebrew Church: a Sermon."* 1865.
+**Whole Psalm.** What has been said of Psalm 67 may be fitly applied to the present psalm. We need not hesitate to add that it is a millennial anthem. It accords with the condition of the world when Christ shall sit enthroned in the willing loyalty of our race. The nations join in an acclaim of praise to him as their rightful Judge and King. There is a unanimity in the song, as if it ascended from a world purged into a temple of holiness, and whose inhabitants were indeed a royal priesthood, with one heart to make Jesus king, with one voice to sound forth one peal of melody in praise of the name above every name. Fix the eye for a moment on the precious vision of which we thus catch a glimpse. It holds true to the deepest principles of our nature, that what we contemplate as possible, much more what we anticipate as ceertain, lends us the very hope and energy conducive to its realisation. On the contrary, despair paralyses effort. Is it on this account that everywhere in prophecy, old and new, there floats before us the ideal of a recovered and rejoicing world, at times transfigured into a loftier scene, the new heavens and new earth wherein dwelleth righteousness? So largely did this thought imbue the prophetic mind, that the language of Paul warms into the animation of poetry, when even "the creature itself, "according to his own vivid personification, like some noble bird, drooping under the weight of its chain, with neck outstretched and eyeball distended, is described as looking down into the vista of coming time for its deliverance from the bondage of corruption into the glorious liberty of the sons of God (Ro 8:19). He hastens to add, that "we are saved by hope." It is true of the soul individually, we are saved by hope. It is true of our race collectively, if ever a millennium is to dawn upon it, we are saved by such a hope. Our earth may be in ruins meanwhile, blackness on the sky, barrenness on the soil, because sin is everywhere; but a change is promised. What we hope for, we labour for all the more that our hope is no dream of fancy, but has its basis in the science and certainty of absolute truth. "For as the earth hinges forth her bud, and as the garden causeth the things that are sown in it to spring forth; so the Lord God will cause righteousness and praise to spring forth before all the nations." (Isa 61:11) The tuning of the instrument is sometimes heard before the music comes. The mother teaches her child to lisp a hymn before he comprehends its full scope and meaning. And so here, in this holy psalm, the Jerusalem from above, the mother of us all, trains us to the utterance of a song suitable to seasons of millennial glory, when the Moloch of oppression, the Mammon of our avarice, the Ashtaroth of fiery lust, every erring creed, every false religion, shall have given place to the worship of the one true and living God—to the faith and love of Christ. "Let the peoples praise thee, O God; let all the peoples praise thee." *W. H. Gould, in "The Mission Hymn of the Hebrew Church: a Sermon."* 1865.
 
 **Whole Psalm.** This psalm is entitled in the *Septuagint, "A Hymn of David; when the Temple was rebuilt after the Captivity, "* and this appears to be a true description of it; for the substance of it is found in 1Ch 16:23-33, where it is described as having been delivered by David into the hand of Asaph and his brethren, to thank the Lord when the Ark was brought up to Zion. David's Psalm here receives a new name, and is called a *new song (sir chadash)*, because new mercies of God were now to be celebrated; mercies greater than David had ever received, even when he brought the Ark to Zion. They who now sang the old song, which had thus become a new song, identified themselves with David, and identified him with themselves. *Chr. Wordsworth.* 
 
@@ -258,121 +258,121 @@ Thou wilt heed no less the wailing, yet hear through it angels singing."
 
 **Verse 1.** The novelties of grace.
 
-1\.A new salvation.
+1\. A new salvation.
 
-2\.Creates a new heart.
+2\. Creates a new heart.
 
-3\.Suggests a new song.
+3\. Suggests a new song.
 
-4\.Secures new testimonies, and these,
+4\. Secures new testimonies, and these,
 
-5\.Produce new converts.
+5\. Produce new converts.
 
 **Verses 1-3.** 
 
-1\.The end desired—to see the earth singing unto the Lord, and blessing his name.
+1\. The end desired—to see the earth singing unto the Lord, and blessing his name.
 
-2\.The means suggested—the showing forth his salvation from day to day; declaring his glory, etc.
+2\. The means suggested—the showing forth his salvation from day to day; declaring his glory, etc.
 
-3\.The certainly of its accomplishment. The Lord hath said it. "O sing, "etc. When he commands earth must obey. *G. R.* 
+3\. The certainly of its accomplishment. The Lord hath said it. "O sing, "etc. When he commands earth must obey. *G. R.* 
 
 **Verses 1-3.** The progress of zeal.
 
-1\.The spring of expansive desire, Ps 96:1.
+1\. The spring of expansive desire, Ps 96:1.
 
-2\.The streamlet of practical daily effort, Ps 96:2.
+2\. The streamlet of practical daily effort, Ps 96:2.
 
-3\.The broad river of foreign missions, Ps 96:3. *C. D.* 
+3\. The broad river of foreign missions, Ps 96:3. *C. D.* 
 
 **Verses 1-9.** We are to honour God.
 
-1\.With songs, Ps 96:1-2.
+1\. With songs, Ps 96:1-2.
 
-2\.With sermons, Ps 96:3.
+2\. With sermons, Ps 96:3.
 
-3\.With religious services, Ps 96:7-9. ** 
+3\. With religious services, Ps 96:7-9. ** 
 
 — *Matthew Henry.* 
 
 **Verses 3** (*first clause* ).
 
-1\.Declare among the heathen the glory of God's perfections, that they may acknowledge him as the true God.
+1\. Declare among the heathen the glory of God's perfections, that they may acknowledge him as the true God.
 
-2\.Declare the glory of his salvation, that they may accept him as their only Redeemer.
+2\. Declare the glory of his salvation, that they may accept him as their only Redeemer.
 
-3\.Declare the glory of his providence, that they may confide in him as their faithful guardian.
+3\. Declare the glory of his providence, that they may confide in him as their faithful guardian.
 
-4\.Declare the glory of his word, that they may prize it as their chief treasure.
+4\. Declare the glory of his word, that they may prize it as their chief treasure.
 
-3\.Declare the glory of his service, that they may choose it as their noblest occupation.
+3\. Declare the glory of his service, that they may choose it as their noblest occupation.
 
-4\.Declare the glory of his residence, that they may seek it as their best home. *William Jackson.* 
+4\. Declare the glory of his residence, that they may seek it as their best home. *William Jackson.* 
 
 **Verse 3.** 
 
-1\.What the gospel is, "God's glory, ""his wonders."
+1\. What the gospel is, "God's glory, ""his wonders."
 
-2\.What shall we do with it—declare it.
+2\. What shall we do with it—declare it.
 
-3\.To whom. "Among the heathen, "all people.
+3\. To whom. "Among the heathen, "all people.
 
 **Verse 3** (*last clause* ). *His wonders among the people.* 
 
-1\.The wonders of his Being, to inspire them with awe.
+1\. The wonders of his Being, to inspire them with awe.
 
-2\.The wonders of his creation, to fill them with amazement.
+2\. The wonders of his creation, to fill them with amazement.
 
-3\.The wonders of his judgments, to restrain them with fear.
+3\. The wonders of his judgments, to restrain them with fear.
 
-4\.The wonders of his grace, to allure them with love. *W. Jackson.* 
+4\. The wonders of his grace, to allure them with love. *W. Jackson.* 
 
 **Verses 4-6.** Missionary sermon.
 
-1\.Contrast Jehovah of the Bible with gods of human device.
+1\. Contrast Jehovah of the Bible with gods of human device.
 
-2\.Decide between divine worship and idolatry.
+2\. Decide between divine worship and idolatry.
 
-3\.Appeal for effort on behalf of idolaters. *C. D.* 
+3\. Appeal for effort on behalf of idolaters. *C. D.* 
 
 **Verse 6.** *Honour and majesty are before him.* 
 
-1\.As emanations from him.
+1\. As emanations from him.
 
-2\.As excellencies ascribed to him.
+2\. As excellencies ascribed to him.
 
-3\.As characteristics of what is done by him.
+3\. As characteristics of what is done by him.
 
-4\.As marks of all that dwell near him. *W. Jackson.* 
+4\. As marks of all that dwell near him. *W. Jackson.* 
 
 **Verse 6** (latter clause).—What we may see in God's sanctuary (strength, and beauty). What we may obtain there, Ps 90:17 (strength and beauty). *C. D.* 
 
 **Verse 8.** Jehovah possesses a nature and character peculiar to himself; he sustains various offices and relations, and he has performed many works which he alone could perform. On all these accounts something is due to him from his creatures. And when we regard him with such affections, and yield him such services, as his nature, character, offices, and works deserve, then we give unto him the glory which is due to his name.
 
-1\.Let us inquire what is due to Jehovah on account of his nature.
+1\. Let us inquire what is due to Jehovah on account of his nature.
 
-2\.What is due to Jehovah on account of the character he possesses.
+2\. What is due to Jehovah on account of the character he possesses.
 
-3\.What is due to God on account of the relations and offices which he sustains—that of a creator, preserver.
+3\. What is due to God on account of the relations and offices which he sustains—that of a creator, preserver.
 
-4\.What is due to Jehovah on account of the works which he has performed, in nature, providence and redemption. *E. Payson.* 
+4\. What is due to Jehovah on account of the works which he has performed, in nature, providence and redemption. *E. Payson.* 
 
 **Verse 8.** The object of worship. The nature of worship. The accompaniment of worship (an offering). The place of worship. *C. D.*.
 
 **Verse 9.** (first clause). An examination of true and false worship.
 
-1\.False worship, in the obscurity of ignorance, in the dulness of formalism, in the offensiveness of indulged sin, in the hideousness of hypocrisy.
+1\. False worship, in the obscurity of ignorance, in the dulness of formalism, in the offensiveness of indulged sin, in the hideousness of hypocrisy.
 
-2\.True worship, in the beauty of holiness. *C. D.* 
+2\. True worship, in the beauty of holiness. *C. D.* 
 
 **Verse 9.** Holy fear an essential ingredient in true religion.
 
 **Verses 10-13.** The reign of righteousness.
 
-1\.The announcement of a righteous king and judge.
+1\. The announcement of a righteous king and judge.
 
-2\.The joyful reception prepared for him.
+2\. The joyful reception prepared for him.
 
-3\.His glorious coming. *C. D.* 
+3\. His glorious coming. *C. D.* 
 
 **Verses 11-12.** The sympathy of nature with the work of grace; especially dwelling upon its fuller display in the millennial period.
 

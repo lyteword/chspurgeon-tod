@@ -62,17 +62,17 @@ The love of love."
 
 — *J. J. Stewart Perowne.* 
 
-**Whole Psalm.** Several of the Psalms obviously refer to the time of the Babylonian captivity...The captives' mournful sentiments of pensive melancholy and weary longing during its long and weary continuance constitute the burden of the hundred and thirty-seventh. It was probably written by some gifted captive Levite at the time. Some suppose it to have been composed by Jeremiah, the prophet of tears, and sent to his countrymen in the land of their exile, in order to awaken fond memories of the past and sustain a lively hope for the future; and certainly the ode is worthy even of his pen, for it is one of the sweetest, most plaintive, and exquisitely beautiful elegies in any language. It is full of heart melting, tear bringing pathos. The moaning of the captive, the wailing of the exile, and the sighing of the saints are heard in every line.— *W. Ormiston, in "The Study,"* 1874.
+**Whole Psalm.** Several of the Psalms obviously refer to the time of the Babylonian captivity... The captives' mournful sentiments of pensive melancholy and weary longing during its long and weary continuance constitute the burden of the hundred and thirty-seventh. It was probably written by some gifted captive Levite at the time. Some suppose it to have been composed by Jeremiah, the prophet of tears, and sent to his countrymen in the land of their exile, in order to awaken fond memories of the past and sustain a lively hope for the future; and certainly the ode is worthy even of his pen, for it is one of the sweetest, most plaintive, and exquisitely beautiful elegies in any language. It is full of heart melting, tear bringing pathos. The moaning of the captive, the wailing of the exile, and the sighing of the saints are heard in every line.— *W. Ormiston, in "The Study,"* 1874.
 
 **Whole Psalm.** Here,
 
-1\.The melancholy captives cannot enjoy themselves, Ps 137:1-2.
+1\. The melancholy captives cannot enjoy themselves, Ps 137:1-2.
 
-2\.They cannot humour their proud oppressors, Ps 137:3-4.
+2\. They cannot humour their proud oppressors, Ps 137:3-4.
 
-3\.They cannot forget Jerusalem, Ps 137:5-6.
+3\. They cannot forget Jerusalem, Ps 137:5-6.
 
-4\.They cannot forget Edom and Babylon, Ps 137:7-9.— *Matthew Henry.* 
+4\. They cannot forget Edom and Babylon, Ps 137:7-9.— *Matthew Henry.* 
 
 **Verse 1.** *By the rivers of Babylon.* The canals of Babylon itself, probably (comp. Ps 137:2.)— *William Kay.* 
 
@@ -138,13 +138,13 @@ Live till to-morrow, will have passed away."
 
 "We hanged our harps upon the willows in the midst thereof." Let us pass from the Jew to the Christian in his Spritiual Sorrows. He who preach well, says Luther, must distinguish well. It is peculiarly necessary to discriminate, when we enter upon the present subject. For all the sorrows of the Christian are not of the same kind or descent. Let us consider four sources of his moral sadness.
 
-1\.The first will be *physical.* 
+1\. The first will be *physical.* 
 
-2\.The second will be *criminal.* 
+2\. The second will be *criminal.* 
 
-3\.The third will be *intellectual.* 
+3\. The third will be *intellectual.* 
 
-4\.The fourth will be *pious.* 
+4\. The fourth will be *pious.* 
 
 — *William Jay in "The Christian Contemplated."* 
 
@@ -202,7 +202,7 @@ Modern translators substitute "skill"; but perhaps a term still more general wou
 
 **Verse 7.** *Remember, O LORD, the children of Edom*, etc. The Jews were their brethren: Ob 1:10 Am 1:11. They were their neighbours, Idumea and Judea bordered upon one another: Mr 3:8. They were confederates with the Jews (Jer 27:3: an Edomitish ambassador was at Jerusalem), who, together with the ambassadors of the other kings there mentioned, were strengthening themselves with Zedekiah against Nebuchadnezzar; see Ob 1:7. For them, therefore to revenge themselves for former wrongs done them upon the Jews, and that in the day of their calamity, this made their sin exceedingly sinful— *William Greenhill,* 1591-1677.
 
-**Verse 7.** *Remember, O LORD, the, children of Edom*, etc. Or all kinds of evil speaking against our brother, this sin of Edom, to sharpen an enemy against our brother in the day of his sorrow and distress, this opening of the mouth wide against him, to exult over him in his calamity, is most barbarous and unchristian....Observe how the cruelty of the Edomites is aggravated by this time; the most woeful time that ever Jerusalem had, called therefore *the day of Jerusalem.* When all things conspired to make their sorrow full, then, in the anguish and fit of their mortal disease, then did Edom arm his eye, his tongue his heart, his hand, and join all those with the enemy against his brother. Learn, that God taketh notice not only what we do against another, but *when* ;for he will set these things in order before us; for the God of mercy cannot abide cruelty.— *Edward Marbury,* 1649.
+**Verse 7.** *Remember, O LORD, the, children of Edom*, etc. Or all kinds of evil speaking against our brother, this sin of Edom, to sharpen an enemy against our brother in the day of his sorrow and distress, this opening of the mouth wide against him, to exult over him in his calamity, is most barbarous and unchristian.... Observe how the cruelty of the Edomites is aggravated by this time; the most woeful time that ever Jerusalem had, called therefore *the day of Jerusalem.* When all things conspired to make their sorrow full, then, in the anguish and fit of their mortal disease, then did Edom arm his eye, his tongue his heart, his hand, and join all those with the enemy against his brother. Learn, that God taketh notice not only what we do against another, but *when* ;for he will set these things in order before us; for the God of mercy cannot abide cruelty.— *Edward Marbury,* 1649.
 
 **Verse 7.** *Remember, O Loud, the children of Edom.* Edom shall be remembered for the mischievous counsel he gave; and the daughter of Babylon shall be for ever razed out of memory for razing Jerusalem to the ground. And let all the secret and open enemies of God's church take heed how they employ their tongues and hands against God's secret ones: they that presume to do either may here read their fatal doom written in the *dust* of Edom, and in the *ashes* of Babylon.— *Daniel Featley* (1582-1645), *in "Clavis Mystica."* 
 
@@ -216,11 +216,11 @@ Modern translators substitute "skill"; but perhaps a term still more general wou
 
 **Verses 7-9.** I do not know if the same feeling has occurred to others, but I have often wished the latter verses of this Psalm had been disjoined from this sweet and touching beginning. It sounds as if one of the strings on their well tuned harps was out of melody, as if it struck a jarring note of discord. And yet I know the feeling is wrong, for it is no more than what the Lord himself had foretold and declared should be the final desolation of proud Babylon itself: yet one longs more intensely for the period when the nations of the earth shall learn war no more; and every harp and every voice, even those of the martyred ones beneath God's altar loudest and sweetest of all, shall sing the Lord's songs, the song of Moses, and the Lamb, in that pleasant land, where no sighing and no tears are seen.— *Barton Bouchier.* 
 
-**Verse 8.** *O daughter of Babylon, who art to be destroyed.* In the beginning of the fifth year of Darius happened the revolt of the Babylonians which cost him the trouble of a tedious siege again to reduce them...he besieged the city with all his forces...As soon as the Babylonians saw themselves be girt by such an army as they could not cope with in the field, they turned their thoughts wholly to the supporting of themselves in the siege; in order whereto they took a resolution, the most desperate and barbarous that ever any nation practised. For to make their provisions last the longer, they agreed to cut off all unnecessary mouths among them, and therefore drawing together all the women and children, they strangled them all, whether wives, sisters, daughters, or young children useless for the wars, excepting only that every man was allowed to save one of his wives, which he best loved, and a maid servant to do the work of the house.— *Humphrey Prideaux.* 
+**Verse 8.** *O daughter of Babylon, who art to be destroyed.* In the beginning of the fifth year of Darius happened the revolt of the Babylonians which cost him the trouble of a tedious siege again to reduce them...he besieged the city with all his forces... As soon as the Babylonians saw themselves be girt by such an army as they could not cope with in the field, they turned their thoughts wholly to the supporting of themselves in the siege; in order whereto they took a resolution, the most desperate and barbarous that ever any nation practised. For to make their provisions last the longer, they agreed to cut off all unnecessary mouths among them, and therefore drawing together all the women and children, they strangled them all, whether wives, sisters, daughters, or young children useless for the wars, excepting only that every man was allowed to save one of his wives, which he best loved, and a maid servant to do the work of the house.— *Humphrey Prideaux.* 
 
 **Verse 8.** *Who art to be destroyed.* hdwdvh has been explained in a variety of ways. Seventy: h talaipwrov; Vulg. *misera*: others, *destroyer*, *powerful*, *violent*, or *fierce*. Perhaps it best suits the context to regard it as expressing what is already accomplished: it is so certain, in the view of the Psalmist, that the ruin will come, that he uses the past participle, as if the work were now completed. "O daughter of Babylon, the destroyed!"— *"Bibliotheca Sacra and Theological Review."* 
 
-**Verse 8.** He that sows evil shall reap evil; he that soweth the evil of sin, shall reap the evil of punishment. So Eliphaz told Job that he had seen (Job 4:8), "they that plough iniquity, and sow wickedness, reap the same." And that either in kind or quality, proportion or quantity. In kind, the very same that he did to others shall be done to him; or in proportion, a measure answerable to it. So he shall reap what he hath sown, in quality or in quantity; either in portion the same, or in proportion the like. The prophet cursing Edom and Babel saith thus, "O daughter of Zion, happy shall he be that rewardeth thee as thou hast served us." The original is, "that recompenses to thee thy deed which thou didst to us."...Thus is wickedness recompensed *suo genere*, in its own kind. So often the transgressor is against the transgressor, the thief robs the thief, *proditoros proditor* ;as in Rome many unchristened emperors, and many christened popes, by blood and treason got the sovereignty, and by blood and treason lost it. Evil men drink of their own brewing, are scourged with their own rod, drowned in the pit which they digged for others, as Haman was hanged on his own gallows, Perillus tormented in his own engine!— *Thomas Adams.* 
+**Verse 8.** He that sows evil shall reap evil; he that soweth the evil of sin, shall reap the evil of punishment. So Eliphaz told Job that he had seen (Job 4:8), "they that plough iniquity, and sow wickedness, reap the same." And that either in kind or quality, proportion or quantity. In kind, the very same that he did to others shall be done to him; or in proportion, a measure answerable to it. So he shall reap what he hath sown, in quality or in quantity; either in portion the same, or in proportion the like. The prophet cursing Edom and Babel saith thus, "O daughter of Zion, happy shall he be that rewardeth thee as thou hast served us." The original is, "that recompenses to thee thy deed which thou didst to us."... Thus is wickedness recompensed *suo genere*, in its own kind. So often the transgressor is against the transgressor, the thief robs the thief, *proditoros proditor* ;as in Rome many unchristened emperors, and many christened popes, by blood and treason got the sovereignty, and by blood and treason lost it. Evil men drink of their own brewing, are scourged with their own rod, drowned in the pit which they digged for others, as Haman was hanged on his own gallows, Perillus tormented in his own engine!— *Thomas Adams.* 
 
 **Verses 8-9.** The subject of these two verses is the same with that of many chapters in Isaiah and Jeremiah; namely, the vengeance of heaven executed upon Babylon by Cyrus, raised up to be king of the Medes and Persians, united under him for that purpose. The meaning of the words, "Happy shall he be, "is, He shall go on and prosper, for the Lord of hosts shall go with him, and fight his battles against the enemy and oppressor of his people, empowering him to recompense upon the Chaldeans the works of their hands, and to reward them as they served Israel.— *George Horne.* 
 
@@ -234,7 +234,7 @@ for the wars of the old world were always attended by such barbarous cruelties. 
 
 **Verse 9.** *Happy shall he be that taketh,* etc. That is, so oppressive hast thou been to all under thy domination, as to become universally hated and detested; so that those who may have the last hand in thy destruction, and the total extermination of thy inhabitants, shall be reputed *"happy"* —shall be *celebrated* and *extolled* as those who have rid the world of a curse so grievous. These prophetic declarations contain no excitement to any person or persons to commit acts of cruelty and barbarity; but are simply *declarative* of what would take place in the order of the retributive providence and justice of God, and the general opinion that should in consequence be expressed on the subject; therefore *praying for the destruction of our enemies* is totally out of the question.— *Adam Clarke.* 
 
-**Verse 9.** *Happy shall he be,* etc. With all possible might and speed oppose the very first risings and movings of the heart to sin; for these are the buds that produce the bitter fruit; and if sin be not nipped in the very bud, it is not imaginable how quickly it will shoot forth...Now these sins, though they may seem small in themselves, yet are exceedingly pernicious in their effects. These little foxes destroy the grapes as much or more than the greater, and therefore are to be diligently sought out, hunted, and killed by us, if we would keep our hearts fruitful. We should deal with these first streamings out of sin as the Psalmist would have the people of God deal with the brats of Babylon: *Happy shall he be, that taketh and dasheth thy little ones against the stones.* And without doubt most happy and successful will that man prove in his spiritual welfare, who puts on no bowels of pity even to his infant corruptions, but slays the small as well as the great; and so not only conquers his enemies by opposing their present force, but also by extinguishing their future race. The smallest children, if they live, will be grown men; and the first motions of sin, if they are let alone, will spread into great, open, and audacious presumptions.— *Robert South,* 1633-1716.
+**Verse 9.** *Happy shall he be,* etc. With all possible might and speed oppose the very first risings and movings of the heart to sin; for these are the buds that produce the bitter fruit; and if sin be not nipped in the very bud, it is not imaginable how quickly it will shoot forth... Now these sins, though they may seem small in themselves, yet are exceedingly pernicious in their effects. These little foxes destroy the grapes as much or more than the greater, and therefore are to be diligently sought out, hunted, and killed by us, if we would keep our hearts fruitful. We should deal with these first streamings out of sin as the Psalmist would have the people of God deal with the brats of Babylon: *Happy shall he be, that taketh and dasheth thy little ones against the stones.* And without doubt most happy and successful will that man prove in his spiritual welfare, who puts on no bowels of pity even to his infant corruptions, but slays the small as well as the great; and so not only conquers his enemies by opposing their present force, but also by extinguishing their future race. The smallest children, if they live, will be grown men; and the first motions of sin, if they are let alone, will spread into great, open, and audacious presumptions.— *Robert South,* 1633-1716.
 
 **Verse 9.** *Against the stones.* That el M signifies *a rock*, is undubitable, from the concurrent testimony of all the best Hebrew lexicographers. Hence it follows, because there is no rock, nor mountain, nor hill, either in tim city or in the province of ancient Babylonia, that the locality against which the malediction of this Psalm is hurled cannot be the metropolis of the ancient Assyrian empire, but must be apocalyptic Babylon, or Papal Rome, built upon seven hills, one of which is the celebrated Tarpeian Rock. But the eighth verse emphatically declares that the retributive justice of God will visit upon apocalyptic Babylon the same infliction which Assyrian Babylon, and also Pagan Rome, inflicted upon Jerusalem. As therefore Nebuchadnezzar as well as Titus "burnt the house of the Lord, and tim king's house, and all the houses of Jerusalem, and every great man's house burnt he with fire" (2Ki 25:9), so "the ten horns shall hate the whore, and shall make her desolate and naked, and shall eat her flesh, and burn her with fire; and she shall be utterly burned with fire" (Re 17:16 18:8). When the Canaanites had filled up the measure of their iniquity, Israel received a divine commission to exterminate the guilty nation. When Papal Rome shall have filled up the measure of her iniquity, then "a mighty angel will take up a stone, like a great millstone, and will cast it into the sea, saying, Thus with violence shall that great city Babylon be thrown down": "For her sins have reached unto heaven, and God hath remembered her iniquities. Reward her even as she rewarded you, and double unto her double according to her works: in the cup which she hath filled fill to her double" (Re 18:5-6). Then shall issue the divine proclamation: "Rejoice over her, thou heaven, and ye holy apostles and prophets; for God hath avenged you on her" (Re 18:20).— *John Noble Coleman, in "The Book of Psalms, with Notes,"* 1863.
 
@@ -254,37 +254,37 @@ These have I yet to see, perhaps yet more. **
 
 **Verse 1.** 
 
-1\.A duty once the source of joy: "remember Zion."
+1\. A duty once the source of joy: "remember Zion."
 
-2\.Circumstances which make the remembrance sorrowful.
+2\. Circumstances which make the remembrance sorrowful.
 
-3\.Peculiar persons who feel this joy or sorrow: "we."
+3\. Peculiar persons who feel this joy or sorrow: "we."
 
 **Verse 1.** 
 
-1\.Zion forsaken in prosperity. Its services neglected; its priests demoralized; the worship of Baal and of Ashtaroth preferred to the worship of the true God.
+1\. Zion forsaken in prosperity. Its services neglected; its priests demoralized; the worship of Baal and of Ashtaroth preferred to the worship of the true God.
 
-2\.Zion remembered in adversity. In Babylon more than in Jerusalem; on the banks of the Euphrates more than on the banks of Jordan; with tears when they might have remembered it with joy. "I spake unto thee in thy prosperity, and thou saidst, I will not hear." "Lord, in trouble they have visited thee. They poured out a prayer when thy chastening was upon them."— *G. R.* 
-
-**Verse 2.** 
-
-1\.Harps—or capacities for praise.
-
-2\.Harps on willows, or song suspended.
-
-3\.Harps retuned, or joys to come.
+2\. Zion remembered in adversity. In Babylon more than in Jerusalem; on the banks of the Euphrates more than on the banks of Jordan; with tears when they might have remembered it with joy. "I spake unto thee in thy prosperity, and thou saidst, I will not hear." "Lord, in trouble they have visited thee. They poured out a prayer when thy chastening was upon them."— *G. R.* 
 
 **Verse 2.** 
 
-1\.A confession of joy being turned into sorrow: "we hanged, "etc. The moaning of their harps upon weeping willows better harmonized with their feelings than any tunes which they had been accustomed to play.
+1\. Harps—or capacities for praise.
 
-2\.A holm of sorrow being turned into joy. They took their harps with them into captivity, and hung them up for future use.— *G. J.* 
+2\. Harps on willows, or song suspended.
+
+3\. Harps retuned, or joys to come.
+
+**Verse 2.** 
+
+1\. A confession of joy being turned into sorrow: "we hanged, "etc. The moaning of their harps upon weeping willows better harmonized with their feelings than any tunes which they had been accustomed to play.
+
+2\. A holm of sorrow being turned into joy. They took their harps with them into captivity, and hung them up for future use.— *G. J.* 
 
 **Verse 2.** *We hanged our harps,* etc.
 
-1\.In remembrance of lost joys. Their harps were associated with a glorious past. They could not afford to forget that past. They kept up the good old custom. There are always means of remembrance at hand.
+1\. In remembrance of lost joys. Their harps were associated with a glorious past. They could not afford to forget that past. They kept up the good old custom. There are always means of remembrance at hand.
 
-2\.In manifestation of present sorrow. They could not play on account of,
+2\. In manifestation of present sorrow. They could not play on account of,
 
 (a) Their sinfulness.
 
@@ -292,23 +292,23 @@ These have I yet to see, perhaps yet more. **
 
 (c) Their home.
 
-3\.In anticipation of future blessing. They did not dash their harps to pieces. Term of exile limited. Return expressly foretold. We shall want our harps in the good times coming. Sinners play their harps now, but must soon lay them aside for ever.— *W. J.* 
+3\. In anticipation of future blessing. They did not dash their harps to pieces. Term of exile limited. Return expressly foretold. We shall want our harps in the good times coming. Sinners play their harps now, but must soon lay them aside for ever.— *W. J.* 
 
 **Verse 3.** (*last clause* ). Taken away from the text this is a very pleasant and praiseworthy request. Why do we wish for such a song?
 
-1\.It is sure to be pure.
+1\. It is sure to be pure.
 
-2\.It will certainly be elevating.
+2\. It will certainly be elevating.
 
-3\.It will probably be glad some.
+3\. It will probably be glad some.
 
-4\.It will comfort and enliven us.
+4\. It will comfort and enliven us.
 
-5\.It will help to express our gratitude.
+5\. It will help to express our gratitude.
 
 **Verses 3-4.** 
 
-1\.The cruel demand.
+1\. The cruel demand.
 
 a) A song when we are captives.
 
@@ -316,19 +316,19 @@ b) A song to please our adversaries.
 
 c) A holy song for unholy purposes.
 
-2\.The motive for it. Sometimes mere ridicule; at others, mistaken kindness seeking by sharpness to arouse us from despondency; often mere levity.
+2\. The motive for it. Sometimes mere ridicule; at others, mistaken kindness seeking by sharpness to arouse us from despondency; often mere levity.
 
-3\.The answer to it, "How can?" etc.
-
-**Verses 3-4.** 
-
-1\.When God calls for joy we ought not to sorrow. The songs of Zion should be sung in Zion.
-
-2\.When God calls for sorrow we ought not to rejoice. "How shall we sing?" etc. See Isa 5:12.— *G. R.* 
+3\. The answer to it, "How can?" etc.
 
 **Verses 3-4.** 
 
-1\.The unreasonable request: "Sing us one of the songs of Zion." This was—
+1\. When God calls for joy we ought not to sorrow. The songs of Zion should be sung in Zion.
+
+2\. When God calls for sorrow we ought not to rejoice. "How shall we sing?" etc. See Isa 5:12.— *G. R.* 
+
+**Verses 3-4.** 
+
+1\. The unreasonable request: "Sing us one of the songs of Zion." This was—
 
 a) A striking testimony to the joyful character of Jehovah's worship. Even the heathen had heard of "the songs of Zion."
 
@@ -336,39 +336,39 @@ b) A severe trial of the fidelity of captive Israel. It might have been to their
 
 c) A cruel taunt of the sad and desponding condition of the captives.
 
-2\.The indignant refusal. "How shall we sing the Lord's song in a strange land?" There is no singing this song by true Israelites—
+2\. The indignant refusal. "How shall we sing the Lord's song in a strange land?" There is no singing this song by true Israelites—
 
 a) When the heart is out of tune, as it must necessarily be when in "a strange land."
 
 b) In uncongenial society—amongst unsympathetic strangers.
 
-3\.For unsanctified purposes—to make mirth for the heathen. Many so called sacred concerts pain devout Christians as much as the demand to sing the Lord's song did the devout Israelites. The Lord's song must be sung only "to the Lord."— *W.H J.P.* 
+3\. For unsanctified purposes—to make mirth for the heathen. Many so called sacred concerts pain devout Christians as much as the demand to sing the Lord's song did the devout Israelites. The Lord's song must be sung only "to the Lord."— *W. H J. P.* 
 
 **Verses 3-4.** The burlesque of holy things.
 
-1\.The servants of God are in an unsympathetic world.
+1\. The servants of God are in an unsympathetic world.
 
-2\.The demand to be amused and entertained. Temple songs to pass an idle hour! Such the popular demand today. Men would have us burlesque religion to tickle them.
+2\. The demand to be amused and entertained. Temple songs to pass an idle hour! Such the popular demand today. Men would have us burlesque religion to tickle them.
 
-3\.The justly indignant reply of all true men, "How shall we?" Christian workers have more serious if less popular business on hand.— *W. B. H.* 
+3\. The justly indignant reply of all true men, "How shall we?" Christian workers have more serious if less popular business on hand.— *W. B. H.* 
 
 **Verse 5.** The person who remembers; the thing remembered; the solemn imprecation.
 
 **Verse 5.** No harp but for Jesus.
 
-1\.The harp consecrated. At conversion.
+1\. The harp consecrated. At conversion.
 
 "One sword, at least, thy rights shall guard,
 
 One faithful harp shall praise thee."
 
-2\.The harp silent:
+2\. The harp silent:
 
 "Thy songs were made for the brave and free,
 
 They shall never sound in slavery."
 
-3\.The harp restrung above:
+3\. The harp restrung above:
 
 "And I heard the voice of harpers
 
@@ -376,21 +376,21 @@ Harping with their harps."— *W. B. H.*
 
 **Verses 5-6.** 
 
-1\.To rejoice with the world is to forget the church.
+1\. To rejoice with the world is to forget the church.
 
-2\.To love the church we must prefer her above everything.
+2\. To love the church we must prefer her above everything.
 
-3\.To serve the church we must be prepared to suffer anything.
+3\. To serve the church we must be prepared to suffer anything.
 
 **Verse 7.** The hatred of the ungodly to true religion.
 
-1\.Its cause.
+1\. Its cause.
 
-2\.Its extent. "Rase it", etc.
+2\. Its extent. "Rase it", etc.
 
-3\.Its season for display: "in the day of Jerusalem"—trouble, etc.
+3\. Its season for display: "in the day of Jerusalem"—trouble, etc.
 
-4\.Its reward: "Remember, O Lord."
+4\. Its reward: "Remember, O Lord."
 
 ## Works Upon The Hundred And Thirty-Seventh Psalm
 

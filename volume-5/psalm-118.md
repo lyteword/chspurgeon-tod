@@ -434,33 +434,33 @@ Those things which the Spirit of God enables a man to do, are in Scripture somet
 
 **Verses 1-4.** 
 
-1\.The subject of songs "O give thanks unto the Lord, for he is good."
+1\. The subject of songs "O give thanks unto the Lord, for he is good."
 
-2\.The chorus—"His mercy endureth for ever."
+2\. The chorus—"His mercy endureth for ever."
 
-3\.The choir—"Let Israel now say, "etc.; "Let the house of Aaron, "etc.; "Let them that fear the Lord, "etc.
+3\. The choir—"Let Israel now say, "etc.; "Let the house of Aaron, "etc.; "Let them that fear the Lord, "etc.
 
-4\.The rehearsal—"Let them *now* say, "that they may be better prepared for universal praise hereafter.
+4\. The rehearsal—"Let them *now* say, "that they may be better prepared for universal praise hereafter.
 
 **Verse 5.** 
 
-1\.The season for prayer—"in distress."
+1\. The season for prayer—"in distress."
 
-2\.The answer in season—"The Lord answered me."
+2\. The answer in season—"The Lord answered me."
 
-3\.The answer beyond the request—"And set me, "etc.
+3\. The answer beyond the request—"And set me, "etc.
 
 **Verse 6.** 
 
-1\.When may a man know that God is on his side?
+1\. When may a man know that God is on his side?
 
-2\.What confidence may that man enjoy who is assured of divine aid?
+2\. What confidence may that man enjoy who is assured of divine aid?
 
 **Verse 7.** 
 
-1\.The value of true friends.
+1\. The value of true friends.
 
-2\.The greater value of help from above.
+2\. The greater value of help from above.
 
 **Verses 8-9.** Better. It is wiser, surer, morally more right, more ennobling, more happy in result.
 
@@ -468,35 +468,35 @@ Those things which the Spirit of God enables a man to do, are in Scripture somet
 
 **Verse 12.** 
 
-1\.Faith's innumerable annoyances.
+1\. Faith's innumerable annoyances.
 
-2\.Their speedy end.
+2\. Their speedy end.
 
-3\.Faith's complete victory.
+3\. Faith's complete victory.
 
 **Verse 13.** 
 
-1\.Our great antagonist.
+1\. Our great antagonist.
 
-2\.His fierce attacks.
+2\. His fierce attacks.
 
-3\.His evident object: "that I might fall."
+3\. His evident object: "that I might fall."
 
-4\.His failure: "but the Lord helped me."
+4\. His failure: "but the Lord helped me."
 
 **Verse 14.** 
 
-1\.Strength under affliction.
+1\. Strength under affliction.
 
-2\.Song in hope of deliverance.
+2\. Song in hope of deliverance.
 
-3\.Salvation, or actual escape out of trial.
+3\. Salvation, or actual escape out of trial.
 
 **Verse 15.** The joy of Christian households. It is joy in salvation: it is expressed,—"The voice": it abides: "the voice *is* ":it is joy in the protection and honour given by the Lord's right hand.
 
 **Verse 15-16.** 
 
-1\.True joy is peculiar *to* the righteous.
+1\. True joy is peculiar *to* the righteous.
 
 2\. *In* their tabernacles: in their pilgrimage state.
 
@@ -506,11 +506,11 @@ Those things which the Spirit of God enables a man to do, are in Scripture somet
 
 **Verse 17.** 
 
-1\.Good men are often in special danger: Joseph in the pit; Moses in the ark of bulrushes; Job on the dunghill; David's narrow escapes from the hand of Saul; Paul let down in a basket; what a fruit basket was that! How much was suspended upon that cord! The salvation of how many!
+1\. Good men are often in special danger: Joseph in the pit; Moses in the ark of bulrushes; Job on the dunghill; David's narrow escapes from the hand of Saul; Paul let down in a basket; what a fruit basket was that! How much was suspended upon that cord! The salvation of how many!
 
-2\.Good men have often a presentiment of their recovery from special danger: "I shall not die, but live."
+2\. Good men have often a presentiment of their recovery from special danger: "I shall not die, but live."
 
-3\.Good men have a special desire for the preservation of their lives: "live and declare the works of the Lord." *G. R.* 
+3\. Good men have a special desire for the preservation of their lives: "live and declare the works of the Lord." *G. R.* 
 
 **Verses 17, 19, 22.** The victory of the risen Saviour and its far reaching consequences:
 
@@ -524,125 +524,125 @@ Those things which the Spirit of God enables a man to do, are in Scripture somet
 
 **Verse 18.** 
 
-1\.The afflictions of the people of God are chastisements: "The Lord hath chastened me."
+1\. The afflictions of the people of God are chastisements: "The Lord hath chastened me."
 
-2\.Those chastisements are often severe: hath chastened me *sore.* 
+2\. Those chastisements are often severe: hath chastened me *sore.* 
 
-3\.The severity is limited: "it is not unto death." *G. R.* 
+3\. The severity is limited: "it is not unto death." *G. R.* 
 
 **Verse 19.** 
 
-1\.Access to God desired.
+1\. Access to God desired.
 
-2\.Humbly requested: "Open to me."
+2\. Humbly requested: "Open to me."
 
-3\.Boldly accepted: "I will go into them."
+3\. Boldly accepted: "I will go into them."
 
-4\.Gratefully enjoyed: "And praise the Lord."
+4\. Gratefully enjoyed: "And praise the Lord."
 
 **Verse 22.** In these words we may notice the following particulars.
 
-1\.The metaphorical view in which the church is here represented, namely, that of a *house* or *building*.
+1\. The metaphorical view in which the church is here represented, namely, that of a *house* or *building*.
 
-2\.The character that our Immanuel bears with respect to this building; he is *the stone* in a way of eminence, without whom there can be no building, no house for God to dwell in among the children of men.
+2\. The character that our Immanuel bears with respect to this building; he is *the stone* in a way of eminence, without whom there can be no building, no house for God to dwell in among the children of men.
 
-3\.The character of the workmen employed in this spiritual structure; they are called *builders.* 
+3\. The character of the workmen employed in this spiritual structure; they are called *builders.* 
 
-4\.A fatal error they are charged with in building the house of God; they *refuse* the stone of God's choosing; they do not allow him a place in his own house.
+4\. A fatal error they are charged with in building the house of God; they *refuse* the stone of God's choosing; they do not allow him a place in his own house.
 
-5\.Notice the place that Christ should and shall have in this building, let the builders do their worst: he *is made the head stone of the corner*. The words immediately following declare how this is effected, and how the saints are affected with the news of his exaltation, notwithstanding the malice of hell and earth: "This is the Lord's doing, and it is wonderful in our eyes." *Ebenezer Erskine.* 
+5\. Notice the place that Christ should and shall have in this building, let the builders do their worst: he *is made the head stone of the corner*. The words immediately following declare how this is effected, and how the saints are affected with the news of his exaltation, notwithstanding the malice of hell and earth: "This is the Lord's doing, and it is wonderful in our eyes." *Ebenezer Erskine.* 
 
 **Verses 22-23.** 
 
-1\.The mystery stated. (a) That which is least esteemed by men as a means of salvation is most esteemed by God. (b) That which is most esteemed by God when made known is least esteemed by man.
+1\. The mystery stated. (a) That which is least esteemed by men as a means of salvation is most esteemed by God. (b) That which is most esteemed by God when made known is least esteemed by man.
 
-2\.The mystery explained. The way of salvation is the Lord's doing, therefore marvellous in our eyes.— *G.R.* 
+2\. The mystery explained. The way of salvation is the Lord's doing, therefore marvellous in our eyes.— *G. R.* 
 
 **Verses 22-25.** 
 
-1\.Christ rejected.
+1\. Christ rejected.
 
-2\.Christ exalted.
+2\. Christ exalted.
 
-3\.His exaltation is due to God alone.
+3\. His exaltation is due to God alone.
 
-4\.His exaltation commences a new era.
+4\. His exaltation commences a new era.
 
-5\.His exaltation suggests a new prayer.
+5\. His exaltation suggests a new prayer.
 
 —See Spurgeon's Sermon, no. 1,420.
 
 **Verse 24.** 
 
-1\.What is spoken of.
+1\. What is spoken of.
 
 (a) The gospel day.
 
 (b) The sabbath day.
 
-2\.What is said of it.
+2\. What is said of it.
 
 (a) It is given by God.
 
-(b) To be joyfully received by man.— *G.R.* 
+(b) To be joyfully received by man.— *G. R.* 
 
 **Verse 25.** What is church prosperity? Whence must it come? How can we obtain it?
 
 **Verse 25.** 
 
-1\.The object of the prayer.
+1\. The object of the prayer.
 
 (a) Salvation from sin.
 
 (b) Prosperity in righteousness.
 
-2\.The earnestness of the prayer: "I beseech thee, I beseech thee".
+2\. The earnestness of the prayer: "I beseech thee, I beseech thee".
 
-3\.The urgency of the prayer, "now—now"—now that the gates of righteousness are open, now that the foundation stone is laid, now that the gospel day has come—now, Lord! now!— *G.R.* 
+3\. The urgency of the prayer, "now—now"—now that the gates of righteousness are open, now that the foundation stone is laid, now that the gospel day has come—now, Lord! now!— *G. R.* 
 
 **Verse 27.** *Bind the sacrifice,* etc. Devotion is the mother, and she hath four daughters.
 
-1\.Constancy: "Bind the sacrifice."
+1\. Constancy: "Bind the sacrifice."
 
-2\.Fervency: Bind it "with cords."
+2\. Fervency: Bind it "with cords."
 
-3\.Wisdom: Bind it "to the altar."
+3\. Wisdom: Bind it "to the altar."
 
-4\.Confidence: Even to the "horns" of the altar.
+4\. Confidence: Even to the "horns" of the altar.
 
 — *Thomas Adams.* 
 
 **Verse 27.** *Bind the sacrifice with cords,* etc.
 
-1\.What is the sacrifice? Our whole selves, every talent, all our time, property, position, mind, heart, temper, life to the last.
+1\. What is the sacrifice? Our whole selves, every talent, all our time, property, position, mind, heart, temper, life to the last.
 
-2\.Why does it need binding? It is naturally restive. Long delay, temptations, wealth, rank, discouragement, scepticism, all tend to drive it from the altar.
+2\. Why does it need binding? It is naturally restive. Long delay, temptations, wealth, rank, discouragement, scepticism, all tend to drive it from the altar.
 
-3\.To what is it bound? To the doctrine of atonement. To Jesus and his work. To Jesus and out work.
+3\. To what is it bound? To the doctrine of atonement. To Jesus and his work. To Jesus and out work.
 
-4\.What are the cords? Our own vows. The need of souls. Our joy in the work. The great reward. The love of Christ working upon us by the Holy Spirit.
-
-**Verse 28.** 
-
-1\.The gladdest fact in all the world: "Thou art my God."
-
-2\.The fittest spirit in which to enjoy it: "Praise thee"
+4\. What are the cords? Our own vows. The need of souls. Our joy in the work. The great reward. The love of Christ working upon us by the Holy Spirit.
 
 **Verse 28.** 
 
-1\.The effect of Christ being sacrificed for us: "Thou art my God."
+1\. The gladdest fact in all the world: "Thou art my God."
 
-2\.The effect of our being offered as an acceptable sacrifice to him: "I will praise thee, I will exalt thee." Or,
+2\. The fittest spirit in which to enjoy it: "Praise thee"
+
+**Verse 28.** 
+
+1\. The effect of Christ being sacrificed for us: "Thou art my God."
+
+2\. The effect of our being offered as an acceptable sacrifice to him: "I will praise thee, I will exalt thee." Or,
 
 (a) The covenant blessing: "Thou art my God."
 
-(b) The covenant obligation: "I will praise thee."— *G.R.* 
+(b) The covenant obligation: "I will praise thee."— *G. R.* 
 
 **Verse 29.** 
 
-1\.The beginning and the end of salvation is mercy.
+1\. The beginning and the end of salvation is mercy.
 
-2\.The beginning and end of its requirements is thanksgiving.— *G.R.* 
+2\. The beginning and end of its requirements is thanksgiving.— *G. R.* 
 
 ## Works Upon The Hundred Eighteenth Psalm
 

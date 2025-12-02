@@ -212,13 +212,13 @@ In holy indignation the psalmist would fain rid the world of beings so base as n
 
 **Verse 2.** *Who stretchest out the heavens like a curtain.* It is usual in the East, in the summer season, and upon all occasions when a large company is to be received, to have the court of the house sheltered from the heat of the weather by all umbrella or veil, which being expanded upon ropes from one side of the parapet wall to another may be folded or unfolded at pleasure. The Psalmist seems to allude to some covering of this kind in that beautiful expression of stretching out the heavens like a curtain. *Kitto's Pictorial Bible.* 
 
-**Verse 2.** *Like a curtain.* With the same case, by his mere word, with which a man spreads out a tent curtain, Ps 104:2 Isa 40:22 is parallel, "that stretcheth out the heavens as a curtain, and spreadeth them out as a tent to dwell in." Ver. 3 continues the description of the work of the second day. There lie at bottom, in the first clause, the words of Ge 1:7 "God made the vaulted sky and divided between the waters which are under the vault and the waters which are above the vault." The waters above are the materials with which, or out of which, the structure is reared. To construct out of the movable waters a firm palace, the cloudy heaven, "firm as a molten glass" (Job 37:18), is a magnificent work of divine omnipotence. *E.V. Hengstenberg.* 
+**Verse 2.** *Like a curtain.* With the same case, by his mere word, with which a man spreads out a tent curtain, Ps 104:2 Isa 40:22 is parallel, "that stretcheth out the heavens as a curtain, and spreadeth them out as a tent to dwell in." Ver. 3 continues the description of the work of the second day. There lie at bottom, in the first clause, the words of Ge 1:7 "God made the vaulted sky and divided between the waters which are under the vault and the waters which are above the vault." The waters above are the materials with which, or out of which, the structure is reared. To construct out of the movable waters a firm palace, the cloudy heaven, "firm as a molten glass" (Job 37:18), is a magnificent work of divine omnipotence. *E. V. Hengstenberg.* 
 
 **Verse 2.** *Like a curtain.* Because the Hebrews conceived of heaven as a temple and palace of God, that sacred azure was at once the floor of his, the roof of our, abode. Yet I think the dwellers in tents ever loved best the figure of the heavenly tent. They represent God as daily spreading it out, and fastening it at the extremity of the horizon to the pillars of heaven, the mountains: it is to them a tent of safety, of rest, of a fatherly hospitality in which God lives with his creatures. *Herder*, quoted by Perowne.
 
 **Verse 3.** The metaphorical representation of God, as laying the beams of his chambers in the waters, seems somewhat difficult to understand; but it was the design of the prophet, from a thing incomprehensible to us, to ravish us with the greater admiration. Unless beams be substantial and strong, they will not be able to sustain even the weight of an ordinary house. When, therefore, God makes the waters the foundation of his heavenly palace, who can fail to be astonished at a miracle so wonderful? When we take into account our slowness of apprehension, such hyperbolical expressions are by no means superfluous; for it is with difficulty that they awaken and enable us to attain even a slight knowledge of God. *John Calvin.* 
 
-**Verse 3.** *Who layeth the beams of his chambers in the waters;* or, "who layeth his upper chambers above the waters." His upper chamber (people in the East used to retire to the upper chamber when they wished for solitude) is reared up in bright other on the slender foundation of rainy clouds. *A.F. Tholuck.* 
+**Verse 3.** *Who layeth the beams of his chambers in the waters;* or, "who layeth his upper chambers above the waters." His upper chamber (people in the East used to retire to the upper chamber when they wished for solitude) is reared up in bright other on the slender foundation of rainy clouds. *A. F. Tholuck.* 
 
 **Verse 3.** *Who layeth the beams,* etc. "He floodeth his chambers with waters, "i.e., the clouds make the flooring of his heavens. *Zachary Mudge.* 
 
@@ -270,7 +270,7 @@ And sweep away from earth each human habitation.
 
 —John Barton, in "The Book of Psalms in English Verse: a New *Testament Paraphrase, "* 1871.
 
-**Verse 6.** "Stood, ""fled, ""hasted away." The words of the psalm put the original wondrous process graphically before the eye. The change of tense, too, from past to present, in verses 6, 7, 8, is expressive, and paints the scene in its progress. In ver. 6 *"stood"* should be STAND: in ver. 7 *"fled"* should be FLEE: and *"hasted away"* should be HASTE AWAY, as in the P.B.V. *"The Speaker's Commentary."* 
+**Verse 6.** "Stood, ""fled, ""hasted away." The words of the psalm put the original wondrous process graphically before the eye. The change of tense, too, from past to present, in verses 6, 7, 8, is expressive, and paints the scene in its progress. In ver. 6 *"stood"* should be STAND: in ver. 7 *"fled"* should be FLEE: and *"hasted away"* should be HASTE AWAY, as in the P. B. V. *"The Speaker's Commentary."* 
 
 **Verse 7.** *At thy rebuke they fled.* The famous description of Virgil comes to mind, who introduces Neptune as sternly rebuking the winds for daring without his consent to embroil earth and heaven, and raise such huge mountain-waves: then swifter than the word is spoken, he calms the swollen seas, scatters the gathered clouds, and brings back the sun. *Lorinus.* 
 
@@ -410,7 +410,7 @@ The birks of Aberfeldy. *Robert Burns*, 1759-1796.
 
 **Verse 14.** *For the cattle,* etc. To make us thankful, let us consider, 1. That God not only provides for us, but for our servants; the cattle that are of use to man, are particularly taken care of; grass is made to grow in great abundance for them, when "the young lions, "that are not for the service of man, often "lack, and suffer hunger." 2. That our food is nigh us, and ready to us: having our habitation on the earth, there we have our storehouse, and depend not on "the merchant ships that bring food from afar, "Pr 31:14. 3. That we have even from the products of the earth, not only for necessity, but for ornament and delight, so good a master do we serve. Doth nature call for something to support it, and repair its daily decays? Here is *"bread which strengtheneth man's heart, "* and is therefore called the staff of life; let none that have that complain of want. Doth nature go further, and covet something pleasant? Here is *"wine that maketh glad the heart"*, refresheth the spirits, and exhilarates them, when it is soberly and moderately used; that we may not only go through our business, but go through it cheerfully; it is a pity that that should be abused to overcharge the heart, and disfit men for their duty, which was given to revive their heart, and quicken them in their duty. Is nature yet more humoursome, and doth it crave something for ornament too? Here is that also out of the earth: *"oil to make the face to shine"*, that the countenance may not only be cheerful, but beautiful, and we may be the more acceptable to one another. *Matthew Henry.* 
 
-**Verse 14.** *For the service of man.* The common version of these words can only mean for his benefit or use, a sense not belonging to the Hebrew word, which, as well as its verbal root, is applied to man's servitude or bondage as a tiller of the ground (Ge 3:17-19), and has here the sense of husbandry or cultivation, as in Ex 1:14, Le 25:39, it has that of compulsory or servile labour, the infinitive in the last clause indicates the object for which labour is imposed on man. *J.A. Alexander.* 
+**Verse 14.** *For the service of man.* The common version of these words can only mean for his benefit or use, a sense not belonging to the Hebrew word, which, as well as its verbal root, is applied to man's servitude or bondage as a tiller of the ground (Ge 3:17-19), and has here the sense of husbandry or cultivation, as in Ex 1:14, Le 25:39, it has that of compulsory or servile labour, the infinitive in the last clause indicates the object for which labour is imposed on man. *J. A. Alexander.* 
 
 **Verse 14.** *That he may bring forth food out of the earth.* The Israelites at the feast of the Passover and before the breaking of bread, were accustomed to say, "Praise be to the Lord our God, thou King of the world, who hath brought forth our bread from the earth": and at each returning harvest we ought to be filled with gratitude, as often as we again receive the valuable gift of bread. It is the most indispensable and necessary means of nourishment, of which we never tire, whilst other food, the sweeter it is, the more easily it surfeits: everybody, the child and the old man, the beggar and the king, like bread. We remember the unfortunate man, who was cast on the desert isle, famishing with hunger, and who cried at the sight of a handful of gold, "Ah, it is only gold!" He would willingly have exchanged for a handful of bread, this to him, useless material, which in the mind of most men is above all price. O let us never sin against God, by lightly esteeming bread! Let us gratefully accept the sheaves we gather, and thankfully visit the barns which preserve them; that we may break bread to the hungry, and give to the thirsty from the supplies God has given us. Let us never sit down to table without asking God to bless the gifts we receive from his gracious hand, and never eat bread without thinking of Christ our Lord, who calls himself the living bread, who came down from heaven to give life unto the world. And above all, may we never go to the table of the Lord without enjoying, through the symbols of bread and wine, his body and blood, whereby we receive strength to nourish our spiritual life! Yes, Lord, thou satisfiest both body and soul, with bread from earth and bread from heaven. Praise be to thy holy name, our hearts and mouths shall be full of thy praises for time and eternity!— *Frederick Arndt* in *"Lights of the Morning"*, 1861.
 
@@ -436,11 +436,11 @@ The birks of Aberfeldy. *Robert Burns*, 1759-1796.
 
 **Verse 16.** *The trees of the Lord*, etc. The cedars are indeed the trees of the Lord. They are especially his planting. There is a sense in which, above all other trees, they belong to him, and shadow forth in a higher degree his glory. The peculiar expression of the text, however, must not be limited to one particular species of cedar... Encouraged by this Scripture usage, I shall use the word in a somewhat wider sense than the conventional one, to denote three remarkable examples which may be selected from the *coniferae* to show the power and wisdom of God as displayed in the trees of the forest. These are, the cedar of Lebanon, the cedar of the Himalayas, and the cedar of the Sierra Nevada. The epithet which the psalmist applies to one, may most appropriately be applied to all of them; and there are various reasons why the Lord may be said to have a special interest and property in each of them, to a few of which our attention may now be profitably directed.
 
-1\.They are "trees of the Lord" on account of the *peculiarities of their structure*. In common with all the pine tribe, they are exceptional in their organization. They reveal a new idea of the creative mind.
+1\. They are "trees of the Lord" on account of the *peculiarities of their structure*. In common with all the pine tribe, they are exceptional in their organization. They reveal a new idea of the creative mind.
 
-2\.The cedars are "the trees of the Lord" on account of the antiquity of their type it was of this class of trees that the pre Adamite forests were principally composed.
+2\. The cedars are "the trees of the Lord" on account of the antiquity of their type it was of this class of trees that the pre Adamite forests were principally composed.
 
-3\.The cedars are the "trees of the Lord, "on account of the majesty of their appearance. It is the tree, par excellence, of the Bible—the type of all forest vegetation.
+3\. The cedars are the "trees of the Lord, "on account of the majesty of their appearance. It is the tree, par excellence, of the Bible—the type of all forest vegetation.
 
 —Condensed from *Hugh Macmillan's "Bible Teachings in Nature, "* 1868.
 
@@ -448,11 +448,11 @@ The birks of Aberfeldy. *Robert Burns*, 1759-1796.
 
 **Verse 17.** *Birds.* The word rendered *"birds"* here is the word which in Ps 84:3 is translated sparrow, and which is commonly used to denote small birds. Comp. Le 14:4 (margin), and Le 14:5-7 14:49-53. It is used, however, to denote birds of any kind. See Ge 7:14 Ps 8:8 6:1 148:10. *Albert Barnes.* 
 
-**Verse 17.** *The stork* is instanced as one of the largest of nest building birds, as the cedars of Lebanon were introduced in Ps 104:16 as being the largest of uncultivated trees. *A.C. Jennings* and *W.H. Zowe,* in *"The Psalms, with Introductions and Critical Notes"*, 1875.
+**Verse 17.** *The stork* is instanced as one of the largest of nest building birds, as the cedars of Lebanon were introduced in Ps 104:16 as being the largest of uncultivated trees. *A. C. Jennings* and *W. H. Zowe,* in *"The Psalms, with Introductions and Critical Notes"*, 1875.
 
-**Verse 17.** *The stork, the fir trees are her hoarse.* In many cases the stork breeds among old ruins, and under such circumstances it is fond of building its nest on the tops of pillars or towers, the summits of arches, and similar localities. When it takes up its abode among mankind, it generally selects the breeding places which have been built for it by those who know its taste, but it frequently chooses the top of a chimney, or some such locality. When it is obliged to build in spots where it can find neither rocks nor buildings, it builds on trees, and, like the heron, is sociable in its nesting, a whole community residing in a clump of trees. It is not very particular about the kind of tree, provided that it be tolerably tall, and strong enough to bear the weight of its enormous nest; and the reader will at once see that the fir trees are peculiarly fitted to be the houses for the stork. The particular species of fir tree to which the Psalmist alludes is probably the Aleppo pine *(Pinus halepensis)*, which comes next to the great cedars of Lebanon in point of size. It was this tree that furnished the timber and planks for Solomon's temple and palace, a timber which was evidently held in the greatest estimation. This tree fulfils all the conditions which a stork would require in nest building. It is lofty, and its boughs are sufficiently horizontal to form a platform for the nest, and strong enough to sustain it. On account of its value and the reckless manner in which it has been cut down without new plantations being formed, the Aleppo pine has vanished from many parts of Palestine wherein it was formerly common, and would afford a dwelling place for the stork. There are, however, several other species of fir which are common in various parts of the country, each species flourishing in the soil best suited to it, so that the stork would never be at a loss to find a nesting place in a country which furnished so many trees suitable to its purposes. *J.G. Wood*, in *"Bible Animals."* 
+**Verse 17.** *The stork, the fir trees are her hoarse.* In many cases the stork breeds among old ruins, and under such circumstances it is fond of building its nest on the tops of pillars or towers, the summits of arches, and similar localities. When it takes up its abode among mankind, it generally selects the breeding places which have been built for it by those who know its taste, but it frequently chooses the top of a chimney, or some such locality. When it is obliged to build in spots where it can find neither rocks nor buildings, it builds on trees, and, like the heron, is sociable in its nesting, a whole community residing in a clump of trees. It is not very particular about the kind of tree, provided that it be tolerably tall, and strong enough to bear the weight of its enormous nest; and the reader will at once see that the fir trees are peculiarly fitted to be the houses for the stork. The particular species of fir tree to which the Psalmist alludes is probably the Aleppo pine *(Pinus halepensis)*, which comes next to the great cedars of Lebanon in point of size. It was this tree that furnished the timber and planks for Solomon's temple and palace, a timber which was evidently held in the greatest estimation. This tree fulfils all the conditions which a stork would require in nest building. It is lofty, and its boughs are sufficiently horizontal to form a platform for the nest, and strong enough to sustain it. On account of its value and the reckless manner in which it has been cut down without new plantations being formed, the Aleppo pine has vanished from many parts of Palestine wherein it was formerly common, and would afford a dwelling place for the stork. There are, however, several other species of fir which are common in various parts of the country, each species flourishing in the soil best suited to it, so that the stork would never be at a loss to find a nesting place in a country which furnished so many trees suitable to its purposes. *J. G. Wood*, in *"Bible Animals."* 
 
-**Verse 17.** *The stork, the fir trees are her house.* Well wooded districts are for the most part the favourite resorts of the storks, as they constantly select trees both for breeding purposes and as resting places for the night; some few species, however, prove exceptions to this rule, and make their nests on roofs, chimneys, or other elevated situations in the immediate vicinity of men. From *"Cassell's Book of Birds."* From the Text of *Dr. Brehm.* By *T.R. Jones, F.R.S.* 
+**Verse 17.** *The stork, the fir trees are her house.* Well wooded districts are for the most part the favourite resorts of the storks, as they constantly select trees both for breeding purposes and as resting places for the night; some few species, however, prove exceptions to this rule, and make their nests on roofs, chimneys, or other elevated situations in the immediate vicinity of men. From *"Cassell's Book of Birds."* From the Text of *Dr. Brehm.* By *T. R. Jones, F. R. S.* 
 
 **Verse 17.** *The fir trees.* The doors of the temple were made of the fir tree; even of that tree which was a type of the humanity of Jesus Christ. Consider Heb 2:14. The fir tree is also the house of the stork, that unclean bird, even as Christ is a harbour and shelter for sinners. *"As for the stork",* saith the text, "the fir trees are her house; "and Christ saith to the sinners that see their want of shelter, "Come unto me, and I will give you rest." He is a refuge for the oppressed, a refuge in time of trouble. He is, as the doors of fir of the temple, the inlet of God's house, to God's presence, and to a partaking of his glory. Thus God did of old, by similitudes teach his people his way. *John Bunyan*, in *"Solomon's Temple Spiritualized."* 
 
@@ -462,7 +462,7 @@ The eagle and the stork
 
 On cliffs and cedar-tops their eyries build. *John Milton.* 
 
-**Verse 18.** *The high hills are a refuge for the wild goats.* There is scarcely any doubt that the Azel of the Old Testament is the *Arabian Ibex* or *Beden (Capra Nubiana)*. This animal is very closely allied to the well known Ibex of the Alps, or Steinbock, but may be distinguished from it by one or two slight differences, such as the black beard and the slighter make of the horns, which moreover have three angles instead of four, as is the case with the Alpine Ibex...The colour of its coat resembles so nearly that of the rocks, that an inexperienced eye would see nothing but bare stones and sticks where a practised hunter would see numbers of *Beden*, conspicuous by their beautifully curved horns. The agility of the *Beden* is extraordinary. Living in the highest and most craggy parts of the mountain ridge, it flings itself from spot to spot with a recklessness that startles one who has not been accustomed to the animal, and the wonderful certainty of its foot. It will, for example, dash at the face of a perpendicular precipice that looks as smooth as a brick wall, for the purpose of reaching a tiny ledge which is hardly perceptible, and which is some fifteen feet or so above the spot whence the animal sprang. Its eye, however, has marked certain little cracks and projections on the face of the rock, and as the animal makes its leap, it takes these little points of vantage in rapid succession, just touching them as it passes upwards, and by the slight stroke of its foot keeping up the original impulse of its leap. Similarly the Ibex comes sliding and leaping down precipitous sides of the mountains, sometimes halting with all the four feet drawn together, on a little projection scarcely larger than a penny, and sometimes springing boldly over a wild crevasse, and alighting with exact precision upon a projecting piece of rock, that seems scarcely large enough to sustain a rat comfortably. *J.G. Wood.* 
+**Verse 18.** *The high hills are a refuge for the wild goats.* There is scarcely any doubt that the Azel of the Old Testament is the *Arabian Ibex* or *Beden (Capra Nubiana)*. This animal is very closely allied to the well known Ibex of the Alps, or Steinbock, but may be distinguished from it by one or two slight differences, such as the black beard and the slighter make of the horns, which moreover have three angles instead of four, as is the case with the Alpine Ibex... The colour of its coat resembles so nearly that of the rocks, that an inexperienced eye would see nothing but bare stones and sticks where a practised hunter would see numbers of *Beden*, conspicuous by their beautifully curved horns. The agility of the *Beden* is extraordinary. Living in the highest and most craggy parts of the mountain ridge, it flings itself from spot to spot with a recklessness that startles one who has not been accustomed to the animal, and the wonderful certainty of its foot. It will, for example, dash at the face of a perpendicular precipice that looks as smooth as a brick wall, for the purpose of reaching a tiny ledge which is hardly perceptible, and which is some fifteen feet or so above the spot whence the animal sprang. Its eye, however, has marked certain little cracks and projections on the face of the rock, and as the animal makes its leap, it takes these little points of vantage in rapid succession, just touching them as it passes upwards, and by the slight stroke of its foot keeping up the original impulse of its leap. Similarly the Ibex comes sliding and leaping down precipitous sides of the mountains, sometimes halting with all the four feet drawn together, on a little projection scarcely larger than a penny, and sometimes springing boldly over a wild crevasse, and alighting with exact precision upon a projecting piece of rock, that seems scarcely large enough to sustain a rat comfortably. *J. G. Wood.* 
 
 **Verse 18.** *Conies.* When we were exploring the rocks in the neighbourhood of the convent, I was delighted to point attention to a family or two of the *Wubar*, engaged in their gambols on the heights above us. Mr. Smith and I watched them narrowly, and were much amused with the liveliness of their motions, and the quickness of their retreat within the clefts of the rock when they apprehended danger. We were, we believe, the first European travellers who actually noticed this animal, now universally admitted to be the shaphan, or coney of Scripture, within the proper bounds of the Holy Land; and we were not a little gratified by its discovery... The preparer of the skin mistook it for a rabbit, though it is of a stronger build, and of a duskier colour, being of a dark brown. It is destitute of a tail, and has some bristles at its mouth, over its head, and down its back, along the course of which there are traces of light and dark shade. In its short ears, small, black, and naked feet, and pointed snout, it resembles the hedgehog. It does not, however, belong to the insectivora, but, though somewhat anomalous, it is allied to the paehydermata, among which it is now classed by naturalists. *John Wilson*, in *"The Lands of the Bible,"* 1847.
 
@@ -500,7 +500,7 @@ On cliffs and cedar-tops their eyries build. *John Milton.*
 
 **Verse 24.** *In wisdom hast thou made them all.* Not only one thing, as the heavens, Ps 136:5; but everything is wisely contrived and made; there is a most glorious display of the wisdom of God in the most minute things his hands have made; he has made everything beautiful in its season. A skilful artificer, when he has finished his work and looks it over again, often finds some fault or another in it: but when the Lord had finished his works of creation, and looked over them, he saw that all was good; infinite wisdom itself could find no blemish in them: what weak, foolish, stupid creatures must they be that pretend to charge any of the works of God with folly, or want of wisdom?— *John Gill.* 
 
-**Verse 24.** *The earth is full of thy riches,* literally, thy possessions; these thou keepest not to thyself, but blessest thy creatures with. *A.R. Fausset.* 
+**Verse 24.** *The earth is full of thy riches,* literally, thy possessions; these thou keepest not to thyself, but blessest thy creatures with. *A. R. Fausset.* 
 
 **Verse 25.** *Things innumerable.* The waters teem with more life than the land. Beneath a surface less varied than that of the continents, the sea enfolds in its bosom an exuberance of life, of which no other region of the globe can afford the faintest idea. Its life extends from the poles to the equator, from east to west. Everywhere the sea is peopled; everywhere, down to its unfathomable depths, live and sport creatures suited to the locality. In every spot of its vast expanse the naturalist finds instruction, and the philosopher meditation, while the very varieties of life tend to impress upon our souls a feeling of gratitude to the Creator of the universe. Yes, the shores of the ocean and its depths, its plains and its mountains, its valleys and its precipices, even its debris, are enlivened and beautified by thousands of living beings. There are the solitary or sociable plants, upright or pendant, stretching in prairies, grouped in oases, or growing in immense forests. These plants give a cover to and feed millions of animals which creep, run, swim, fly, burrow in the soil, attach themselves to roots, lodge in the crevices, or build for themselves shelters, which seek or fly from one another, which pursue or fight each other, which caress each other with affection or devour each other without pity. Charles Darwin truly says that the terrestrial forests do not contain anything like the number of animals as those of the sea. The ocean, which is for man the element of death, is for myriads of animals a home of life and health. There is joy in its waves, there is happiness upon its shores, and heavenly blue everywhere. *Moquin Tandon*, in *"The World of the Sea",* Translated and enlarged by *H. Martin Hart*, 1869.
 
@@ -548,11 +548,11 @@ Draws in, and at his trunk spouts out, a sea.
 
 **Verse 26.** *There go the ships.* Far from separating from each other the nations of the earth (as the ancients, still inexperienced in navigation, supposed), the sea is the great highway of the human race, and unites all its various tribes into one common family by the beneficial bonds of commerce. Countless fleets are constantly furrowing its bosom, to enrich, by perpetual exchanges, all the countries of the globe with the products of every zone, to convey the fruits of the tropical world to the children of the chilly north, or to transport the manufactures of colder climes to the inhabitants of the equatorial regions. With the growth of commerce civilization also spreads athwart the wide cause way of the ocean from shore to shore; it first dawned on the borders of the sea, and its chief seats are still to be found along its confines. *G. Hartwig*, in *"The Harmonies of Nature,"* 1866.
 
-**Verse 26.** *Leviathan.* There is ground for thinking (though this is denied by some) that in several passages the term leviathan is used generically, much as we employ dragon; and that it denotes a great sea monster. *E.P. Barrows*, in *"Biblical Geography and Antiquities."* 
+**Verse 26.** *Leviathan.* There is ground for thinking (though this is denied by some) that in several passages the term leviathan is used generically, much as we employ dragon; and that it denotes a great sea monster. *E. P. Barrows*, in *"Biblical Geography and Antiquities."* 
 
 **Verse 26.** *To play therein.* Dreadful and tempestuous as the sea may appear, and uncontrollable in its billows and surges, it is only the field of sport, the playground, the bowling green, to those huge marine monsters. *Adam Clarke.* 
 
-**Verse 26.** *Leviathan... made to play therein.* With such wonderful strength is the tail of the whale endowed, that the largest of these animals, measuring some eighty feet in length, are able by its aid to leap clear out of the water, as if they were little fish leaping after flies. This movement is technically termed "breaching, "and the sound which is produced by the huge carcase as it falls upon the water is so powerful as to be heard for a distance of several miles. *J.G. Wood*, in "The Illustrated Natural History," 1861.
+**Verse 26.** *Leviathan... made to play therein.* With such wonderful strength is the tail of the whale endowed, that the largest of these animals, measuring some eighty feet in length, are able by its aid to leap clear out of the water, as if they were little fish leaping after flies. This movement is technically termed "breaching, "and the sound which is produced by the huge carcase as it falls upon the water is so powerful as to be heard for a distance of several miles. *J. G. Wood*, in "The Illustrated Natural History," 1861.
 
 **Verse 26.** *Leviathan...made to play therein.* Though these immense mammiferous fish have no legs, they swim with great swiftness, and they gambol in the mountains of water lashed up by the storms. *Moquin Tandon.* 
 
@@ -600,17 +600,17 @@ And, at his touch, the hills with kindling flames adore him.
 
 **Verse 28.** *That thou givest them they gather.* This sentence describes The Commissariat of Creation. The problem is the feeding of "the creeping things innumerable, both small and great beasts, "which swarm the sea; the armies of birds which fill the air, and the vast hordes of animals which people the dry land; and in this sentence we have the problem solved, "That thou givest them they gather." The work is stupendous, but it is done with ease because the Worker is infinite: if he were not at the head of it the task would never be accomplished. Blessed be God for the great They of the text. It is every way our sweetest consolation that the personal God is still at work in the world: leviathan in the ocean, and the sparrow on the bough, may be alike glad of this; and we, the children of the great Father, much more. The general principle of the text is, God gives to his creatures, and his creatures gather. That general principle we shall apply to our own case as men and women; for it is as true of us as it is of the fish of the sea, and the cattle on the hills: "That thou givest them they gather."
 
-1\.We have only to gather, for God gives. In temporal things: God gives us day by day our daily bread, and our business is simply to gather it. As to spirituals, the principle is true, most emphatically, we have, in the matter of grace, only to gather what God gives. The natural man thinks that he has to earn divine favour; that he has to purchase the blessing of heaven; but he is in grave error: the soul has only to receive that which Jesus freely gives.
+1\. We have only to gather, for God gives. In temporal things: God gives us day by day our daily bread, and our business is simply to gather it. As to spirituals, the principle is true, most emphatically, we have, in the matter of grace, only to gather what God gives. The natural man thinks that he has to earn divine favour; that he has to purchase the blessing of heaven; but he is in grave error: the soul has only to receive that which Jesus freely gives.
 
-2\.We can only gather what God gives; however eager we may be, there is the end of the matter. The diligent bird shall not be able to gather more than the Lord has given it; neither shall the most avaricious and covetous man. "It is vain for you to rise up early and to sit up late, to eat the bread of carefulness; for so he giveth his beloved sleep."
+2\. We can only gather what God gives; however eager we may be, there is the end of the matter. The diligent bird shall not be able to gather more than the Lord has given it; neither shall the most avaricious and covetous man. "It is vain for you to rise up early and to sit up late, to eat the bread of carefulness; for so he giveth his beloved sleep."
 
-3\.We must gather what God gives, or else we shall get no good by his bountiful giving. God feeds the creeping things innumerable, but each creature collects the provender for itself. The huge leviathan receives his vast provision, but he must go ploughing through the boundless meadows and gather up the myriads of minute objects which supply his need. The fish must leap up to catch the fly, the swallow must hawk for its food, the young lions must hunt for their prey.
+3\. We must gather what God gives, or else we shall get no good by his bountiful giving. God feeds the creeping things innumerable, but each creature collects the provender for itself. The huge leviathan receives his vast provision, but he must go ploughing through the boundless meadows and gather up the myriads of minute objects which supply his need. The fish must leap up to catch the fly, the swallow must hawk for its food, the young lions must hunt for their prey.
 
-4\.The fourth turn of the text gives us the sweet thought that, we may gather what he gives. We have divine permission to enjoy freely what the Lord bestows.
+4\. The fourth turn of the text gives us the sweet thought that, we may gather what he gives. We have divine permission to enjoy freely what the Lord bestows.
 
-5\.The last thing is, God will always give us something to gather. It is written, "The Lord will provide." Thus is it also in spiritual things. If you are willing to gather, God will always give. *C.H.S.* 
+5\. The last thing is, God will always give us something to gather. It is written, "The Lord will provide." Thus is it also in spiritual things. If you are willing to gather, God will always give. *C. H. S.* 
 
-**Verse 28.** *Gather.* The verb rendered "gather" means to pick up or collect from the ground. It is used in the history of the manna (Ex 16:1,5,16), to which there is obvious allusion. The act of gathering from the ground seems to presuppose a previous throwing down from heaven. *J.A. Alexander.* 
+**Verse 28.** *Gather.* The verb rendered "gather" means to pick up or collect from the ground. It is used in the history of the manna (Ex 16:1,5,16), to which there is obvious allusion. The act of gathering from the ground seems to presuppose a previous throwing down from heaven. *J. A. Alexander.* 
 
 **Verse 28.** *Thou openest thine hand.* The Greek expositors take the opening of the hand to indicate facility. I am of opinion that it refers also to abundance and liberality, as in Ps 145:16:—"Thou openest thine hand, and satisfiest the desire of every living thing." Using this same formula, God commands us not to close the hand, but to open it to the poor. *Lorinus.* 
 
@@ -688,13 +688,13 @@ Ill matched with grief and sin. **
 
 **Verse 1.** *(first clause)* —An exhortation to one's own heart.
 
-1\.To remember the Lord as the first cause of all good. Bless not man, or fate, but the Lord.
+1\. To remember the Lord as the first cause of all good. Bless not man, or fate, but the Lord.
 
-2\.To do this in a loving, grateful, hearty, praising manner. Bless the Lord.
+2\. To do this in a loving, grateful, hearty, praising manner. Bless the Lord.
 
-3\.To do it truly and intensely. O my soul.
+3\. To do it truly and intensely. O my soul.
 
-4\.To do it now—for various reasons and in all possible ways.
+4\. To do it now—for various reasons and in all possible ways.
 
 **Verse 1** (second clause). He is all this essentially, and in nature, providence, grace, and judgment.
 
@@ -702,19 +702,19 @@ Ill matched with grief and sin. **
 
 **Verse 3** (last clause).
 
-1\.God is leisurely in his haste: "he walketh, "etc.
+1\. God is leisurely in his haste: "he walketh, "etc.
 
-2\.God is swift even in his slackness: "he walketh on the wings of the wind."
+2\. God is swift even in his slackness: "he walketh on the wings of the wind."
 
-3\.The practical conclusions are that there is time enough for the divine purposes but none for our trifling; and that we should both wait with patience for the victory of his cause and hasten it by holy activity.
+3\. The practical conclusions are that there is time enough for the divine purposes but none for our trifling; and that we should both wait with patience for the victory of his cause and hasten it by holy activity.
 
 **Verse 4. ** 
 
-1\.The Nature of Angels Spirits.
+1\. The Nature of Angels Spirits.
 
-2\.The Lord of Angels. "Who maketh, "etc. What must Iris own spirituality be who maketh spirits?
+2\. The Lord of Angels. "Who maketh, "etc. What must Iris own spirituality be who maketh spirits?
 
-3\.The ministry of Angels.
+3\. The ministry of Angels.
 
 (a) Their office: "ministers."
 
@@ -728,27 +728,27 @@ Ill matched with grief and sin. **
 
 **Verse 9. ** 
 
-1\.All things have their appointed bounds.
+1\. All things have their appointed bounds.
 
-2\.To pass those bounds without special permission by God is transgression. "Thou hast set a bound that they may not pass."
+2\. To pass those bounds without special permission by God is transgression. "Thou hast set a bound that they may not pass."
 
-3\.Extraordinary cases should be followed by a return to ordinary duties. "That they turn not again, "etc. *G.R.* 
+3\. Extraordinary cases should be followed by a return to ordinary duties. "That they turn not again, "etc. *G. R.* 
 
 **Verse 10.** The thoughtfulness of God for those who, like the valleys, are lowly, hidden, and needy: the abiding character of his supplies: and the joyous results of his care.
 
 **Verse 10.** God's care for wild creatures, reflections from it.
 
-1\.Shall he not much more care for his people?
+1\. Shall he not much more care for his people?
 
-2\.Will he not look after wild, wandering men?
+2\. Will he not look after wild, wandering men?
 
-3\.Ought we not also to care for all that live?
+3\. Ought we not also to care for all that live?
 
-**Verse 10.** From the fertility, life and music which mark the course of a stream, illustrate the beneficial influences of the Gospel. *C.A. Davis.* 
+**Verse 10.** From the fertility, life and music which mark the course of a stream, illustrate the beneficial influences of the Gospel. *C. A. Davis.* 
 
 **Verse 14.** *In the Hayfield.* (See "Spurgeon's Sermons, "No. 757.) "He causeth the grass to grow for the cattle."
 
-1\.Grass is in itself instructive.
+1\. Grass is in itself instructive.
 
 (a) As a symbol of our mortality: "All flesh is grass."
 
@@ -758,13 +758,13 @@ Ill matched with grief and sin. **
 
 (d) Grass is comparable to the food wherewith the Lord supplies the necessities of his chosen ones. Ps 23:2 So 1:7
 
-2\.God is seen in the growing of the grass.
+2\. God is seen in the growing of the grass.
 
 (a) As a worker: "He causeth, "etc. See God in common things—in solitary things.
 
 (b) See God as a caretaker: "He causeth the grass to grow for the cattle." God cares for the beasts—the helpless—dumb and speechless things—providing suitable food for them: "grass". Let us, then, see his hand in providence at all times.
 
-3\.God's working in the grass for the cattle gives us illustrations concerning grace.
+3\. God's working in the grass for the cattle gives us illustrations concerning grace.
 
 (a) God "cares for oxen" and satisfies their wants: there must then be something somewhere to satisfy the needs of the nobler creature man, and his immortal soul.
 
@@ -782,7 +782,7 @@ In the text there is a mighty blow to free will: "He causeth the grass to grow."
 
 **Verse 16.** "The Cedars of Lebanon." (See "Spurgeon's Sermons," No. 529.)
 
-1\.The absence of all human culture. These trees are peculiarly the Lord's trees, because,
+1\. The absence of all human culture. These trees are peculiarly the Lord's trees, because,
 
 (a) They owe their planting entirely to him: "He hath planted."
 
@@ -796,7 +796,7 @@ In the text there is a mighty blow to free will: "He causeth the grass to grow."
 
 (f) There is not a cedar upon Lebanon which is not independent of man in its expectations.
 
-2\.The glorious display of divine care.
+2\. The glorious display of divine care.
 
 (a) In the abundance of their supply.
 
@@ -810,7 +810,7 @@ In the text there is a mighty blow to free will: "He causeth the grass to grow."
 
 (f) They are very venerable.
 
-3\.The fulness of living principle: "The trees of the Lord are full of sap."
+3\. The fulness of living principle: "The trees of the Lord are full of sap."
 
 (a) This is vitally necessary.
 
@@ -826,7 +826,7 @@ In the text there is a mighty blow to free will: "He causeth the grass to grow."
 
 **Verses 17-18.** "Lessons from Nature." (See "Spurgeon's Sermons, " No. 1,005.)
 
-1\.For each place God has prepared a suitable form of life: for "the fir trees, ""the stork"; for "the high hills" "the wild goat, "etc. So, for all parts of the spiritual universe God has provided suitable forms of divine life.
+1\. For each place God has prepared a suitable form of life: for "the fir trees, ""the stork"; for "the high hills" "the wild goat, "etc. So, for all parts of the spiritual universe God has provided suitable forms of divine life.
 
 (a) Each age has its saints.
 
@@ -836,7 +836,7 @@ In the text there is a mighty blow to free will: "He causeth the grass to grow."
 
 (d) God's people are to be found in every city.
 
-2\.Each creature has its appropriate place.
+2\. Each creature has its appropriate place.
 
 (a) Each man has by God a providential position appointed to him.
 
@@ -844,19 +844,19 @@ In the text there is a mighty blow to free will: "He causeth the grass to grow."
 
 (c) The same holds good as to individuality of character.
 
-3\.Every creature that God has made is provided with shelter.
+3\. Every creature that God has made is provided with shelter.
 
-4\.For each creature the shelter is appropriate.
+4\. For each creature the shelter is appropriate.
 
-5\.Each creature uses its shelter.
+5\. Each creature uses its shelter.
 
 **Verse 19. ** 
 
-1\.The wisdom of God as displayed in the material heavens. In the changes of the moon and the variety of the seasons.
+1\. The wisdom of God as displayed in the material heavens. In the changes of the moon and the variety of the seasons.
 
-2\.The goodness of God as there displayed in the adaptation of these changes to the wants and enjoyments of men.
+2\. The goodness of God as there displayed in the adaptation of these changes to the wants and enjoyments of men.
 
-3\.The faithfulness of God as there displayed. Inspiring confidence in his creatures by their regularity.
+3\. The faithfulness of God as there displayed. Inspiring confidence in his creatures by their regularity.
 
 "So like the sun may I fulfil
 
@@ -868,43 +868,43 @@ March on and keep my heavenly way."
 
 **Verse 20.** Darkness and the beasts that creep forth therein.
 
-1\.Ignorance of God, and unrestrained lusts. Ro 1:2 Sins discovered. Beasts there before, but not noticed, now terrify man.
+1\. Ignorance of God, and unrestrained lusts. Ro 1:2 Sins discovered. Beasts there before, but not noticed, now terrify man.
 
-3\.Spiritual despondency, dismay, despair, etc.
+3\. Spiritual despondency, dismay, despair, etc.
 
-4\.Church lethargy. All sorts of heresies, etc., begin to creep forth.
+4\. Church lethargy. All sorts of heresies, etc., begin to creep forth.
 
-5\.Papal influence. Monks, friars, priests, etc., creep about in this dark age. *A.G. Brown.* 
+5\. Papal influence. Monks, friars, priests, etc., creep about in this dark age. *A. G. Brown.* 
 
 **Verse 20. ** 
 
-1\.Night work is for wild beasts: "Thou makest darkness, " etc.
+1\. Night work is for wild beasts: "Thou makest darkness, " etc.
 
-2\.Day work is for men: "Man goeth forth, "etc. Good men do their work by day; bad men by night: their work is in the dark. Ministers who creep into their studies by night, and "roar after their prey, "and "seek their meat from God", are more like wild beasts than rational men.— *G.R.* 
+2\. Day work is for men: "Man goeth forth, "etc. Good men do their work by day; bad men by night: their work is in the dark. Ministers who creep into their studies by night, and "roar after their prey, "and "seek their meat from God", are more like wild beasts than rational men.— *G. R.* 
 
-**Verse 21.** Inarticulate prayers, or how faulty the expression may be and yet how real the prayer in the esteem of God.**Verse 22.** From the effect of sunrise on the beasts of prey, exhibit the influence of Divine Grace on our evil passions. *C.A.D.* 
+**Verse 21.** Inarticulate prayers, or how faulty the expression may be and yet how real the prayer in the esteem of God.**Verse 22.** From the effect of sunrise on the beasts of prey, exhibit the influence of Divine Grace on our evil passions. *C. A. D.* 
 
-**Verse 23.** *"Early Closing."* A sermon preached on behalf of the "Early Closing Association, "by James Hamilton, D.D., 1850. In the "Pulpit," Vol. 57.
-
-**Verse 24. ** 
-
-1\.The language of wonder: "O Lord, how manifold, "etc. Their number, variety, cooperation, harmony.
-
-2\.Of admiration: "In wisdom, "etc. Everywhere the same wisdom displayed. God, says Dr. Chalmers, is as great in minutia as in magnitude.
-
-3\.Of gratitude: "The earth is full," etc. *G.R.* 
+**Verse 23.** *"Early Closing."* A sermon preached on behalf of the "Early Closing Association, "by James Hamilton, D. D., 1850. In the "Pulpit," Vol. 57.
 
 **Verse 24. ** 
 
-1\.The works of the Lord are multitudinous and varied.
+1\. The language of wonder: "O Lord, how manifold, "etc. Their number, variety, cooperation, harmony.
 
-2\.They are so constructed as to show the most consummate wisdom in their design, and in the end for which they are formed.
+2\. Of admiration: "In wisdom, "etc. Everywhere the same wisdom displayed. God, says Dr. Chalmers, is as great in minutia as in magnitude.
 
-3\.They are all God's property, and should be used only in reference to the end for which they were created. All abuse and waste of God's creatures are spoil and robbery on the property of the Creator. *Adam Clarke.* 
+3\. Of gratitude: "The earth is full," etc. *G. R.* 
+
+**Verse 24. ** 
+
+1\. The works of the Lord are multitudinous and varied.
+
+2\. They are so constructed as to show the most consummate wisdom in their design, and in the end for which they are formed.
+
+3\. They are all God's property, and should be used only in reference to the end for which they were created. All abuse and waste of God's creatures are spoil and robbery on the property of the Creator. *Adam Clarke.* 
 
 **Verse 26.** *There go the ships.* (See" Spurgeon's Sermons, "No. 1,259.)
 
-1\.We see that the ships go.
+1\. We see that the ships go.
 
 (a) The ships are intended for going.
 
@@ -914,7 +914,7 @@ March on and keep my heavenly way."
 
 (d) The ships sail upon a changeful sea.
 
-2\.How go the ships?
+2\. How go the ships?
 
 (a) They must go according to the wind.
 
@@ -926,7 +926,7 @@ March on and keep my heavenly way."
 
 (e) They go according to their build.
 
-3\.Let us signal them.
+3\. Let us signal them.
 
 (a) Who is your owner?
 
@@ -938,61 +938,61 @@ March on and keep my heavenly way."
 
 **Verse 2** 9.
 
-1\.The commencement of life is from God: "Thou sendest forth thy Spirit, "etc.
+1\. The commencement of life is from God: "Thou sendest forth thy Spirit, "etc.
 
-2\.The continuance of life is from God: "Thou renewest, " etc.
+2\. The continuance of life is from God: "Thou renewest, " etc.
 
-3\.The decline of life is from God: "Thou hidest thy face, " etc.
+3\. The decline of life is from God: "Thou hidest thy face, " etc.
 
-4\.The cessation of life is from God: "Thou takest away their breath, "etc.
+4\. The cessation of life is from God: "Thou takest away their breath, "etc.
 
-5\.The resurrection of life is from God: "Thou renewest, " etc. *G.R.* 
+5\. The resurrection of life is from God: "Thou renewest, " etc. *G. R.* 
 
 **Verse 30.** The season of Spring and its moral analogies. See John Foster's "Lectures, "1844.
 
 **Verse 32. ** 
 
-1\.What there is in a Look of God. "He looketh, "etc.
+1\. What there is in a Look of God. "He looketh, "etc.
 
 (a) What in a look of anger.
 
 (b) What in a look of love. He looked out of the fiery pillar upon the Egyptians." The Lord hath looked out from his pillar of glory," etc. He gave another look from the same pillar to Israel.
 
-2\.What there is in a Touch of God: "He toucheth," etc. A touch of his may raise a soul to heaven, or sink a soul to hell. *G.R.* 
+2\. What there is in a Touch of God: "He toucheth," etc. A touch of his may raise a soul to heaven, or sink a soul to hell. *G. R.* 
 
 **Verse 33. ** 
 
-1\.The singer—"I."
+1\. The singer—"I."
 
-2\.The song—"praises."
+2\. The song—"praises."
 
-3\.The audience—"The Lord, ""My God."
+3\. The audience—"The Lord, ""My God."
 
-4\.The length of the song—"long as I live; while I have my being."— *A.G.B.* 
+4\. The length of the song—"long as I live; while I have my being."— *A. G. B.* 
 
 **Verse 33.** Two "I wills."
 
-1\.Because he made me live.
+1\. Because he made me live.
 
-2\.Because he has made me to live in him.
+2\. Because he has made me to live in him.
 
-3\.Because he is Jehovah and "my God."
+3\. Because he is Jehovah and "my God."
 
-4\.Because I shall live for ever, in the best sense.
+4\. Because I shall live for ever, in the best sense.
 
 **Verse 34. ** 
 
-1\.David's contemplation.
+1\. David's contemplation.
 
-2\.David's exultation. *Thomas Horton.* 
+2\. David's exultation. *Thomas Horton.* 
 
 **Verse 35. ** 
 
-1\.They who praise not God are not fit to be on the earth: "Let the sinners be consumed, "etc.
+1\. They who praise not God are not fit to be on the earth: "Let the sinners be consumed, "etc.
 
-2\.Much less are they fit to be in heaven.
+2\. Much less are they fit to be in heaven.
 
-3\.They who praise God are fit both for earth and heaven. Though others do not praise him here, the saints will. "Bless thou the Lord," etc.
+3\. They who praise God are fit both for earth and heaven. Though others do not praise him here, the saints will. "Bless thou the Lord," etc.
 
 (a) In opposition to others, they praise him on earth.
 

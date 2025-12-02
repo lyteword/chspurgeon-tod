@@ -126,13 +126,13 @@ How wealthy is the place of every believer, and how doubly does he feel it to be
 
 **Verse 3.** *How terrible.* Take from the Bible its awful doctrines, and from providence its *terrible* acts, and the whole system, under which God has placed us, would be emasculated. *William S. Plumer.* 
 
-**Verse 3.** *Thine enemies shall submit themselves unto thee.* In this, our first consideration is, that *God himself hath enemies;* and then, how should we hope to be, nay, why should we wish to be, without them. God had good, that is, glory from his enemies; and we may have good, that is, advantage in the way to glory, by the exercise of our patience, from enemies too. Those for whom God had done most, the angels, turned enemies first; vex not thou thyself, if those whom thou hast loved best hate thee deadliest... God himself hath enemies. *Thine enemies shall submit,* says the text, to God; there thou hast one comfort, though thou have enemies too; but the greater comfort is, that God calls thine enemies his. *Nolite tangere Christus meos* (Ps 105:15), says God of all holy people; you were as good touch me, as touch any of them, for, "they are the apple of mine eye" (Ps 17:8). Our Saviour Christ never expostulated for himself; never said, Why scourge you me? why spit you upon me? why crucify you me? As long as their rage determined in his person, he opened not his mouth; when Saul extended the violence to the church, to his servants, then Christ came to that, "Saul, Saul, why persecutest thou me?"...Here is a holy league, defensive and offensive; God shall not only protect us from others, but he shall fight for us against them; our enemies are his enemies. *Condensed from John Donne.* 
+**Verse 3.** *Thine enemies shall submit themselves unto thee.* In this, our first consideration is, that *God himself hath enemies;* and then, how should we hope to be, nay, why should we wish to be, without them. God had good, that is, glory from his enemies; and we may have good, that is, advantage in the way to glory, by the exercise of our patience, from enemies too. Those for whom God had done most, the angels, turned enemies first; vex not thou thyself, if those whom thou hast loved best hate thee deadliest... God himself hath enemies. *Thine enemies shall submit,* says the text, to God; there thou hast one comfort, though thou have enemies too; but the greater comfort is, that God calls thine enemies his. *Nolite tangere Christus meos* (Ps 105:15), says God of all holy people; you were as good touch me, as touch any of them, for, "they are the apple of mine eye" (Ps 17:8). Our Saviour Christ never expostulated for himself; never said, Why scourge you me? why spit you upon me? why crucify you me? As long as their rage determined in his person, he opened not his mouth; when Saul extended the violence to the church, to his servants, then Christ came to that, "Saul, Saul, why persecutest thou me?"... Here is a holy league, defensive and offensive; God shall not only protect us from others, but he shall fight for us against them; our enemies are his enemies. *Condensed from John Donne.* 
 
 **Verse 3.** *Thine enemies submit themselves.* Literally, *lie unto thee.* This was remarkably the case with *Pharaoh* and the *Egyptians.* They promised again and again to let the people go, when the hand of the Lord was upon them; and they as frequently falsified their word. *Adam Clarke.* 
 
 **Verse 3.** (*second clause* ). In times of affliction every hypocrite—all tag and rag—will be ready to come in to God in an outward profession; but usually this submission to God at this time is not out of truth. Hence it is said, *Through the greatness of thy power shall thine enemies submit themselves unto thee:* in the original it is, *they shall lie unto thee,* and so it is translated by Arias Montanus, and some others, noting hereby that a forced submission to God is seldom in truth. *Jeremiah Burroughs.* 
 
-**Verse 3.** The earthquakes in New England occasioned a kind of religious panic. A writer, who was then one of the ministers of Boston, informs us, that immediately after the great earthquake, as it was called, a great number of his flock came and expressed a wish to unite themselves with the church. But, on conversing with them, he could find no evidence of improvement in their religious views or feelings, no convictions of their own sinfulness; nothing, in short, but a kind of superstitious fear, occasioned by a belief that the end of the world was at hand. All their replies proved that they had not found God, though they had seen *the greatness of his power* in the earthquake. *Edward Payson, D.D.* 
+**Verse 3.** The earthquakes in New England occasioned a kind of religious panic. A writer, who was then one of the ministers of Boston, informs us, that immediately after the great earthquake, as it was called, a great number of his flock came and expressed a wish to unite themselves with the church. But, on conversing with them, he could find no evidence of improvement in their religious views or feelings, no convictions of their own sinfulness; nothing, in short, but a kind of superstitious fear, occasioned by a belief that the end of the world was at hand. All their replies proved that they had not found God, though they had seen *the greatness of his power* in the earthquake. *Edward Payson, D. D.* 
 
 **Verse 5.** *Come and see the works of God.* An indirect censure is here passed upon that almost universal thoughtlessness which leads men to neglect the praises of God. *John Calvin.* 
 
@@ -150,7 +150,7 @@ How wealthy is the place of every believer, and how doubly does he feel it to be
 
 1\. *Which putteth our souls in life* (so the margin, out of the Hebrew), that is, who puts life into your soul at the first, as he did into Adam when he made him a living soul;
 
-2\.And then which *holdeth,* that is, continueth our souls in that life. So the translators render it also, according to the psalmist's scope, and *O bless the Lord,* saith the psalmist, for these and both these. *Thomas Goodwin.* 
+2\. And then which *holdeth,* that is, continueth our souls in that life. So the translators render it also, according to the psalmist's scope, and *O bless the Lord,* saith the psalmist, for these and both these. *Thomas Goodwin.* 
 
 **Verse 9.** *Which holdest our soul in life.* It is truth, that all we have is in the hand of God; but God keeps our life in his hand last of all, and he hath that in his hand in a special manner. Though the soul continue, *life* may not continue; there is the soul when there is not life: life is that which is the union of soul and body. *Thou holdest our soul in life;* that is, thou holdest soul and body together. So Daniel describes God to Belshazzar, Da 5:23, "The God in whose hand thy breath is, and whose are all thy ways, hast thou not glorified." The breath of princes is in the hand of God, and the same hand holds the breath of the meanest subject. This may be matter of comfort to us in times of danger, and times of death: when the hand of man is lifted up to take thy life, remember thy life is held in the hand of God; and as God said to Satan (Job 2:6): Afflict the body of Job, but save his life; so God saith still to bloody wretches, who are as the limbs of Satan: The bodies of such and such are in your hands, the estates of such and such are in your hands, but save their lives. *Joseph Caryl.* 
 
@@ -202,27 +202,27 @@ Their solemn oath they knew not of the deed."
 
 **Verse 12.** *But thou broughtest us out into a wealthy place.* Every word is sweetly significant, and amplifies God's mercy to us. Four especially are remarkable:—
 
-1\.The deliverer;
+1\. The deliverer;
 
-2\.The deliverance;
+2\. The deliverance;
 
-3\.The delivered; and,
+3\. The delivered; and,
 
-4\.Their felicity or blessed advancement.
+4\. Their felicity or blessed advancement.
 
 So there is the deliverer, *aliquid celsitudinis, Thou; * in the delivery, *certitudinis, broughtest out, * in the delivered, *solitudinis, us; * in the happiness, *plenitudinis, into a wealthy place.* There is highness and lowness, sureness and fulness. The deliverer is great, the deliverance is certain, the distress grievous, the exaltation glorious. There is yet a first word, that like a key unlocks this golden gate of mercy, a *veruntamen:—* BUT. This is *vox respirationis,* a gasp that fetcheth back again the very life of comfort. *But thou broughtest, * etc. We were fearfully endangered into the hands of our enemies; they rode and trod upon us, and drove us through hard perplexities. *But thou, * etc. If there had been a full point or period at our misery, if those gulfs of persecution had quite swallowed us, and all our light of comfort had been thus smothered and extinguished we might have cried, *Periit spes nostra,* yea, *periit salus nostra.* —Our hope, our help is *quite* gone. He had mocked us that would have spoken, Be of good cheer. This same *but* is like a happy oar, that turns our vessel from the rocks of despair, and lands it at the haven of comfort. *Thomas Adams.* 
 
 **Verse 12.** (*second and third clause* ).
 
-1\.The outlet of the trouble is happy. They are in fire and water, yet they get through them; we went through fire and water, and did not perish in the flames or floods. Whatever the troubles of the saints are, blessed be God there is a way through them.
+1\. The outlet of the trouble is happy. They are in fire and water, yet they get through them; we went through fire and water, and did not perish in the flames or floods. Whatever the troubles of the saints are, blessed be God there is a way through them.
 
-2\.The inlet to a better state is much more happy. *Thou broughtest us out into a wealthy place,* into a well watered place; for the word is, *like the gardens of the Lord,* and therefore fruitful. *Matthew Henry.* 
+2\. The inlet to a better state is much more happy. *Thou broughtest us out into a wealthy place,* into a well watered place; for the word is, *like the gardens of the Lord,* and therefore fruitful. *Matthew Henry.* 
 
 **Verse 12.** (*last clause* ). Thou, O God, with the temptation hast given the issue. *Thou broughtest us out into a wealthy place.* 
 
-1\.Thou hast proved, and thou hast brought.
+1\. Thou hast proved, and thou hast brought.
 
-2\.Thou laidest the trouble, and thou tookest it off; yea, and hast made us an ample recompense, for thou hast brought us to a moist, pleasant, lovely, fertile, rich place, a happy condition, a flourishing condition of things, so that thou hast made us to forget all our trouble. *William Nicholson, in "David's Harp strung and tuned."* 1662.
+2\. Thou laidest the trouble, and thou tookest it off; yea, and hast made us an ample recompense, for thou hast brought us to a moist, pleasant, lovely, fertile, rich place, a happy condition, a flourishing condition of things, so that thou hast made us to forget all our trouble. *William Nicholson, in "David's Harp strung and tuned."* 1662.
 
 **Verse 12.** *A wealthy place.* The hand of God led them in that fire and water of affliction through which they went; but who led them out? The psalmist tells us in the next words: *Thou broughtest us out into a wealthy place;* the margin saith, *into a moist place.* They were in fire and water before. *Fire* is the extremity of heat and dryness; *water* is the extremity of moistness and coldness. *A moist place* notes a due temperament of heat and cold, of dryness and moistness, and therefore elegantly shadows that comfortable and contented condition into which the good hand of God had brought them, which is significantly expressed in our translation by *a wealthy place;* those places flourishing most in fruitfulness, and so in wealth, which are neither over hot nor over cold, neither over dry not over moist. *Joseph Caryl.* 
 
@@ -262,29 +262,29 @@ So there is the deliverer, *aliquid celsitudinis, Thou; * in the delivery, *cert
 
 **Verse 17.** *With my tongue.* Let the praise of God be in thy tongue, under thy tongue, and upon thy tongue, that it may shine before all men, and that they may see that thy heart is good. The fish *lucerna* has a shining tongue, (A reviewer condemns us for quoting false natural history, but no intelligent reader will be misled thereby.—Editor.) from which it takes its name; and in the depths of the sea the light of its tongue reveals it: if thy heart has a tongue, shining with the praises of God, it will sufficiently show itself of what sort it is. Hence the old saying, "Speak, that I may see thee." *Thomas Le Blanc.* 
 
-**Verse 18.** *If I regard iniquity in my heart, the Lord will not hear me.* The very supposition that "if he regarded iniquity in his heart, the Lord would not hear him, "implies the possibility that such may be the state even of believers; and there is abundant reason to fear that it is in this way their prayers are so often hindered, and their supplications so frequently remain unanswered. Nor is it difficult to conceive how believers may be chargeable with regarding iniquity in their heart, even amidst all the solemnity of coming into the immediate presence of God, and directly addressing him in the language of prayer and supplication. It is possible that they may put themselves into such a situation, in a state of mind but little fitted for engaging in that holy exercise; the world, in one form or another, may for the time have the ascendancy in their hearts; and there may have been so much formality in their confessions, and so much indifference in their supplications, that when the exercise is over, they could not honestly declare that they really meant what they acknowledged, or seriously desired what they prayed for. A Christian, it is true, could not be contented to remain in a state like this; and, when he is awakened from it, as he sooner or later will be, he cannot fail to look back upon it with humiliation and shame. But we fear there are seasons in which believers themselves may make a very near approach to such a state; and what then is the true interpretation of prayers offered up at such a moment? It is in fact saying, that there is something which, for the time, they prefer to what they are formally asking of God; that, though the blessing which they do ask may be for a time withheld, yet they would find a compensation in the enjoyment of the worldly things which do at the moment engross their affections; and that, in reality, they would not choose to have at that instant such an abundant communication of spiritual influence imparted to them, as would render these worldly objects less valuable in their estimation, and would turn the whole tide of their affections towards spiritual things... The Christian may sometimes betake himself to prayer, to ask counsel of God in some perplexity regarding divine truth, or to seek direction in some doubtful point of duty; but, instead of being prepared fairly to exercise his judgment in the hope that, while doing so, the considerations that lie of the side of truth will be made to his mind clear and convincing; he may have allowed his inclinations so to influence and bias his judgment towards the side of error, or in favour of the line of conduct which he wishes to pursue, that when he asks counsel it may only be in the hope that his previous opinion will be confirmed, and when he seeks direction it is in reality on a point about which he was previously determined... Another case is, I fear, but too common, and in which the believer may be still more directly chargeable with regarding iniquity in his heart. It is possible that there may be in his heart or life something which he is conscious is not altogether as it should be—some earthly attachment which he cannot easily justify—or some point of conformity to the maxims and practices of the world, which he finds it difficult to reconcile with christian principle; and yet all the struggle which these have from time to time cost him, may only have been an effort of ingenuity on his part to retain them without doing direct violence to conscience—a laborious getting up of arguments whereby to show how they may be defended, or in what way they may lawfully be gone into; while the true and simple reason of his going into them, namely, the love of the world, is all the while kept out of view. And, as an experimental proof of how weak and inconclusive all these arguments are, and at the same time how unwilling he still is to relinquish his favourite objects, he may be conscious that in confessing his sins he leaves them out of the enumeration, rather because he would willingly pass them over, than because he is convinced that they need not be there; he may feel that he cannot and dare not make them the immediate subject of solemn and deliberate communing with God; and, after all his multiplied and ingenuous defences, he may be reconciled to them at last, only by ceasing to agitate the question whether they are lawful or not. *Robert Gordon, D.D., 1825.* 
+**Verse 18.** *If I regard iniquity in my heart, the Lord will not hear me.* The very supposition that "if he regarded iniquity in his heart, the Lord would not hear him, "implies the possibility that such may be the state even of believers; and there is abundant reason to fear that it is in this way their prayers are so often hindered, and their supplications so frequently remain unanswered. Nor is it difficult to conceive how believers may be chargeable with regarding iniquity in their heart, even amidst all the solemnity of coming into the immediate presence of God, and directly addressing him in the language of prayer and supplication. It is possible that they may put themselves into such a situation, in a state of mind but little fitted for engaging in that holy exercise; the world, in one form or another, may for the time have the ascendancy in their hearts; and there may have been so much formality in their confessions, and so much indifference in their supplications, that when the exercise is over, they could not honestly declare that they really meant what they acknowledged, or seriously desired what they prayed for. A Christian, it is true, could not be contented to remain in a state like this; and, when he is awakened from it, as he sooner or later will be, he cannot fail to look back upon it with humiliation and shame. But we fear there are seasons in which believers themselves may make a very near approach to such a state; and what then is the true interpretation of prayers offered up at such a moment? It is in fact saying, that there is something which, for the time, they prefer to what they are formally asking of God; that, though the blessing which they do ask may be for a time withheld, yet they would find a compensation in the enjoyment of the worldly things which do at the moment engross their affections; and that, in reality, they would not choose to have at that instant such an abundant communication of spiritual influence imparted to them, as would render these worldly objects less valuable in their estimation, and would turn the whole tide of their affections towards spiritual things... The Christian may sometimes betake himself to prayer, to ask counsel of God in some perplexity regarding divine truth, or to seek direction in some doubtful point of duty; but, instead of being prepared fairly to exercise his judgment in the hope that, while doing so, the considerations that lie of the side of truth will be made to his mind clear and convincing; he may have allowed his inclinations so to influence and bias his judgment towards the side of error, or in favour of the line of conduct which he wishes to pursue, that when he asks counsel it may only be in the hope that his previous opinion will be confirmed, and when he seeks direction it is in reality on a point about which he was previously determined... Another case is, I fear, but too common, and in which the believer may be still more directly chargeable with regarding iniquity in his heart. It is possible that there may be in his heart or life something which he is conscious is not altogether as it should be—some earthly attachment which he cannot easily justify—or some point of conformity to the maxims and practices of the world, which he finds it difficult to reconcile with christian principle; and yet all the struggle which these have from time to time cost him, may only have been an effort of ingenuity on his part to retain them without doing direct violence to conscience—a laborious getting up of arguments whereby to show how they may be defended, or in what way they may lawfully be gone into; while the true and simple reason of his going into them, namely, the love of the world, is all the while kept out of view. And, as an experimental proof of how weak and inconclusive all these arguments are, and at the same time how unwilling he still is to relinquish his favourite objects, he may be conscious that in confessing his sins he leaves them out of the enumeration, rather because he would willingly pass them over, than because he is convinced that they need not be there; he may feel that he cannot and dare not make them the immediate subject of solemn and deliberate communing with God; and, after all his multiplied and ingenuous defences, he may be reconciled to them at last, only by ceasing to agitate the question whether they are lawful or not. *Robert Gordon, D. D., 1825.* 
 
 **Verse 18.** Whence is it that a man's regarding or loving sin in his heart hinders his prayers from acceptance with God?
 
-1\.The first reason is, because in this case he cannot pray by the Spirit. All prayers that are acceptable with God are the breathings of his own Spirit with us. Ro 8:26. As without the intercession of Christ we cannot have our prayers accepted, so without the intercession of the Spirit we cannot pray...
+1\. The first reason is, because in this case he cannot pray by the Spirit. All prayers that are acceptable with God are the breathings of his own Spirit with us. Ro 8:26. As without the intercession of Christ we cannot have our prayers accepted, so without the intercession of the Spirit we cannot pray...
 
-2\.The second reason is, because as long as a man regards iniquity in his heart he cannot pray in faith; that is, he cannot build a rational confidence upon any promise that God will accept him. Now, faith always respects the promise, and promise of acceptance is made only to the upright: so long, therefore, as men cherish a love of sin in their heart, they either understand not the promises, and so they pray without understanding, or they understand them, and yet misapply them to themselves, and so they pray in presumption: in neither case, they have little cause to hope for acceptance...
+2\. The second reason is, because as long as a man regards iniquity in his heart he cannot pray in faith; that is, he cannot build a rational confidence upon any promise that God will accept him. Now, faith always respects the promise, and promise of acceptance is made only to the upright: so long, therefore, as men cherish a love of sin in their heart, they either understand not the promises, and so they pray without understanding, or they understand them, and yet misapply them to themselves, and so they pray in presumption: in neither case, they have little cause to hope for acceptance...
 
-3\.The third reason is, because while we regard iniquity in our hearts we cannot pray with fervency; which, next to sincerity, is the great qualification of prayer, to which God has annexed a promise of acceptance (Mt 11:12): "The kingdom of heaven suffereth violence, and the violent take it by force." Mt 7:7: those only that seek are like to find, and those that knock to have admittance; all which expressions denote vehemence and importunity. Now, the cause of vehemence, in our prosecution of any good, is our love of it; for proportionable to the affection we bear to anything is the earnestness of our desires and the diligence of our pursuit after it. So long, therefore, as the love of sin possesses our hearts, our love to spiritual things is dull, heavy, inactive, and our prayers for them must needs be answerable. O the wretched fallacy that the soul will here put upon itself! At the same time it will love its sin and pray against it; at the same time it will entreat for grace, with a desire not to prevail: as a father confesses of himself, that before his conversion he would pray for chastity, with a secret reserve in his wishes that God would not grant his prayer. Such are the mysterious, intricate treacheries by which the love of sin will make a soul deceive and circumvent itself. How languidly and faintly will it pray for spiritual mercies; conscience, in the meanwhile, giving the lie to every such petition! The soul, in this case, cannot pray against sin in earnest; it fights against it, but neither with hope nor intent to conquer; as lovers, usually, in a game one against another, with a desire to lose. So, then, while we regard iniquity, how is it possible for us to regard spiritual things, the only lawful object of our prayers? and, if we regard them not, how can we be urgent with God for the giving of them? And where there is no fervency on our part, no wonder if there is no answer on God's. *Robert South, 1633-1716.* 
+3\. The third reason is, because while we regard iniquity in our hearts we cannot pray with fervency; which, next to sincerity, is the great qualification of prayer, to which God has annexed a promise of acceptance (Mt 11:12): "The kingdom of heaven suffereth violence, and the violent take it by force." Mt 7:7: those only that seek are like to find, and those that knock to have admittance; all which expressions denote vehemence and importunity. Now, the cause of vehemence, in our prosecution of any good, is our love of it; for proportionable to the affection we bear to anything is the earnestness of our desires and the diligence of our pursuit after it. So long, therefore, as the love of sin possesses our hearts, our love to spiritual things is dull, heavy, inactive, and our prayers for them must needs be answerable. O the wretched fallacy that the soul will here put upon itself! At the same time it will love its sin and pray against it; at the same time it will entreat for grace, with a desire not to prevail: as a father confesses of himself, that before his conversion he would pray for chastity, with a secret reserve in his wishes that God would not grant his prayer. Such are the mysterious, intricate treacheries by which the love of sin will make a soul deceive and circumvent itself. How languidly and faintly will it pray for spiritual mercies; conscience, in the meanwhile, giving the lie to every such petition! The soul, in this case, cannot pray against sin in earnest; it fights against it, but neither with hope nor intent to conquer; as lovers, usually, in a game one against another, with a desire to lose. So, then, while we regard iniquity, how is it possible for us to regard spiritual things, the only lawful object of our prayers? and, if we regard them not, how can we be urgent with God for the giving of them? And where there is no fervency on our part, no wonder if there is no answer on God's. *Robert South, 1633-1716.* 
 
 **Verse 18.** *If I regard iniquity in my heart, the Lord will not hear me.* Though the subject matter of a saint's prayer be founded on the word, yet if the end he aims at be not levelled right, this is a door at which his prayer will be stopped: "Ye ask, and receive not, because ye ask amiss, that ye may consume it upon your lusts." Jas 4:3. Take, I confess, a Christian in his right temper, and he aims at the glory of God; yet, as a needle that is touched with a loadstone may be removed from its point to which nature hath espoused it, though trembling till it again recovers it; so a gracious soul may in a particular act and request vary from this end, being jogged by Satan, yea, disturbed by an enemy nearer home—his own unmortified corruption. Do you not think it possible for a saint, in distress of body and spirit, to pray for health in the one, and comfort in the other, with too selfish a respect to his own ease and quiet? Yes, surely; and to pray for gifts and assistance in some eminent service, with an eye to his own credit and applause; to pray for a child with too inordinate a desire that the honour of his house may be built up in him. And this may be understood as the sense, in part, of that expression, *If I regard iniquity in my heart, the Lord will not hear me.* For though to desire our own health, peace, and reputation, be not an iniquity, when contained within the limits that God hath set; yet, when they overflow at such a height, as to overtop the glory of God, yea, to stand but in a level with it, they are a great abomination. That which in the first or second degree is wholesome food, would be rank poison in the fourth or fifth: therefore, Christian, catechize thyself, before thou prayest: O, my soul, what sends thee on this errand? Know but thy own mind what thou prayest for, and thou mayest soon know God's mind how thou shalt speed. Secure God his glory, and thou mayest soon know God's mind how thou shalt speed. *William Gurnall.* 
 
 **Verse 18.** *If I regard iniquity in my heart, the Lord will not hear me.* 
 
-1\.They regard iniquity in their heart, who practise it secretly, who are under restraint from the world, but are not possessed of an habitual fear of the omniscient God, the searcher of all hearts, and from whose eyes there is no covering of thick darkness where the workers of iniquity may hide themselves. Jer 23:24.
+1\. They regard iniquity in their heart, who practise it secretly, who are under restraint from the world, but are not possessed of an habitual fear of the omniscient God, the searcher of all hearts, and from whose eyes there is no covering of thick darkness where the workers of iniquity may hide themselves. Jer 23:24.
 
-2\.They regard iniquity in the heart, who entertain and indulge the desire of sin, although in the course of providence they may be restrained from the actual commission of it. I am persuaded the instances are not rare, of men feeding upon sinful desires, even when through want of opportunity, through the fear of man, or through some partial restraint of conscience, they dare not carry them into execution.
+2\. They regard iniquity in the heart, who entertain and indulge the desire of sin, although in the course of providence they may be restrained from the actual commission of it. I am persuaded the instances are not rare, of men feeding upon sinful desires, even when through want of opportunity, through the fear of man, or through some partial restraint of conscience, they dare not carry them into execution.
 
-3\.They regard iniquity in their heart, who reflect upon past sins with delight, or without sincere humiliation of mind. Perhaps our real disposition, both towards sin and duty, may be as certainly discovered by the state of our minds after, as in the time of action. The strength and suddenness of temptation may betray even a good man into the commission of sin; the backwardness of heart and power of inward corruption may make duty burdensome and occasion many defects in the performance; but every real Christian remembers his past sins with unfeigned contrition of spirit, and a deep sense of unworthiness before God; and the discharge of his duty, however difficult it may have been at the time, affords him the utmost pleasure on reflection. It is otherwise with many; they can remember their sins without sorrow, they can speak of them without shame, and sometimes even with a mixture of boasting and vain glory. Did you never hear them recall their past follies, and speak of them with such relish, that it seems to be more to renew the pleasure than to regret the sin? Even supposing such persons to have forsaken the practice of some sin, if they can thus look upon them with inward complacency, their seeming reformation must be owing to a very different cause from renovation of heart.
+3\. They regard iniquity in their heart, who reflect upon past sins with delight, or without sincere humiliation of mind. Perhaps our real disposition, both towards sin and duty, may be as certainly discovered by the state of our minds after, as in the time of action. The strength and suddenness of temptation may betray even a good man into the commission of sin; the backwardness of heart and power of inward corruption may make duty burdensome and occasion many defects in the performance; but every real Christian remembers his past sins with unfeigned contrition of spirit, and a deep sense of unworthiness before God; and the discharge of his duty, however difficult it may have been at the time, affords him the utmost pleasure on reflection. It is otherwise with many; they can remember their sins without sorrow, they can speak of them without shame, and sometimes even with a mixture of boasting and vain glory. Did you never hear them recall their past follies, and speak of them with such relish, that it seems to be more to renew the pleasure than to regret the sin? Even supposing such persons to have forsaken the practice of some sin, if they can thus look upon them with inward complacency, their seeming reformation must be owing to a very different cause from renovation of heart.
 
-4\.They regard iniquity in their heart, who look upon the sins of others with approbation; or, indeed, who can behold them without grief. Sin is so abominable a thing, so dishonouring to God, and so destructive to the souls of men, that no real Christian can witness it without concern. Hence it is so frequently taken notice of in Scripture, as the character of a servant of God, that he mourns for the sins of others. Ps 119:136,158.
+4\. They regard iniquity in their heart, who look upon the sins of others with approbation; or, indeed, who can behold them without grief. Sin is so abominable a thing, so dishonouring to God, and so destructive to the souls of men, that no real Christian can witness it without concern. Hence it is so frequently taken notice of in Scripture, as the character of a servant of God, that he mourns for the sins of others. Ps 119:136,158.
 
-5\.In the last place, I suspect that they regard sin in the heart, who are backward to bring themselves to the trial, and who are not truly willing that God himself would search and try them. If any, therefore, are unwilling to be tried, if they are backward to self examination, it is an evidence of a strong and powerful attachment to sin. It can proceed from nothing but from a secret dread of some disagreeable discovery, or the detection of some lust which they cannot consent to forsake... There are but too many who though they live in the practice of sin, and regard iniquity in their hearts, do yet continue their outward attendance on the ordinances of divine institution, and at stated times lay hold of the seals of God's covenant. Shall they find any acceptance with him? No. He counts it a profane mockery; he counts it a sacrilegious usurpation. Ps 50:16-17. Shall they have any comfort in it? No: unless in so far as in righteous judgment he suffers them to be deceived; and they are deceived, and they are most unhappy, who lie longest under the delusion. Ps 50:21. Shall they have any benefit by it? No: instead of appeasing his wrath, it provokes his vengeance; instead of enlightening their minds, it blinds their eyes; instead of sanctifying their nature, it hardens their hearts. See a description of those who had been long favoured with outward privileges and gloried in them. Joh 12:39-40. So that nothing is more essential to an acceptable approach to God in the duties of his worship in general, and particularly to receiving the seals of his covenant, than a thorough and universal separation from all known sin. Job 11:13-14. *John Witherspoon (1722-1749), in a Sermon entitled "The Petitions of the Insincere Unavailing."* 
+5\. In the last place, I suspect that they regard sin in the heart, who are backward to bring themselves to the trial, and who are not truly willing that God himself would search and try them. If any, therefore, are unwilling to be tried, if they are backward to self examination, it is an evidence of a strong and powerful attachment to sin. It can proceed from nothing but from a secret dread of some disagreeable discovery, or the detection of some lust which they cannot consent to forsake... There are but too many who though they live in the practice of sin, and regard iniquity in their hearts, do yet continue their outward attendance on the ordinances of divine institution, and at stated times lay hold of the seals of God's covenant. Shall they find any acceptance with him? No. He counts it a profane mockery; he counts it a sacrilegious usurpation. Ps 50:16-17. Shall they have any comfort in it? No: unless in so far as in righteous judgment he suffers them to be deceived; and they are deceived, and they are most unhappy, who lie longest under the delusion. Ps 50:21. Shall they have any benefit by it? No: instead of appeasing his wrath, it provokes his vengeance; instead of enlightening their minds, it blinds their eyes; instead of sanctifying their nature, it hardens their hearts. See a description of those who had been long favoured with outward privileges and gloried in them. Joh 12:39-40. So that nothing is more essential to an acceptable approach to God in the duties of his worship in general, and particularly to receiving the seals of his covenant, than a thorough and universal separation from all known sin. Job 11:13-14. *John Witherspoon (1722-1749), in a Sermon entitled "The Petitions of the Insincere Unavailing."* 
 
 **Verses 18-20.** Lord, I find David making a syllogism, in mood and figure, two propositions he perfected. *If I regard iniquity in my heart, the Lord will not hear me; but verily God hath heard me; he hath attended to the voice of my prayer.* Now I expected that David should have concluded thus: "Therefore I regard not wickedness in my heart; but far otherwise he concludes": *Blessed be God, which hath not turned away my prayer, nor his mercy from me.* Thus David had deceived, but not wronged me. I looked that he should have clapped the crown on his own, and he puts it on God's head. I will learn this excellent logic; for I like David's better than Aristotle's syllogisms, that whatsoever the premise be, I make God's glory the conclusion. *Thomas Fuller.* 
 
@@ -316,9 +316,9 @@ So there is the deliverer, *aliquid celsitudinis, Thou; * in the delivery, *cert
 
 **Verse 5.** Here is—
 
-1\.A subject for general study: the *Works of God.* 
+1\. A subject for general study: the *Works of God.* 
 
-2\.For particular study: *his doings towards,* etc.
+2\. For particular study: *his doings towards,* etc.
 
 (a) These are the most wonderful.
 
@@ -330,19 +330,19 @@ So there is the deliverer, *aliquid celsitudinis, Thou; * in the delivery, *cert
 
 **Verses 8-9.** 
 
-1\.Praise *to.* 
+1\. Praise *to.* 
 
 (a) As God.
 
 (b) As *our* God.
 
-2\.Praise *for.* Preservation.
+2\. Praise *for.* Preservation.
 
 (a) Of natural life.
 
 (b) Of spiritual life.
 
-3\.Praise *by, ye people.* 
+3\. Praise *by, ye people.* 
 
 (a) On your own account.
 
@@ -356,49 +356,49 @@ Or
 
 **Verse 9.** Perseverance the subject of gratitude.
 
-1\.The maintenance of the inner life.
+1\. The maintenance of the inner life.
 
-2\.The integrity of the outward character.
+2\. The integrity of the outward character.
 
 **Verse 10.** The assaying of the saints.
 
 **Verse 10.** 
 
-1\.The design of the afflictions.
+1\. The design of the afflictions.
 
 (a) To prove them.
 
 (b) To reprove them.
 
-2\.The illustration of that design. As silver, etc.
+2\. The illustration of that design. As silver, etc.
 
-3\.The issue of the trial.
+3\. The issue of the trial.
 
 **Verses 11-12.** The hand of God should be acknowledged.
 
-1\.In our temptations: *Thou broughtest us.* 
+1\. In our temptations: *Thou broughtest us.* 
 
-2\.In our bodily afflictions: *Thou laidest,* etc.
+2\. In our bodily afflictions: *Thou laidest,* etc.
 
-3\.In our persecutions: *Thou hast caused,* etc.
+3\. In our persecutions: *Thou hast caused,* etc.
 
-4\.In our deliverances: *Thou broughtest us out,* etc. *G. R.* 
+4\. In our deliverances: *Thou broughtest us out,* etc. *G. R.* 
 
 **Verse 12.** *Fire and water.* Varied trials.
 
-1\.Discover different evils.
+1\. Discover different evils.
 
-2\.Test all parts of manhood.
+2\. Test all parts of manhood.
 
-3\.Educate varied graces.
+3\. Educate varied graces.
 
-4\.Endear many promises.
+4\. Endear many promises.
 
-5\.Illustrate divine attributes.
+5\. Illustrate divine attributes.
 
-6\.Afford extensive knowledge.
+6\. Afford extensive knowledge.
 
-7\.Create capacity for the varied joys of heaven.
+7\. Create capacity for the varied joys of heaven.
 
 **Verse 12.** (*first clause* ). The rage of oppression. *Thomas Adam's Sermon.* 
 
@@ -412,7 +412,7 @@ Or
 
 **Verses 13-15.** 
 
-1\.Resolutions made (Ps 66:13).
+1\. Resolutions made (Ps 66:13).
 
 (a) What? To offer praise.
 
@@ -420,13 +420,13 @@ Or
 
 (c) Where? In thy house.
 
-2\.Resolutions uttered (Ps 66:14).
+2\. Resolutions uttered (Ps 66:14).
 
 (a) To God.
 
 (b) Before men.
 
-3\.Resolutions fulfilled.
+3\. Resolutions fulfilled.
 
 (a) In public acknowledgment.
 
@@ -440,11 +440,11 @@ Or
 
 **Verse 16.** 
 
-1\.What has God done for the soul of every Christian?
+1\. What has God done for the soul of every Christian?
 
-2\.Why does the Christian wish to declare what God has done for his soul?
+2\. Why does the Christian wish to declare what God has done for his soul?
 
-3\.Why does he wish to make this declaration to those who only fear God?
+3\. Why does he wish to make this declaration to those who only fear God?
 
 (a) Because they alone can understand such a declaration.
 
@@ -454,7 +454,7 @@ Or
 
 **Verse 16.** 
 
-1\.Religious teaching should be *simple: I will declare.* 
+1\. Religious teaching should be *simple: I will declare.* 
 
 2\. *Earnest: Come and hear.* 
 
@@ -466,11 +466,11 @@ Or
 
 **Verse 17.** 
 
-1\.The two principal parts of devotion. Prayer and praise.
+1\. The two principal parts of devotion. Prayer and praise.
 
-2\.Their degree. In prayer, crying. In praise, extolling.
+2\. Their degree. In prayer, crying. In praise, extolling.
 
-3\.Their order.
+3\. Their order.
 
 (a) Prayer.
 
@@ -478,21 +478,21 @@ Or
 
 **Verses 18-19.** 
 
-1\.The test admitted.
+1\. The test admitted.
 
-2\.The test applied.
+2\. The test applied.
 
-3\.The test approved.
+3\. The test approved.
 
 **Verse 19.** The fact that God has heard prayer.
 
 **Verse 20.** The mercy of God.
 
-1\.In permitting prayer.
+1\. In permitting prayer.
 
-2\.In inclining to prayer.
+2\. In inclining to prayer.
 
-3\.In hearing prayer.
+3\. In hearing prayer.
 
 ## Works Upon The Sixty-Sixth Psalm
 

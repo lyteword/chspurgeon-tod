@@ -78,7 +78,7 @@ Faintness of heart is a common infirmity; even he who slew Goliath was subject t
 
 **Verse 1.** *Whom shall I fear?* Neither spiritual nor military heroes do exploits through cowardice, Courage is a necessary virtue. In Jehovah is the best possible foundation for unflinching intrepidity. *William S. Plumer.* 
 
-**Verse 1.** *Of whom shall I be afraid?* I have no notion of a timid, disingenuous profession of Christ. Such preachers and professors are like a rat playing at hide and seek behind a wainscot, who puts his head through a hole to see if the coast is clear, and ventures out if nobody is in the way; but slinks back again if danger appears. We cannot be honest to Christ except we are bold for him. He is either worth *all* we can lose for him, or he is worth *nothing. H. G. Salter, A.M., in "The Book of Illustrations, "* 1840.
+**Verse 1.** *Of whom shall I be afraid?* I have no notion of a timid, disingenuous profession of Christ. Such preachers and professors are like a rat playing at hide and seek behind a wainscot, who puts his head through a hole to see if the coast is clear, and ventures out if nobody is in the way; but slinks back again if danger appears. We cannot be honest to Christ except we are bold for him. He is either worth *all* we can lose for him, or he is worth *nothing. H. G. Salter, A. M., in "The Book of Illustrations, "* 1840.
 
 **Verse 2.** *When the wicked, even mine enemies and my foes, came upon me to eat up my flesh, they stumbled and fell.* There is no such dainty dish to a malicious stomach, as the flesh of an enemy; it goes down without chewing, and they swallow it up whole like cormorants. But though malice have a ravenous stomach, yet she hath but slow digestion; though her teeth be sharp, yet her feet are lame, at least apt to stumble; and this made well for David, for when his enemies came upon him to eat up his flesh, because they came upon the feet of malice, *they stumbled and fell.* A man may *stumble* and yet not *fall;* but to stumble and fall withal, is the proper stumbling of *the wicked,* and especially of the maliciously wicked; and such, it seems, was the stumbling of David's enemies, because the enemies were such; and such I doubt not shall be the stumbling of mine enemies, because mine are such; and of what then, of whom now, should I be afraid? *Sir Richard Baker.* 
 
@@ -114,7 +114,7 @@ Like Aaron's serpent, swallows up the rest.
 
  *—Alexander Pope.* 
 
-**Verse 4.** *That I may dwell in the house of the Lord all the days of my life.* To approach continually unto the temple, and thither continually to repair was the *dwelling,* no doubt, here meant; to *dwell,* to reside continually there, not to come for a spurt or a fit...And thus dwelt Hannah, the daughter of Phanuel, who is said, in the second of Luke, for the space of four score and four years not to have gone out of the temple. Not that she was there always, but often, saith Lyra; and venerable Bede to the same purpose. Not that she was never absent, no, not an hour; but for that she was often in the temple. And the same St. Luke, speaking of our Saviour's disciples, after they had seen him ascended into heaven—"They returned, "saith he, "to Jerusalem with great joy: and were continually in the temple, praising and blessing God, " Lu 24:52-53. Thus, St. Austin's mother, in her time too, might be said to *dwell* in God's house, whereunto she came so duly and truly twice a day, "That she, in thy Scriptures, "saith St. Austin, "might hear, O God, what thou saidst to her, and thou, in her prayers, what she said to thee." In a word, such were the Christians the same St. Austin speaks of in another place, whom he calleth *the emmets* of God. "Behold the emmet of God, "saith he, "it rises early every day, it runs to God's church, it there prays, it hears the lesson read, it sings a psalm, it ruminates what it hears, it meditates thereupon, and hoards up within itself the precious corn gathered from that barn floor." *John Day's "David's Desire to go to Church, "* 1609.
+**Verse 4.** *That I may dwell in the house of the Lord all the days of my life.* To approach continually unto the temple, and thither continually to repair was the *dwelling,* no doubt, here meant; to *dwell,* to reside continually there, not to come for a spurt or a fit... And thus dwelt Hannah, the daughter of Phanuel, who is said, in the second of Luke, for the space of four score and four years not to have gone out of the temple. Not that she was there always, but often, saith Lyra; and venerable Bede to the same purpose. Not that she was never absent, no, not an hour; but for that she was often in the temple. And the same St. Luke, speaking of our Saviour's disciples, after they had seen him ascended into heaven—"They returned, "saith he, "to Jerusalem with great joy: and were continually in the temple, praising and blessing God, " Lu 24:52-53. Thus, St. Austin's mother, in her time too, might be said to *dwell* in God's house, whereunto she came so duly and truly twice a day, "That she, in thy Scriptures, "saith St. Austin, "might hear, O God, what thou saidst to her, and thou, in her prayers, what she said to thee." In a word, such were the Christians the same St. Austin speaks of in another place, whom he calleth *the emmets* of God. "Behold the emmet of God, "saith he, "it rises early every day, it runs to God's church, it there prays, it hears the lesson read, it sings a psalm, it ruminates what it hears, it meditates thereupon, and hoards up within itself the precious corn gathered from that barn floor." *John Day's "David's Desire to go to Church, "* 1609.
 
 **Verse 4.** *That I may dwell in the house of the Lord all the days of my life.* In the beginning of the Psalm, David keeps an audit of his soul's accounts, reckoning up the large incomes and lasting treasures of God's bounty, grace, and mercy; the sum whereof is this: The Lord is my light and my life, my strength and my salvation. And now, where shall David design his presence, but where is his light? Where shall he desire his person, but where is his strength? Where shall he wish his soul, but where is his life? and where shall he fix his habitation, but where is his salvation? even in communion with his God; and this, especially, in the holy worship of his sanctuary. No wonder, then, if above all things he desires and seeks after this *"one thing, ""to dwell* in the house of the Lord, "etc. *Robert Mossom.* 
 
@@ -124,7 +124,7 @@ Like Aaron's serpent, swallows up the rest.
 
 **Verse 4.** *The beauty of the Lord.* In connection with these words, we would try to show that the character of God is attractive, and fitted to inspire us with love for him, and to make us, as it were, run after him. The discussion of our subject may be arranged under three heads. I. Some of the elements of the beauty of the Lord. II. Where the beauty of the Lord may be seen. III. Peculiar traits of the beauty of the Lord. I. Some of the elements of the beauty of the Lord. God is a Spirit. Hence his beauty is spiritual, and its elements must be sought for in spiritual perfection. 1. One of the elements of this beauty is holiness. 2. But the elements of the divine beauty on which we intend at this time to dwell, are those which are included under the general description of God's mercy and grace. The attractiveness of these is more easily perceived, and their influence is sooner felt by persons in our fallen condition. It is mainly through the instrumentality of these that sinners are won over from their enmity against God, and that the Holy Ghost sheds abroad the love of God in our hearts. 3. Another thing, which we may call an element of beauty in God, is the combination of his various attributes in one harmonious whole. The colours of the rainbow are beautiful, when taken one by one: but there is a beauty in the rainbow, which arises not from any single tint; there is a beauty in it which would not exist if the several hues were assumed in succession—a beauty which is a result of their assemblage and collocation, and consists in their blended radiance. In like manner so the several perfections, which coexist and unite in the nature of God, produce a glorious beauty. Holiness is beautiful; mercy is beautiful; truth is beautiful. But, over and above, there is a beauty which belongs to such combinations and harmonies as the psalmist describes, when he tells us, "Mercy and truth are met together; righteousness and peace have kissed each other." "Thy mercy, O Lord, is in the heavens; and thy faithfulness reacheth unto the clouds. Thy righteousness is like the great mountains; thy judgments are a great deep, "etc. II. We are next to inquire where the beauty of the Lord may be seen It may so far be seen in the *natural world.* The throne of nature, although in some respects clouds and darkness are round about it, is not without its rainbow of beauty, any more than the throne of grace. The beauty of the Lord may be seen in the *moral law.* In the law! Even so. In the unbending law, with its terrible anathema, his beauty and amiableness shine forth. The law is full of love. The duties of the law are duties of love. Love is the fulfilling of the law. The curse of the law is designed and employed for the maintenance of love. Obedience to the law, and the reign of love, are but different aspects of the same state of things. And one of the most sublime lessons of the law is the fact, that God is love. Again, the beauty of the Lord may be seen in the *gospel.* We see it, as it were, by reflection, in the law; in the gospel, we see it directly. The law shows us the hearts of men, as God would have them to be; the gospel shows us God's own heart. Again the beauty of the Lord is seen in *Christ.* It is seen in Christ, for he is the brightness of the Father's glory, and the express image of his person; and he that hath seen Christ, hath seen the Father. The beauty of the Lord is seen in Christ, when we consider him as the Father's gift, and when we look to his offices and to his character. The character of Christ was the finest spectacle of moral beauty which men or angels ever set their eyes on. III. We conclude by noticing some traits of the beauty of the Lord. 1. It never deceives. 2. It never fades. 3. It never loses its power. 4. It never disappoints. *Condensed from Andrew Gray* (1805-1861), *in "Gospel Contrasts and Parallels."* 
 
-**Verse 4.** *The beauty of the Lord.* The Lord's *beauty,* to be seen in his house, is not the beauty of his essence, for so no man can see God and live Ex 23:18,20; before this glorious beauty the angels cover their faces with their wings Isa 6:1-2; but it is the beauty of his ordinances, wherein God doth reveal to the eyes of men's minds, enlightened by his Spirit, the pleasant beauty of his goodness, justice, love, and mercy in Jesus Christ. *Thomas Pierson, M.A.,* 1570-1633.
+**Verse 4.** *The beauty of the Lord.* The Lord's *beauty,* to be seen in his house, is not the beauty of his essence, for so no man can see God and live Ex 23:18,20; before this glorious beauty the angels cover their faces with their wings Isa 6:1-2; but it is the beauty of his ordinances, wherein God doth reveal to the eyes of men's minds, enlightened by his Spirit, the pleasant beauty of his goodness, justice, love, and mercy in Jesus Christ. *Thomas Pierson, M. A.,* 1570-1633.
 
 **Verse 4.** *The beauty of the Lord. "Beauty"* is too particular a word to express the fulness of the Holy Ghost, the pleasantness or the delight of God. Take the word in a general sense, in your apprehensions. It may be the object of all senses, inward and outward. Delight is most transcendent for pleasantness; for indeed God in his ordinances, is not only "beauty" to the eye of the soul, but is ointment to the smell, and sweetness to the taste, and all in all to all the powers of the soul. God in Christ, therefore, he is delightful and sweet... *The beauty of the Lord* is especially the amiable things of God, which is his mercy and love, that makes all other things beautiful that is in the church. *Richard Sibbes.* 
 
@@ -178,7 +178,7 @@ God is willing to be known. He is willing to open and discover himself; God deli
 
 **Verse 9.** *Leave me not;* rather, "dismiss me not; ""let not go thy hold of me." This is the proper sense of the Hebrew verb (vjn), to set a thing loose, to let it go, to abandon it. *Samuel Horsley.* 
 
-**Verse 10.** *When my father and my mother forsake me.* As there seems to be some difficulty in supposing the psalmist's parents to have "deserted" him, they might perhaps be said to have *"forsaken"* him (*as Muis conjectures* ), that is, to have left him behind them, as being dead. *James Merrick,* M.A., 1720-1769.
+**Verse 10.** *When my father and my mother forsake me.* As there seems to be some difficulty in supposing the psalmist's parents to have "deserted" him, they might perhaps be said to have *"forsaken"* him (*as Muis conjectures* ), that is, to have left him behind them, as being dead. *James Merrick,* M. A., 1720-1769.
 
 **Verse 10.** *When my father and my mother forsake me.* It is indeed the nature of all living creatures, though never so tender of their young ones, yet when they are grown to a ripeness of age and strength, to turn them off to shift for themselves; and even a father and a mother, as tender as they are, have yet somewhat of this common nature in them; for while their children are young they lead them by the hand, but when they are grown up they leave them to their own legs, and if they chance to fall let them rise as they can. But God even then takes his children up, for he knows of what they are made; he knows their strength must be as well supported as their weakness be assisted; he knows they must as well be taken up when they fall, as be held up when they stand. *Sir Richard Baker.* 
 
@@ -200,7 +200,7 @@ God is willing to be known. He is willing to open and discover himself; God deli
 
 **Verse 13.** *Unless I had believed to see the goodness of the Lord in the land of the living.* In the Hebrew this verse is elliptical, as Calvin here translates it. In the French version he supplies the ellipsis, by adding to the end of the verse the words, "C'estoit fait de moy, ""I had perished." In our English version the words, "I had fainted, "are introduced as a supplement in the beginning of the verse. Both the supplement of Calvin, and that of our English version, which are substantially the same, doubtless explain the meaning of the passage; but they destroy the elegant abrupt form of the expression employed by the psalmist, who breaks off in the middle of his discourse without completing the sentence, although what he meant to say is very evident. *Editorial note to Calvin, in loc.* 
 
-**Verse 13.** Under sore trouble and distress, labour to exercise a strong and lively faith. It was a noble and heroic resolution in that holy man Job, under his singular trials Job 13:15: "Though he slay me, yet will I trust in him; "as if he had said, Let my strokes be never so sore and heavy, yet I will not let go my grips of his word and promises, I will not raze these foundations of my hope. It was the way the psalmist kept himself from sinking under his heavy burdens: *I had fainted, unless I had believed to see the goodness of the Lord in the land of the living.*...Faith brings new strength and auxiliary supplies of grace from heaven, when the former supply is exhausted and spent; whereof David had the sweet experience here. As God doth plant and actuate grace in the soul, so he is pleased to come in with seasonable supplies and reinforcements to the weak and decayed graces of his people, answerable to their present exigencies and pressures; and thus he doth from time to time feed the believer's lamp with fresh oil, give in more faith, more love, more hope, and more desires; and hereby he gives power to the faint, and strengthens the things which remain when ready to die. *John Willison.* 
+**Verse 13.** Under sore trouble and distress, labour to exercise a strong and lively faith. It was a noble and heroic resolution in that holy man Job, under his singular trials Job 13:15: "Though he slay me, yet will I trust in him; "as if he had said, Let my strokes be never so sore and heavy, yet I will not let go my grips of his word and promises, I will not raze these foundations of my hope. It was the way the psalmist kept himself from sinking under his heavy burdens: *I had fainted, unless I had believed to see the goodness of the Lord in the land of the living.*... Faith brings new strength and auxiliary supplies of grace from heaven, when the former supply is exhausted and spent; whereof David had the sweet experience here. As God doth plant and actuate grace in the soul, so he is pleased to come in with seasonable supplies and reinforcements to the weak and decayed graces of his people, answerable to their present exigencies and pressures; and thus he doth from time to time feed the believer's lamp with fresh oil, give in more faith, more love, more hope, and more desires; and hereby he gives power to the faint, and strengthens the things which remain when ready to die. *John Willison.* 
 
 **Verse 13.** *Unless I had believed to see the goodness of the Lord in the land of the living*: a cordial made up of three sovereign ingredients—a hope *to see;* and to see *the goodness of God;* and the goodness of God *in the land of the living. Sir Richard Baker.* 
 
@@ -250,23 +250,23 @@ Love Jesus! and of conquest rest secure.
 
 **Verse 3.** Christian peace. 1. Exhibited in the calm foresight of trouble.
 
-2\.Displayed in the confident endurance of affliction.
+2\. Displayed in the confident endurance of affliction.
 
-3\.Sustained by divine help and past experience Ps 27:1-2.
+3\. Sustained by divine help and past experience Ps 27:1-2.
 
-4\.Producing the richest results, glory to God, etc.
+4\. Producing the richest results, glory to God, etc.
 
 **Verse 4.** Model Christian life.
 
-1\.Unity of desire.
+1\. Unity of desire.
 
-2\.Earnestness of action.
+2\. Earnestness of action.
 
-3\.Nearness of communion.
+3\. Nearness of communion.
 
-4\.Heavenliness of contemplation.
+4\. Heavenliness of contemplation.
 
-5\.Progress in divine education.
+5\. Progress in divine education.
 
 **Verse 4.** The affection of moral esteem towards God. *Thomas Chalmers.* 
 
@@ -288,9 +288,9 @@ Love Jesus! and of conquest rest secure.
 
 **Verse 9.** 1. Desertion deprecated in all its forms.
 
-2\.Experience pleaded.
+2\. Experience pleaded.
 
-3\.Divine aid implored.
+3\. Divine aid implored.
 
 **Verse 9.** The horror of saints at the hell of sinners. *James Scot.* 
 
@@ -306,7 +306,7 @@ Love Jesus! and of conquest rest secure.
 
 ## Works Upon The Twenty-Seventh Psalm
 
- *Excellent Encouragements against Afflictions, containing David's Triumph over Distress; or an Exposition of Psalm 27*. By THOMAS PIERSON, M.A. (Reprinted in Nichol's Series of Puritan Commentaries.)
+ *Excellent Encouragements against Afflictions, containing David's Triumph over Distress; or an Exposition of Psalm 27*. By THOMAS PIERSON, M. A. (Reprinted in Nichol's Series of Puritan Commentaries.)
 
  *Meditations upon the 27th Psalm of David*. By SIR RICHARD BAKER.
 

@@ -190,17 +190,17 @@ Those who notice providence shall never be long without a providence notice. It 
 
 **Whole Psalm.** I do not believe that the special care of God over his own people is here rather *indirectly* than *directly* touched upon, and that therefore this Psalm is composed to illustrate the general care of God:
 
-1\.Because the subjects of the various deliverances are called *the redeemed of Jehovah,* Ps 107:2, which is the customary title of the people of God.
+1\. Because the subjects of the various deliverances are called *the redeemed of Jehovah,* Ps 107:2, which is the customary title of the people of God.
 
-2\.Because among the instances given, there are those which are peculiar to the people of God, as in Ps 107:3 the return of the dispersed out of every part of the globe, a singular blessing, promised in the prophecies to the people of God, see Ps 106:47.
+2\. Because among the instances given, there are those which are peculiar to the people of God, as in Ps 107:3 the return of the dispersed out of every part of the globe, a singular blessing, promised in the prophecies to the people of God, see Ps 106:47.
 
-3\.The sick of Ps 106:17 are those who are spiritually sick even unto death, as is clear from the fact of their being healed by the *word* of God; which is not in the order of common providence. The *imprisoned* of Ps 107:2 are those who on account of the worship of God fall into the power of their enemies, you cannot well apply to any other than the people of God. If you understand the *wicked,* for others among the heathen cannot be said to be thrust into prison on account of the violation of the laws, then the *liberation* belongs not to them.
+3\. The sick of Ps 106:17 are those who are spiritually sick even unto death, as is clear from the fact of their being healed by the *word* of God; which is not in the order of common providence. The *imprisoned* of Ps 107:2 are those who on account of the worship of God fall into the power of their enemies, you cannot well apply to any other than the people of God. If you understand the *wicked,* for others among the heathen cannot be said to be thrust into prison on account of the violation of the laws, then the *liberation* belongs not to them.
 
 4\. *Calling* upon God, especially upon *Jehovah,* under name He was known only to his people, you cannot apply unless in a diluted and partial sense to those who are afflicted in the general cause of providence.
 
-5\.He commands those who are delivered to celebrate the divine goodness in *the congregation of the people and the assembly of the elders,* Ps 107:32, which is the mark of the true Church and her usual description.
+5\. He commands those who are delivered to celebrate the divine goodness in *the congregation of the people and the assembly of the elders,* Ps 107:32, which is the mark of the true Church and her usual description.
 
-6\.Lastly, instances of general providences are not wont to come under the name of dox, *grace,* by which these deliverances are described, not do they require such great and such careful attention in their consideration, as here the sacred poet enjoins upon the pious and the wise: such things are easily observed, and are of every day occurrence.— *Venema.* 
+6\. Lastly, instances of general providences are not wont to come under the name of dox, *grace,* by which these deliverances are described, not do they require such great and such careful attention in their consideration, as here the sacred poet enjoins upon the pious and the wise: such things are easily observed, and are of every day occurrence.— *Venema.* 
 
 **Whole Psalm.** The psalm divides itself into five parts; the four first, as it should seem, describing four divisions of the returning Israelites, and recounting the particular accidents that had befallen each party on their journey, and the particular mercies for which they ought to be thankful. The fifth part describes what befalls the collected nations, or a part of them, when they arrive at the land which was the object of their journey—I think the first restoration or colonization before the general gathering. Whether the four divisions of travellers are supposed to come exactly from the four distinct quarters of the earth, perhaps is not quite certain. The first divisions are plainly described (Ps 107:4-5), as coming across the desert, and meeting with all the disasters usual on that route.— *John Fry.* 
 
@@ -212,13 +212,13 @@ Those who notice providence shall never be long without a providence notice. It 
 
 **Verse 1.** *His mercy endureth for ever.* St. Paul assures us, that the covenant of grace, which is the fountain of all mercy, was made before the foundation of the world, and this he repeats in several of his epistles. The Psalmist teaches the same doctrine, and frequently calls upon us to thank God, because his mercy is for ever and ever—because his mercy is everlasting—and in the text, because *"his mercy endureth for ever; "* the word *"endureth"* is inserted by the translators, for there is no verb in the original neither in strictness of speech could there be any; because there was no time when this *mercy* was not exercised, neither will there be any time when the exercise of it will fail. It was begun before all worlds, when the covenant of grace was made, and it will continue to the ages of eternity, after this world is destroyed. So that mercy was, and is, and will be, *"for ever",* and sinful miserable man may always find relief in this eternal mercy, whenever the sense of his misery disposes him to seek for it. And does not this motive loudly call upon us to *"give thanks"?* Because there is mercy with God—mercy to pity the miserable—and even to relieve them—although they do not deserve it: for mercy is all free grace and unmerited love. Oh! How adorable, then, and gracious is this attribute! How sweet is it and full of consolation to the guilty.— *William Romaine* (1714-1795), *in "A Practical Comment on the Hundred and Seventh Psalm."* 
 
-**Verse 2.** *Redeemed.* Moses has given us in the law a clear and full idea of what we are to understand by the word *gal,* here rendered *"redeemed."* If any person was either sold for a slave or carried away for a captive, then his kinsman, who was nearest to him in blood, had the right and equity of redemption. But no other person was suffered to redeem. And such a kinsman was called "the redeemer", when he paid down the price for which his relation was sold to be a slave, or paid the ransom for which he was led captive. And there is another remarkable instance in the law, wherein it was provided, that in any case any person was found murdered, then the nearest to him in blood was to prosecute the murderer, and to bring him to justice, and this nearest relation thus avenging the murder is called by the same name, a *redeemer.* And how beautifully is the office of our great Redeemer represented under these three instances; he was to us such a Redeemer in spirituals, as these were in temrporals: for sin had brought all mankind into slavery and captivity, and had murdered us...This most high God, who was also man, united in one Christ, came into the world to redeem us, and the same person being both God and man, must merit for us as God in what he did for us as man. Accordingly, by the merits of his obedience and sufferings, he paid the price our redemption, and we were no longer the servants of sin; and by his most precious blood shed upon the cross, by his death and resurrection, he overcame both death, and him who had the power of death, and by delivering us in this manner from slavery and captivity, he fulfilled the third part of the Redeemer's office: for Satan was the murderer from the beginning, who had given both body and soul a mortal wound of sin, which was certain death and eternal misery, and the Redeemer came to avenge the murder. He took our cause in hand, as being our nearest kinsman, and it cost him his own life to avenge ours.— *William Romaine.* 
+**Verse 2.** *Redeemed.* Moses has given us in the law a clear and full idea of what we are to understand by the word *gal,* here rendered *"redeemed."* If any person was either sold for a slave or carried away for a captive, then his kinsman, who was nearest to him in blood, had the right and equity of redemption. But no other person was suffered to redeem. And such a kinsman was called "the redeemer", when he paid down the price for which his relation was sold to be a slave, or paid the ransom for which he was led captive. And there is another remarkable instance in the law, wherein it was provided, that in any case any person was found murdered, then the nearest to him in blood was to prosecute the murderer, and to bring him to justice, and this nearest relation thus avenging the murder is called by the same name, a *redeemer.* And how beautifully is the office of our great Redeemer represented under these three instances; he was to us such a Redeemer in spirituals, as these were in temrporals: for sin had brought all mankind into slavery and captivity, and had murdered us... This most high God, who was also man, united in one Christ, came into the world to redeem us, and the same person being both God and man, must merit for us as God in what he did for us as man. Accordingly, by the merits of his obedience and sufferings, he paid the price our redemption, and we were no longer the servants of sin; and by his most precious blood shed upon the cross, by his death and resurrection, he overcame both death, and him who had the power of death, and by delivering us in this manner from slavery and captivity, he fulfilled the third part of the Redeemer's office: for Satan was the murderer from the beginning, who had given both body and soul a mortal wound of sin, which was certain death and eternal misery, and the Redeemer came to avenge the murder. He took our cause in hand, as being our nearest kinsman, and it cost him his own life to avenge ours.— *William Romaine.* 
 
 **Verse 2.** *From the hand of the enemy.* From all their sins which war against their souls; from Satan their implacable adversary, who is stronger than they; from the law, which threatens and curses them with damnation and death; from death itself, the last enemy, and indeed from the hand of all their enemies, be they who they may.— *John Gill.* 
 
 **Verse 3.** *And gathered.* If anything can inspire us with gratitude, this motive should prevail, because we cannot but feel the force of it, as it reminds us of that misery from which we in particular were redeemed. The Gentiles had wandered from God, and were so lost and bewildered in the mazes of error and superstition, that nothing but the almighty love of our Lord Jesus could have gathered them together into one church.— *William Romaine.* 
 
-**Verse 3.** *Gathered them.* The Syriac gives as the title of this psalm: God collects the Jews out of captivity, and brings them back out of Babylon the only begotten Son of God also, Jesus Christ, collects the nations from the four corners of the world, by calling upon man to be baptized.— *E.W. Hengstenberg.* 
+**Verse 3.** *Gathered them.* The Syriac gives as the title of this psalm: God collects the Jews out of captivity, and brings them back out of Babylon the only begotten Son of God also, Jesus Christ, collects the nations from the four corners of the world, by calling upon man to be baptized.— *E. W. Hengstenberg.* 
 
 **Verse 3.** *From the west.* The mention of the west leads the psalmist's thoughts to Egypt; and the remembrance of the bondage and labours of the ancestors of the Israelites in Egypt, coupled with the description in a previous psalm (Ps 105:17) of the imprisonment of Joseph.— *Joseph Francis Thrupp.* 
 
@@ -226,17 +226,17 @@ Those who notice providence shall never be long without a providence notice. It 
 
 **Verse 4.** *Wandered.* Their passage through the wilderness was not a journeying, such as when men pass on in a road to some inhabited place; but a wandering up and down away from all path and road, and so in an endless maze of desolation.— *Henry Hammond.* 
 
-**Verse 4.** *Wandered in the wilderness*, etc. He has *lost his way.* When he was in the world, he had no difficulties; the path was so broad that he could not mistake it. But when the work of divine grace begins in a sinner's heart, he loses his way. He cannot find his way into the world; God has driven him out of it, as he drove Lot out of Sodom. He cannot find his way to heaven; because he at present lacks those clear testimonies, those bright manifestations whereby alone he can see his path. This is his experience then, that he has lost his way; having turned his back upon the world; and yet unable to realise those enjoyments in his soul that would make heaven his home. He has so lost his way, that whether he turns to the right hand or the left, he has no plain land marks to show him the path in which his soul longs to go. We need not stray from the text to find where the wanderer is. "They wandered *in the wilderness."* The wilderness is a type and figure of what this life is to the Lord's people. There is nothing that grows in it fit for their food or nourishment. In it the fiery flying serpents—sin and Satan—are perpetually biting and stinging them: and there is nothing in it that can give them any sweet and solid rest. The barren sands of carnality below, and the burning sun of temptation above, alike deny them food and shelter. But there is a word added which throws a further light upon the character of the wilderness. "They wandered in the wilderness, in a solitary way; "a way not tracked; a path in which each has to walk alone; a road where no company cheers him, and without landmarks to direct his course. This is a mark peculiar to the child of God—that the path by which he travels is, in his own feelings, *a solitary way.* This much increases his exercises, that they appear peculiar to himself. His perplexities are such as he cannot believe any living soul is exercised with; the fiery darts which are cast into his mind by the Wicked One are such as he thinks no child of God has ever experienced; the darkness of his soul, the unbelief and infidelity of his heart, and the workings of his powerful corruptions, are such as he supposes none ever knew but himself. It is this walking *"in a solitary way",* that makes the path of trial and temptation so painful to God's family.— *J.C. Philpot* (1802-1869), *in a Sermon entitled "The Houseless Wanderer."* 
+**Verse 4.** *Wandered in the wilderness*, etc. He has *lost his way.* When he was in the world, he had no difficulties; the path was so broad that he could not mistake it. But when the work of divine grace begins in a sinner's heart, he loses his way. He cannot find his way into the world; God has driven him out of it, as he drove Lot out of Sodom. He cannot find his way to heaven; because he at present lacks those clear testimonies, those bright manifestations whereby alone he can see his path. This is his experience then, that he has lost his way; having turned his back upon the world; and yet unable to realise those enjoyments in his soul that would make heaven his home. He has so lost his way, that whether he turns to the right hand or the left, he has no plain land marks to show him the path in which his soul longs to go. We need not stray from the text to find where the wanderer is. "They wandered *in the wilderness."* The wilderness is a type and figure of what this life is to the Lord's people. There is nothing that grows in it fit for their food or nourishment. In it the fiery flying serpents—sin and Satan—are perpetually biting and stinging them: and there is nothing in it that can give them any sweet and solid rest. The barren sands of carnality below, and the burning sun of temptation above, alike deny them food and shelter. But there is a word added which throws a further light upon the character of the wilderness. "They wandered in the wilderness, in a solitary way; "a way not tracked; a path in which each has to walk alone; a road where no company cheers him, and without landmarks to direct his course. This is a mark peculiar to the child of God—that the path by which he travels is, in his own feelings, *a solitary way.* This much increases his exercises, that they appear peculiar to himself. His perplexities are such as he cannot believe any living soul is exercised with; the fiery darts which are cast into his mind by the Wicked One are such as he thinks no child of God has ever experienced; the darkness of his soul, the unbelief and infidelity of his heart, and the workings of his powerful corruptions, are such as he supposes none ever knew but himself. It is this walking *"in a solitary way",* that makes the path of trial and temptation so painful to God's family.— *J. C. Philpot* (1802-1869), *in a Sermon entitled "The Houseless Wanderer."* 
 
 **Verse 4.** *In a solitary way.* —The greater part of the desert being totally destitute of water is seldom visited by any human being; unless where the trading caravans trace out their toilsome and dangerous route across it. In some parts of this extensive waste the ground is covered with low, stunted shrubs, which serve as landmarks for the caravans, and furnish the camels with a scanty forage. In other parts, the disconsolate wanderer, wherever he turns, sees nothing around him but a vast interminable expanse of sand and sky; a gloomy and barren void, where the eye finds no particular object to rest upon, and the mind is filled with painful apprehensions of perishing with thirst. Surrounded by this dreary solitude, the traveller sees the dead bodies of birds, that the violence of the wind has brought from happier regions; and, as he ruminates on the fearful length of his remaining passage, listens with horror to the driving blast, the only sound that interrupts the awful repose of the desert. ("Proceedings of the African Association.")— *Mungo Park,* 1771-1806
 
 **Verse 4.** *In a solitary way.* See the reason why people in trouble love solitariness. They are full of sorrow; and sorrow, if it have taken deep root, is naturally reserved, and flies all conversation. Grief is a thing that is very silent and private. Those people that are very talkative and clamorous in their sorrows, are never very sorrowful. Some are apt to wonder *why melancholy people delight to be so much alone,* and I will tell you the reason of it.
 
-1\.Because the disordered humours of their bodies alter their temper, their humours, and their inclinations, *that they are no more the same that they used to be;* their very distemper is averse to what is joyous and diverting; and they that wonder at them, may as wisely wonder why they will be diseased, which they would not be, if they knew how to help it; but the disease of melancholy is so obstinate, and so unknown to all but those who have it, that nothing but the power of God can totally overthrow it, and I know no other cure for it.
+1\. Because the disordered humours of their bodies alter their temper, their humours, and their inclinations, *that they are no more the same that they used to be;* their very distemper is averse to what is joyous and diverting; and they that wonder at them, may as wisely wonder why they will be diseased, which they would not be, if they knew how to help it; but the disease of melancholy is so obstinate, and so unknown to all but those who have it, that nothing but the power of God can totally overthrow it, and I know no other cure for it.
 
 2\. *Another reason why they choose to be alone,* is, because people do not generally mind what they say, nor believe them, but deride them, which they do not use so cruelly to do with those that are in other distempers; and no man is to be blamed for avoiding society, when it does not afford the common credit to his words, that is due to the rest of men. But,
 
-3\.Another, and the principal reason why people in trouble and sadness choose to be alone, is, because *they generally apprehend themselves singled out to be the marks of God's peculiar displeasure,* and they are often by their sharp afflictions a terror to themselves, and a wonder to others. It even breaks their hearts to see how low they are fallen, how oppressed, that were once as easy, as pleasant, as full of hope as others are, Job 6:21; "Ye see my casting down, and are afraid." Ps 71:7; "I am as a wonder unto many." And it is usually unpleasant to others to be with them. Ps 88:18; "Lover and friend hast thou put far from me, and mine acquaintance into darkness." And though it was not so with the friends of Job; to see a man whom they had once known happy, to be so miserable, one whom they had seen so very prosperous, to be so very poor, in such sorry, forlorn circumstances, did greatly affect them; he, poor man, was changed, they knew him not, Job 2:12-13: "And when they lifted up their eyes afar off, and knew him not, they lifted up their voice and wept; and they rent every one his mantle, and sprinkled dust upon their heads toward heaven. So they sat down with him upon the ground seven days and seven nights, and none spake a word unto him: for they saw that his grief was very great." As the prophet represents one under spiritual and great afflictions, that "he sitteth alone, and keepeth silence", La 3:28.— *Timothy Rogers* (1660-1729) *in "Trouble of Mind, and the Disease of Melancholy."* 
+3\. Another, and the principal reason why people in trouble and sadness choose to be alone, is, because *they generally apprehend themselves singled out to be the marks of God's peculiar displeasure,* and they are often by their sharp afflictions a terror to themselves, and a wonder to others. It even breaks their hearts to see how low they are fallen, how oppressed, that were once as easy, as pleasant, as full of hope as others are, Job 6:21; "Ye see my casting down, and are afraid." Ps 71:7; "I am as a wonder unto many." And it is usually unpleasant to others to be with them. Ps 88:18; "Lover and friend hast thou put far from me, and mine acquaintance into darkness." And though it was not so with the friends of Job; to see a man whom they had once known happy, to be so miserable, one whom they had seen so very prosperous, to be so very poor, in such sorry, forlorn circumstances, did greatly affect them; he, poor man, was changed, they knew him not, Job 2:12-13: "And when they lifted up their eyes afar off, and knew him not, they lifted up their voice and wept; and they rent every one his mantle, and sprinkled dust upon their heads toward heaven. So they sat down with him upon the ground seven days and seven nights, and none spake a word unto him: for they saw that his grief was very great." As the prophet represents one under spiritual and great afflictions, that "he sitteth alone, and keepeth silence", La 3:28.— *Timothy Rogers* (1660-1729) *in "Trouble of Mind, and the Disease of Melancholy."* 
 
 **Verse 4.** *They found no city to dwell in*; nor even to call at or lodge in, for miles together; which is the case of travellers in some parts, particularly in the desert of Arabia. Spiritual travellers find no settlement, rest, peace, joy, and comfort, but in Christ; nor any indeed in this world, and the things of it; here they have no continuing city, Heb 13:14.— *John Gill.* 
 
@@ -246,11 +246,11 @@ Those who notice providence shall never be long without a providence notice. It 
 
 **Verse 6.** *Then they cried.* The root qeu has here a peculiar force: it denotes a cry of that kind into which any one, when shaken with a violent tempest of emotion, in the extremity of his grief and anxiety, breaks with a *crash* and with *complaining,* as the heavens send forth thunder and lightning. The original idea of the word being a *crash,* it indicates such complaints and cries as they send forth, who are oppressed by others, or are held fast in straits, in imploring public protection and help. See De 22:24 1Ki 20:39 Isa 19:20.— *Venema.* 
 
-**Verse 6.** *In their trouble.* observe the words, "Then they cried unto the Lord *in* their trouble." Not *before,* nor *after,* but *in* it. When they were in the midst of it; when trouble was wrapped round their head, as the weeds were wrapped round the head of Jonah; when they were surrounded by it, and could see no way out of it; when, like a person in a mist, they saw no way of escape before or behind; when nothing but a dark cloud of trouble surrounded their souls, and they did not know that ever that cloud would be dispersed;—then it was that they cried.— *J.C. Philpot.* 
+**Verse 6.** *In their trouble.* observe the words, "Then they cried unto the Lord *in* their trouble." Not *before,* nor *after,* but *in* it. When they were in the midst of it; when trouble was wrapped round their head, as the weeds were wrapped round the head of Jonah; when they were surrounded by it, and could see no way out of it; when, like a person in a mist, they saw no way of escape before or behind; when nothing but a dark cloud of trouble surrounded their souls, and they did not know that ever that cloud would be dispersed;—then it was that they cried.— *J. C. Philpot.* 
 
 **Verse 6.** *"Trouble." "Distresses."* The condition of the Church, or its most usual lot, is to be under sorrows and afflictions. I say, most usual: "For I will not contend for ever, neither will I be always wroth: for the spirit should fail before me, and the souls which I have made", Isa 57:16. But as we say of the several callings and trades of life, this man professes such a calling, and that man another; and as the poet said of Hermogenes, Though he hold his peace (peradventure being asleep) yet he's a good singer, and a musician by profession: so say I of the people of God, their trade of life is suffering: and as Julian told the Christians, when they complained of his cruelty, *It is your profession to endure tribulation.* — *Peter Smith.* 
 
-**Verse 7.** *He led them forth.* Forth out of the world—forth out of a profession—forth out of a name to live—forth out of every thing hateful in his holy and pure eyes.— *J.C. Philpot.* 
+**Verse 7.** *He led them forth.* Forth out of the world—forth out of a profession—forth out of a name to live—forth out of every thing hateful in his holy and pure eyes.— *J. C. Philpot.* 
 
 **Verse 7.** *And he led them forth by the right way*, etc. Alexander translates this verse— *"And he led them in a straight course, to go to a city of habitation";* and adds, "No exact version can preserve or imitate the paronomasia arising from the etymological affinity of the first verb and noun, analogous to that between the English *walk* and *to walk,* though the Hebrew forms are only similar and not identical. The idea of physical rectitude or straightness necessarily suggests that of moral rectitude or honesty, commonly denoted by the Hebrew word."
 
@@ -266,7 +266,7 @@ Those who notice providence shall never be long without a providence notice. It 
 
 **Verse 10.** *Such as sit in darkness and in the shadow of death, being bound in affliction and iron.* Every son of Adam in his natural state before he is redeemed is in *"darkness"* and *"the shadow of death",* and is fast *"bound"* with the chains of *sin* and *misery,* and there is no help for him upon earth—the Almighty God and Saviour alone is able to deliver him.— *William Romaine.* 
 
-**Verse 11.** *Because they rebelled against the words of God.* There is in the Hebrew a play upon similar sounds— *Himru Imree.* God's *words* are those spoken in the *Law* and by *the prophets. And contemned the counsel of the Most High* —another play upon like sounds in the Hebrew— *Hatzath Naatzu.* — *A.R. Fausset.* 
+**Verse 11.** *Because they rebelled against the words of God.* There is in the Hebrew a play upon similar sounds— *Himru Imree.* God's *words* are those spoken in the *Law* and by *the prophets. And contemned the counsel of the Most High* —another play upon like sounds in the Hebrew— *Hatzath Naatzu.* — *A. R. Fausset.* 
 
 **Verse 12.** *He brought down their heart.* O believer, God may see you have many and strong lusts to be subdued, and that you need many and sore afflictions to bring them down. Your pride and obstinacy of heart may be strong, your distempers deeply rooted, and therefore the physic must be proportioned to them.— *John Willison.* 
 
@@ -284,23 +284,23 @@ Those who notice providence shall never be long without a providence notice. It 
 
 **Verses 17-21.** 
 
-1\.The distress of the sick.
+1\. The distress of the sick.
 
-2\.Their cure by the Great Physician.
+2\. Their cure by the Great Physician.
 
-3\.Their grateful behaviour to him.
+3\. Their grateful behaviour to him.
 
 — *W. Romaine.* 
 
 **Verses 17-22.** A Visit to Christ's Hospital.
 
-1\.The names and characters of the patients—"fools"; all sinners are fools.
+1\. The names and characters of the patients—"fools"; all sinners are fools.
 
-2\.The cause of their pains and afflictions—"because of their transgressions", etc.
+2\. The cause of their pains and afflictions—"because of their transgressions", etc.
 
-3\.The progress of the disease—"their soul abhorreth all manner of meat"; and, "they draw near onto the gates of death."
+3\. The progress of the disease—"their soul abhorreth all manner of meat"; and, "they draw near onto the gates of death."
 
-4\.The interposition of the physician—"then they cry", etc.,
+4\. The interposition of the physician—"then they cry", etc.,
 
 **Verses 19-20.** 
 
@@ -312,9 +312,9 @@ Those who notice providence shall never be long without a providence notice. It 
 
 (d) How this was effected—"He sent his word," etc.
 
-5\.The consequent conduct of those who were healed; they praised God for his goodness. They added sacrifice to this praise, Ps 107:22. In addition to sacrifice the healed ones began to offer songs—"sacrifice of thanksgiving." They added a declaration of joy—"Let them declare his works with rejoicing."
+5\. The consequent conduct of those who were healed; they praised God for his goodness. They added sacrifice to this praise, Ps 107:22. In addition to sacrifice the healed ones began to offer songs—"sacrifice of thanksgiving." They added a declaration of joy—"Let them declare his works with rejoicing."
 
-**Verse 18.** *Their soul abhorreth all manner of meat.* Nor is it without emphasis that it is not the sick man who is said to spurn food, but *his soul*...The Hebrew word vpn which properly means a breath, hence a panting appetite, is applied to a *very vehement appetite* for food. When, therefore, the *soul* is said *to abhor food,* it is equivalent to saying *for the vehement appetite for food abhors food:* that is, in the place of an appetite for food, they are oppressed with a loathing; when they ought to be moved with a sharp desire of food, that their exhausted powers might be refreshed, appetite itself becomes a *loathing of food,* which is a most vivid description of the utmost loathing, and utter prostration of all desire.— *Venema.* 
+**Verse 18.** *Their soul abhorreth all manner of meat.* Nor is it without emphasis that it is not the sick man who is said to spurn food, but *his soul*... The Hebrew word vpn which properly means a breath, hence a panting appetite, is applied to a *very vehement appetite* for food. When, therefore, the *soul* is said *to abhor food,* it is equivalent to saying *for the vehement appetite for food abhors food:* that is, in the place of an appetite for food, they are oppressed with a loathing; when they ought to be moved with a sharp desire of food, that their exhausted powers might be refreshed, appetite itself becomes a *loathing of food,* which is a most vivid description of the utmost loathing, and utter prostration of all desire.— *Venema.* 
 
 **Verse 18.** *Their soul abhorreth all manner of meat.* The best of creature comforts are but vain comforts. What can dainty meat do a man good, when he is sick and ready to die? Then gold and silver, lands and houses, which are the dainty meat of a covetous man, are loathsome to him. When a man is sick to death, his very riches are sapless and tasteless to him; wife and children, friends and acquaintance, can yield but little comfort in that dark hour, yea, they often prove miserable comforters: when we have most need of comfort, these things administer least or no comfort at all to us. Is it not our wisdom, then, to get a stock of such comforts, as will hold and abide fresh with us, when all worldly comforts either leave us, or become tasteless to us? Is it not good to get a store of that food, which how sick soever we are, our stomachs will never loathe? yea, the sicker we are, our stomachs will the more like, hunger after, and feed the more heartily upon. *The flesh of Christ is meat indeed* (Joh 6:55). Feed upon him by faith, in health and sickness, ye will never loathe him. His flesh is the true meat of desires, such meat as will fill and fatten us, but never cloy us. A hungry craving appetite after Christ, and sweet satisfaction in him, are inseparable, and still the stronger is our appetite, the greater is our satisfaction. And (which is yet a greater happiness) our souls will have the strongest appetite, the most sharp set stomach after Christ, when, through bodily sickness, our stomachs cannot take down, but loathe the very scent and sight of the most pleasant perishing meat, and delicious earthly dainties. Look, that ye provide somewhat to eat, that will go down upon a sick bed; your sick bed meat is Christ; all other dainty food may be an abhorring to you.— *Joseph Caryl.* 
 
@@ -322,11 +322,11 @@ Those who notice providence shall never be long without a providence notice. It 
 
 **Verse 18.** *They draw near unto the gates of death.* Death is a great commander, a great tyrant, and hath gates to sit in, as judges and magistrates used to `sit in the gates.' There are three things implied in this phrase.
 
-1\.First, *"They draw near unto the gates of death",* that is, they were *"near to death";* as he that draws near the gates of a city is near the city, because the gates enter into the city.
+1\. First, *"They draw near unto the gates of death",* that is, they were *"near to death";* as he that draws near the gates of a city is near the city, because the gates enter into the city.
 
-2\.Secondly, gates are applied to death *for authority.* They were almost in death's jurisdiction. Death is a great tyrant. He rules over all the men in the world, over kings and potentates, and over mean men; and the greatest men fear death most. He is "the king of fears", as Job calls him, Job 18:14; aye, and the fear of kings...Therefore it is called "the gate of death." It rules and overrules all mankind. Therefore it is said "to reign", Ro 5:21. Death and sin came in together. Sin was the gate that let in death, and ever since death reigned, and will, till Christ perfectly triumph over it, who is the King of that lord and commander, and hath "the key of hell and death", Re 1:18. To wicked men, I say, he is a tyrant, and hath a gate; and when they go through the *"gate of death",* they go to a worse, to a lower place, to hell. It is the trap door to hell.
+2\. Secondly, gates are applied to death *for authority.* They were almost in death's jurisdiction. Death is a great tyrant. He rules over all the men in the world, over kings and potentates, and over mean men; and the greatest men fear death most. He is "the king of fears", as Job calls him, Job 18:14; aye, and the fear of kings... Therefore it is called "the gate of death." It rules and overrules all mankind. Therefore it is said "to reign", Ro 5:21. Death and sin came in together. Sin was the gate that let in death, and ever since death reigned, and will, till Christ perfectly triumph over it, who is the King of that lord and commander, and hath "the key of hell and death", Re 1:18. To wicked men, I say, he is a tyrant, and hath a gate; and when they go through the *"gate of death",* they go to a worse, to a lower place, to hell. It is the trap door to hell.
 
-3\.Thirdly. By the *"gate of death",* is meant not only the authority, but *the power of death;* as in the gospel, "The gates of hell shall not prevail against it", Mt 16:18; that is, the power and strength of hell. So here it implies the strength of death, which is very great, for it subdues all. It is the executioner of God's justice.— *Richard Sibbes.* 
+3\. Thirdly. By the *"gate of death",* is meant not only the authority, but *the power of death;* as in the gospel, "The gates of hell shall not prevail against it", Mt 16:18; that is, the power and strength of hell. So here it implies the strength of death, which is very great, for it subdues all. It is the executioner of God's justice.— *Richard Sibbes.* 
 
 **Verse 18.** The sin sick soul without appetite for invitations, encouragements, or promises, however presented. Milk too simple, strong meat too heavy, wine too heating, manna too light, etc.
 
@@ -334,7 +334,7 @@ Those who notice providence shall never be long without a providence notice. It 
 
 **Verse 20.** When George Wishart arrived at Dundee, where the plague was raging (1545), he caused intimation to be made that he would preach; and for that purpose chose his station upon the head of the East gate, the infected persons standing without, and those that were whole within. His text was Ps 107:20, *He sent his word and healed them*, etc., wherein he treated of the profit and comfort of God's word, the punishment that comes by contempt of it, the readiness of God's mercy to such as truly turn to him, and the happiness of those whom God takes from this misery, etc. By which sermon he so raised up the hearts of those that heard him, that they regarded not death, but judged them more happy that should then depart, rather than such as should remain behind, considering that they knew not whether they should have such a comforter with them.— *Samuel Clarke* (1599-1682), *in "A General Martyrologie."* 
 
-**Verse 20.** *He sent his word.* The same expression occurs in Ps 147:15,18; compare Isa 55:11. We detect in such passages the first glimmering of St. John's doctrine of the agency of the personal Word. The Word by which the heavens were made, Ps 33:6, is seen to be not merely the expression of God's will, but his messenger mediating between himself and his creatures. It is interesting to compare with this the language of Elihu in the parallel passage of Job 33:23, where what is here ascribed to the agency of the Word is ascribed to that of the "mediating angel, or messenger."— *J.J. Stewart Perowne.* 
+**Verse 20.** *He sent his word.* The same expression occurs in Ps 147:15,18; compare Isa 55:11. We detect in such passages the first glimmering of St. John's doctrine of the agency of the personal Word. The Word by which the heavens were made, Ps 33:6, is seen to be not merely the expression of God's will, but his messenger mediating between himself and his creatures. It is interesting to compare with this the language of Elihu in the parallel passage of Job 33:23, where what is here ascribed to the agency of the Word is ascribed to that of the "mediating angel, or messenger."— *J. J. Stewart Perowne.* 
 
 **Verse 20.** *His word* who *healed them* was his essential Word, even the second person in the Godhead, our Lord Jesus Christ, the word who was made flesh and dwelt among us: of this divine Word it was foretold in the Old Testament, that he should arise with the glory of the morning sun, bringing healing in his wings for all our maladies; and accordingly the New Testament relates, that Jesus went about all Galilee, preaching the gospel of the kingdom, and healing ALL manner of sickness, and ALL manner of disease among the people. He healed the bodily disease miraculously, to prove that he was the Almighty Physician of the soul. And it is remarkable that he never rejected any person who applied to him for an outward cure, to demonstrate to us, that he would never cast out any person who should apply to him for a spiritual cure.— *William Romaine.* 
 
@@ -474,11 +474,11 @@ The splashed up foam upon the lights of heaven.
 
 **Verse 28.** *They cry unto the LORD.* His attributes are much honoured in calling upon him, especially in times of danger and distresses.
 
-1\.When you call upon God at sea, you honour his *sovereignty.* God says to these proud waves, "So far and no farther!" So, "the storm and hail", they fulfil his will, and when he pleases he commands a calm.
+1\. When you call upon God at sea, you honour his *sovereignty.* God says to these proud waves, "So far and no farther!" So, "the storm and hail", they fulfil his will, and when he pleases he commands a calm.
 
-2\.Prayer in time of danger honours God's *wisdom,* when we see no way open for mercies and deliverance to come in at, then to look up to him, believing, "He knows how to deliver out of temptation." O how much of the wisdom of God appears in preservation in time of danger! and is it not a good token of mercy coming in when persons pray, though all visible ways are blocked up? This honours God's *wisdom,* which we acknowledge is never at a loss as to ways of bringing in mercy and deliverance.
+2\. Prayer in time of danger honours God's *wisdom,* when we see no way open for mercies and deliverance to come in at, then to look up to him, believing, "He knows how to deliver out of temptation." O how much of the wisdom of God appears in preservation in time of danger! and is it not a good token of mercy coming in when persons pray, though all visible ways are blocked up? This honours God's *wisdom,* which we acknowledge is never at a loss as to ways of bringing in mercy and deliverance.
 
-3\.The *faithfulness* of God is much honoured in times of danger, when he is called upon. The faithfulness of a friend doth most appear in a strait: now if you can rely upon his promise, God's faithfulness is the best line men sinking at sea can lay hold on. So I might add, calling upon God honours all his other attributes.— *John Ryther* (1632-1681) *in "A Plat for Mariners; or, The Seaman's Preacher,"* 1675.
+3\. The *faithfulness* of God is much honoured in times of danger, when he is called upon. The faithfulness of a friend doth most appear in a strait: now if you can rely upon his promise, God's faithfulness is the best line men sinking at sea can lay hold on. So I might add, calling upon God honours all his other attributes.— *John Ryther* (1632-1681) *in "A Plat for Mariners; or, The Seaman's Preacher,"* 1675.
 
 **Verse 28.** *Then they cry.* Tempestuous storms and deadly dangers have brought those upon their knees, that would never had bent in a calm: *"Then they cry."* If any one would know at what time the sailors take up the duty of prayer, let me say it is when death stares them in the face. If ever you see the heavens veiled in sable blackness, the clouds flying, and the winds roaring under them; you may conclude that some of them (though God knows but few) are at prayer, yea, hard at it with their God. But never believe it that there is any prayer amongst them when the skies are calm, the winds down, and the seas smooth. David tells you not of their praying in good and comfortable weather, but that it is in time of storms, for I believe that neither he nor I ever saw many of them on that strain.... God hears oftener from an afflicted people, than he either does or can from a people that are at ease, quiet, and out of danger. *Then they cry.* The prodigal son was very high, and resolved never to return till brought low by pinching and nipping afflictions, then his father had some tidings of him. Hagar was proud in Abraham's house, but humbled in the wilderness. Jonah was asleep in the ship, but awake and at prayer in the whale's belly, Jon 2:1. Manasses lived in Jerusalem like a libertine, but when bound in chains at Babel, his heart was turned to the Lord, 2Ch 33:11-12. Corporal diseases forced many under the gospel to come to Christ, whereas others that enjoyed bodily health would not acknowledge him. One would think that the Lord would abhor to hear those prayers that are made only out of the fear of danger, and not out of the love, reality, and sincerity of the heart. If there had not been so many miseries of blindness, lameness, palsies, fevers, etc., in the days of Christ, there would not have been that flocking after him.— *Daniel Pell.* 
 
@@ -496,7 +496,7 @@ The splashed up foam upon the lights of heaven.
 
 **Verse 33.** *He turneth rivers into a wilderness*, etc. God is the father of the rain. If he withholds that refreshment for a long time, all nature droops, and every green thing dies. The imagery is drawn from Palestine where there were but two annual rainy seasons, and if either of them was long deferred, the effect was frightful. The channels of considerable rivers were dried up.— *William S. Plumer.* 
 
-**Verse 33.** *Rivers...Watersprings.* A church enriched with the graces of heaven is compared by the prophets to a well watered garden (Isa 63:11 Jer 31:12), to the paradise of God, watered with its four fruitful rivers: for as everything useful and ornamental in the vegetable world is raised up by water, so is everything in the spiritual world raised up by the Holy Spirit.— *William Romaine.* 
+**Verse 33.** *Rivers... Watersprings.* A church enriched with the graces of heaven is compared by the prophets to a well watered garden (Isa 63:11 Jer 31:12), to the paradise of God, watered with its four fruitful rivers: for as everything useful and ornamental in the vegetable world is raised up by water, so is everything in the spiritual world raised up by the Holy Spirit.— *William Romaine.* 
 
 **Verse 34.** *A fruitful land into barrenness.* Hereof Judaea is at this day a notable instance (besides many parts of Asia, and Africa, once very fruitful, now, since they became Mahometan, dry and desert). Judaea, saith one, hath now only some few parcels of rich ground found in it; that men may guess the goodness of the cloth by the fineness of the shreds.— *John Trapp.* 
 
@@ -520,7 +520,7 @@ The splashed up foam upon the lights of heaven.
 
 **Verse 43.** *Will observe these things*, etc. Will carefully note and remark what is here said of the fall and recovery of mankind, of our state by nature and by grace. True wisdom consists in observing these two things, what we are in ourselves, and what we are in Christ; in a deep sense of our misery by sin, stirring us up to seek our remedy in the Redeemer. This is wisdom. And whosoever is thus wise unto salvation *shall understand the lovingkindness of the Lord*; shall be able to apply what he understands of it to his own private use and benefit. The verb in the original rendered *"shall understand",* is in the conjugation called Hithpael, which signifies to act upon itself. Whosoever observes those things properly finds his own interest in them. He makes the understanding of them useful to himself. He does not study them as a science or theory, but as interesting points in which he is nearly concerned, and which he therefore tries to bring home for his own private advantage. When he hears of the mercies of the Lord Jesus recorded in this psalm he desires to partake of them. When he hears of the great deliverances vouchsafed to sinful ruined man, he studies to have his own share in them. What is said of these persons who wandered out of the way in the wilderness, and fell into the bondage of sin, and were afflicted with its diseases, and troubled like a stormy sea, with its continual tempests; all this he knows was his own case, and therefore what follows of their flourishing state after Christ delivered them may be his also if he cry unto the Lord, as they did, for help. And he never ceases praying and seeking, until the blessed Jesus brings him to the haven of the church, where he would be. And if he find the church diminished and brought low, he is not discouraged; but relies on the promises of his God, who will set him on high out of the reach of public calamity, when he comes to destroy an infidel church. He observes what is said on this psalm concerning those things; and he knows it to be true, by his own experience. And therefore the lovingkindness of the Lord here recorded is to him a subject of exceeding great joy, because he has tasted of it. Whoso is wise will bring his knowledge of this psalm home to his own heart, and he shall understand the lovingkindness of the Lord, he shall be able to apply what he understands to his own benefit, and shall therefore be continually praising the Lord for his goodness, and declaring the wonders which he hath done for the salvation of men.— *William Romaine.* 
 
-**Verse 43.** *Observe these things. "To observe,* signifieth not only with our eyes to behold it; but so to stir up our minds to the consideration of a thing, that one may grow the better by it", saith a grave author. Now in this notion of it, how few are they that observe *"these things"?*... If you would by observing the providence of God understand his loving kindness, and gain a spiritual wisdom, *let your eye affect your heart.* Mollerus telleth us, such an observation is here intended *unde ad pietatem exuscitemur, ut inde meliores evadamus,* "as will quicken us to piety, and help to make us better." There are many careless observers of providence, who indeed see *events* rather than providence; they see much that comes to pass in the world, but consider nothing of God in them...They do by the book of providence, as Augustine complained of himself, that in his unregenerate state he did by the book of Scripture; he rather brought to it *discutiendi acumen,* than *discendi pietatem.* So men bring to the great works of God rather an acute eye and wit to find out the immediate causes, and reasons natural and political, than a *trembling, humble heart,* that they might learn by them more to acknowledge, *love, fear, adore,* and revere the great and mighty God whose works these are. Let not yours be such an observation; but let your eye, beholding God in his providential dispensations, affect your hearts with that adoration and veneration, that love and fear of the great and mighty God, which such works of God do call to you for.— *John Collinges* (1623-1690), *in "Several Discourses concerning the actual Providence of God."* 
+**Verse 43.** *Observe these things. "To observe,* signifieth not only with our eyes to behold it; but so to stir up our minds to the consideration of a thing, that one may grow the better by it", saith a grave author. Now in this notion of it, how few are they that observe *"these things"?*... If you would by observing the providence of God understand his loving kindness, and gain a spiritual wisdom, *let your eye affect your heart.* Mollerus telleth us, such an observation is here intended *unde ad pietatem exuscitemur, ut inde meliores evadamus,* "as will quicken us to piety, and help to make us better." There are many careless observers of providence, who indeed see *events* rather than providence; they see much that comes to pass in the world, but consider nothing of God in them... They do by the book of providence, as Augustine complained of himself, that in his unregenerate state he did by the book of Scripture; he rather brought to it *discutiendi acumen,* than *discendi pietatem.* So men bring to the great works of God rather an acute eye and wit to find out the immediate causes, and reasons natural and political, than a *trembling, humble heart,* that they might learn by them more to acknowledge, *love, fear, adore,* and revere the great and mighty God whose works these are. Let not yours be such an observation; but let your eye, beholding God in his providential dispensations, affect your hearts with that adoration and veneration, that love and fear of the great and mighty God, which such works of God do call to you for.— *John Collinges* (1623-1690), *in "Several Discourses concerning the actual Providence of God."* 
 
 **Verse 43.** *Observe these things.* These mighty doings of our Saviour and our God in delivering his feeble creatures from the trackless wilderness of error,—from the noisome chain of carnal lust,—from the deadly sickness of a corrupt nature,—and from the wild tempest of earthly passion, deserve the thoughtful joy of all who would be faithful servants of their Lord. The mouth of unbelief and the excuses of iniquity are stopped by the sight of the marvels of that mercy which endureth for ever. "The accuser of the brethren" is silenced and cast down. The truly wise will ponder these things, for in the knowledge of them is true wisdom; and so pondering, there shall open before them, ever plainer, fuller, clearer, brighter, the revelation of that mighty love of their eternal Father which surpasses all understanding, and is more vast than all thought.— *"Plain Commentary."* 
 
@@ -532,41 +532,41 @@ The splashed up foam upon the lights of heaven.
 
 **Whole Psalm.** This psalm is like the Interpreter's house in Bunyan's "Pilgrim's Progress." Pilgrim is told that he will there see excellent and profitable things. The same promise is given in the introduction to this psalm, where we have,
 
-1\.The source of these excellent things—the goodness and all enduring mercy of God; mercy not exhausted by the unworthiness of its objects.
+1\. The source of these excellent things—the goodness and all enduring mercy of God; mercy not exhausted by the unworthiness of its objects.
 
-2\.Their acknowledgment, "Let the redeemed of the Lord say so." Men will not own it, but the redeemed of the Lord will. It is the experience of such that is pictorially represented in this psalm. Let every one speak of God as he finds. Is he good when he takes away as well as when he gives "The redeemed of the Lord will say so." Is he merciful when he frowns as well as when he smiles? "The redeemed of the Lord say so." Does he make all things work together for good to them that love him? "Let the redeemed of the Lord say so."
+2\. Their acknowledgment, "Let the redeemed of the Lord say so." Men will not own it, but the redeemed of the Lord will. It is the experience of such that is pictorially represented in this psalm. Let every one speak of God as he finds. Is he good when he takes away as well as when he gives "The redeemed of the Lord will say so." Is he merciful when he frowns as well as when he smiles? "The redeemed of the Lord say so." Does he make all things work together for good to them that love him? "Let the redeemed of the Lord say so."
 
-3\.Their end. Praise and thanksgiving: "Oh give", etc.
+3\. Their end. Praise and thanksgiving: "Oh give", etc.
 
 (a) For general mercies;
 
 (b) For redemption;
 
-(c) For spacial deliverances.— *G.R.* 
+(c) For spacial deliverances.— *G. R.* 
 
 **Verses 1-2.** The duty of praise is universal, the real presentation of it remains with the redeemed. Particular redemption should lead to specific praise, special testimony to truth and special faith in God: "Let the redeemed of the Lord say so."
 
 **Verse 3.** The ingathering of the chosen.
 
-1\.All wandered.
+1\. All wandered.
 
-2\.Their ways different.
+2\. Their ways different.
 
-3\.All observed of the Lord.
+3\. All observed of the Lord.
 
-4\.All brought to Jesus as to one centre. Note ways, and times of gathering.
+4\. All brought to Jesus as to one centre. Note ways, and times of gathering.
 
 **Verse 4.** Wandering Jews. Illustrate the roaming of a mind in search of truth, peace, love, purity, etc.
 
 **Verse 4.** The words contain a brief history of man's fall and misery and of his restoration by Jesus Christ; which are described under these particulars.
 
-1\.The lost state of men by nature.
+1\. The lost state of men by nature.
 
-2\.They are brought to a right sense of it, and cry to the Lord Jesus for deliverance.
+2\. They are brought to a right sense of it, and cry to the Lord Jesus for deliverance.
 
-3\.He hears them and delivers them out of all their distresses.
+3\. He hears them and delivers them out of all their distresses.
 
-4\.The tribute of thanks due to him for this great deliverance.
+4\. The tribute of thanks due to him for this great deliverance.
 
 — *W. Romaine.* 
 
@@ -576,15 +576,15 @@ The splashed up foam upon the lights of heaven.
 
 **Verse 8.** He who has enjoyed God's help should mark,
 
-1\.In what distress he has been;
+1\. In what distress he has been;
 
-2\.How he has called to God;
+2\. How he has called to God;
 
-3\.How God has helped him;
+3\. How God has helped him;
 
-4\.What thanks he has returned; and,
+4\. What thanks he has returned; and,
 
-5\.What thanks he is yet bound to render.
+5\. What thanks he is yet bound to render.
 
 — *Lange's Commentary.* 
 
@@ -592,9 +592,9 @@ The splashed up foam upon the lights of heaven.
 
 **Verses 12-13.** 
 
-1\.The convicted soul's abject condition—humbled, exhausted, prostrate, deserted.
+1\. The convicted soul's abject condition—humbled, exhausted, prostrate, deserted.
 
-2\.His speedy deliverance. Cried, cried while in trouble, unto the Lord, he saved, out of their distresses.
+2\. His speedy deliverance. Cried, cried while in trouble, unto the Lord, he saved, out of their distresses.
 
 **Verse 13.** Man's work and God's work. *They* cried and *He* saved.
 
@@ -602,7 +602,7 @@ The splashed up foam upon the lights of heaven.
 
 **Verse 20.** Recovery from sickness must be ascribed to the Lord, and gratitude should flow forth because of it. But the text describes spiritual and mental sickness. Notice,
 
-1\.The Patient in his extremity.
+1\. The Patient in his extremity.
 
 (a) He is a fool: by nature inclined to evil.
 
@@ -614,7 +614,7 @@ The splashed up foam upon the lights of heaven.
 
 (e) But he has begun to pray.
 
-2\.The Cure in its simplicity.
+2\. The Cure in its simplicity.
 
 (a) Christ the Word is the essential cure. He heals the guilt, habit, depression, and evil results of sin. For every form of malady Christ has healing; hence preachers should preach him much, and all meditate much upon him.
 
@@ -626,23 +626,23 @@ The splashed up foam upon the lights of heaven.
 
 **Verse 27.** The awakened sinner staggered and nonplussed.
 
-**Verses 33-34.** The scene which here opens with a landscape of beauty and fertility is suddenly changed into a dry and barren wilderness. The rivers are dried up, the springs cease to flow among the hills, and the verdant fields are scorched and bare. The reason assigned for this is "the wickedness of them that dwell therein." This picture needs no interpretation to the people of God. It is precisely what happens within them when they have fallen into sin.— *G.R.* 
+**Verses 33-34.** The scene which here opens with a landscape of beauty and fertility is suddenly changed into a dry and barren wilderness. The rivers are dried up, the springs cease to flow among the hills, and the verdant fields are scorched and bare. The reason assigned for this is "the wickedness of them that dwell therein." This picture needs no interpretation to the people of God. It is precisely what happens within them when they have fallen into sin.— *G. R.* 
 
 **Verse 34.** The curse, cause, and cure of barrenness in a church.
 
 **Verse 35.** Hope for decayed churches lies in God; he can work a marvellous change, he does do it—"turneth": he will do it when the cause of barrenness is removed by repentance.
 
-**Verses 35-38.** Here the scene again changes. The springs again gush forth, calm lakes again repose in the midst of foliage and flowers, the hills are clothed with luxuriant vines, and the fields are covered with corn; plenty abounds both in town and country, and men and cattle increase. This picture, too, has its counterpart in experimental godliness. "Instead of the thorn shall come up", etc., "The wilderness and the solitary place shall be glad for them", etc. The one scene precedes prayer, the other follows it. A desolate wilderness before, the garden of Eden behind.— *G.R.* 
+**Verses 35-38.** Here the scene again changes. The springs again gush forth, calm lakes again repose in the midst of foliage and flowers, the hills are clothed with luxuriant vines, and the fields are covered with corn; plenty abounds both in town and country, and men and cattle increase. This picture, too, has its counterpart in experimental godliness. "Instead of the thorn shall come up", etc., "The wilderness and the solitary place shall be glad for them", etc. The one scene precedes prayer, the other follows it. A desolate wilderness before, the garden of Eden behind.— *G. R.* 
 
-**Verses 39-41.** The scene again is reversed. There is a change again from freedom to oppression; from plenty to want; from honour to contempt. Then a revival again as suddenly appears. The poor and afflicted are lifted up, and the bereaved have "families like a flock." Such are the changeful scenes through which the people of God are led; and such the experience by which they are made meet for the pure, perfect, and perpetual joys of heaven.— *G.R.* 
+**Verses 39-41.** The scene again is reversed. There is a change again from freedom to oppression; from plenty to want; from honour to contempt. Then a revival again as suddenly appears. The poor and afflicted are lifted up, and the bereaved have "families like a flock." Such are the changeful scenes through which the people of God are led; and such the experience by which they are made meet for the pure, perfect, and perpetual joys of heaven.— *G. R.* 
 
 **Verses 42-43.** Such surprising turns are of use,
 
-1\.For the solacing of saints; they observe these dispensations with pleasure: "The righteous shall see it, and rejoice", in the glorifying of God's attributes, and the manifestation of his dominion over the children of men.
+1\. For the solacing of saints; they observe these dispensations with pleasure: "The righteous shall see it, and rejoice", in the glorifying of God's attributes, and the manifestation of his dominion over the children of men.
 
-2\.For the silencing of sinners: "all iniquity shall stop her mouth"; *i.e.* it shall be a full conviction of the folly of those that deny the divine presence.
+2\. For the silencing of sinners: "all iniquity shall stop her mouth"; *i.e.* it shall be a full conviction of the folly of those that deny the divine presence.
 
-3\.For the satisfying of all concerning the divine goodness: "Whoso is wise, and will observe these things"—these various dispensations of divine providence, "even they shall understand the lovingkindness of the Lord."— *M. Henry.* 
+3\. For the satisfying of all concerning the divine goodness: "Whoso is wise, and will observe these things"—these various dispensations of divine providence, "even they shall understand the lovingkindness of the Lord."— *M. Henry.* 
 
 **Verse 43.** The best observation and the noblest understanding.
 
@@ -650,9 +650,9 @@ The splashed up foam upon the lights of heaven.
 
 Pe lagov. *Nec inter vivos, nec inter mortuos,* Neither amongst the Living, nor amongst the Dead. Or, an IMPROVEMENT of the SEA. Upon
 
-The Nine Nautical Verses in the 107th Psalme...By DANIEL PELL, Preacher of the Word. London...1659 (8vo.).
+The Nine Nautical Verses in the 107th Psalme... By DANIEL PELL, Preacher of the Word. London...1659 (8vo.).
 
-A Special Treatise of God's Providence, and of Comforts against all kinds of crosses and calamities to be fetched from the same. With an exposition of the 107th Psalme. By P. Baro. Englished by I.L. (John Ludham) B.L. (London 1588, 8vo. Black Letter.)
+A Special Treatise of God's Providence, and of Comforts against all kinds of crosses and calamities to be fetched from the same. With an exposition of the 107th Psalme. By P. Baro. Englished by I. L. (John Ludham) B. L. (London 1588, 8vo. Black Letter.)
 
 A Practical Comment on the Hundred and Seventh Psalm. Preached at the Thursday's Lecture, at St. Dunstan's Church in the West, London. By William Romaine, Lecturer of the said Church. London, 1767. (8vo.)
 

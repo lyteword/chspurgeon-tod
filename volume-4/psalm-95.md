@@ -112,7 +112,7 @@ Fickleness is bound up in the heart of man, unbelief is our besetting sin; we mu
 
 **Verse 1.** *The rock of our salvation.* Jesus is the Rock of ages, in which is opened a fountain for sin and uncleanness; the Rock which attends the church in the wilderness, pouring forth the water of life, for her use and comfort; the Rock which is our fortress against every enemy, shadowing and refreshing a weary land.— *George Horne*.
 
-**Verse 2.** *Let us come before his presence.* Hebrew, *prevent his face,* be there with the first. *"Let us go speedily*...I will go also", Zec 8:21. Let praise wait for God in Sion, Ps 65:1.— *John Trapp.* 
+**Verse 2.** *Let us come before his presence.* Hebrew, *prevent his face,* be there with the first. *"Let us go speedily*... I will go also", Zec 8:21. Let praise wait for God in Sion, Ps 65:1.— *John Trapp.* 
 
 **Verse 2.** (*second clause* ). *Let us chant aloud to him the measured lay.* twrmz, I take to be songs, in measured verse, adjusted to the bars of a chaunt.— *S. Horsley.* 
 
@@ -142,9 +142,9 @@ But it is not only in these inexhaustible supplies of mineral fuel that we find 
 
 **Verse 4.** *The deep places of the earth,* penetralia terrae, which are opposed to the heights of the hills, and plainly mean the deepest and most letired parts of the terraqueous globe, which are explorable by the eye of God, and by his only.— *Richard Mant.* 
 
-**Verse 4.** *The strength of the hills.* The word translated "strength" is plural in Hebrew, and seems properly to mean fatiguing exertions, from which some derive the idea of strength, others that of extreme height, which can only be reached by exhausting effort.— *J.A. Alexander.* 
+**Verse 4.** *The strength of the hills.* The word translated "strength" is plural in Hebrew, and seems properly to mean fatiguing exertions, from which some derive the idea of strength, others that of extreme height, which can only be reached by exhausting effort.— *J. A. Alexander.* 
 
-**Verse 4.** *The strength of the hills is his also.* The reference may be to the wealth of the hills, obtained only by labour *Gesenius*, corresponding to the former—"the deep places of the earth", explained as referring to the mines *Mendelssohn*. Go where man may, with all his toil and searching in the heights or in the depths of the earth, he cannot find a place beyond the range of God's dominion.— *A.R. Faussett.* 
+**Verse 4.** *The strength of the hills is his also.* The reference may be to the wealth of the hills, obtained only by labour *Gesenius*, corresponding to the former—"the deep places of the earth", explained as referring to the mines *Mendelssohn*. Go where man may, with all his toil and searching in the heights or in the depths of the earth, he cannot find a place beyond the range of God's dominion.— *A. R. Faussett.* 
 
 **Verse 4.** *Hills, The Sea, the dry land.* The relation of areas of land to areas of water exercises a great and essential influence on the distribution of heat, variations of atmospheric pressure, directions of the winds, and that condition of the air with respect to moisture, which is so necessary for the health of vegetation. Nearly three fourths of the earth's surface is covered with water, but neither the exact height of the atmosphere nor the depth of the ocean are fully determined. Still we know that with every addition to or subtraction from the present bulk of the waters of the ocean, the consequent variation in the form and magnitude of the land would be such, that if the change was considerable, many of the existing harmonies of things would cease. Hence, the inference is, that the magnitude of the sea is one of the conditions to which the structure of all organised creatures is adapted, and on which indeed they depend for wellbeing. The proportions between land and water are exactly what the world as constituted requires; and the whole mass of earth, sea, and air, must have been balanced with the greatest nicety before even a crocus could stand erect. Or a snowdrop or a daffodil bend their heads to the ground. The proportions of land and sea are adjusted to their reciprocal functions. Nothing deduced from modern science is more certain than this.— *Edwin Sidney*, in *"Conversations on the Bible and Science."* 
 
@@ -216,17 +216,17 @@ Capacious bed of waters.— *John Milton.*
 
 **Verse 8.** *Harden not your heart.* — *Heart* is ascribed to reasonable creatures, to signify sometimes the whole soul, and sometimes the several faculties appertaining to the soul.
 
-1\.It is frequently put for the whole soul, and that for the most part when it is set alone; as where it is said, "Serve the Lord with all your heart", 1Sa 7:20.
+1\. It is frequently put for the whole soul, and that for the most part when it is set alone; as where it is said, "Serve the Lord with all your heart", 1Sa 7:20.
 
-2\.For that principal part of the soul which is called the mind or understanding. "I gave my heart to know wisdom", Ec 1:17. In this respect darkness and blindness are attributed to the heart, Eph 6:18, Ro 1:21.
+2\. For that principal part of the soul which is called the mind or understanding. "I gave my heart to know wisdom", Ec 1:17. In this respect darkness and blindness are attributed to the heart, Eph 6:18, Ro 1:21.
 
-3\.For the will: as when heart and soul are joined together, the two essential faculties of the soul are meant, namely, the mind and will: *soul* put for the mind, heart for the will "Serve the Lord with all your heart and with all your soul", De 6:13.
+3\. For the will: as when heart and soul are joined together, the two essential faculties of the soul are meant, namely, the mind and will: *soul* put for the mind, heart for the will "Serve the Lord with all your heart and with all your soul", De 6:13.
 
-4\.For the memory. "I have hid thy word in my heart", saith the prophet, Ps 119:11. The memory is that faculty wherein matters are laid up and hid.
+4\. For the memory. "I have hid thy word in my heart", saith the prophet, Ps 119:11. The memory is that faculty wherein matters are laid up and hid.
 
-5\.For the conscience. It is said that "David's heart smote him", that is, his conscience, 1Sa 24:5 2Sa 24:10. Thus is heart taken, 1Jo 3:20-21.
+5\. For the conscience. It is said that "David's heart smote him", that is, his conscience, 1Sa 24:5 2Sa 24:10. Thus is heart taken, 1Jo 3:20-21.
 
-6\.For the affections: as where it is said, "Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind", Mt 22:37. By the *mind* is meant the understanding faculty; by the *soul,* the will; by the *heart,* the affections.
+6\. For the affections: as where it is said, "Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind", Mt 22:37. By the *mind* is meant the understanding faculty; by the *soul,* the will; by the *heart,* the affections.
 
 Here in this text the heart is put for the whole soul, even for mind, will, and affections. For blindness of mind, stubbornness of will, and stupidity of affections go together.— *William Gouge.* 
 
@@ -236,23 +236,23 @@ Here in this text the heart is put for the whole soul, even for mind, will, and 
 
 **Verse 9.** *Your fathers tempted me.* Though God cannot be tempted with evil he may justly be said to be tempted whenever men, by being dissatisfied with his dealings, virtually ask that he will alter those dealings, and proceed in a way more congenial to their feelings. If you reflect a little, you will hardly fail to perceive, that in a very strict sense, this and the like may be called tempting God. Suppose a man to be discontented with the appointments of providence, suppose him to murmur and to repine at what the Almighty allots him to do or to bear; is he not to be charged with the asking God to change his purposes? And what is this if it is not tempting God, and striving to induce him to swerve from his plans, though every one of those plans has been settled by Infinite Wisdom?
 
-Or again, if any one of us, notwithstanding the multiplied proofs of Divine lovingkindness, doubt or question whether or not God do indeed love him, of what is he guilty, if not of tempting the Lord, seeing that he solicits God to the giving additional evidence, as though there was a deficiency, and challenges him to a fresh demonstration of what he has already abundantly displayed? This would be called tempting amongst men. If a child were to show by his actions that he doubted or disbelieved the affection of his parents, he would be considered as striving to extract from them new proofs, by asking them to evince their love more, though they may already have done as much as in wisdom and in justice they ought to do. And this is clearly tempting them, and that too in the ordinary sense of the term. In short, unbelief of every kind and every degree may be said to tempt God. For not to believe upon the evidence which he has seen fit to give, is to provoke him to give more, offering our possible assent if proof were increased as an inducement to him to go beyond what his wisdom has prescribed. And if in this, and the like sense, God may be tempted, what can be more truly said of the Israelites, than that they tempted God in Massah?...We are perhaps not accustomed to think of unbelief or murmuring as nothing less than a tempting God, and therefore, we do not attach to what is so common, its just degree of heinousness. It is so natural to us to be discontented whenever God's dealings are not just what we like, to forget what has been done for us as soon as our wishes seem thwarted, to be impatient and fretful under every new cross, that we are scarcely conscious of committing a sin, and much less one more than usually aggravated. Yet we cannot be dissatisfied with God's dealings, and not be virtually guilty of tempting God. It may seem a harsh definition of a slight and scarcely avoidable fault, but nevertheless it is a true definition. You cannot mistrust God, and not accuse him of want either of power or of goodness. You cannot repine, no, not even in thought, without virtually telling him that his plans are not the best, nor his dispensations the wisest which he might have appointed in respect of yourselves. So that your fear, or your despondency, or your anxiety, in circumstances of perplexity, or peril, are nothing less than the calling upon God to depart from his fixed course—a suspicion, or rather an assertion that he might proceed in a manner more worthy of himself, and therefore, a challenge to him to alter his dealings if he would prove that he possesses the attributes which he claims. You may not intend thus to accuse or to provoke God whenever you murmur, but your murmuring does all this, and cannot fail to do it. You cannot be dissatisfied without virtually saying that God might order things better; you cannot say that he might order things better without virtually demanding that he change his course of acting, and give other proofs of his Infinite perfections.— *Henry Melvill.* 
+Or again, if any one of us, notwithstanding the multiplied proofs of Divine lovingkindness, doubt or question whether or not God do indeed love him, of what is he guilty, if not of tempting the Lord, seeing that he solicits God to the giving additional evidence, as though there was a deficiency, and challenges him to a fresh demonstration of what he has already abundantly displayed? This would be called tempting amongst men. If a child were to show by his actions that he doubted or disbelieved the affection of his parents, he would be considered as striving to extract from them new proofs, by asking them to evince their love more, though they may already have done as much as in wisdom and in justice they ought to do. And this is clearly tempting them, and that too in the ordinary sense of the term. In short, unbelief of every kind and every degree may be said to tempt God. For not to believe upon the evidence which he has seen fit to give, is to provoke him to give more, offering our possible assent if proof were increased as an inducement to him to go beyond what his wisdom has prescribed. And if in this, and the like sense, God may be tempted, what can be more truly said of the Israelites, than that they tempted God in Massah?... We are perhaps not accustomed to think of unbelief or murmuring as nothing less than a tempting God, and therefore, we do not attach to what is so common, its just degree of heinousness. It is so natural to us to be discontented whenever God's dealings are not just what we like, to forget what has been done for us as soon as our wishes seem thwarted, to be impatient and fretful under every new cross, that we are scarcely conscious of committing a sin, and much less one more than usually aggravated. Yet we cannot be dissatisfied with God's dealings, and not be virtually guilty of tempting God. It may seem a harsh definition of a slight and scarcely avoidable fault, but nevertheless it is a true definition. You cannot mistrust God, and not accuse him of want either of power or of goodness. You cannot repine, no, not even in thought, without virtually telling him that his plans are not the best, nor his dispensations the wisest which he might have appointed in respect of yourselves. So that your fear, or your despondency, or your anxiety, in circumstances of perplexity, or peril, are nothing less than the calling upon God to depart from his fixed course—a suspicion, or rather an assertion that he might proceed in a manner more worthy of himself, and therefore, a challenge to him to alter his dealings if he would prove that he possesses the attributes which he claims. You may not intend thus to accuse or to provoke God whenever you murmur, but your murmuring does all this, and cannot fail to do it. You cannot be dissatisfied without virtually saying that God might order things better; you cannot say that he might order things better without virtually demanding that he change his course of acting, and give other proofs of his Infinite perfections.— *Henry Melvill.* 
 
 **Verse 9.** *Your fathers tempted me.* There are two ways of interpreting the words which follow. As *tempting God* is nothing else than yielding to a diseased and unwarrantable craving after proof of his power, we may consider the verse as connected throughout, and read, *They tempted me and proved me, although they had already seen my work.* God very justly complains, that they should insist upon new proof, after his power had been already amply testified by undeniable evidences. There is another meaning, however, that may be given to the term *"proved",* —according to which, the meaning of the passage would run as follows:—Your fathers tempted me in asking where God was, notwithstanding all the benefits I had done them; and they proved me, that is, they had actual experience of what I am, inasmuch as I did not cease to give them open proofs of my presence, and consequently they saw my work.— *John Calvin.* 
 
-**Verse 9.** *Proved me*, put me to the proof of my existence, presence, and power, by requiring me to work, *i.e.* to act in an extraordinary manner. And this desire, unreasonable as it was, I gratified. They not only demanded, but they war-Mg likewise saw *my work, i.e.* what I could do.— *J.A. Alexander.* 
+**Verse 9.** *Proved me*, put me to the proof of my existence, presence, and power, by requiring me to work, *i.e.* to act in an extraordinary manner. And this desire, unreasonable as it was, I gratified. They not only demanded, but they war-Mg likewise saw *my work, i.e.* what I could do.— *J. A. Alexander.* 
 
 **Verse 9.** *Forty years.* To understand this passage we must bear in mind the event referred to. The same year in which the people of Israel came forth from Egypt, they were distressed for water at Rephidim, (Ex 17:1); and the place had two names given to it, Massah and Meribah, because the people tempted God and chided with Moses. The Lord did not swear *then* that they should not enter into the land of Canaan; but this was in the following year, after the return of the spies. (Nu 14:20-38.) And God said then that they had tempted him "ten times"; that is, during the short time since their deliverance from Egypt. It was after ten temptations that God deprived them of the promised land. Bearing in mind these facts, we shall be able to see the full force of the passage. The "provocation" or contention, and "temptation" refer clearly to the latter instance, as recorded in Nu 14:1-45 because it was then that God swore that the people should not enter into his rest. The people's conduct was alike in both instances. To connect "forty years" with grieved, was the work of the Punctuists, and this mistake the Apostle corrected; and it is to be observed that he did not follow in this instance the *Septuagint,* in which the words are arranged as divided by the Masorites. Such a rendering as would correspond with the Hebrew is as follows,—
 
 "Today when ye hear his voice,
 
-8\.Harden not your hearts us in the provocation, In the day of temptation in the wilderness.
+8\. Harden not your hearts us in the provocation, In the day of temptation in the wilderness.
 
-9\.When your fathers tempted me, they proved me And saw my works forty years:
+9\. When your fathers tempted me, they proved me And saw my works forty years:
 
-10\.I was therefore offended with that generation and said, Always do they go astray in heart, And they have not known my ways;
+10\. I was therefore offended with that generation and said, Always do they go astray in heart, And they have not known my ways;
 
-11\.So that I swore in my wrath, `They shall by no means enter into my rest.'"
+11\. So that I swore in my wrath, `They shall by no means enter into my rest.'"
 
 The meaning of the ninth verse is, that when the children of Israel tempted God, they proved him, *i.e.,* found out by bitter experience how great his displeasure was, and saw his works or his dealings with them forty years. He retained them in the wilderness during that period until the death of all who disbelieved his word at the return of the spies; he gave them this proof of his displeasure.— *John Owen, of Thrussington,* 1853.
 
@@ -260,19 +260,19 @@ The meaning of the ninth verse is, that when the children of Israel tempted God,
 
 **Verse 10.** *Forty Years.* It is curious to know that the ancient Jews believed that "the days of the Messiah were to be forty years." Thus Tanchuma, F. 79, 4. "Quamdiu durant anni Messiae? R. Akiba dixit, 40 annos, quemadmodum Israelitae per tot annos in deserto fuerunt." It is remarkable, that in forty years after the ascension, the whole Jewish nation were cut off equally as they who fell in the wilderness.— *John Brown, in "An Exposition of the Epistle to the Hebrews."* 1862.
 
-**Verse 10.** *Was I grieved.* The word is a strong wold, expressive of *loathing* and *disgust.* — *J.J.S. Perowne.* 
+**Verse 10.** *Was I grieved.* The word is a strong wold, expressive of *loathing* and *disgust.* — *J. J. S. Perowne.* 
 
 **Verse 10.** *This generation.* The word rwd, *dor,* signifies an age, or the allotted term of human life; and it is here applied to the men of an age, as if the psalmist had said, that the Israelites whom God had delivered were incorrigible, during the whole period of their lives.— *John Calvin.* 
 
 **Verse 10.** *It is a people that do err in their heart.* We may observe here, that he does not simply say, This people errs. What mortal is there that does not err? Or where is there a multitude of mortals, exposed to no errors? But he adds, *"In their heart."* Every error therefore is not blamed here, but the error of their heart is fastened upon. It is to be noted, therefore, that there is a twofold kind of error:
 
-1\.One is of the intellect, by which we go astray through ignorance. In this kind of erring Paul erred when he persecuted the Church of Christ; the Sadducees erred, not knowing the Scriptures, Mt 22:29; and to this day many in the Church go astray, endowed with zeal for God, but destitute of a true knowledge of Him.
+1\. One is of the intellect, by which we go astray through ignorance. In this kind of erring Paul erred when he persecuted the Church of Christ; the Sadducees erred, not knowing the Scriptures, Mt 22:29; and to this day many in the Church go astray, endowed with zeal for God, but destitute of a true knowledge of Him.
 
-2\.The other kind of erring is of the heart and affections, by which men go astray, not through ignorance, but through corruption and perversity of heart. This error of heart is a mind averse to God, and alienated from the will and way of God, which is elsewhere thus described in the case of this very people: "And their heart was not right with Him."— *Musculus.* 
+2\. The other kind of erring is of the heart and affections, by which men go astray, not through ignorance, but through corruption and perversity of heart. This error of heart is a mind averse to God, and alienated from the will and way of God, which is elsewhere thus described in the case of this very people: "And their heart was not right with Him."— *Musculus.* 
 
 **Verse 10.** *It is a people that do err in their heart.* In err in heart may mean either to err in judgment, or in disposition, intention: for the Hebrew bbl, and after it the Greek kardia, means either *animus, judicium,* or, *mens, cogitatio, desiderium.* I understand kardia here, as used according to the Hebrew idiom (in which it is often pleonastic, at least it seems so to us,)so that the phrase imports simply, *They always err,* i.e. they are continually departing from the right way.— *Moses Stuart.* 
 
-**Verse 10.** *Err in their heart.* He had called them sheep, and now he notes their wandering propensity, and their incapacity for being led; for the footsteps of their Shepherd they did not know, much less follow.— *C.H.S.* 
+**Verse 10.** *Err in their heart.* He had called them sheep, and now he notes their wandering propensity, and their incapacity for being led; for the footsteps of their Shepherd they did not know, much less follow.— *C. H. S.* 
 
 **Verse 10.** *They have not known my ways*; that is, they have not regarded my ways, have not allowed of them, or loved them; for otherwise they were not ignorant of them; they heard his words, and *saw his works.* — *David Dickson.* 
 
@@ -284,67 +284,67 @@ The meaning of the ninth verse is, that when the children of Israel tempted God,
 
 **Verse 11.** The word *swearing* is very significant, and seems to import these two things. First, the certainty of the sentence here pronounced. Every word of God both is, and must be truth; but ratified by an oath, it is truth with an advantage. It is signed irrevocable. This fixes it like the laws of the Medes and Persians, beyond all possibility of alteration and makes God's word, like his very nature, unchangeable. Secondly, it imports the terror of the sentence. If the children of Israel could say, "Let not God speak to us, lest we die, what would they have said had God then sworn against them?" It is terrible to hear an oath from the mouth but of a poor mortal, but from the mouth of an omnipotent God, it does not only terrify, but confound. An oath from God is truth delivered in anger; truth, as I may so speak, with a vengeance. When God speaks, it is the creature's duty to hear; but when he swears, to tremble.— *Robert South.* 
 
-**Verse 11.** *That they should not enter into my rest.* There is something unusual and abrupt in the conclusion of this psalm, without any cheering prospect to relieve the threatening. This may be best explained by assuming, that it was not meant to stand alone, but to form one of a series.— *J.A. Alexander.* 
+**Verse 11.** *That they should not enter into my rest.* There is something unusual and abrupt in the conclusion of this psalm, without any cheering prospect to relieve the threatening. This may be best explained by assuming, that it was not meant to stand alone, but to form one of a series.— *J. A. Alexander.* 
 
 ## Hints to the Village Preacher
 
 **Verse 1.** An invitation to praise the Lord.
 
-1\.A favourite method of worship—"let us sing."
+1\. A favourite method of worship—"let us sing."
 
-2\.A fitting state of mind for singing—joyful gratitude.
+2\. A fitting state of mind for singing—joyful gratitude.
 
-3\.A fitting subject to excite both gladness and thankfulness—the rock of our salvation.
+3\. A fitting subject to excite both gladness and thankfulness—the rock of our salvation.
 
 **Verse 1.** *The rock of our salvation.* Expressive imagery. Rock of shelter, support, indwelling, and supply—illustrate this last by the water flowing from the rock in the wilderness.
 
 **Verse 2.** 
 
-1\.What is meant by coming before his presence? Certainly not the holiness of places, etc.
+1\. What is meant by coming before his presence? Certainly not the holiness of places, etc.
 
-2\.What offering is most appropriate when we come into his presence?
+2\. What offering is most appropriate when we come into his presence?
 
 **Verse 3.** 
 
-1\.The greatness of God as god. He is to be conceived of as great in goodness, power, glory, etc.
+1\. The greatness of God as god. He is to be conceived of as great in goodness, power, glory, etc.
 
-2\.His dominion over all other powers in heaven or earth.
+2\. His dominion over all other powers in heaven or earth.
 
-3\.The worship which is consequently due to him.
+3\. The worship which is consequently due to him.
 
 **Verses 4-5.** The universality of the divine government.
 
-1\.In all parts of the globe.
+1\. In all parts of the globe.
 
-2\.In all providences.
+2\. In all providences.
 
-3\.In every phase of moral condition. Or, Things deep, or high, dark or perilous are in his hand; circumstances shifting, terrible, overwhelming as the sea, are under his control as much as the comfortable terra firma of peace and prosperity.
+3\. In every phase of moral condition. Or, Things deep, or high, dark or perilous are in his hand; circumstances shifting, terrible, overwhelming as the sea, are under his control as much as the comfortable terra firma of peace and prosperity.
 
 **Verse 6.** A true conception of God begets
 
-1\.A disposition to worship.
+1\. A disposition to worship.
 
-2\.Mutual incitement to worship.
+2\. Mutual incitement to worship.
 
-3\.Profound reverence in worship.
+3\. Profound reverence in worship.
 
-4\.Overwhelming sense of God's presence in worship.
+4\. Overwhelming sense of God's presence in worship.
 
-— *C.A. Davis.* 
+— *C. A. Davis.* 
 
 **Verses 6-7.** God is to be worshipped—
 
-1\.As our Creator—"our maker."
+1\. As our Creator—"our maker."
 
-2\.As our Redeemer, "the people," etc.
+2\. As our Redeemer, "the people," etc.
 
-3\.As our Preserver, "the sheep," etc.
+3\. As our Preserver, "the sheep," etc.
 
 — *George Rogers.* 
 
 **Verse 7.** The entreaty of the Holy Ghost.
 
-1\.The special voice—"the Holy Ghost saith"—
+1\. The special voice—"the Holy Ghost saith"—
 
 (a) In Scripture.
 
@@ -354,43 +354,43 @@ The meaning of the ninth verse is, that when the children of Israel tempted God,
 
 (d) By his deeds of grace.
 
-2\.A special duty, "hear his voice", instructing, commanding, inviting, promising, threatening.
+2\. A special duty, "hear his voice", instructing, commanding, inviting, promising, threatening.
 
-3\.A special time—"today." While God speaks, after so long a time, in the day of grace, now, in your present state.
+3\. A special time—"today." While God speaks, after so long a time, in the day of grace, now, in your present state.
 
-4\.The special danger—"harden not your hearts", by indifference, unbelief, asking for signs, presumption, worldly pleasures, etc.
+4\. The special danger—"harden not your hearts", by indifference, unbelief, asking for signs, presumption, worldly pleasures, etc.
 
 **Verse 7.** Sinners entreated to hear God's voice. "Hear his voice", because—
 
-1\.Life is short aud uncertain;
+1\. Life is short aud uncertain;
 
-2\.You cannot properly or lawfully promise to give what is not your own;
+2\. You cannot properly or lawfully promise to give what is not your own;
 
-3\.If you defer, though but till tomorrow, you must harden your hearts;
+3\. If you defer, though but till tomorrow, you must harden your hearts;
 
-4\.There is great reason to fear that, if you defer it today, you will never commence;
+4\. There is great reason to fear that, if you defer it today, you will never commence;
 
-5\.After a time God ceases to strive with sinners;
+5\. After a time God ceases to strive with sinners;
 
-6\.There is nothing irksome or disagreeable in a religious life, that you should wish to defer its commencement.
+6\. There is nothing irksome or disagreeable in a religious life, that you should wish to defer its commencement.
 
 — *Edward Payson.* 
 
 **Verse 7.** The Difference of Times with respect to Religion.—Upon a spiritual account there is great difference of time. To make this out, I will shew you,
 
-1\.That *sooner* and *later* are not alike, in respect of eternity.
+1\. That *sooner* and *later* are not alike, in respect of eternity.
 
-2\.That *times of ignorance* and of *knowledge* are not alike.
+2\. That *times of ignorance* and of *knowledge* are not alike.
 
-3\.That *before* and *after voluntary commission of known iniquity,* are not alike.
+3\. That *before* and *after voluntary commission of known iniquity,* are not alike.
 
-4\.That *before* and *after contracted naughty habits,* are not alike.
+4\. That *before* and *after contracted naughty habits,* are not alike.
 
-5\.That the time of *God's gracious and particular visitation* and the time when God *withdraws* his gracious presence and assistance, are not alike.
+5\. That the time of *God's gracious and particular visitation* and the time when God *withdraws* his gracious presence and assistance, are not alike.
 
-6\.The flourishing time of our *health and strength,* and the hour of *sickness, weakness,* and approach of *death,* are not alike.
+6\. The flourishing time of our *health and strength,* and the hour of *sickness, weakness,* and approach of *death,* are not alike.
 
-7\.Now and hereafter, present and future, *this world* and *the world to come,* are not alike.
+7\. Now and hereafter, present and future, *this world* and *the world to come,* are not alike.
 
 — *Benjamin Whichcot.* 
 
@@ -398,13 +398,13 @@ The meaning of the ninth verse is, that when the children of Israel tempted God,
 
 **Verses 8-11.** 
 
-1\.Israel's fearful experiment in tempting God.
+1\. Israel's fearful experiment in tempting God.
 
-2\.The awful result.
+2\. The awful result.
 
-3\.Let it not be tried again.
+3\. Let it not be tried again.
 
-— *C.A. Davis.* 
+— *C. A. Davis.* 
 
 **Verse 10.** The error and the ignorance which are fatal.
 

@@ -134,7 +134,7 @@ This verse is an exceedingly difficult one to translate, but we do not think tha
 
 **Whole Psalm.** Here the poet inverts his gaze, from the blaze of suns, to the strange atoms composing his own frame. He stands shuddering over the precipice of himself. Above is the All encompassing Spirit, from whom the morning wings cannot save; and below, at a deep distance, appears amid the branching forest of his animal frame, so fearfully and wonderfully made, the abyss of his spiritual existence, lying like a dark lake in the midst. How, between mystery and mystery, his mind, his wonder, his very reason, seem to rock like a little boat between the sea and sky. But speedily does he regain his serenity; when he throws himself, with childlike haste and confidence, into the arms of that Fatherly Spirit, and murmurs in his bosom, "How precious also are thy thoughts unto *me,* O God; how great is the sum of them"; and looking up at last in his face, cries—"Search me, O Lord. I cannot search thee; I cannot search myself; I am overwhelmed by those dreadful depths; but search me as thou only canst; see if there be any wicked way in me, and lead me in the way everlasting."— *George Gilfillan* (1813-1878), *in "The Bards of the Bible."* 
 
-**Whole Psalm.** The Psalm has an immediately practical aim, which is unfolded near the close. It is not an abstract description of the Divine attributes, with a mere indirect purpose in view. If God is such a being, if his vital agency reaches over all his creation, pervades all objects, illumines the deepest and darkest recesses; if his knowledge has no limits, piercing into the mysterious processes of creation, into the smallest and most elemental germs of life; if his eye can discern the still more subtle and recondite processes of mind, comprehending the half formed conception, the germinating desire "afar off"; if, anterior to all finite existence, his predetermining decree went forth; if in those ancient records of eternity man's framework, with all its countless elements and organs, in all the ages of his duration, were inscribed—then for his servant, his worshipper on earth, two consequences follow, most practical and momentous: *first,* the ceasing to have or feel any complacency with the wicked, any sympathy with their evil ways, any communion with them as such; and, *secondly,* the earnest desire that God would search the Psalmist's soul, lest in its unsounded depths there might be some lurking iniquity, lest there might be, beyond the present jurisdiction of his conscience, some dark realm which the Omniscient eye only could explore.— *Bela B. Edwards* (1802-1852), *in H.C. Fish's "Masterpieces of Pulpit Eloquence."* 
+**Whole Psalm.** The Psalm has an immediately practical aim, which is unfolded near the close. It is not an abstract description of the Divine attributes, with a mere indirect purpose in view. If God is such a being, if his vital agency reaches over all his creation, pervades all objects, illumines the deepest and darkest recesses; if his knowledge has no limits, piercing into the mysterious processes of creation, into the smallest and most elemental germs of life; if his eye can discern the still more subtle and recondite processes of mind, comprehending the half formed conception, the germinating desire "afar off"; if, anterior to all finite existence, his predetermining decree went forth; if in those ancient records of eternity man's framework, with all its countless elements and organs, in all the ages of his duration, were inscribed—then for his servant, his worshipper on earth, two consequences follow, most practical and momentous: *first,* the ceasing to have or feel any complacency with the wicked, any sympathy with their evil ways, any communion with them as such; and, *secondly,* the earnest desire that God would search the Psalmist's soul, lest in its unsounded depths there might be some lurking iniquity, lest there might be, beyond the present jurisdiction of his conscience, some dark realm which the Omniscient eye only could explore.— *Bela B. Edwards* (1802-1852), *in H. C. Fish's "Masterpieces of Pulpit Eloquence."* 
 
 **Whole Psalm.** 
 
@@ -232,7 +232,7 @@ To life and immortality.
 
 **A Psalm of David.** How any critic can assign this Psalm to other than David I cannot understand. Every line, every thought, every turn of expression and transition, is his, and his only. As for the arguments drawn from the two Chaldaisms which occur, this is really nugatory. These Chaldaisms consist merely in the substitution of one letter for another, very like it in shape, and easily to be mistaken by a transcriber, particularly by one who had been used to the Chaldee idiom; but the moral arguments for David's authorship are so strong as to overwhelm any such verbal, or rather *literal* criticism, were even the objections more formidable than they actually are.— *John Jebb.* 
 
-**Verse 1.** *O LORD, thou hast searched me, and known (me).* There is no *"me"* after *"known"* in the Hebrew; therefore it is better to take the object after *"known"* in a wider sense. The omission is intentional, that the believing heart of all who use this Psalm may supply the ellipsis. Thou hast known and knowest *all that concerns the matter in question,* as well whether I and mine are guilty or innocent (Ps 44:21); also my exact circumstances, my needs, my sorrows, and the precise time when to relieve me.— *A.R. Fausset.* 
+**Verse 1.** *O LORD, thou hast searched me, and known (me).* There is no *"me"* after *"known"* in the Hebrew; therefore it is better to take the object after *"known"* in a wider sense. The omission is intentional, that the believing heart of all who use this Psalm may supply the ellipsis. Thou hast known and knowest *all that concerns the matter in question,* as well whether I and mine are guilty or innocent (Ps 44:21); also my exact circumstances, my needs, my sorrows, and the precise time when to relieve me.— *A. R. Fausset.* 
 
 **Verse 1.** *O LORD, thou hast searched me, and known me.* The godly may sometimes be so overclouded with calumnies and reproaches as not to be able to find a way to clear themselves before men, but must content and comfort themselves with the testimony of a good conscience and with God's approbation of their integrity, as here David doth.— *David Dickson.* 
 
@@ -334,7 +334,7 @@ O Father of all lights, to thee.
 
 **Verse 2.** *Thou.* David makes the personal pronoun the very frontispiece of the verse, and so says expressly and distinctively to Jehovah, *"Thou* knowest"; thus marking the difference between God and all others, as though he said, "Thou, and thou alone, O God, in all the universe, knowest altogether all that can be known concerning me, even to my inmost thought, as well as outward act."— *Martin Geier.* 
 
-**Verse 2.** *Thou knowest my downsitting and mine uprising. Does* God care? *Is* he our Friend? Even in such little matters as these, does he watch over us "to do us good"?...When we "sit down" he sees; when we rise up he is there. Not an action is lost or a thought overlooked. No wonder that, as these tiny miracles of care are related by David, he adds the words, *Such knowledge is too wonderful for me; it is high, I cannot attain unto it.* We get accustomed to the thought that God made the sun and sky, the "moon and stars which he hath ordained", and we bow to the fact that they are "the work of his fingers." Let us go further! The *coming in* and *going out* of the Christian is mentioned several times in Scripture as though it were very important. So much hinges on these little words. "David went out and came in before the people. And David behaved himself wisely in all his ways; and the Lord was with him": 1Sa 18:13-14. "The LORD shall preserve thy going out and thy coming in from this time forth, and even for evermore": Ps 121:8. David was given both *preservation* and *wisdom* in his "goings out" and "comings in." Perhaps the latter was both cause and effect of the first. It was needed, for many eyes were upon him, and many eyes are upon us: are they not? Perhaps more than we think.— *Lady Hope, in "Between Times,"* 1884.
+**Verse 2.** *Thou knowest my downsitting and mine uprising. Does* God care? *Is* he our Friend? Even in such little matters as these, does he watch over us "to do us good"?... When we "sit down" he sees; when we rise up he is there. Not an action is lost or a thought overlooked. No wonder that, as these tiny miracles of care are related by David, he adds the words, *Such knowledge is too wonderful for me; it is high, I cannot attain unto it.* We get accustomed to the thought that God made the sun and sky, the "moon and stars which he hath ordained", and we bow to the fact that they are "the work of his fingers." Let us go further! The *coming in* and *going out* of the Christian is mentioned several times in Scripture as though it were very important. So much hinges on these little words. "David went out and came in before the people. And David behaved himself wisely in all his ways; and the Lord was with him": 1Sa 18:13-14. "The LORD shall preserve thy going out and thy coming in from this time forth, and even for evermore": Ps 121:8. David was given both *preservation* and *wisdom* in his "goings out" and "comings in." Perhaps the latter was both cause and effect of the first. It was needed, for many eyes were upon him, and many eyes are upon us: are they not? Perhaps more than we think.— *Lady Hope, in "Between Times,"* 1884.
 
 **Verse 2.** *Downsitting and uprising. "Uprising"* following *"downsitting"* is in the order of right sequence; for action ought to follow meditation. Jacob saw the angels ascending to God before they descended to service among mortals. Hence we are taught first to join ourselves to God by meditation, and afterwards to repair to the aid of our fellows.— *Thomas Le Blanc.* 
 
@@ -398,7 +398,7 @@ But God thy very inmost thought can read."
 
 **Verse 6.** *Such knowledge is too wonderful for me*, etc. When we are about to look upon God's perfections, we should observe our own imperfections, and thereby learn to be the more modest in our searching of God's unsearchable perfection: *Such knowledge*, saith David, *is too high for me, I cannot attain unto it.* Then do we see most of God, when we see him incomprehensible, and do see ourselves swallowed up in the thoughts of his perfection, and are forced to fall in admiration of God, as here. *"Such knowledge is too wonderful for me; it is high, I cannot attain unto it."* — *David Dickson.* 
 
-**Verse 6.** *Such knowledge is too wonderful for me.* Compared with our stinted knowledge, how amazing is the knowledge of God! As he made all things, he must be intimately acquainted, not only with their properties, but with their very essence. His eye, at the same instant, surveys all the works of his immeasurable creation. He observes, not only the complicated system of the universe, but the slightest motion of the most microscopic insect;—not only the most sublime conception of angels, but the meanest propensity of the most worthless of his creatures. At this moment he is listening to the praises breathed by grateful hearts in distant worlds, and reading every grovelling thought which passes though the polluted minds of the fallen race of Adam...At one view, he surveys the past, the present, and the future. No inattention prevents him from observing; no defect of memory or of judgment obscures his comprehension. In his remembrance are stored not only the transactions of this world, but of all the worlds in the universe;—not only the events of the six thousand years which have passed since the earth was created, but of a duration without beginning. Nay, things to come extending to a duration without end, are also before him. An eternity past and an eternity to come are, at the same moment, in his eye; and with that eternal eye he surveys infinity. How amazing! How inconceivable!— *Henry Duncan (1774-1846), in "Sacred Philosophy of the Seasons."* 
+**Verse 6.** *Such knowledge is too wonderful for me.* Compared with our stinted knowledge, how amazing is the knowledge of God! As he made all things, he must be intimately acquainted, not only with their properties, but with their very essence. His eye, at the same instant, surveys all the works of his immeasurable creation. He observes, not only the complicated system of the universe, but the slightest motion of the most microscopic insect;—not only the most sublime conception of angels, but the meanest propensity of the most worthless of his creatures. At this moment he is listening to the praises breathed by grateful hearts in distant worlds, and reading every grovelling thought which passes though the polluted minds of the fallen race of Adam... At one view, he surveys the past, the present, and the future. No inattention prevents him from observing; no defect of memory or of judgment obscures his comprehension. In his remembrance are stored not only the transactions of this world, but of all the worlds in the universe;—not only the events of the six thousand years which have passed since the earth was created, but of a duration without beginning. Nay, things to come extending to a duration without end, are also before him. An eternity past and an eternity to come are, at the same moment, in his eye; and with that eternal eye he surveys infinity. How amazing! How inconceivable!— *Henry Duncan (1774-1846), in "Sacred Philosophy of the Seasons."* 
 
 **Verse 6.** *Such knowledge is too wonderful for me.* There is a mystery about the Divine Omnipresence, which we do not learn to solve, after years of meditation. As God is a simple spirit, without dimensions, parts, or susceptibility of division, he is equally, that is, fully, present at all times in all places. At any given moment he is not present partly here and partly in the utmost skirt of the furthest system which revolves about the dimmest telescopic star, as if like a galaxy of perfection he stretched a sublime magnificence through universal space, which admitted of separation and partition; but he is present, with the totality of his glorious properties in every point of space. This results undeniably from the simple spirituality of the Great Supreme. All that God is in one place he is in all places. All there is of God is in every place. Indeed, his presence has no dependence on space or matter. His attribute of essential presence were the same if universal matter were blotted out. Only by a figure can God be said to be in the universe; for the universe is comprehended by him. All the boundless glory of the Godhead is essentially present at every spot in his creation, however various may be the manifestations of this glory at different times and places. Here we have a case which ought to instruct and sober those, who, in their shallow philosophy, demand a religion without mystery. It would be a religion without God; for "who by searching can find out God?"— *James W. Alexander, in "The (American) National Preacher",* 1860.
 
@@ -486,7 +486,7 @@ In infinite progression.
 
 **Verse 13.** *Thou hast covered me in my mother's womb.* The word here rendered *cover* means properly to interweave; to weave; to knit together, and the literal translation would be, "Thou hast woven me in my mother's womb", meaning that God had put his parts together, as one who weaves cloth, or who makes a basket. So it is rendered by De Wette and by Gesenius (*Lex.* ). The original word has, however, also the idea of protecting, as in a booth or hut, woven or knit together,—to wit, of boughs and branches. The former signification best suits the connection; and then the sense would be, that as God had made him—as he had formed his members, and united them in a bodily frame and form before he was born—he must be able to understand all his thoughts and feelings. As he was not concealed from God before he saw the light, so he could not be anywhere.— *Albert Barnes.* 
 
-**Verse 14.** *I will praise thee*, etc. All God's works are admirable, man wonderfully wonderful. "Marvellous are thy works; and that my soul knoweth right well." What infers he on all this? Therefore *"I will praise thee."* If we will not praise him that made us, will he not repent that he made us? Oh that we knew what the saints do in heaven, and how the sweetness of that doth swallow up all earthly pleasures! They sing honour and glory to the Lord. Why? Because he hath created all things: Re 4:11. When we behold an exquisite piece of work, we presently enquire after him that made it, purposely to commend his skill: and there is no greater disgrace to an artist, than having perfected a famous work, to find it neglected, no man minding it, or so much as casting an eye upon it. All the works of God are considerable, and man is bound to this contemplation. "When I consider the heavens", etc., I say, "What is man?." Ps 8:3-4. He admires the heavens, but his admiration reflects upon man. *Quis homo?* There is no workman but would have his instruments used, and used to that purpose for which they were made...Man is set like a little world in the midst of the great, to glorify God; this is the scope and end of his creation.— *Thomas Adams.* 
+**Verse 14.** *I will praise thee*, etc. All God's works are admirable, man wonderfully wonderful. "Marvellous are thy works; and that my soul knoweth right well." What infers he on all this? Therefore *"I will praise thee."* If we will not praise him that made us, will he not repent that he made us? Oh that we knew what the saints do in heaven, and how the sweetness of that doth swallow up all earthly pleasures! They sing honour and glory to the Lord. Why? Because he hath created all things: Re 4:11. When we behold an exquisite piece of work, we presently enquire after him that made it, purposely to commend his skill: and there is no greater disgrace to an artist, than having perfected a famous work, to find it neglected, no man minding it, or so much as casting an eye upon it. All the works of God are considerable, and man is bound to this contemplation. "When I consider the heavens", etc., I say, "What is man?." Ps 8:3-4. He admires the heavens, but his admiration reflects upon man. *Quis homo?* There is no workman but would have his instruments used, and used to that purpose for which they were made... Man is set like a little world in the midst of the great, to glorify God; this is the scope and end of his creation.— *Thomas Adams.* 
 
 **Verse 14.** *I am fearfully and wonderfully made.* The term *"fearful"* is sometimes to be taken subjectively, far our being possessed of fear. In this sense it signifies the same as timid. Thus the prophet was directed to say to them that were of a "fearful heart, be strong." At other times it is taken objectively, for that property in an object the contemplation of which excites fear in the beholder. Thus it is said of God that he is "fearful in praises", and that it is a "fearful thing to fall into the hands of the living God." In this sense it is manifestly to be understood in the passage now under consideration. The human frame is so admirably constructed, so delicately combined, and so much in danger of being dissolved by innumerable causes, that the more we think of it the more we tremble, and wonder at our own continued existence.
 
@@ -550,13 +550,13 @@ Whoever observes this (in truth he will not be able to observe it in the common 
 
 **Verse 16.** *Thine eyes did see my substance, yet being unperfect*, etc. From whence we may learn, first, not to be proud of what we are; all's the work of God. How beautiful or comely, how wise or holy soever you are, 'tis not of yourselves. What hath any man, either in naturals or supernaturals, which he hath not received? Secondly, despise not what others are or have, though they are not such exact pieces, though they have not such excellent endowments as yourselves; yet they are what God hath made them. Thirdly, despise not what yourselves are. Many are ashamed to be seen as God made them; few ale ashamed to be seen what the devil hath made them. Many are troubled at small defects in the outward man; few are troubled at the greatest deformities of the inward man: many buy artificial beauty to supply the natural; few spiritual, to supply the defects of the supernatural beauty of the soul.— *Abraham Wright.* 
 
-**Verse 16.** *My substance yet being unperfect.* One word in the original, which means strictly anything *rolled together* as a ball, and hence is generally supposed to mean here the foetus or embryo. Hupfeld, however, prefers to understand it of the ball of life, as consisting of a number of different threads ("the days" of Ps 139:16—see margin) which are first a compact mass as it were, and which are then unwound as life runs on.— *J.J. Stewart Perowne.* 
+**Verse 16.** *My substance yet being unperfect.* One word in the original, which means strictly anything *rolled together* as a ball, and hence is generally supposed to mean here the foetus or embryo. Hupfeld, however, prefers to understand it of the ball of life, as consisting of a number of different threads ("the days" of Ps 139:16—see margin) which are first a compact mass as it were, and which are then unwound as life runs on.— *J. J. Stewart Perowne.* 
 
 **Verse 16.** A skilful architect before he builds draws a model, or gives a draught of the building in his book, or upon a table; there he will show you every room and contrivance: in his book are all the parts of the building written, while as yet there are none of them, or before any of them are framed and set up. In allusion to architects and other artisans, David speaks of God, *In thy book all my members were written*; that is, Thou hast made me as exactly as if thou hadst drawn my several members and my whole proportion with a pen or pencil in a book, before thou wouldst adventure to form me up. The Lord uses no book, no pen to decipher his work. He had the perfect idea of all things in himself from everlasting; but he may well be said to work as by pattern, whose work is the most perfect pattern.— *Joseph Caryl.* 
 
 **Verse 17.** *How precious also are thy thoughts unto me*, etc. So far from thinking it a hardship to be subject to this scrutiny, he counts it a most valuable privilege. However others may regard this truth, *"to me",* my judgment and my feelings, *"how costly"* valuable *"are thy thoughts",* i.e. thy perpetual attention to me.— *Joseph Addison Alexander.* 
 
-**Verse 17.** *How precious also are thy thoughts unto me, O God!* How cold and poor are *our* warmest thoughts towards God! How unspeakably loving and gloriously rich are *his* thoughts towards us! Compare Eph 1:18: "The riches of the glory of his inheritance in the saints."— *A.R. Fausset.* 
+**Verse 17.** *How precious also are thy thoughts unto me, O God!* How cold and poor are *our* warmest thoughts towards God! How unspeakably loving and gloriously rich are *his* thoughts towards us! Compare Eph 1:18: "The riches of the glory of his inheritance in the saints."— *A. R. Fausset.* 
 
 **Verse 17.** *How precious...how great is the sum of them?* Our comforts vie with the number of our sorrows, and win the game. The mercies of God passed over in a gross sum breed no admiration; but cast up the particulars, and then arithmetic is too dull an art to number them. As many dusts as a man's hands can hold, is but his handful of so many dusts; but tell them one by one, and they exceed all numeration. It was but a crown which king Solomon wore; but weigh the gold, tell the precious stones, value the richness of them, and what was it then?— *Thomas Adams.* 
 
@@ -572,7 +572,7 @@ If all his glorious deeds my song would tell,
 
 The shore's unnumbered stones I might recount as well.
 
-— *Pindar,* B.C. 518-442.
+— *Pindar,* B. C. 518-442.
 
 **Verse 18.** *When I awake, I am still with thee.* It is the great advantage of a Christian, which he has above other men, that he has his friends always about him, and (if the fault be not his own) need never to be absent from them. In the friendship and converse of the world, we use to say, "Friends must part", and those who have delight and satisfaction in one another's society must be content to leave it, and to be taken off from it. But this is the privilege of a believer that undertakes communion with God, that it is possible for him always to be with him. Again, in human converse and society we know it is ordinary for friends to dream that they are in company with one another; but when they awake they are a great way off. But a Christian that converses with God, and has his thoughts fastened upon him, when he awakes he is still with him, which is that which is here exhibited to us in the example of the prophet David. A godly soul should fall asleep in God's arms, like a child in the mother's lap; it should be sung and lulled to sleep with "songs of the night." And this will make him the fitter for converse with God the next day after. This is the happiness of a Christian that is careful to lie down with God, that he finds his work still as he left it, and is in the same disposition when he rises as he was at night when he lay down to rest. As a man that winds up his watch over night, he finds it going the next morning; so is it also, as I may say, with a Christian that winds up his heart. This is a good observation to be remembered, especially in the evening afore the Sabbath.— *Thomas Horton,* —1673.
 
@@ -586,7 +586,7 @@ The shore's unnumbered stones I might recount as well.
 
 **Verse 20.** *Thine enemies take thy name in vain.* In every action three things are considerable,—the *end,* the *agent,* the *work.* These three duly weighed, we shall soon see what it is to take God's name in vain.
 
-1\.That which hath no end proposed or is done to no end, may truly be said to be done in vain. As the sowing of seed without reaping the fruit, the planting a vineyard without a vintage, or feeding a flock without eating the milk of it. These are labours in vain. So he that taketh the name of God to no end, neither to God's glory, nor the private or public good, taketh it in vain. *Cui bono?* is a question in all undertakings. If to no good, as good and better not undertaken at all; it is to no end, it is in vain. If a man have well fashioned legs, and they be lame, *frustra pulchras habet tibia claudus,* the lame man hath them in vain. The chief end, therefore, in taking this name must be,
+1\. That which hath no end proposed or is done to no end, may truly be said to be done in vain. As the sowing of seed without reaping the fruit, the planting a vineyard without a vintage, or feeding a flock without eating the milk of it. These are labours in vain. So he that taketh the name of God to no end, neither to God's glory, nor the private or public good, taketh it in vain. *Cui bono?* is a question in all undertakings. If to no good, as good and better not undertaken at all; it is to no end, it is in vain. If a man have well fashioned legs, and they be lame, *frustra pulchras habet tibia claudus,* the lame man hath them in vain. The chief end, therefore, in taking this name must be,
 
 a) The glory of God, otherwise we open our mouths in vain, as it is in Job. God is willing to impart all his blessings to us, and requires nothing of as again but glory, which if we return not, he may say, as David did of Nabal, for whom he had done many good turns, in securing his shepherds and flocks, etc.; and when he desired nothing but a little meat for the young men he denied it: All that I have done for this fellow is in vain; in vain have I kept all he hath. So, God having done so much for us, and expecting nothing but the glory of his name, if we be defective herein, he may well say all that he hath done for us is in vain.
 
@@ -594,9 +594,9 @@ b) Next to God's glory is the good of ourselves and others; and so to take God's
 
 c) rejoice, saith he, that I have not run in vain, neither laboured in vain.
 
-2\.In the *agent* the heart and soul is to be considered, which in the person acting is the chief mover. If the soul be *Rachah,* vain and light, as when we take God's name without due advice and reverence, though we propound a right end, yet we take his name in vain. Therefore the wise man advises "not to be rash with our mouth" (Ec 5:2); and the Psalmist professes that his heart was fixed when he praised God (Ps 57:7): the heart ought to be fixed and stablished by a due consideration of God's greatness when we speak of him. This is opposed to rashness, inconstancy, and lightness, such as are in chaff and smoke, which are apt to be carried away with every blast, and such as are so qualified do take God's name in vain.
+2\. In the *agent* the heart and soul is to be considered, which in the person acting is the chief mover. If the soul be *Rachah,* vain and light, as when we take God's name without due advice and reverence, though we propound a right end, yet we take his name in vain. Therefore the wise man advises "not to be rash with our mouth" (Ec 5:2); and the Psalmist professes that his heart was fixed when he praised God (Ps 57:7): the heart ought to be fixed and stablished by a due consideration of God's greatness when we speak of him. This is opposed to rashness, inconstancy, and lightness, such as are in chaff and smoke, which are apt to be carried away with every blast, and such as are so qualified do take God's name in vain.
 
-3\.In the *work* itself may be a twofold vanity, which must be avoided. Firstly, Falsehood. Secondly, Injustice.
+3\. In the *work* itself may be a twofold vanity, which must be avoided. Firstly, Falsehood. Secondly, Injustice.
 
 a) If it be *false,* then is it also vain, as theirs in Isa 28:15: "We have made a covenant with death, and with hell are we at agreement; when the overflowing scourge shall pass through, it shall not come unto us: for we have made lies our refuge, and under falsehood have we hid ourselves." And this is that *actio erroris,* work of error, of which Jeremiah speaketh. *Vanitas opponitur veritati,* vanity is opposed to verity and truth; therefore a thing is said to be vain when it is false or erroneous. "They are vanity, the work of errors", saith the prophet (Jer 10:15); and as there is truth in natural things, so is there a truth in moral things, which if it be wanting, our speech is vain.
 
@@ -636,7 +636,7 @@ Thirdly, notice *the Psalmist's wisdom.* He presents his prayer to God himself. 
 
 You will observe that the Psalmist begins with his principles: his desire is to have these tried by a competent judge, and to have every thing that is evil removed from them. This is an evidence of his wisdom. The heart and its thoughts must be made right, before the actions of the life can be set right. Those who are most eminent for piety are most conversant with God; and, for this reason, they become most conversant with themselves. David says, elsewhere, "Who can understand his errors? Cleanse THOU me from *secret* faults." And Job says, "If I wash myself with snow water, and make me never so clean, yet shalt THOU plunge me in the ditch, and mine own clothes shall abhor me." When these holy men perused themselves in God's light, they saw their sins of omission and commission, and prayed earnestly to be delivered from all.— *William Howels,* 1832.
 
-**Verses 23-24.** The text is a prayer, and it indicates, as we think, three great facts in regard to the suppliant: the first, that David thoroughly wished to become acquainted with himself; the second, that he felt conscious that God could see through all disguises; and the third, that he desired to discover, in order that by Divine help he might correct, whatsoever was wrong in his conduct. Now, the first inference which we draw from the text, when considered as indicating the feelings of the petitioner is, that he was thoroughly honest, that it was really his wish to become acquainted with his own heart. And is there, you may say, anything rare or remarkable in this? Indeed we think there is. It would need, we believe, a very high degree of piety to be able to put up with sincerity the prayers of our text. For, will you tell me that it does not often happen, that even whilst men are carrying on a process of self examination, there is a secret wish to remain ignorant of certain points, a desire not to be proved wrong when interest and inclination combine in demanding an opposite verdict?...In searching into yourselves, you know where the tender points are, and those points you will be apt to avoid, so as not to put yourselves to pain, nor make it evident how much you need the caustic and the knife. Indeed, we may be sure that we state nothing but what experience will prove, when we declare it a high attainment in religion to be ready to know how bad we are...And this had evidently been reached by the Psalmist, for he pleads very earnestly with God that he would leave no recess of his spirit unexplored, that he would bring the heart and all its thoughts, the life and all its ways, under a most searching examination, so that no form and no degree of evil might fail to be detected.— *Henry Melvill.* 
+**Verses 23-24.** The text is a prayer, and it indicates, as we think, three great facts in regard to the suppliant: the first, that David thoroughly wished to become acquainted with himself; the second, that he felt conscious that God could see through all disguises; and the third, that he desired to discover, in order that by Divine help he might correct, whatsoever was wrong in his conduct. Now, the first inference which we draw from the text, when considered as indicating the feelings of the petitioner is, that he was thoroughly honest, that it was really his wish to become acquainted with his own heart. And is there, you may say, anything rare or remarkable in this? Indeed we think there is. It would need, we believe, a very high degree of piety to be able to put up with sincerity the prayers of our text. For, will you tell me that it does not often happen, that even whilst men are carrying on a process of self examination, there is a secret wish to remain ignorant of certain points, a desire not to be proved wrong when interest and inclination combine in demanding an opposite verdict?... In searching into yourselves, you know where the tender points are, and those points you will be apt to avoid, so as not to put yourselves to pain, nor make it evident how much you need the caustic and the knife. Indeed, we may be sure that we state nothing but what experience will prove, when we declare it a high attainment in religion to be ready to know how bad we are... And this had evidently been reached by the Psalmist, for he pleads very earnestly with God that he would leave no recess of his spirit unexplored, that he would bring the heart and all its thoughts, the life and all its ways, under a most searching examination, so that no form and no degree of evil might fail to be detected.— *Henry Melvill.* 
 
 **Verses 23-24.** Self examination is not the simple thing which, at first sight, it might appear. No Christian who has ever really practised it has found it easy. Is there any exercise of the soul which any one of us has found so unsatisfactory, so almost impossible, as self examination? The fact is this, that the heart is so exceedingly complicated and intricate, and it is so very near the eye which has to investigate it, and both it and the eye are so restless and so shifting, that its deep anatomy baffles our research. Just a few things, here and there, broad and open, and floating upon the surface, a man discovers; but there are chambers receding within chambers, in that deepest of all deep things, a sinner's heart, which no mere human investigation ever will reach,...it is the prerogative of God alone to *"search"* the human heart. To the child of God—the most intimate with himself in all the earth—I do not hesitate to say—"There are sins latent at this moment in you, of which you have no idea; but it only requires a larger measure of spiritual illumination to impress and unfold them. You have no idea of the wickedness that is now in you." But while I say this, let every Christian count well the cost before he ventures on the bold act of asking God to "search" him. For be sure of this, if you do really and earnestly ask God to *"search"* you, he will do it. And he will search you most searchingly; and if you ask him to *"try"* you, he will try you,—and the trial will be no light matter!
 
@@ -674,13 +674,13 @@ For there is grace in the desire of grace.
 
 **Verse 1.** 
 
-1\.A cheering thought for sinners. If God knew them not perfectly, how could he have prepared a perfect salvation for them?
+1\. A cheering thought for sinners. If God knew them not perfectly, how could he have prepared a perfect salvation for them?
 
-2\.A comfortable truth for saints. "Your heavenly Father knoweth that ye have need of all these things."— *G.R.* 
+2\. A comfortable truth for saints. "Your heavenly Father knoweth that ye have need of all these things."— *G. R.* 
 
 **Verses 1-5.** In these verses we have God's Omniscience,
 
-1\.Described.
+1\. Described.
 
 a) As observing minute and comparatively unimportant actions: "My downsitting and uprising."
 
@@ -694,23 +694,23 @@ e) As being "behind" men, remembering their past, and "before" men, acquainted w
 
 f) As every instant holding men under watchful scrutiny: "And laid", etc.
 
-2\.Personally realized and pondered: "Thou hast searched *me." Me* and *my* run through the whole set of statements. Thus felt and used, the fact of God's omniscience,
+2\. Personally realized and pondered: "Thou hast searched *me." Me* and *my* run through the whole set of statements. Thus felt and used, the fact of God's omniscience,
 
 a) Begets reverence.
 
 b) Inspires confidence.
 
-c) Produces carefulness of conduct.— *J.F.* 
+c) Produces carefulness of conduct.— *J. F.* 
 
 **Verse 2-4.** The knowledge of God extends,
 
-1\.To our movements, our "down sitting and uprising"—when we sit down to read, write, or converse, and when we rise up to active service.
+1\. To our movements, our "down sitting and uprising"—when we sit down to read, write, or converse, and when we rise up to active service.
 
-2\.To our thoughts: "Thou understandest my thoughts afar off." What they have been, what they now are, what they will be, what under all circumstances they would have been. He who made minds knows what their thoughts will be at all times, or he could not predict future events, or govern the world. He can know our thoughts without being the Author of them.
+2\. To our thoughts: "Thou understandest my thoughts afar off." What they have been, what they now are, what they will be, what under all circumstances they would have been. He who made minds knows what their thoughts will be at all times, or he could not predict future events, or govern the world. He can know our thoughts without being the Author of them.
 
-3\.To our actions: Ps 139:3. Every step we take by day, and all we purpose to do in wakeful hours of the night: all our private, social, and public ways, are compassed or sifted by him, to distinguish the good from the bad, as wheat from the chaff.
+3\. To our actions: Ps 139:3. Every step we take by day, and all we purpose to do in wakeful hours of the night: all our private, social, and public ways, are compassed or sifted by him, to distinguish the good from the bad, as wheat from the chaff.
 
-4\.To our words: Ps 139:4. It has been said that the words of all men and from all time are registered in the atmosphere, and may be faithfully recalled. Whether it be so or not, they are phonographed in the mind of God.— *G.R.* 
+4\. To our words: Ps 139:4. It has been said that the words of all men and from all time are registered in the atmosphere, and may be faithfully recalled. Whether it be so or not, they are phonographed in the mind of God.— *G. R.* 
 
 **Verse 2.** (*first clause* ). The importance of the commonest acts of life.
 
@@ -720,11 +720,11 @@ c) Produces carefulness of conduct.— *J.F.*
 
 **Verse 4.** 
 
-1\.Words on the tongue first *in* it, and in that stage known to God.
+1\. Words on the tongue first *in* it, and in that stage known to God.
 
-2\.Words on the tongue very numerous, yet all known.
+2\. Words on the tongue very numerous, yet all known.
 
-3\.Word on the tongue have wide meaning, yet known "altogether."
+3\. Word on the tongue have wide meaning, yet known "altogether."
 
 Lesson: Take heed of your words not yet spoken.
 
@@ -732,13 +732,13 @@ Lesson: Take heed of your words not yet spoken.
 
 **Verse 6.** 
 
-1\.God imperfectly known to man.
+1\. God imperfectly known to man.
 
-2\.Man perfectly known to God. It has been said that wise men never wonder; to us it appears they are always wondering.— *G.R.* 
+2\. Man perfectly known to God. It has been said that wise men never wonder; to us it appears they are always wondering.— *G. R.* 
 
 **Verse 6.** Theme: the facts of our religion, too wonderful to understand, are just those in which we have most reason to rejoice.
 
-1\.Prove it.
+1\. Prove it.
 
 a) The incomprehensible attributes of God give unspeakable value to his promises.
 
@@ -750,55 +750,55 @@ d) Inspiration makes the Bible the word of God, though none can give an account 
 
 e) The resurrection of the body, and its glorification, satisfy the deepest yearning of our soul (Ro 8:23 2Co 5:2-4); but none can conceive the how.
 
-2\.Apply its lessons.
+2\. Apply its lessons.
 
 a) Let us not stumble at doctrines simply because they are mysterious.
 
 b) Let us be thankful God has not kept back the great mysteries of our religion simply because there would be some offended at them.
 
-c) Let us readily receive all the joy which the mysteries bring, and calmly wait the light of heaven to make them better understood.— *J.F.* 
+c) Let us readily receive all the joy which the mysteries bring, and calmly wait the light of heaven to make them better understood.— *J. F.* 
 
 **Verses 7-10.** 
 
-1\.God is wherever I am. I fill but a small part of space; he fills all space.
+1\. God is wherever I am. I fill but a small part of space; he fills all space.
 
-2\.He is wherever I shall be. He does not move with me, but I move in him. "In him we live, and move", etc.
+2\. He is wherever I shall be. He does not move with me, but I move in him. "In him we live, and move", etc.
 
-3\.God is wherever I could be. "If I ascend to heaven", etc. "If I descend to Sheol", etc. If I travel with the sunbeams to the most distant part of the earth, or heavens, or the sea, I shall be in thy hand. No mention is here made of annihilation, as though that were possible; which would be the only escape from the Divine Presence; for he is not the God of the dead, of the annihilated, in the Sadducean meaning of the word, but of the living. Man is always somewhere, and God is always everywhere.— *G.R.* 
+3\. God is wherever I could be. "If I ascend to heaven", etc. "If I descend to Sheol", etc. If I travel with the sunbeams to the most distant part of the earth, or heavens, or the sea, I shall be in thy hand. No mention is here made of annihilation, as though that were possible; which would be the only escape from the Divine Presence; for he is not the God of the dead, of the annihilated, in the Sadducean meaning of the word, but of the living. Man is always somewhere, and God is always everywhere.— *G. R.* 
 
 **Verse 8.** The glory of heaven and the terror of hell: *"Thou."* 
 
 **Verses 9-10.** 
 
-1\.The greatest security and encouragement to a sinner supposed.
+1\. The greatest security and encouragement to a sinner supposed.
 
 a) The place—the remotest part of the sea; by which you are to understand the most obscure nook in the creation.
 
 b) His swift and speedy flight after the commission of sin, to this supposed refuge and sanctuary: "If I take the wings of the morning."
 
-2\.This supposed security and encouragement is utterly destroyed (Ps 139:10).
+2\. This supposed security and encouragement is utterly destroyed (Ps 139:10).
 
 — *See Flavel's "Seaman's Preservative in Foreign Countries."* 
 
 **Verses 11-12.** Darkness and light are both alike to God.
 
-1\.Naturally. "I form the light, and I create the darkness."
+1\. Naturally. "I form the light, and I create the darkness."
 
-2\.Providentially. Providential dispensations that are dark to us are light to him. We change with respect to him, not he to us.
+2\. Providentially. Providential dispensations that are dark to us are light to him. We change with respect to him, not he to us.
 
-3\.Spiritually. "Let him that walketh in darkness", etc. "Yea, though I walk", etc. He went before them in a pillar of cloud to guide them by day, and a pillar of fire to guide them by night. It was the same God in the day cloud and in the night light.— *G.R.* 
+3\. Spiritually. "Let him that walketh in darkness", etc. "Yea, though I walk", etc. He went before them in a pillar of cloud to guide them by day, and a pillar of fire to guide them by night. It was the same God in the day cloud and in the night light.— *G. R.* 
 
 **Verse 14.** *I am fearfully and wonderfully made.* This is true of man in his fourfold state.
 
-1\.In his primitive integrity.
+1\. In his primitive integrity.
 
-2\.In his deplorable depravity.
+2\. In his deplorable depravity.
 
-3\.In his regeneration.
+3\. In his regeneration.
 
-4\.In his fixed state in hell or heaven.
+4\. In his fixed state in hell or heaven.
 
-— *W.W.* 
+— *W. W.* 
 
 **Verses 17-18.** The Psalm dilates upon the omniscience of God. In no mournful manner, but the reverse.
 
@@ -840,15 +840,15 @@ c) They restore us to him. We are with God when we awake from sleep, from lethar
 
 **Verses 17-18.** 
 
-1\.The saint precious to God. He thinks of him tenderly; in countless ways; perpetually.
+1\. The saint precious to God. He thinks of him tenderly; in countless ways; perpetually.
 
-2\.God precious to the saints. Noting God's loving kindnesses, numbering them, newly awakening to them.
+2\. God precious to the saints. Noting God's loving kindnesses, numbering them, newly awakening to them.
 
-3\.The mingling of these loves: "I am still with thee."— *W.B.H.* 
+3\. The mingling of these loves: "I am still with thee."— *W. B. H.* 
 
 **Verse 18.** *When I awake I am still with thee.* 
 
-1\.Awaking is sometimes, yea, most commonly, taken in the *natural signification,* for the recovery from bodily sleep.
+1\. Awaking is sometimes, yea, most commonly, taken in the *natural signification,* for the recovery from bodily sleep.
 
 2\. *Morally,* for recovery from sin.
 
@@ -858,49 +858,49 @@ c) They restore us to him. We are with God when we awake from sleep, from lethar
 
 **Verse 18.** *I am still with thee.* 
 
-1\.By way of meditation.
+1\. By way of meditation.
 
-2\.In respect to communion.
+2\. In respect to communion.
 
-3\.In regard of action, and the businesses which are done by us.— *T. Horton.* 
+3\. In regard of action, and the businesses which are done by us.— *T. Horton.* 
 
 **Verse 19.** 
 
-1\.The doctrine of punishment the necessary outcome of omniscience.
+1\. The doctrine of punishment the necessary outcome of omniscience.
 
-2\.Inevitable judgment an argument for separation from sinners.— *W.B.H.* 
+2\. Inevitable judgment an argument for separation from sinners.— *W. B. H.* 
 
 **Verse 20.** Two scandalous offences against God.
 
-1\.To speak slanderously of him.
+1\. To speak slanderously of him.
 
-2\.To speak irreverently of him. These are committed only by his enemies.
+2\. To speak irreverently of him. These are committed only by his enemies.
 
 **Verses 21-22.** 
 
-1\.Such hatred one need not be ashamed of.
+1\. Such hatred one need not be ashamed of.
 
-2\.Such hatred one should be able to define: "grieved."
+2\. Such hatred one should be able to define: "grieved."
 
-3\.Such hatred one must labour to keep right. "Perfect hatred" is a form of hate consistent with all the virtues.
+3\. Such hatred one must labour to keep right. "Perfect hatred" is a form of hate consistent with all the virtues.
 
 **Verses 23-24.** The language,
 
-1\.Of self examination.
+1\. Of self examination.
 
 a) As in the sight of God.
 
 b) With a desire for the help of God: Ps 139:23. Look me through, and through, and tell me what thou thinkest of me.
 
-2\.Of self renunciation: "See if", etc. (Ps 139:24); any sin unpardoned, any evil disposition unsubdued, any evil habit unrestrained, that I may renounce it.
+2\. Of self renunciation: "See if", etc. (Ps 139:24); any sin unpardoned, any evil disposition unsubdued, any evil habit unrestrained, that I may renounce it.
 
-3\.Of self dedication: "Lead me", etc.: a submission entirely to divine guidance in the future.— *G.R.* 
+3\. Of self dedication: "Lead me", etc.: a submission entirely to divine guidance in the future.— *G. R.* 
 
 **Verse 24.** 
 
-1\.The evil way. Naturally in us; may be of different kinds; must be removed; removal needs Divine help.
+1\. The evil way. Naturally in us; may be of different kinds; must be removed; removal needs Divine help.
 
-2\.The everlasting way. There is but one, we need leading in it. It is the good old way, it does not come to an end, it leads to blessedness without end.
+2\. The everlasting way. There is but one, we need leading in it. It is the good old way, it does not come to an end, it leads to blessedness without end.
 
 **Verse 24.** (*last clause* ).—See "Spurgeon's Sermons," No. 903: "The Way Everlasting."
 

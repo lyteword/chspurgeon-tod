@@ -48,7 +48,7 @@ This may be called THE SANCTUS, or, THE HOLY, HOLY, HOLY PSALM, for the word "ho
 
 **Whole Psalm.** This psalm has three parts, in which the Lord is celebrated as He who is to come, as He who is, and as he who was. *John Albert Bengel,* 1687-1752.
 
-**Whole Psalm.** In each of the three strophes Jehovah is acknowledged in his peculiar covenant relation to his people. In the first he is "great in *Zion* "(Ps 99:2); in the second, he has "executed righteousness in *Jacob* "(Ps 99:4); and he is "Jehovah *our* God" (Ps 99:5); in the third, the great examples of this covenant relationship are cited from Israel's ancient history; and again God is twice claimed as "Jehovah *our* God" (Ps 99:8-9). *J.J.S. Perowne.* 
+**Whole Psalm.** In each of the three strophes Jehovah is acknowledged in his peculiar covenant relation to his people. In the first he is "great in *Zion* "(Ps 99:2); in the second, he has "executed righteousness in *Jacob* "(Ps 99:4); and he is "Jehovah *our* God" (Ps 99:5); in the third, the great examples of this covenant relationship are cited from Israel's ancient history; and again God is twice claimed as "Jehovah *our* God" (Ps 99:8-9). *J. J. S. Perowne.* 
 
 **Whole Psalm.** There are three psalms which begin with the words, "The Lord (JEHOVAH) reigneth." (Psalms 93, 97, 99.) This is the third and last of these Psalms; and it is remarkable that in this Psalm the words *He is holy* are repeated three times (Ps 99:3,5,9). Thus this Psalm is one of the links in the chain which connects the first revelation of God in Genesis with the full manifestation of the doctrine of the blessed Trinity, which is revealed in the commission of the risen Saviour to his apostles: "Go ye, and make disciples of all nations, baptizing them into the name of the Father, and of the Son, and of the Holy Ghost, "and which prepares the faithful to join in the heavenly Hallelujah of the church glorified, "Holy, holy, holy, Lord God Almighty, which was, and is, and is to come." The other links in this chain in the Old Testament are, the Aaronic benediction, in Nu 6:24-27; and the Seraphic Trisagion, in Isa 6:1-3. *Christopher Wordsworth.* 
 
@@ -106,7 +106,7 @@ Thus he connects "hory" with Jehovah's footstool, mentioned in the preceding cla
 
 **Verse 6.** *Priests.* The word *cohen* is not confined as a title to the priests of the Levitical order, it is applied to Melchizedek and others. Moses is included among God's priests in accordance with the true idea of a priest, as being the official exponent of the divine love and mercy—one who represented God though acting in the interests of man. *Robert JBaker Girdlestone, in "Synonyms of the Old Testament."* 
 
-**Verse 6.** *His priests.* At the foundation of this there is another spiritual idiom, that, namely, according to which all are called priests who possess what constitutes the essence of the ordinary priestly office (although not the externals), inward connection with God, free access to the throne of grace, and the gift and power of intercessory prayer. This figurative idiom occurs even in the law itself, compare Ex 19:6, where it is said to all Israel, "Ye shall be unto me a kingdom of priests, and an holy nation." *F.W. Hengstenberg.* 
+**Verse 6.** *His priests.* At the foundation of this there is another spiritual idiom, that, namely, according to which all are called priests who possess what constitutes the essence of the ordinary priestly office (although not the externals), inward connection with God, free access to the throne of grace, and the gift and power of intercessory prayer. This figurative idiom occurs even in the law itself, compare Ex 19:6, where it is said to all Israel, "Ye shall be unto me a kingdom of priests, and an holy nation." *F. W. Hengstenberg.* 
 
 **Verse 6.** Priests. The word *cohen*, Priest, is from *cahan, to plead a cause*, as an intercessor, mediator, or advocate; hence the strict propriety of its use here in reference to Moses. *C. H. S.* 
 
@@ -122,11 +122,11 @@ Thus he connects "hory" with Jehovah's footstool, mentioned in the preceding cla
 
 **Verse 8.** The words of this verse have in them three remarkable particulars.
 
-1\.The behaviour of the men it speaks of, which is partly good, and partly evil. The former verse saith, "They kept God's testimonies, and the ordinance that he gave them; "this insinuates (what was also expressed, Ps 99:6) that they used to call upon God; all this was very good. But withal they did sometimes some things amiss, they had some inventions, by-paths, and steps awry, which, as they needed pardon, so they occasionally incensed him so much against them that he would not let them escape altogether, without taking some vengeance for such untowardness.
+1\. The behaviour of the men it speaks of, which is partly good, and partly evil. The former verse saith, "They kept God's testimonies, and the ordinance that he gave them; "this insinuates (what was also expressed, Ps 99:6) that they used to call upon God; all this was very good. But withal they did sometimes some things amiss, they had some inventions, by-paths, and steps awry, which, as they needed pardon, so they occasionally incensed him so much against them that he would not let them escape altogether, without taking some vengeance for such untowardness.
 
-2\.God's graciousness in a double respect: 1, in answering them, granting their suits and supplications ordinarily. 2. In forgiving them, pardoning their failings and faults evermore; never dealing with them altogether according to their sins, but in the midst of any offence of theirs, or judgment of his, remembering mercy.
+2\. God's graciousness in a double respect: 1, in answering them, granting their suits and supplications ordinarily. 2. In forgiving them, pardoning their failings and faults evermore; never dealing with them altogether according to their sins, but in the midst of any offence of theirs, or judgment of his, remembering mercy.
 
-3\.His holy justice, notwithstanding, taking vengeance on their inventions; chastening them for some faults sometimes, and not letting them always go unpunished, how faithful soever they were generally, or how gracious soever he was eternally. *Herbert Palmer (1601-1647), in a Sermon entitled "The Glass of God's Providence."* 1644.
+3\. His holy justice, notwithstanding, taking vengeance on their inventions; chastening them for some faults sometimes, and not letting them always go unpunished, how faithful soever they were generally, or how gracious soever he was eternally. *Herbert Palmer (1601-1647), in a Sermon entitled "The Glass of God's Providence."* 1644.
 
 **Verse 8.** *Thou wast a God that forgavest them,* literally " *for* them; "on account of their intercessions. God did not destroy those for whom his devoted servants pleaded, in the day of threatened vengeance. Their sins, indeed, he visited with the rod of divine chastisement; but thcir forfeited lives he spared in answer to prayer. *John Morison.* 
 
@@ -142,93 +142,93 @@ Thus he connects "hory" with Jehovah's footstool, mentioned in the preceding cla
 
 **Verse 1.** 
 
-1\.The doctrine of divine sovereignty enunciated.
+1\. The doctrine of divine sovereignty enunciated.
 
-2\.The apprehension of divine sovereignty demanded. It ought to be spiritually apprehended. God wants to be King in the hearts of men. All mortals must tremble before the Immortal; especially the wicked.
+2\. The apprehension of divine sovereignty demanded. It ought to be spiritually apprehended. God wants to be King in the hearts of men. All mortals must tremble before the Immortal; especially the wicked.
 
-3\.The accessories of divine sovereignty hinted at. Sovereignty never forsakes the mercyseat. Angels are represented on the mercyseat, the ministers of sovereignty,
+3\. The accessories of divine sovereignty hinted at. Sovereignty never forsakes the mercyseat. Angels are represented on the mercyseat, the ministers of sovereignty,
 
-4\.The effect of divine sovereignty described. Men should be "moved" to fear and obey the King before whom angels bow. Men should be moved to seek the mercy which angels study. *William Durban.* 
+4\. The effect of divine sovereignty described. Men should be "moved" to fear and obey the King before whom angels bow. Men should be moved to seek the mercy which angels study. *William Durban.* 
 
 **Verse 1.** *He sitteth between the cherubims,* etc.
 
-1\.Statement made; where God dwells, on the mercyseat. To hear prayer, and confession, and to grant salvation.
+1\. Statement made; where God dwells, on the mercyseat. To hear prayer, and confession, and to grant salvation.
 
-2\.Effect produced—"Earth moved; "to admiration, to prayer, to sorrowful contrition, to draw near, etc. *E. G. Gange.* 
+2\. Effect produced—"Earth moved; "to admiration, to prayer, to sorrowful contrition, to draw near, etc. *E. G. Gange.* 
 
 **Verse 2.** 
 
-1\.God is great in Zion in Himself, all his perfections are here, which cannot be said of creation, or of his Law, or of the heaven of angels.
+1\. God is great in Zion in Himself, all his perfections are here, which cannot be said of creation, or of his Law, or of the heaven of angels.
 
-2\.Great in his works of saving sinners, which he cannot do elsewhere.
+2\. Great in his works of saving sinners, which he cannot do elsewhere.
 
-3\.Great in his glory as displayed in redemption through his Son.
+3\. Great in his glory as displayed in redemption through his Son.
 
-4\.Great in his love to his redeemed. *G. R.* 
+4\. Great in his love to his redeemed. *G. R.* 
 
 **Verse 2.** *The Lord is great in Zion.* 
 
-1\.In the condescension he displays—Zion is his "habitation, "his "rest."
+1\. In the condescension he displays—Zion is his "habitation, "his "rest."
 
-2\.In the glory he manifests—power and glory are in the sanctuary, Ps 68:2.
+2\. In the glory he manifests—power and glory are in the sanctuary, Ps 68:2.
 
-3\.In the assemblage he draws. "Every one in Zion appeareth before God, "Ps 84:7.
+3\. In the assemblage he draws. "Every one in Zion appeareth before God, "Ps 84:7.
 
-4\.In the blessings he imparts.
+4\. In the blessings he imparts.
 
-5\.In the authority he exerts. *W. Jackson.* 
+5\. In the authority he exerts. *W. Jackson.* 
 
 **Verse 3.** The terrors of the Lord, connected with holiness, and worthy of praise.
 
 **Verse 4.** 
 
-1\.Trace the process of the working of right principles through three stages—Love, Establishment, Execution.
+1\. Trace the process of the working of right principles through three stages—Love, Establishment, Execution.
 
-2\.Illustrate from God's character and action.
+2\. Illustrate from God's character and action.
 
-3\.Apply to national, and to daily, life. *C. D.* 
+3\. Apply to national, and to daily, life. *C. D.* 
 
 **Verse 5.** *Exalt the Lord your God.* 
 
-1\.Why? For what he is to you. For what he has done for you. For what he has told you.
+1\. Why? For what he is to you. For what he has done for you. For what he has told you.
 
-2\.How? In your affection. In your meditation. In your supplication. In your conversation. In your profession. In your consecration. In your co-operation. In your expectation. *W. J.* 
+2\. How? In your affection. In your meditation. In your supplication. In your conversation. In your profession. In your consecration. In your co-operation. In your expectation. *W. J.* 
 
 **Verse 5.** 
 
-1\.The loyal enthusiasln of worship, it exalts the Lord.
+1\. The loyal enthusiasln of worship, it exalts the Lord.
 
-2\.The humble diffidence of worship, not aspiring to his exaltation it kneels at his footstool.
+2\. The humble diffidence of worship, not aspiring to his exaltation it kneels at his footstool.
 
-3\.The good reason for worship.—"He is holy." *C. D.* 
+3\. The good reason for worship.—"He is holy." *C. D.* 
 
 **Verses 6-7.** 
 
-1\.Prayer offered. Moses the prophet, Aaron the priest, Samuel the ruler, "They called, "&c.
+1\. Prayer offered. Moses the prophet, Aaron the priest, Samuel the ruler, "They called, "&c.
 
-2\.Prayer answered. "He answered them, ""he spake, "&c.
+2\. Prayer answered. "He answered them, ""he spake, "&c.
 
-3\.Prayer vindicated. They kept the other testimonies, &c. *G. R.* 
+3\. Prayer vindicated. They kept the other testimonies, &c. *G. R.* 
 
 **Verse 7.** (first clause). The revelation of the cloud, or what God foreshadowed to Israel in the cloudy pillar.
 
-1\.That God was willing to commune with man.
+1\. That God was willing to commune with man.
 
-2\.That sinful man could not see God and live.
+2\. That sinful man could not see God and live.
 
-3\.That God should become incarnate, veiled in flesh as in the cloud.
+3\. That God should become incarnate, veiled in flesh as in the cloud.
 
-4\.That he should be their shelter, protector, guide.
+4\. That he should be their shelter, protector, guide.
 
-5\.That God manifest in the flesh should lead them to the Promised Land—Heaven. *C. D.* 
+5\. That God manifest in the flesh should lead them to the Promised Land—Heaven. *C. D.* 
 
 **Verse 8.** Mercy and judgment, or the sea of glass mingled with fire. *C. D.* 
 
 **Verse 8.** Observe,
 
-1\.That God's vengeance for sin does not prevent his forgiveness of sin; and,
+1\. That God's vengeance for sin does not prevent his forgiveness of sin; and,
 
-2\.That God's forgiveness of sin does not prevent his taking vengeance. *Stephen Bridge* 
+2\. That God's forgiveness of sin does not prevent his taking vengeance. *Stephen Bridge* 
 
 **Verse 9.** *The Lord our God.* A very sweet topic will be found in the consideration of the questions, "In what respect is Jehovah ours? and in what relations does he stand to his people?"
 

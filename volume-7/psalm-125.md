@@ -94,13 +94,13 @@ These words must have been in Hebrew ears as sublime as they were comforting, an
 
 **Verse 3.** *The lot of the righteous.* There is a fourfold lot belonging to the faithful.
 
-1\.The lot of the saints is the sufferings of the saints. "All that will live godly in Christ Jesus shall suffer persecution:" 2Ti 3:12.
+1\. The lot of the saints is the sufferings of the saints. "All that will live godly in Christ Jesus shall suffer persecution:" 2Ti 3:12.
 
-2\.The lot of the saints is also that light and happiness they have in this world. The lot is "fallen unto me in pleasant places; yea, I have a goodly heritage:" Ps 26:6. When David sat at he sheepfold, which was his lot, he was thus prepared for the kingdom of Israel which was given him by lot from God.
+2\. The lot of the saints is also that light and happiness they have in this world. The lot is "fallen unto me in pleasant places; yea, I have a goodly heritage:" Ps 26:6. When David sat at he sheepfold, which was his lot, he was thus prepared for the kingdom of Israel which was given him by lot from God.
 
-3\.But more specially faith, grace, and sanctification; which give them just right and title to the inheritance of glory. Heaven is theirs now; though not in possession, yet in succession. They have the earnest of it; let them grow up to stature and perfection, and take it.
+3\. But more specially faith, grace, and sanctification; which give them just right and title to the inheritance of glory. Heaven is theirs now; though not in possession, yet in succession. They have the earnest of it; let them grow up to stature and perfection, and take it.
 
-4\.Lastly, they have the lot of heaven. Hell is the lot of the wicked: "Behold at evening tide trouble; and before the morning he is not. This is the portion of them that spoil us, and the lot of them that rob us": Isa 27:14. Therefore it is said of Judas, that he went "to his own place": Ac 1:25. "Upon the wicked he shall rain snares, fire and brimstone, and an horrible tempest; this shall be the portion of their cup": Ps 11:6. But the lot of the righteous is faith, and the end of their faith the salvation of their souls. God gives them heaven, not for any foreseen worthiness in the receivers, for no worthiness of our own can make us our father's heirs; but for his own mercy and favour in Christ, preparing heaven for us, and us for heaven. So that upon his decree it is allotted to us; and unless heaven could lose God, we cannot lose heaven.
+4\. Lastly, they have the lot of heaven. Hell is the lot of the wicked: "Behold at evening tide trouble; and before the morning he is not. This is the portion of them that spoil us, and the lot of them that rob us": Isa 27:14. Therefore it is said of Judas, that he went "to his own place": Ac 1:25. "Upon the wicked he shall rain snares, fire and brimstone, and an horrible tempest; this shall be the portion of their cup": Ps 11:6. But the lot of the righteous is faith, and the end of their faith the salvation of their souls. God gives them heaven, not for any foreseen worthiness in the receivers, for no worthiness of our own can make us our father's heirs; but for his own mercy and favour in Christ, preparing heaven for us, and us for heaven. So that upon his decree it is allotted to us; and unless heaven could lose God, we cannot lose heaven.
 
 Here, then, consider how the lottery of Canaan may shadow out to us that blessed land of promise whereof the other was a type.— *Thomas Adams.* 
 
@@ -142,25 +142,25 @@ Here, then, consider how the lottery of Canaan may shadow out to us that blessed
 
 **Whole Psalm.** 
 
-1\.The mark of the covenant: "They that trust."
+1\. The mark of the covenant: "They that trust."
 
-2\.The security of the covenant (Ps 125:1-2).
+2\. The security of the covenant (Ps 125:1-2).
 
-3\.The rod of the covenant (Ps 125:3).
+3\. The rod of the covenant (Ps 125:3).
 
-4\.The tenor of the covenant (Ps 125:4).
+4\. The tenor of the covenant (Ps 125:4).
 
-5\.The spirit of the covenant,—"peace."
+5\. The spirit of the covenant,—"peace."
 
 **Verse 1.** See "Spurgeon's Sermons," No. 1,450: "The Immortality of the Believer."
 
 **Verses 1-2.** 
 
-1\.The believer's singularity: he trusts in Jehovah.
+1\. The believer's singularity: he trusts in Jehovah.
 
-2\.The believer's stability: "abideth for ever."
+2\. The believer's stability: "abideth for ever."
 
-3\.The believer's safety: "As the mountains," etc.
+3\. The believer's safety: "As the mountains," etc.
 
 **Verse 2.** The all surrounding presence of Jehovah the glory, safety, and eternal blessedness of his people. Yet this to the wicked would be hell.
 
@@ -184,7 +184,7 @@ b) Omnipotent Circumvallation, suggesting—God's determination; Satan's dismay.
 
 **Verse 3.** Observe,
 
-1\.The Permission implied. The rod of the wicked may come upon the lot of the righteous. Why?
+1\. The Permission implied. The rod of the wicked may come upon the lot of the righteous. Why?
 
 a) That wickedness may be free to manifest itself.
 
@@ -194,9 +194,9 @@ c) That the righteousness of God's retribution may be seen.
 
 d) That the consolations of the righteous may abound. 2Co 1:5.
 
-2\.The Permanency denied: "The rod...shall *not rest* ", etc. Illustrate by history of Job, Joseph, David, Daniel, Christ, martyrs, etc.
+2\. The Permanency denied: "The rod...shall *not rest* ", etc. Illustrate by history of Job, Joseph, David, Daniel, Christ, martyrs, etc.
 
-3\.The Probity tried and preserved: "Lest the righteous put forth", etc., by rebelling, sinful compromise, etc.
+3\. The Probity tried and preserved: "Lest the righteous put forth", etc., by rebelling, sinful compromise, etc.
 
 a) God will have it tried, to prove its worth, beauty, etc.
 
@@ -204,29 +204,29 @@ b) But no more than sufficiently tried.— *John Field, of Sevenoaks.*
 
 **Verses 3-4.** 
 
-1\.The good defined: "The upright in heart"; such as do not "turn aside", and are not "workers of iniquity."
+1\. The good defined: "The upright in heart"; such as do not "turn aside", and are not "workers of iniquity."
 
-2\.The good distressed: by "the rod of the wicked."
+2\. The good distressed: by "the rod of the wicked."
 
-3\.The good delivered: "Do good"; fulfil thy promise (Ps 125:3).— *W. H. J. Page.* 
+3\. The good delivered: "Do good"; fulfil thy promise (Ps 125:3).— *W. H. J. Page.* 
 
 **Verse 4.** 
 
-1\.What it is to be good.
+1\. What it is to be good.
 
-2\.What it is for God to do us good.
+2\. What it is for God to do us good.
 
 **Verse 5.** Temporary Professors.
 
-1\.The crucial test: "They turn aside."
+1\. The crucial test: "They turn aside."
 
-2\.The crooked policy: they make crooked ways their own.
+2\. The crooked policy: they make crooked ways their own.
 
-3\.The crushing doom: "led forth with workers of iniquity."
+3\. The crushing doom: "led forth with workers of iniquity."
 
 **Verse 5.** Hypocrites.
 
-1\.Their ways: "crooked."
+1\. Their ways: "crooked."
 
 a) Like the way of a winding stream, seeking out the fair level, or the easy descent.
 
@@ -234,7 +234,7 @@ b) Like the course of a tacking ship, which skilfully makes every wind to drive 
 
 c) Ways constructed upon no principle but that of pure selfishness.
 
-2\.Their conduct under trial. They "turn aside."
+2\. Their conduct under trial. They "turn aside."
 
 a) From their religious profession.
 
@@ -242,7 +242,7 @@ b) From their former companions.
 
 c) To become the worst scorners of spiritual things, and the most violent calumniators of spiritually minded men.
 
-3\.Their doom: "The Lord shall," etc.
+3\. Their doom: "The Lord shall," etc.
 
 a) In the judgment they shall be classed with the most flagrant of sinners; "with the workers of iniquity."
 
@@ -254,7 +254,7 @@ c) They shall meet with terrible execution with the wicked in hell.— *J. Field
 
 **Verse 5.** (*last clause* ). Enquire,
 
-1\.Who are the Israel?
+1\. Who are the Israel?
 
 a) Converted ones.
 
@@ -262,7 +262,7 @@ b) Circumcised in heart.
 
 c) True worshippers.
 
-2\.What is the peace?
+2\. What is the peace?
 
 a) Peace of conscience.
 
@@ -272,7 +272,7 @@ c) Of a settled and satisfied heart.
 
 d) Of eternal glory, in reversion.
 
-3\.Why the certainty ("shall be")?
+3\. Why the certainty ("shall be")?
 
 a) Christ has made peace for them.
 

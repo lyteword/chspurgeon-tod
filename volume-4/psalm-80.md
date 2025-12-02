@@ -90,7 +90,7 @@ So will not we go back from thee. Under the leadership of one whom God had chose
 
 **Title &mdash;** It is an Asaph prayer again, full of pleas in Israel's behalf. It is as if they had before them Isa 63:1, "Then he remembered the days of old." They call to his mind the days of *Joseph,* when (Ge 49:24) the Lord miraculously fed them in Egypt. And then the *tabernacle days,* when (first, since the days of Eden), the Lord was known to dwell between the cherubim, on the mercyseat. They call to his mind *wilderness times* (verse 2), when their march was gladdened by his presence, "Ephraim, Benjamin, and Manasseh" looking on the Pillar of Glory as it rose before them, the guide and partner of their way (see Nu 10:32-34) "O God, bring us back again! Cause thy face to shine! and all shall be well again!" *Andrew A. Bonar.* 
 
-**Verse 1.** The prophet does not nakedly begin his prayer, but mingles therewith certain titles, by which he most aptly addresses God, and urges his cause. He does not say, O you who sustain and govern all things which are in heaven and in earth, who hast placed thy dwelling place above the heaven of heavens; but, Thou who art the Shepherd of Israel, thou that leadest Joseph like a flock, thou that dwellest between the cherubims. Those things which enhance the favour and providence of God revealed to Israel, he brings to remembrance that he might nourish and strengthen confidence in prayer...Let us learn from this example to feed and fortify our confidence in praying to God, with the marks of that divine and paternal kindness revealed to us in Christ our Shepherd and propitiation. *Musculus.* 
+**Verse 1.** The prophet does not nakedly begin his prayer, but mingles therewith certain titles, by which he most aptly addresses God, and urges his cause. He does not say, O you who sustain and govern all things which are in heaven and in earth, who hast placed thy dwelling place above the heaven of heavens; but, Thou who art the Shepherd of Israel, thou that leadest Joseph like a flock, thou that dwellest between the cherubims. Those things which enhance the favour and providence of God revealed to Israel, he brings to remembrance that he might nourish and strengthen confidence in prayer... Let us learn from this example to feed and fortify our confidence in praying to God, with the marks of that divine and paternal kindness revealed to us in Christ our Shepherd and propitiation. *Musculus.* 
 
 **Verse 1.** *"Give ear, O Shepherd of Israel."* It is the part of the shepherd to give ear to the bleatings and cries of the sheep, to call them to mind, that he may readily run to their help. *Venema.* 
 
@@ -102,7 +102,7 @@ Now, can you watch such a scene, and not think of that Shepherd who leadeth Jose
 
 **Verse 1.** *"Thou that dwellest between the cherubims."* From this phrase the following ideas may be derived:
 
-1\.That God is a King, sitting on his throne, and surrounded by his *"ministers."* His throne is the heavens, the symbol of which is the holy of holies, his *"ministers"* are *"angels, "* and are elsewhere distinguished by that name, as Genesis 3; Ps 18:11;
+1\. That God is a King, sitting on his throne, and surrounded by his *"ministers."* His throne is the heavens, the symbol of which is the holy of holies, his *"ministers"* are *"angels, "* and are elsewhere distinguished by that name, as Genesis 3; Ps 18:11;
 
 2\.that God is the *"King"* of Israel, dwelling among them by the external symbol of his presence. His most illustrious ministers are depicted by the *"Cherubims, "* who comprehend his heavenly as well as earthly ministers;
 
@@ -126,37 +126,37 @@ Now, can you watch such a scene, and not think of that Shepherd who leadeth Jose
 
 **Verse 8.** *"Thou hast brought a vine out of Egypt, "* etc. The blessings are here placed before us in figurative language, taken from the *vine,* and the care usually expended upon it. They are,
 
-1\.The transplanting of the vine from an unfruitful to a very rich and fertile soil.
+1\. The transplanting of the vine from an unfruitful to a very rich and fertile soil.
 
-2\.Its plantation and care.
+2\. Its plantation and care.
 
-3\.Its incredible fruitfulness derived hence. *Venema.* 
+3\. Its incredible fruitfulness derived hence. *Venema.* 
 
 **Verses 8-19.** Mant's version of the passage is so exquisite that we quote it in full:
 
-8\.Thy hands from Egypt brought a goodly vine, And planted fair in fertile Palestine;
+8\. Thy hands from Egypt brought a goodly vine, And planted fair in fertile Palestine;
 
-9\.Cleared for its grasping roots the unpeopled land, And gave it high to rise, and firm to stand.
+9\. Cleared for its grasping roots the unpeopled land, And gave it high to rise, and firm to stand.
 
-10\.Far over the eternal hills her shadow spread, Her tendrils wreathed the cedar's towering head;
+10\. Far over the eternal hills her shadow spread, Her tendrils wreathed the cedar's towering head;
 
-11\.And, as the centre of the land she stood, Her branches reaches the sea, her boughs the eastern flood.
+11\. And, as the centre of the land she stood, Her branches reaches the sea, her boughs the eastern flood.
 
-12\.Why hast thou now her hedges rent away, And left her bare, the passing traveller's prey?
+12\. Why hast thou now her hedges rent away, And left her bare, the passing traveller's prey?
 
-13\.The field fed beast devours each tender shoot, Fierce from the wood the boar assails her root.
+13\. The field fed beast devours each tender shoot, Fierce from the wood the boar assails her root.
 
-14\.Return, O God; from heaven thine eyes incline; Behold, and visit this neglected vine:
+14\. Return, O God; from heaven thine eyes incline; Behold, and visit this neglected vine:
 
-15\.Regard the plant, thou once didst love so well, And chief thy pleasant branch, the hope of Israel.
+15\. Regard the plant, thou once didst love so well, And chief thy pleasant branch, the hope of Israel.
 
-16\.Burnt though she be and rent, her haughty foe The deathly terrors of thy wrath shall know.
+16\. Burnt though she be and rent, her haughty foe The deathly terrors of thy wrath shall know.
 
-17\.But on the man, by thee with strength array'd, The Son of Man by thee for conquest made,
+17\. But on the man, by thee with strength array'd, The Son of Man by thee for conquest made,
 
-18\.Thy hand shall rest; till we thy triumph see, Resound thy praise, and still remember thee.
+18\. Thy hand shall rest; till we thy triumph see, Resound thy praise, and still remember thee.
 
-19\.Turn us again, thou God of heaven's high powers, Beam with thy radiance forth, and peace shall still be ours.
+19\. Turn us again, thou God of heaven's high powers, Beam with thy radiance forth, and peace shall still be ours.
 
 **Verse 14.** *Look down from heaven, and behold.* This prayer is fit for none but the truly contrite, and those who are in heart returning. Otherwise, with what conscience could we entreat God to look down from heaven and behold our affairs? Should we not inflame his anger all the more, if, besides living in sin, we dared to challenge the all holy eyes of God to behold from heaven our wickedness? *Musculus.* 
 
@@ -200,13 +200,13 @@ Now, can you watch such a scene, and not think of that Shepherd who leadeth Jose
 
 **Verse 5.** Unpalatable provender.
 
-1\.Analyze the Provision.
+1\. Analyze the Provision.
 
-2\.Note the hand which sends it.
+2\. Note the hand which sends it.
 
-3\.Consider the healthfulness of the diet.
+3\. Consider the healthfulness of the diet.
 
-4\.Remember the alleviating accompaniments.
+4\. Remember the alleviating accompaniments.
 
 **Verse 7.** Conversion, communion, confidence of salvation.
 
@@ -214,11 +214,11 @@ Now, can you watch such a scene, and not think of that Shepherd who leadeth Jose
 
 **Verse 12.** 
 
-1\.The hedges of the Church.
+1\. The hedges of the Church.
 
-2\.Their removal.
+2\. Their removal.
 
-3\.The deplorable consequences.
+3\. The deplorable consequences.
 
 **Verse 13.** What are the greatest enemies of the Church? Where do they come from? How shall we defeat them?
 

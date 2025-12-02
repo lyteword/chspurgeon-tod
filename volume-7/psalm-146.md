@@ -118,11 +118,11 @@ fifthly, if their bodies only were dissolved, and their intentions and actions m
 
 **Verse 4.** *He returneth to his earth.* The earth—the dust—is *"his."* 
 
-1\.It is *"his"* as that from which he was made: he turns back to what he was, Ge 3:19. "Dust thou art, and unto dust shalt thou return."
+1\. It is *"his"* as that from which he was made: he turns back to what he was, Ge 3:19. "Dust thou art, and unto dust shalt thou return."
 
-2\.The earth—the dust—the grave is *"his",* and it is his home—the place where he will abide.
+2\. The earth—the dust—the grave is *"his",* and it is his home—the place where he will abide.
 
-3\.It is *"his"* as it is the only property which he has in reversion. All that a man—a prince, a nobleman, a monarch, a millionaire—will soon have will be his grave, his few feet of earth. *That* will be his by light of possession, by the fact that for the time being he will occupy it, and not another man! But that, too, may soon become another man's grave, so that even there he is a tenant only for a time; he has no permanent possession *even of a grave.* — *Albert Barnes.* 
+3\. It is *"his"* as it is the only property which he has in reversion. All that a man—a prince, a nobleman, a monarch, a millionaire—will soon have will be his grave, his few feet of earth. *That* will be his by light of possession, by the fact that for the time being he will occupy it, and not another man! But that, too, may soon become another man's grave, so that even there he is a tenant only for a time; he has no permanent possession *even of a grave.* — *Albert Barnes.* 
 
 **Verse 4.** *His breath goeth forth.* There is the death's head, the mortality of man indeed, that a breath is as much as his being is worth. Our soul, that *spiraculum vitarum* (breath of lives), the Lord inspired it, not into Adam's eye, or ear, or mouth, but into his nostrils, which may show to man his imbecility, *cujus anima in naribus,* whose soul is in his nostrils, and depends upon a breath, as it were; for the very soul must away if but breath expires; soul and breath go forth together. Now hear this, all ye people, ponder it high and low; your castle is built upon the very air, the subsistence is in your nostrils, in a breath that is gone in the twinkling of an eye. Wherefore David maketh a question, saying, "Lord, what is man?" He answereth himself also: "Man is a vanishing shadow" (Ps 144:3-4), a shadow of smoke, or the dream of a shadow rather, as the poet speaketh. Blessed therefore are the poor in spirit; this advantage have all afflicted ones, that they have checks enough to call them home, and make them see they be but men. The curtain of honour, profit, or pleasure, hard it is and rare to draw aside when it is spread over us: "man in honour understandeth not" (Ps 49:20). To great ones therefore be it spoken; the Psalm intends it of very princes: *"His breath goeth forth."* See we now the continuity, *exit, "it goeth"* as if it were now presently in its passage: showing this, that *Homo vivens continue moritur,* that life is a continued death; our candle lightens, consumes, and dies: as in the passing of an hourglass, every minute some sand faileth, and the glass once turned, no creature can intreat the sands to stay, but they continue to fall till all are gone: so is our life, it shortens and dies every minute, and we cannot beg a minute of time back, and that which we call death is but the termination, or consummation of it.— *Thomas Williamson; in a Sermon, entitled, "A Comfortable Meditation of Humane Frailtie and Divine Mercie",* 1630.
 
@@ -130,19 +130,19 @@ fifthly, if their bodies only were dissolved, and their intentions and actions m
 
 **Verse 4.** *His breath* (or spirit) *goeth forth.* Now I come to the liberty of the spirit, that it recedes inviolate; 1. In Act; *"it goeth":* 2. In Essence; *"it goeth forth."* 
 
-1\.Our spirit is *free in the act;* it is not snatched, as it were; *"it goeth."* A soul in life sealed to eternity by the first fruits of the Spirit hath its good issue, its free passing, its hopes even in death; for let this breath fade, *fidelis Deus,* God who cannot lie, will stand nigh us in that exigency, and begin to help where man leaveth. The Holy Spirit, whose name is the Comforter, will not omit and leave off his own act or office in the great needs of death. Hence good Hilarion, having served the Lord Christ seventy years, checks his soul that it was so loath at the last to go forth, saying, *Egredere, O anima mea, egredere,* "Go forth, my soul, go forth." Devout Simeon sues for a manumission: "Lord, now lettest thou thy servant depart in peace, according to thy word." The spirit goeth forth; it passes freely; because it taketh up or embraces the cross of Christ, as he commandeth us to do. But is the act at our will and liberty? Not simply. We may not *projicere animam,* thrust or cast forth our breath or spirit; *spiritus exit,* it goeth forth. Strive, we must, to cast the world out of us; we may not cast ourselves out of the world. Saint Paul dares not dissolve himself, though he could wish to be dissolved: God must part that which he joins; God giveth, and God taketh away; and if God say, as he doth to Lazarus, *Exi foras,* Come forth; with faithful Stephen we must resign our spirit and all into his hands. When God biddeth us yoke, he is the wisest man that yieldeth his neck most willingly. When our great Captain recalls us, we must take the retreat in good part. But it is heathenish to force out the soul; for when the misdeeming flesh, amidst our disasters, will not listen with patience for God's call, but rather shake off the thought of divine providence quite, then are we ready to curse God and die, and that is probably to leap *e fumo in flammam,* out of the sin of self murder into hell. No, but God will have our spirits to pass forth upon good terms. *Spiritus exit, "the spirit goeth forth."* 
+1\. Our spirit is *free in the act;* it is not snatched, as it were; *"it goeth."* A soul in life sealed to eternity by the first fruits of the Spirit hath its good issue, its free passing, its hopes even in death; for let this breath fade, *fidelis Deus,* God who cannot lie, will stand nigh us in that exigency, and begin to help where man leaveth. The Holy Spirit, whose name is the Comforter, will not omit and leave off his own act or office in the great needs of death. Hence good Hilarion, having served the Lord Christ seventy years, checks his soul that it was so loath at the last to go forth, saying, *Egredere, O anima mea, egredere,* "Go forth, my soul, go forth." Devout Simeon sues for a manumission: "Lord, now lettest thou thy servant depart in peace, according to thy word." The spirit goeth forth; it passes freely; because it taketh up or embraces the cross of Christ, as he commandeth us to do. But is the act at our will and liberty? Not simply. We may not *projicere animam,* thrust or cast forth our breath or spirit; *spiritus exit,* it goeth forth. Strive, we must, to cast the world out of us; we may not cast ourselves out of the world. Saint Paul dares not dissolve himself, though he could wish to be dissolved: God must part that which he joins; God giveth, and God taketh away; and if God say, as he doth to Lazarus, *Exi foras,* Come forth; with faithful Stephen we must resign our spirit and all into his hands. When God biddeth us yoke, he is the wisest man that yieldeth his neck most willingly. When our great Captain recalls us, we must take the retreat in good part. But it is heathenish to force out the soul; for when the misdeeming flesh, amidst our disasters, will not listen with patience for God's call, but rather shake off the thought of divine providence quite, then are we ready to curse God and die, and that is probably to leap *e fumo in flammam,* out of the sin of self murder into hell. No, but God will have our spirits to pass forth upon good terms. *Spiritus exit, "the spirit goeth forth."* 
 
-2\.Secondly, the spirit goeth *free or inviolate in essence;* death is not the end, but the outgoing of the soul, a transmigration or journey from one place to another. *"It goeth forth";* so the character of our weakness we see in the issue; it is an argument of our eternity; for man indeed is perishing, but so is not his spirit. The phoenix goes forth or out of his ashes, "the spirit returneth to God who gave it" (Ec 12:7); that is, it abides still; and as in the body it pleased God to inclose the soul for a season, so it may as well exist elsewhere without it, if God will; for it hath no rise at all from the clay, yea, it bears in it immortality, an image of that breast whence it is breathed. The separate and very abstract acts of the spirit, even while it is in the body, the wondrous visions of the Lord to his prophets, usually when their bodies were bound up in sleep; Saint Paul's rapture when he knew not whether he was in the body or out of it; the admirable inventions and arts of men, manifest the soul's self consisting. Not Socrates, and Cato, and the civilised heathen only, but the very savages believe this, and so entertain death, *ut exitum, non ut exitium,* as a dissolution, not as a destruction: *spiritus exit, "his spirit goeth forth."* — *Thomas Williamson.* 
+2\. Secondly, the spirit goeth *free or inviolate in essence;* death is not the end, but the outgoing of the soul, a transmigration or journey from one place to another. *"It goeth forth";* so the character of our weakness we see in the issue; it is an argument of our eternity; for man indeed is perishing, but so is not his spirit. The phoenix goes forth or out of his ashes, "the spirit returneth to God who gave it" (Ec 12:7); that is, it abides still; and as in the body it pleased God to inclose the soul for a season, so it may as well exist elsewhere without it, if God will; for it hath no rise at all from the clay, yea, it bears in it immortality, an image of that breast whence it is breathed. The separate and very abstract acts of the spirit, even while it is in the body, the wondrous visions of the Lord to his prophets, usually when their bodies were bound up in sleep; Saint Paul's rapture when he knew not whether he was in the body or out of it; the admirable inventions and arts of men, manifest the soul's self consisting. Not Socrates, and Cato, and the civilised heathen only, but the very savages believe this, and so entertain death, *ut exitum, non ut exitium,* as a dissolution, not as a destruction: *spiritus exit, "his spirit goeth forth."* — *Thomas Williamson.* 
 
 **Verse 4.** *His breath goeth forth*, etc. The Hebrew gives the idea not that the *spirit,* but the mortal part of man will return to the dust. "His *soul* (fem.xwr) goeth forth", *i.e.,* returneth to God; "returneth *he* (masc.bv) to his earth." As in Ec 12:7: *"He"* is the mortal man of clay, but "his *breath"* (*soul*) is the real immortal man.— *Simon de Muis.* 
 
 **Verse 4.** *He returneth to his earth.* Returning, in its proper notion, is a going back to that place from whence we came, so that in this clause here is a threefold truth, implied, expressed, inferred.
 
-1\.That which is *implied* in this phrase of returning is, that man in respect of his body came from the earth; and as it is here implied, so it is expressed concerning the first man by Moses (Ge 2:7). "The Lord God formed man" (that is, the *body* of man) "of the dust"; or according to the Hebrew "dust of the ground"; and by St. Paul (1Co 15:47), where he saith, "The first man is of the earth, earthy." True it is, we are formed in our mother's womb; but yet inasmuch as we all came from the first man, we are truly said to come from *the earth;* only with this difference, that he immediately, we mediately are framed out of the earth. This truth was engraven in full characters upon the name of the first man, who is called *Adam,* from a word that signifieth *red earth,* and that very word is here used, perhaps to mind us of that earth whereof man was first made; yea, according to the usual etymology, the name *homo,* which in the Latin is a common name to both sexes, is derived *ab humo,* from *the ground.* For this reason it is that the earth is called by the poet *magna parens,* the great parent of all mankind, and in the answer of the Oracle, *our mother;* and in this respect we are said by Eliphaz "to dwell in houses of clay, whose foundation is in the dust", Job 4:19.
+1\. That which is *implied* in this phrase of returning is, that man in respect of his body came from the earth; and as it is here implied, so it is expressed concerning the first man by Moses (Ge 2:7). "The Lord God formed man" (that is, the *body* of man) "of the dust"; or according to the Hebrew "dust of the ground"; and by St. Paul (1Co 15:47), where he saith, "The first man is of the earth, earthy." True it is, we are formed in our mother's womb; but yet inasmuch as we all came from the first man, we are truly said to come from *the earth;* only with this difference, that he immediately, we mediately are framed out of the earth. This truth was engraven in full characters upon the name of the first man, who is called *Adam,* from a word that signifieth *red earth,* and that very word is here used, perhaps to mind us of that earth whereof man was first made; yea, according to the usual etymology, the name *homo,* which in the Latin is a common name to both sexes, is derived *ab humo,* from *the ground.* For this reason it is that the earth is called by the poet *magna parens,* the great parent of all mankind, and in the answer of the Oracle, *our mother;* and in this respect we are said by Eliphaz "to dwell in houses of clay, whose foundation is in the dust", Job 4:19.
 
-2\.That which is *expressed* is, that man (when he dieth) returneth to the earth,pantez luomenoi koniz esmensaith the poet, "We are all dust when dissolved." As the white snow when melted is black water; so flesh and blood when bereaved of the soul become dust and ashes: in which respect St. Paul giveth this epithet of "vile" to our bodies. Php 3:21. Indeed, man's original being from the earth, he had a natural propensity to earth; according to the maxim, *Omne principiatum sequitur naturam principiorum,* "Everything hath an aptitude of returning to the principle whence it cometh"; but yet had he not *turned away* from God he had never actually *returned* thither. It is sin which hath brought upon man a necessity of dying, and that dying brings a necessity of returning to the earth: in which respect it is observable, that the threat, "thou shalt die the death" (Ge 2:17), which was denounced against man before his fall, being afterwards renewed (Ge 3:19), is explained (as to temporal death) by these words, "to dust thou shalt return"; so that now the motion of the little world man is like that of the great, *Circulare ab eodem puncto ad idem,* from the same to the same; and that as in his *soul* from God to God, so in his *body* from the earth to the earth. The rivers come from the sea, and they return thither. The sun ariseth out of the east, and thither it returneth. Man is formed of the earth, and into earth he is again transformed: with which agreeth that of the poet Lucretius: Cedit item retro de terra quod fuit ante.
+2\. That which is *expressed* is, that man (when he dieth) returneth to the earth,pantez luomenoi koniz esmensaith the poet, "We are all dust when dissolved." As the white snow when melted is black water; so flesh and blood when bereaved of the soul become dust and ashes: in which respect St. Paul giveth this epithet of "vile" to our bodies. Php 3:21. Indeed, man's original being from the earth, he had a natural propensity to earth; according to the maxim, *Omne principiatum sequitur naturam principiorum,* "Everything hath an aptitude of returning to the principle whence it cometh"; but yet had he not *turned away* from God he had never actually *returned* thither. It is sin which hath brought upon man a necessity of dying, and that dying brings a necessity of returning to the earth: in which respect it is observable, that the threat, "thou shalt die the death" (Ge 2:17), which was denounced against man before his fall, being afterwards renewed (Ge 3:19), is explained (as to temporal death) by these words, "to dust thou shalt return"; so that now the motion of the little world man is like that of the great, *Circulare ab eodem puncto ad idem,* from the same to the same; and that as in his *soul* from God to God, so in his *body* from the earth to the earth. The rivers come from the sea, and they return thither. The sun ariseth out of the east, and thither it returneth. Man is formed of the earth, and into earth he is again transformed: with which agreeth that of the poet Lucretius: Cedit item retro de terra quod fuit ante.
 
-3\.That which is *inferred* in the emphatic pronoun *"his",* which is annexed to the noun *"earth",* is that the earth to which man returneth is *his;* this being that which ariseth out of both the former conclusions; since it is therefore *his earth* because he cometh from and returneth to it. Earth is man's Genesis and Analysis, his composition and resolution, his Alpha and Omega, his first and last; *Ortus pulvis, finis cinis;* earth is his both originally and finally. So that our bodies can challenge no alliance with, or property in anything so much as earth. For if we call those things *ours* which had only an external relation to us, as our friends, our horses, our goods, our lands; much more may we call that *our earth* whereof we are made and into which we shall moulder; no wonder it is here said to be *"his";* so elsewhere he is said to *be earth,* as being called by that name.— *Nathanael Hardy, in a Funeral Sermon entitled, "Man's Last Journey to his Long Home,"* 1659.
+3\. That which is *inferred* in the emphatic pronoun *"his",* which is annexed to the noun *"earth",* is that the earth to which man returneth is *his;* this being that which ariseth out of both the former conclusions; since it is therefore *his earth* because he cometh from and returneth to it. Earth is man's Genesis and Analysis, his composition and resolution, his Alpha and Omega, his first and last; *Ortus pulvis, finis cinis;* earth is his both originally and finally. So that our bodies can challenge no alliance with, or property in anything so much as earth. For if we call those things *ours* which had only an external relation to us, as our friends, our horses, our goods, our lands; much more may we call that *our earth* whereof we are made and into which we shall moulder; no wonder it is here said to be *"his";* so elsewhere he is said to *be earth,* as being called by that name.— *Nathanael Hardy, in a Funeral Sermon entitled, "Man's Last Journey to his Long Home,"* 1659.
 
 **Verse 4.** *In that very day his thoughts perish.* The thoughts which the Psalmist here, no doubt, especially intends are those *purposes* which are in the minds of great men of doing good to those who are under, and depend upon them. The Hebrew word here used is derived from a verb that signifieth *to be bright: cogitationes serenae,* those candid, serene, benign, benevolent thoughts which they have of advancing their allies, friends and followers. These thoughts are said to *"perish"* in *"that day"* wherein they are conceived; so Tremellius glosses. In which sense the instability of great men's favour is asserted, whose smiles are quickly changed into frowns, love into hatred, and so in a moment their mind being changed, their well wishing thoughts vanish. But more rationally, "their thoughts perish in that day" wherein their *persons die,* because there is no opportunity of putting their purposes into execution. They perish like the child which comes to the birth, and there is no strength to bring forth; or like the fruit which is plucked off before it be ripe. Whilst they live we may be deceived in our expectations by the alteration of their minds; but, however, their condition is mortal, and when that great change by death comes, their designs (how well so ever meant) must want success. From hence it followeth, which is by some looked upon as a part of the meaning of the words, that the *thoughts* or *hopes of them who trust in them perish.* It is a true apothegm, *Major pars hominum expectundo moritur;* the greatest part of men perish by expectation. And good reason, inasmuch as their expectation, being misplaced, perisheth. How strongly this argument serveth to press the Psalmist's caution against confidence in man, though never so great, is obvious. It is true, princes and nobles being invested with honour, wealth and authority, have power in their hands, and perhaps they may have thoughts in their hearts to do thee good; but, alas, how uncertain is the execution of those intentions, and therefore how foolish is it to depend upon them. "Trust in the Lord Jehovah" (saith the prophet), "for with him is everlasting strength." Aye, and with him is unchangeable goodness. It is safe building upon the rock, trusting upon God, whose thoughts of mercy are (like himself) from everlasting to everlasting; but nothing is more foolish than to build on the sand, trust to men, whose persons, together with their thoughts, perish in a moment. Therefore let our resolution be that of David: "It is better to trust in the Lord than to put confidence in man; it is better to trust in the Lord than to put confidence in princes", Ps 118:8-9.— *Nathanael Hardy.* 
 
@@ -152,7 +152,7 @@ fifthly, if their bodies only were dissolved, and their intentions and actions m
 
 **Verse 4.** *In that very day his thoughts perish.* In the case of the rich fool (Lu 12:16,20) his "thoughts" of building larger barns, and of many years of ease and prosperity,—all his selfish and worldly schemes,—"perished" in that self same night.— *John W. Haley, in "An Examination of the Alleged Discrepancies of the Bible,"* 1875.
 
-**Verse 4.** *His thoughts perish.* The science, the philosophy, the statesmanship of one age is exploded in the next. The men who are the masters of the world's intellect today are discrowned tomorrow. In this age of restless and rapid change they may survive their own thoughts; their thoughts do not survive them.— *J.J. Stewart Perowne.* 
+**Verse 4.** *His thoughts perish.* The science, the philosophy, the statesmanship of one age is exploded in the next. The men who are the masters of the world's intellect today are discrowned tomorrow. In this age of restless and rapid change they may survive their own thoughts; their thoughts do not survive them.— *J. J. Stewart Perowne.* 
 
 **Verse 4.** *His thoughts perish.* As the purposes of all about worldly things perish in the approaches of death, so do the purposes of some about spiritual and heavenly things. How many have had purposes to repent, to amend their lives and turn to God, which have been prevented and totally broken off by the extremity of pain and sickness, but chiefly by the stroke of death when they have (as they thought) "been about to repent", and (as we say) "turn over a new leaf" in their lives; they have been turned into the grave by death, and into hell by the just wrath of God.— *Joseph Caryl.* 
 
@@ -164,7 +164,7 @@ fifthly, if their bodies only were dissolved, and their intentions and actions m
 
 **Verse 5.** Alas, how often do we trust when we should be afraid, and become afraid when we should trust!— *Lange's Commentary.* 
 
-**Verse 5.** *The God of Jacob.* A famous and significant description of God; and that, First, *in respect of his nature,* or the verity and reality of his being and excellence. He is styled here by way of elegancy or emphasis, *"The God of Jacob",* saith Mollerus, to discern and distinguish the true God of Israel from all Heathenish deities, and to explode all fictitious gods and all worships thereof. As the true God is the God of Jacob, so the God of Jacob is the true God. He is God alone, and there is no other besides him...Secondly. This title or appellation serves also to describe him *in his special relation to his people.* We find him called by our Psalmist, "The mighty God of Jacob": Ps 132:5. He is indeed the God of the whole earth, but in a peculiar manner "the God of *Israel":* Mt 15:31...It is observable in Scripture that he styles not himself so frequently, in his revelations of himself to them, "the God of heaven and earth" (though that also is a title full of encouragement), but "the God of Abraham, Isaac, and Jacob"; as if he had borne such choice goodwill, and had such a peculiar care for these three men, as to overlook all the world besides them. So near and intimate relation have God's people to him, that their interests are mutually involved, and twisted in a reciprocal and covenant bond. They are his, he is their portion; their Beloved is theirs and they are his: they are called by his name, the saints are styled his "holy ones", and the Church is termed expressly "Christ." Yea, he condescends to be called by their name; he assumes the name of *Jacob,* Ps 24:6: "This is the generation of them that seek him, that seek thy face, *O Jacob:"* — *From "The Saints' Ebenezer", by F.E.,* 1667.
+**Verse 5.** *The God of Jacob.* A famous and significant description of God; and that, First, *in respect of his nature,* or the verity and reality of his being and excellence. He is styled here by way of elegancy or emphasis, *"The God of Jacob",* saith Mollerus, to discern and distinguish the true God of Israel from all Heathenish deities, and to explode all fictitious gods and all worships thereof. As the true God is the God of Jacob, so the God of Jacob is the true God. He is God alone, and there is no other besides him... Secondly. This title or appellation serves also to describe him *in his special relation to his people.* We find him called by our Psalmist, "The mighty God of Jacob": Ps 132:5. He is indeed the God of the whole earth, but in a peculiar manner "the God of *Israel":* Mt 15:31... It is observable in Scripture that he styles not himself so frequently, in his revelations of himself to them, "the God of heaven and earth" (though that also is a title full of encouragement), but "the God of Abraham, Isaac, and Jacob"; as if he had borne such choice goodwill, and had such a peculiar care for these three men, as to overlook all the world besides them. So near and intimate relation have God's people to him, that their interests are mutually involved, and twisted in a reciprocal and covenant bond. They are his, he is their portion; their Beloved is theirs and they are his: they are called by his name, the saints are styled his "holy ones", and the Church is termed expressly "Christ." Yea, he condescends to be called by their name; he assumes the name of *Jacob,* Ps 24:6: "This is the generation of them that seek him, that seek thy face, *O Jacob:"* — *From "The Saints' Ebenezer", by F. E.,* 1667.
 
 **Verse 5.** *The God of Jacob.* This verse aptly warrants us to apply to all believers all the illustrations of *help* and *hope* furnished by Jacob in his exile when none but God could help him.— *Simon de Muis.* 
 
@@ -174,7 +174,7 @@ fifthly, if their bodies only were dissolved, and their intentions and actions m
 
 **Verse 6.** *Which keepeth truth for ever.* God does indeed keep the truth from age to age—how else would the Book of God have lived?— *John Lorinus.* 
 
-**Verses 6-9.** The LORD, is an *Almighty* God, as the Creator of the universe; next, he is a *faithful* God "who keepeth truth forever"; further, he is a *righteous* God (Ps 146:7) a *bountiful* God (*ib.*) a *gracious* God (Ps 146:7-9).— *J.J. Stewart Perowne.* 
+**Verses 6-9.** The LORD, is an *Almighty* God, as the Creator of the universe; next, he is a *faithful* God "who keepeth truth forever"; further, he is a *righteous* God (Ps 146:7) a *bountiful* God (*ib.*) a *gracious* God (Ps 146:7-9).— *J. J. Stewart Perowne.* 
 
 **Verse 7.** *Giveth food to the hungry.* We learn from this that he is not always so indulgent to his own as to load them with abundance, but occasionally withdraws his blessing, that he may succour them when reduced to hunger. Had the Psalmist said that God fed his people with abundance and pampered them, would not any of those under want, or in famine have immediately desponded? The goodness of God is therefore properly extended farther to the feeding of the hungry.— *John Calvin.* 
 
@@ -184,7 +184,7 @@ fifthly, if their bodies only were dissolved, and their intentions and actions m
 
 **Verses 7-8.** It ought not to pass without remark that the name Jehovah is repeated here five times in five lines, to intimate that it is an almighty power, that of Jehovah, that is engaged and exerted for the relief of the oppressed; and that it is as much to the glory of God to succour them that are in misery, as it is to ride on the heavens by his name JAH, Ps 68:4.— *Matthew Henry.* 
 
-**Verse 8.** *Openeth the eyes of the blind.* Literally, *"openeth the blind"—i.e.,* maketh them to see. The expression may be used figuratively, as a remedy applied either to physical helplessness, as De 28:29 Isa 59:9-10 Job 12:25 or to spiritual want of discernment, as Isa 29:18, 42:7,18, 43:8. Here the context favours the former.— *J.J. Stewart Perowne.* 
+**Verse 8.** *Openeth the eyes of the blind.* Literally, *"openeth the blind"—i.e.,* maketh them to see. The expression may be used figuratively, as a remedy applied either to physical helplessness, as De 28:29 Isa 59:9-10 Job 12:25 or to spiritual want of discernment, as Isa 29:18, 42:7,18, 43:8. Here the context favours the former.— *J. J. Stewart Perowne.* 
 
 **Verse 8.** *The LORD openeth the eyes of the blind.* The Hebrew does not mention *the eyes* of the blind. Hilary renders it *sapientificat.* The Arabic version follows the same. Jehovah by his *wisdom illumines dark minds.* It is *mental* blindness which is the common affliction of men.— *John Lorinus.* 
 
@@ -208,21 +208,21 @@ fifthly, if their bodies only were dissolved, and their intentions and actions m
 
 **Verse 1.** 
 
-1\.An exhortation: it is addressed to ourselves: "Praise ye the Lord."
+1\. An exhortation: it is addressed to ourselves: "Praise ye the Lord."
 
-2\.An example: the Psalmist cries to himself, "Praise the Lord."
+2\. An example: the Psalmist cries to himself, "Praise the Lord."
 
-3\.An echo: "Praise the Lord, O my soul." Let us say this to our own souls.
+3\. An echo: "Praise the Lord, O my soul." Let us say this to our own souls.
 
 **Verse 1.** Whom should I praise? And why? And when? And how?
 
 **Verse 1.** Public worship.
 
-1\.Should be with a sense of fellowship: "Praise *ye"*: pleasures of communion in praise.
+1\. Should be with a sense of fellowship: "Praise *ye"*: pleasures of communion in praise.
 
-2\.Should never lose its individuality: "O my soul." God is only praised by individual hearts. Temptations to wandering in public services.
+2\. Should never lose its individuality: "O my soul." God is only praised by individual hearts. Temptations to wandering in public services.
 
-3\.Should be full of Jehovah's felt presence: each and all should worship *him* alone.— *W.B.H.* 
+3\. Should be full of Jehovah's felt presence: each and all should worship *him* alone.— *W. B. H.* 
 
 **Verse 2.** Work for here and hereafter.
 
@@ -230,15 +230,15 @@ fifthly, if their bodies only were dissolved, and their intentions and actions m
 
 2\."I will praise the Lord"; or a service definite, determined, due, and delightful. Certainty amid uncertainty.
 
-3\."While I have any being"; or an enthusiastic pre-engagement of eternity.— *W.B.H.* 
+3\."While I have any being"; or an enthusiastic pre-engagement of eternity.— *W. B. H.* 
 
 **Verse 3.** 
 
-1\.It dishonours God.
+1\. It dishonours God.
 
-2\.It degrades you.
+2\. It degrades you.
 
-3\.It disappoints in every case.
+3\. It disappoints in every case.
 
 **Verse 4.** Decease, Decay, Defeat.
 
@@ -252,27 +252,27 @@ fifthly, if their bodies only were dissolved, and their intentions and actions m
 
 **Verses 6-7.** The God of our hope is,
 
-1\.Creator.
+1\. Creator.
 
-2\.Truth keeper.
+2\. Truth keeper.
 
-3\.Vindicator.
+3\. Vindicator.
 
-4\.Provider.
+4\. Provider.
 
-5\.Deliverer.
+5\. Deliverer.
 
 **Verse 7.** (*last clause* ).—See "Spurgeon's Sermons", No. 484: "The Lord—the Liberator."
 
 **Verse 7.** The People's Rights.
 
-1\.Three rights of humanity. Justice, Bread, Freedom.
+1\. Three rights of humanity. Justice, Bread, Freedom.
 
-2\.God's interventions in their behalf. Revolutions, Reforms, Regenerations. Christ's war with Satan.
+2\. God's interventions in their behalf. Revolutions, Reforms, Regenerations. Christ's war with Satan.
 
-3\.The magnificent supply of the three blessings in Christ's kingdom.
+3\. The magnificent supply of the three blessings in Christ's kingdom.
 
-4\.The men who are fashioned and trained under this *regime.* — *W.B.H.* 
+4\. The men who are fashioned and trained under this *regime.* — *W. B. H.* 
 
 **Verse 8.** (*first clause* ). Spiritual blindness, its curse, cause, and cure.
 
@@ -280,13 +280,13 @@ fifthly, if their bodies only were dissolved, and their intentions and actions m
 
 **Verse 8.** (*third clause* ). God's love to the righteous.
 
-1\.He made them righteous.
+1\. He made them righteous.
 
-2\.They are like him.
+2\. They are like him.
 
-3\.They love him.
+3\. They love him.
 
-4\.Their purposes are one with his own.
+4\. Their purposes are one with his own.
 
 **Verse 9.** Observe the provision made in the Jewish law for the stranger. The way in which strangers were received by God. The truth that his chosen are strangers in the world. His design to gather in strangers in the latter days.
 
@@ -296,11 +296,11 @@ fifthly, if their bodies only were dissolved, and their intentions and actions m
 
 **Verse 10.** 
 
-1\.A cause for praise—"The Lord shall reign for ever."
+1\. A cause for praise—"The Lord shall reign for ever."
 
-2\.A centre of praise: "O Zion."
+2\. A centre of praise: "O Zion."
 
-3\.A cycle of praise: "all generations."
+3\. A cycle of praise: "all generations."
 
-4\.A call to praise; "Praise ye the Lord."
+4\. A call to praise; "Praise ye the Lord."
 

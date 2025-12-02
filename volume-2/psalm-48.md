@@ -88,7 +88,7 @@ Farewell, fear. Come hither, gratitude and faith, and sing right joyously.
 
 **Verse 1.** *Mountain of his holiness.* The religion in it holy, the people in it a holy people. *William Nicholson.* 
 
-**Verse 2.** *Beautiful for situation, the joy of the whole earth, is mount Zion, on the sides of the north, the city of the great King.* What is there, or was there, about Zion to justify the high eulogium of David? The situation is indeed eminently adapted to be the platform of a magnificent citadel. Rising high above the deep valley of Gihon and Hinnom, on the west and south, and the scarcely less deep one of the Cheesemongers on the east, it could only be assailed from the northwest; and then *on the sides of the north* it was magnificently beautiful, and fortified by walls, towers, and bulwarks, the wonder and terror of the nations: *"For the kings were assembled, they passed by together. They saw it, and so they marvelled; they were troubled, and hasted away."* At the thought of it the royal psalmist again bursts forth in triumph: *"Walk about Zion, and go round about her: tell the towers thereof. Mark ye well her bulwarks, consider her palaces; that ye may tell it to the generation following."* Alas! her towers have long since fallen to the ground, her bulwarks have been overthrown, her palaces have crumbled to dust, and we who now walk about Zion can tell no other story than this to the generation following. There is another Zion, however, whose towers are still more glorious, and shall never be overthrown. *"God is known in her palaces for a refuge."* And *"this God is our God for ever and ever."* How often is this name synonymous with the church of the living God! and no other spot but one can divide with it the affection of his people—no other name but one can awaken such joyful hopes in the Christian's heart. The temporal Zion is now in the dust, but the true Zion is rising and shaking herself from it, and putting on her beautiful garments to welcome her King when he comes to reign over the whole earth. *W. M. Thompson, D.D.* 
+**Verse 2.** *Beautiful for situation, the joy of the whole earth, is mount Zion, on the sides of the north, the city of the great King.* What is there, or was there, about Zion to justify the high eulogium of David? The situation is indeed eminently adapted to be the platform of a magnificent citadel. Rising high above the deep valley of Gihon and Hinnom, on the west and south, and the scarcely less deep one of the Cheesemongers on the east, it could only be assailed from the northwest; and then *on the sides of the north* it was magnificently beautiful, and fortified by walls, towers, and bulwarks, the wonder and terror of the nations: *"For the kings were assembled, they passed by together. They saw it, and so they marvelled; they were troubled, and hasted away."* At the thought of it the royal psalmist again bursts forth in triumph: *"Walk about Zion, and go round about her: tell the towers thereof. Mark ye well her bulwarks, consider her palaces; that ye may tell it to the generation following."* Alas! her towers have long since fallen to the ground, her bulwarks have been overthrown, her palaces have crumbled to dust, and we who now walk about Zion can tell no other story than this to the generation following. There is another Zion, however, whose towers are still more glorious, and shall never be overthrown. *"God is known in her palaces for a refuge."* And *"this God is our God for ever and ever."* How often is this name synonymous with the church of the living God! and no other spot but one can divide with it the affection of his people—no other name but one can awaken such joyful hopes in the Christian's heart. The temporal Zion is now in the dust, but the true Zion is rising and shaking herself from it, and putting on her beautiful garments to welcome her King when he comes to reign over the whole earth. *W. M. Thompson, D. D.* 
 
 **Verse 2.** When I stood that morning on the brow of Olivet, and looked down on the city, crowning those battlemented heights, encircled by those deep and dark ravines, I involuntarily exclaimed, *Beautiful for situation, the joy of the whole earth, is mount Zion, on the sides of the north, the city of the great King.* And as I gazed, the red rays of the rising sun shed a halo round the top of the castle of David; then they tipped with gold each tapering minaret, and gilded each dome of mosque and church, and at length, bathed in one flood of ruddy light the terraced roofs of the city, and the grass and foliage, the cupolas, pavements, and colossal walls of the Haram. No human being could be disappointed who first saw Jerusalem from Olivet. *J. L. Porter.* 
 
@@ -136,15 +136,15 @@ Of alabaster, topped with golden spires.
 
 **Verse 13.** *Her bulwarks.* 
 
-1\.The designation and constitution of Jesus Christ to be King of the church, King of Zion, is the great bulwark of Zion.
+1\. The designation and constitution of Jesus Christ to be King of the church, King of Zion, is the great bulwark of Zion.
 
-2\.The second bulwark of Zion is the promises of God, which are innumerable.
+2\. The second bulwark of Zion is the promises of God, which are innumerable.
 
-3\.The watchful providence of God over the church.
+3\. The watchful providence of God over the church.
 
-4\.Another bulwark is God's special presence. God is in a special manner present in his church.
+4\. Another bulwark is God's special presence. God is in a special manner present in his church.
 
-5\.The last bulwark unto which all others may be reduced, is the covenant of God: "For this God is our God." *John Owen.* 
+5\. The last bulwark unto which all others may be reduced, is the covenant of God: "For this God is our God." *John Owen.* 
 
 **Verse 14.** *This God is our God for ever and ever.* What a portion then is that of the believer! The landlord cannot say of his fields, these are mine for ever and ever. The king cannot say of his crown, this is mine for ever and ever. These possessions shall soon change masters; these possessors shall soon mingle with the dust, and even the graves they shall occupy may not long be theirs; but it is the singular, the supreme happiness of every Christian to say, or have a right to say, "This glorious God with all his divine perfections is my God, for ever and ever, and even death itself shall not separate me from his love." *George Burder.* 
 
@@ -188,7 +188,7 @@ All the suggestions under this Psalm except those otherwise designated, are by o
 
 **Verse 3.** 
 
-1\.God is a refuge in his church. The church is a city of refuge, but the refuge is not in its church, but its God.
+1\. God is a refuge in his church. The church is a city of refuge, but the refuge is not in its church, but its God.
 
 (a) For sinners from wrath.
 
@@ -198,25 +198,25 @@ All the suggestions under this Psalm except those otherwise designated, are by o
 
 **Verses 4-7.** 
 
-1\.The opposition of worldly powers to the church. "The kings, "etc.
+1\. The opposition of worldly powers to the church. "The kings, "etc.
 
-2\.The manner in which they are subdued—by their own fears; conscience has persecuted those who have persecuted the church of God. They who have seized the ark of God have been glad to return it with an offering.
+2\. The manner in which they are subdued—by their own fears; conscience has persecuted those who have persecuted the church of God. They who have seized the ark of God have been glad to return it with an offering.
 
-3\.The completeness of their overthrow, As a fleet of ships of Tarshish, dispersed, broken, and engulfed by the east wind.
+3\. The completeness of their overthrow, As a fleet of ships of Tarshish, dispersed, broken, and engulfed by the east wind.
 
 **Verse 8.** 
 
-1\.God has ever been to his people what he now is; the same *heard* as *seen.* 
+1\. God has ever been to his people what he now is; the same *heard* as *seen.* 
 
-2\.He is now what he ever has been: the same *seen* as *heard.* 
+2\. He is now what he ever has been: the same *seen* as *heard.* 
 
-3\.He will ever be what he now is. "Will establish it for ever."
+3\. He will ever be what he now is. "Will establish it for ever."
 
 **Verse 9.** 
 
-1\.What are the lovingkindnesses of God? Pity to the wretched, pardon to the penitent, help to the prayerful, comfort to the afflicted, etc.
+1\. What are the lovingkindnesses of God? Pity to the wretched, pardon to the penitent, help to the prayerful, comfort to the afflicted, etc.
 
-2\.Where are they to be found? "In the midst of, "etc.
+2\. Where are they to be found? "In the midst of, "etc.
 
 (a) Here they are revealed.
 
@@ -228,49 +228,49 @@ All the suggestions under this Psalm except those otherwise designated, are by o
 
 **Verse 10.** As the name of God, so his praises are—
 
-1\.Supreme.
+1\. Supreme.
 
-2\.Unqualified.
+2\. Unqualified.
 
-3\.Universal.
+3\. Universal.
 
-4\.Everlasting.
+4\. Everlasting.
 
 **Verse 10.** *Thy right hand,* etc.
 
-1\.The justice of omnipotence.
+1\. The justice of omnipotence.
 
-2\.Omnipotence controlled by justice.
+2\. Omnipotence controlled by justice.
 
-3\.The omnipotence of justice.
+3\. The omnipotence of justice.
 
 **Verse 11.** 
 
-1\.The subjects of his peoples' joy. Not mercies merely, but judgments
+1\. The subjects of his peoples' joy. Not mercies merely, but judgments
 
-2\.Reasons: (a) Because they are holy—needful to the purity of moral government; (b) Just—needful to vindicate law; (c) Good—needful for the greatest amount of good.
+2\. Reasons: (a) Because they are holy—needful to the purity of moral government; (b) Just—needful to vindicate law; (c) Good—needful for the greatest amount of good.
 
 **Verse 12.** 
 
-1\.What is to be understood by the preservation and protection of the church?
+1\. What is to be understood by the preservation and protection of the church?
 
-2\.What is meant by searching into, and considering of, these causes and means of the church's preservation?
+2\. What is meant by searching into, and considering of, these causes and means of the church's preservation?
 
-3\.What are those causes and means of the church's preservation, those towers and bulwarks which will not fail?
+3\. What are those causes and means of the church's preservation, those towers and bulwarks which will not fail?
 
-4\.What reason is there why we should thus search into and consider these causes of the church's preservation and protection?
+4\. What reason is there why we should thus search into and consider these causes of the church's preservation and protection?
 
-5\.What is the testimony which we have to give concerning this matter to the ensuing generation? *John Owen's Sermon.* 
+5\. What is the testimony which we have to give concerning this matter to the ensuing generation? *John Owen's Sermon.* 
 
 **Verse 14.** (*first clause* ). This is the language of a *proprietary* in God: 1. Of an *assured* proprietary—"This God is *our* God." 2. Of a *permanent* proprietary— *for ever and ever.* 3. Of an *exulting* proprietary. *W. Jay.* 
 
 **Verse 14.** 
 
-1\.The language of discrimination. *This* God. *This* God in Christ, in the church.
+1\. The language of discrimination. *This* God. *This* God in Christ, in the church.
 
-2\.The language of Faith— *our* God.
+2\. The language of Faith— *our* God.
 
-3\.Of Hope— *For ever and ever.* 
+3\. Of Hope— *For ever and ever.* 
 
-4\.Of Resignation— *He will be our guide,* etc.
+4\. Of Resignation— *He will be our guide,* etc.
 

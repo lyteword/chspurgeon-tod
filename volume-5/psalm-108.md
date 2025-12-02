@@ -120,11 +120,11 @@ God's help shall inspire us to help ourselves. Faith is neither a coward nor a s
 
 ## Explanatory Notes & Quaint Sayings
 
-**Whole Psalm.** Note the different application of the words as they are used in Ps 57:1-11 and Ps 60:1-12, and as they are employed in Ps 108:1-13. In the former they were prophetic of prosperity yet to come, and consolatory in the expectation of approaching troubles. In the latter, they are eucharistic for mercies already received, and descriptive of the glorious things which God has prepared for his Son and for Israel his people. The Psalm, thus interpreted, announces that Messiah's travail is ended, when the troubles of Israel are brought to a close. David's Son and David's Lord has taken to himself his great power and begun to reign, and sitting upon the throne of his glory, he sings this hymn, Ps 108:1-6. But with the glory of the Redeemer is associated also the restoration, to favour and happiness, of Israel, his long cast off, but not forgotten people. The setting up of King Messiah upon the holy hill of Zion is graphically described, and all Jehovah's promises are realised in the most ample measure. Messiah is described as a conqueror when the battle is won, and kings and nations, prostrate at his feet, await his sentence and judgment upon them. "I will rejoice. I will divide and portion out Shechem and the valley of Succoth. Gilead is mine, and I give it to the children of Gad and Reuben. And Manasseh also is mine. Ephraim is my strength in war: my horn of defence. Judah is my king." Thus in gracious and flattering words, the victor addresses his confederates and subjects. In a different strain, a strain of sarcasm and contempt, he announces his pleasure respecting his vanquished enemies." Moab I will use as a vessel to wash my feet in. Over proud Edom I will cast my shoe, as an angry master to a slave ministering to him. Philistia follow my chariot, and shout forth my triumph." But what is to be understood of the next passage, Ps 108:10, "Who will bring me into Edom?" Edom is already treated as a vassal state, Ps 108:9. When all the nations become the kingdoms of Messiah, what is this Edom that is to be amongst his latest triumphs? One passage only seems to bear upon it, Isa 63:1, and from this we learn that it is from Edom as the last scene of his vengeance, the conquering Messiah will come forth, "clothed with a vesture dipped in blood." This Edom is therefore named with anxiety, because after its overthrow, Messiah will shine out "King of kings, and Lord of lords", Re 19:13-16.— *R.H. Ryland.* 
+**Whole Psalm.** Note the different application of the words as they are used in Ps 57:1-11 and Ps 60:1-12, and as they are employed in Ps 108:1-13. In the former they were prophetic of prosperity yet to come, and consolatory in the expectation of approaching troubles. In the latter, they are eucharistic for mercies already received, and descriptive of the glorious things which God has prepared for his Son and for Israel his people. The Psalm, thus interpreted, announces that Messiah's travail is ended, when the troubles of Israel are brought to a close. David's Son and David's Lord has taken to himself his great power and begun to reign, and sitting upon the throne of his glory, he sings this hymn, Ps 108:1-6. But with the glory of the Redeemer is associated also the restoration, to favour and happiness, of Israel, his long cast off, but not forgotten people. The setting up of King Messiah upon the holy hill of Zion is graphically described, and all Jehovah's promises are realised in the most ample measure. Messiah is described as a conqueror when the battle is won, and kings and nations, prostrate at his feet, await his sentence and judgment upon them. "I will rejoice. I will divide and portion out Shechem and the valley of Succoth. Gilead is mine, and I give it to the children of Gad and Reuben. And Manasseh also is mine. Ephraim is my strength in war: my horn of defence. Judah is my king." Thus in gracious and flattering words, the victor addresses his confederates and subjects. In a different strain, a strain of sarcasm and contempt, he announces his pleasure respecting his vanquished enemies." Moab I will use as a vessel to wash my feet in. Over proud Edom I will cast my shoe, as an angry master to a slave ministering to him. Philistia follow my chariot, and shout forth my triumph." But what is to be understood of the next passage, Ps 108:10, "Who will bring me into Edom?" Edom is already treated as a vassal state, Ps 108:9. When all the nations become the kingdoms of Messiah, what is this Edom that is to be amongst his latest triumphs? One passage only seems to bear upon it, Isa 63:1, and from this we learn that it is from Edom as the last scene of his vengeance, the conquering Messiah will come forth, "clothed with a vesture dipped in blood." This Edom is therefore named with anxiety, because after its overthrow, Messiah will shine out "King of kings, and Lord of lords", Re 19:13-16.— *R. H. Ryland.* 
 
 **Whole Psalm.** This psalm hath two parts: in the former is the thanksgiving of faith and promise of praise, in hope of obtaining all which the church is here to pray for, (Ps 108:1-5). In the latter part is the prayer for preservation of the church, Ps 108:6, with confidence to be heard and helped, whatsoever impediment appear, against all who stand out against Christ's kingdom, whether within the visible church (Ps 108:7-8), or whether without, such as are professed enemies unto it, (Ps 108:9-11), which prayer is followed forth (Ps 108:12), and comfortably closed with assurance of the Church's victory by the assistance of God, Ps 108:13.— *David Dickson.* 
 
-**Verse 1.** *O God, my heart is fixed.* The wheels of a chariot revolve, but the axletree turns not; the sails of a mill move with the wind, but the mill itself moves not; the earth is carried round its orbit, but its centre is fixed. So should a Christian be able, amidst changing scenes and changing fortunes, to say, *"O God, my heart is fixed, my heart is fixed."* — *G.S. Bowes, in "Illustrative Gatherings",* 1862.
+**Verse 1.** *O God, my heart is fixed.* The wheels of a chariot revolve, but the axletree turns not; the sails of a mill move with the wind, but the mill itself moves not; the earth is carried round its orbit, but its centre is fixed. So should a Christian be able, amidst changing scenes and changing fortunes, to say, *"O God, my heart is fixed, my heart is fixed."* — *G. S. Bowes, in "Illustrative Gatherings",* 1862.
 
 **Verse 1.** *My heart is fixed.* The prophet saith *his heart was ready,* so the old translation hath it; the new translation, *"My heart is fixed."* The word in the Hebrew signifies, first, *ready,* or *prepared.* Then, secondly, it signifies *fixed.* We first fit, prepare a thing, sharpen it, before we drive it into the ground, and then drive it in and fix it. So ask seriously and often, that thy heart may be ready, and may also be fixed, and this by a *habit* which brings readiness and fixedness, as in other holy duties, so in that of meditation.— *Nathanael Ranew, in "Solitude improved by Divine Meditation,"* 1670.
 
@@ -158,7 +158,7 @@ After sun rising, for day sullies flowers."
 
 **Verses 4-5.** There is more stuff and substance of good in the Lord's promises than the sharpest sighted saint did or can perceive; for when we have followed the promise, to find out all the truth which is in it, we meet with a cloud of unsearchable riches, and are forced to leave it there; for so much is included in this, *Thy truth reacheth unto the clouds.* The height of our praising of God is to put the work of praising God upon himself, and to point him out unto others as going about the magnifying of his own name, and to be glad for it, as here; *Be thou exalted, O God, above the heavens; and thy glory above all the earth.* — *David Dickson.* 
 
-**Verses 4-6.** There is great confidence here, and, as ever, mercy to the soul which knows itself and comes before truth. But, then, for its own deliverance and blessing it looks to the exalting of God. This shows it must be a holy, righteous exalting. "Be *thou* exalted, O God, above the heavens: and thy glory above all the earth; that thy beloved may be delivered." It is a blessed thought, and this is what faith has to lay hold of now, even in the time of trial, that our blessing and God's glory are one, only we must put his glory first.— *J.N. Darby.* 
+**Verses 4-6.** There is great confidence here, and, as ever, mercy to the soul which knows itself and comes before truth. But, then, for its own deliverance and blessing it looks to the exalting of God. This shows it must be a holy, righteous exalting. "Be *thou* exalted, O God, above the heavens: and thy glory above all the earth; that thy beloved may be delivered." It is a blessed thought, and this is what faith has to lay hold of now, even in the time of trial, that our blessing and God's glory are one, only we must put his glory first.— *J. N. Darby.* 
 
 **Verse 6.** *That thy beloved may be delivered*, etc. The church is the Lord's *"beloved",* or the incorporation, more loved than anything else in the world, therefore here called, *"Thy beloved."* Because the church is God's beloved, the care of it should be most in our mind, and the love of the preservation of it should draw forth our prayer most in favour of it. *"That thy beloved may be delivered: save."* — *David Dickson.* 
 
@@ -178,7 +178,7 @@ After sun rising, for day sullies flowers."
 
 **Verse 9.** *Moab is my washpot; over Edom will I cast my shoe.* This somewhat difficult expression may be thus explained. Moab and Edom were to be reduced to a state of lowest vassalage to the people of God. The one was to be like a pot or tub fit only for washing the feet in, while the other was to be like the domestic slave standing by to receive the sandals thrown to him by the person about to perform his ablutions, that he might first put them by in a safe place, and then come and wash his master's feet.— *"Rays from the East."* 
 
-**Verse 9.** *Over Edom will I cast my shoe.* David overthrew their army in the "Valley of Salt", and his general, Joab, following up the victory, destroyed nearly the whole male population (1Ki 11:15-16), and placed Jewish garrisons in all the strongholds of Edom (2Sa 8:13-14). In honour of that victory the Psalmist warrior may have penned the words in Ps 60:8, *"Over Edom will I cast my shoe."* — *J.L. Porter in, "Smith's Dictionary of the Bible."* 
+**Verse 9.** *Over Edom will I cast my shoe.* David overthrew their army in the "Valley of Salt", and his general, Joab, following up the victory, destroyed nearly the whole male population (1Ki 11:15-16), and placed Jewish garrisons in all the strongholds of Edom (2Sa 8:13-14). In honour of that victory the Psalmist warrior may have penned the words in Ps 60:8, *"Over Edom will I cast my shoe."* — *J. L. Porter in, "Smith's Dictionary of the Bible."* 
 
 **Verse 10.** The strong city built on the rock, even man's hardened heart, stronger and more stony than the tomb, he had conquered and overcome; and in him and his might are his people to carry on his warfare, and to cast down all the strongholds of human pride, and human stubbornness, and human unrepentance.— *Plain Commentary.* 
 
@@ -194,27 +194,27 @@ After sun rising, for day sullies flowers."
 
 **Whole Psalm.** Parts of two former psalms are here united in one.
 
-1\.Repetition is here sanctioned by inspiration.
+1\. Repetition is here sanctioned by inspiration.
 
 (a) Of what? Of hymns, of prayers, of sermons.
 
 (b) For what? For impression. "As we said before so say I now again, if any man preach", etc. For confirmation: "Rejoice in the Lord, and again I say rejoice": they went through Syria and Cilicia again confirming the churches. For preservation: quotations authenticate originals, a writing in two copies is safer than in one.
 
-2\.Rearrangement is here sanctioned by inspiration.
+2\. Rearrangement is here sanctioned by inspiration.
 
 (a) Different experiences may require it. Sometimes the heart is most fixed at the commencement of a spiritual exercise: sometimes at its close. Hence the commencement of one psalm is the close of another.
 
-(b) Different occasions may require it. As of sorrow and joy. Two parts of two different hymns may better harmonise with a particular occasion than either one separately considered.— *G.R.* 
+(b) Different occasions may require it. As of sorrow and joy. Two parts of two different hymns may better harmonise with a particular occasion than either one separately considered.— *G. R.* 
 
 **Verse 1.** 
 
-1\.The best occupation: praise. Worthy—
+1\. The best occupation: praise. Worthy—
 
 (a) Of the heart in its best condition.
 
 (b) Of the best faculties of the best educated man.
 
-2\.The best resolution.
+2\. The best resolution.
 
 (a) Arising from a fixed heart.
 
@@ -224,7 +224,7 @@ After sun rising, for day sullies flowers."
 
 (d) Joyfully executed.
 
-3\.The best results. To praise God makes a man both happier and holier, stronger and bolder—as the succeeding verses show.
+3\. The best results. To praise God makes a man both happier and holier, stronger and bolder—as the succeeding verses show.
 
 **Verse 2.** The benefit of early rising. The sweetness of the Sabbath morning early prayer meeting.
 
@@ -244,13 +244,13 @@ After sun rising, for day sullies flowers."
 
 **Verse 12.** The failure of human help is often
 
-1\.The direct cause of our prayer.
+1\. The direct cause of our prayer.
 
-2\.The source of urgency in pleading.
+2\. The source of urgency in pleading.
 
-3\.A powerful argument for the pleader.
+3\. A powerful argument for the pleader.
 
-4\.A distinct reason for hope to light upon.
+4\. A distinct reason for hope to light upon.
 
 **Verse 13.** How, when, and why a believer should do valiantly.
 

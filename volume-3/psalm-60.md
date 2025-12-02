@@ -94,7 +94,7 @@ As yet the interior fortresses of Edom had not been subdued. Their invading band
 
 **Title &mdash;** *Shushaneduth. The lilies of the testimony* —means, that this Psalm has for its chief subject something very lovely and cheering in the law; namely, the words of promise quoted in the beginning of verse six, according to which the land of Canaan belonged to the Israelites, upon which is thus established the confidence expressed in Ps 60:6-8, with respect to their right of property over the land, and their possession of it. This promise, not to cite many other passages, which occur in the Five Books of Moses, and even so early as the patriarchs, is contained in Genesis 49, and Deuteronomy 33. It is evident of what value and importance this promise was, and particularly the remembrance of it at this time. *T. C. Barth's "Bible Manual, "* 1865.
 
-**Title &mdash;** The only other *eduth* or *"testimony"* in the Psalter, Psalm 80, makes mention by name of the tribes of Ephraim, Benjamin, and Manasseh, and is a witness against those tribes for forsaking the Shepherd of Israel who had brought them up out of the land of Egypt. *Joseph Francis Thrupp, M.A., in "An Introduction to the Study and Use of the Psalms, "* 1860.
+**Title &mdash;** The only other *eduth* or *"testimony"* in the Psalter, Psalm 80, makes mention by name of the tribes of Ephraim, Benjamin, and Manasseh, and is a witness against those tribes for forsaking the Shepherd of Israel who had brought them up out of the land of Egypt. *Joseph Francis Thrupp, M. A., in "An Introduction to the Study and Use of the Psalms, "* 1860.
 
 **Title &mdash;** *Aramnaharaim.* The name *Aram* corresponds to *Syria* in its widest and vaguest sense, and is joined with other names to designate particular parts of that large country. It even includes Mesopotamia, which is a term of physical rather than political geography, and denotes the space between the Tigris and Euphrates, corresponding to *Aram Naharaim,* or *Syria of the Two Rivers,* in the verse before us. The king of this country was tributary to the king of Aram Zobah, as appears from the account of David's second Aramean war (2Sa 10:16,19). *Joseph Addison Alexander.* 
 
@@ -128,11 +128,11 @@ As yet the interior fortresses of Edom had not been subdued. Their invading band
 
 **Verse 4.** *A banner,* which is a sign or instrument:
 
-1\.Of union. This people, who were lately divided and under several banners, thou hast now gathered together and united under one banner; to wit, under my government.
+1\. Of union. This people, who were lately divided and under several banners, thou hast now gathered together and united under one banner; to wit, under my government.
 
-2\.Of battle. Thou hast given us an army and power to oppose our enemies. We had our banner to set against theirs.
+2\. Of battle. Thou hast given us an army and power to oppose our enemies. We had our banner to set against theirs.
 
-3\.Of triumph. We have not lost our banner but gained theirs, and brought it away in triumph. Compare Ps 20:5. *Matthew Poole.* 
+3\. Of triumph. We have not lost our banner but gained theirs, and brought it away in triumph. Compare Ps 20:5. *Matthew Poole.* 
 
 **Verse 6.** *God hath spoken in his holiness.* That is, by Samuel he hath promised, as he is an holy God, and true of his word, that I should be king of all Israel, and now he hath performed it. (2 Samuel 5.) Yet Calvin speaks of it as not yet performed; but the course of the history makes it plain that David was now king over the parts of which he here speaketh. *I will divide Shechem,* as subjects to me as Joshua having the land under him, divided it amongst his people: so David being king over all the parts of the land, divides to his followers such portions as belonged unto them by inheritance, from which happily some of them had been expelled by the time of Ishbosheth his reign; or some families in the time of those wars might be utterly wasted away, and so the king having free power to dispose of their lands, might give them amongst his men, and take part to himself. *John Mayer.* 
 
@@ -142,7 +142,7 @@ As yet the interior fortresses of Edom had not been subdued. Their invading band
 
 **Verse 6.** *I will divide Shechem,* etc. Of *Shechem* and the *Valley of Succoth, or booths,* so called from Jacob's making *booths,* and *feeding his cattle* there. (See Ge 33:17-18.) By these are meant Samaria; and *David's dividing* or *meting* them out, is a phrase to express his *dominion* over them, in being part of the *regal* power to *distribute* his province into cities and regions, and place judges and magistrates over them. To these the addition of *Gilead* (which contained the whole region of *Bashan,* etc., on the *other side of Jordan* ), and then the mention of *Manasseh* and *Ephraim,* are designed, as by so many parts, to denote the kingdom of Israel, or the ten tribes; and their being *his,* and *the strength of his head,* notes him to be the *Lord* over them, and to make use of their strength in his wars, for the defending or enlarging his dominions. And then *Judah yqqwxm is my lawgiver;* as it refers to Jacob's prophecy of the *sceptre and lawgiver not departing from Judah,* denoting that to be the *royal* tribe; so by it is signified the *kingdom of Judah* (under which *Benjamin* is comprehended), that David is possessed of that also. *Henry Hammond.* 
 
-**Verse 6.** *Succoth.* If the preceding views are correct, we may rest in the result, that the present Sâkût represents the name and site of the ancient Succoth...We passed obliquely along the northern slope of the same broad swell, where the ground was covered only by a thick crop of thistles. On our right was a region of lower ground to which we gradually descended; full of grass, wild oats, and thistles, with an occasional thornbush. The soil was like that of an Ohio bottom. The grass, intermingled with tall daisies, and the wild oats reached to the horses backs; while the thistles sometimes overtopped the rider's heads. All was now dry; and in some places it was difficult to make our way through the exuberant growth. At last we came to the cause of this fertility, a fine brook winding along the bottom. We crossed it, and passed up again obliquely over another like swell, covered as before only with thistles. Here was an ancient oil vat, very large and of a single stone; it was evidently brought hither, and indicates the former growth of the olive in these parts. We struck the same stream again at its source, called Ain el Beida, a large and fine fountain, surrounded with gardens of cucumbers, and watering an extensive tract. We were here on the edge of the higher portion of the Ghôr, where low ridges and swells project out from the foot of the western mountains, and form a rolling plain or plateau, which is well watered, arable and very extensively cultivated for wheat. The tract further east, which we had now crossed, may be said to extend to the high bank of the lower Jordan valley. It is less elevated, is more generally level, though crossed by low swells between the water courses, and has little tillage. The inhabitants of Tûbâs are divided into three hostile parties; and they carry their divisions into their agriculture in the Ghôr. One party sows at Ain el Beida, where we now were; another around Ain Makhûz, more in the north; and the third at Ridghah, Sâkût, and further south. The people of Teyâsîr also sow on the south of Mâlih; the water of which is used for irrigation. The whole tract north of Wady Mâlih was said to be farmed from the government by one of the Sheiks of the Jenâr family, who live at Jeba and in its neighbourhood. By him it is again let to the different villages. *Robinson's "Biblical Researches in Palestine."* 
+**Verse 6.** *Succoth.* If the preceding views are correct, we may rest in the result, that the present Sâkût represents the name and site of the ancient Succoth... We passed obliquely along the northern slope of the same broad swell, where the ground was covered only by a thick crop of thistles. On our right was a region of lower ground to which we gradually descended; full of grass, wild oats, and thistles, with an occasional thornbush. The soil was like that of an Ohio bottom. The grass, intermingled with tall daisies, and the wild oats reached to the horses backs; while the thistles sometimes overtopped the rider's heads. All was now dry; and in some places it was difficult to make our way through the exuberant growth. At last we came to the cause of this fertility, a fine brook winding along the bottom. We crossed it, and passed up again obliquely over another like swell, covered as before only with thistles. Here was an ancient oil vat, very large and of a single stone; it was evidently brought hither, and indicates the former growth of the olive in these parts. We struck the same stream again at its source, called Ain el Beida, a large and fine fountain, surrounded with gardens of cucumbers, and watering an extensive tract. We were here on the edge of the higher portion of the Ghôr, where low ridges and swells project out from the foot of the western mountains, and form a rolling plain or plateau, which is well watered, arable and very extensively cultivated for wheat. The tract further east, which we had now crossed, may be said to extend to the high bank of the lower Jordan valley. It is less elevated, is more generally level, though crossed by low swells between the water courses, and has little tillage. The inhabitants of Tûbâs are divided into three hostile parties; and they carry their divisions into their agriculture in the Ghôr. One party sows at Ain el Beida, where we now were; another around Ain Makhûz, more in the north; and the third at Ridghah, Sâkût, and further south. The people of Teyâsîr also sow on the south of Mâlih; the water of which is used for irrigation. The whole tract north of Wady Mâlih was said to be farmed from the government by one of the Sheiks of the Jenâr family, who live at Jeba and in its neighbourhood. By him it is again let to the different villages. *Robinson's "Biblical Researches in Palestine."* 
 
 **Verses 6-7.** The chief and principal places where the seditious party had their residence and abode, were those which the psalmist mentions in the sixth and seventh verses, namely, *Shechem,* a city in the tribe of Ephraim; *Succoth,* a city in the tribe of Gad; *Gilead* and *Manasseh,* the utmost borders of the land of Canaan beyond Jordan. These were some of the chief places, which sided with Ishbosheth whilst he lived, as you may see, 2 Samuel 2; and, as it seemeth, they still cleaved to the house of Saul after he was dead, not acknowledging David for their king. *John Brinsley.* 
 
@@ -178,7 +178,7 @@ As yet the interior fortresses of Edom had not been subdued. Their invading band
 
 1\."We shall do valiantly, "for God helps not remiss, or cowardly, or negligent men.
 
-2\.And yet, that being done, the work is *his:* "He shall tread down; "the blow and the overthrow are not to be attributed to *us,* but to *him. Adam Clarke.* 
+2\. And yet, that being done, the work is *his:* "He shall tread down; "the blow and the overthrow are not to be attributed to *us,* but to *him. Adam Clarke.* 
 
 ## Hints to the Village Preacher
 
@@ -202,27 +202,27 @@ As yet the interior fortresses of Edom had not been subdued. Their invading band
 
 **Verse 4.** The banner of the gospel.
 
-1\.Why a banner? A rallying point, meant to fight under, etc.
+1\. Why a banner? A rallying point, meant to fight under, etc.
 
-2\.By whom given. *Thou.* 
+2\. By whom given. *Thou.* 
 
-3\.To whom. *To them that fear thee.* 
+3\. To whom. *To them that fear thee.* 
 
-4\.What is to be done with it. *To be displayed.* 
+4\. What is to be done with it. *To be displayed.* 
 
-5\.For what cause. *Because of the truth.* Truth promotes truth.
+5\. For what cause. *Because of the truth.* Truth promotes truth.
 
 **Verse 5.** The deliverance of the elect needs a saving God, a mighty God (*right hand* ), and a prayer hearing God.
 
 **Verse 5.** (*last clause* ). *Save... and hear.* The remarkable order of these words suggests that—
 
-1\.In the purpose of God.
+1\. In the purpose of God.
 
-2\.In the first works of grace.
+2\. In the first works of grace.
 
-3\.Often under trial.
+3\. Often under trial.
 
-4\.And specially in fierce temptations, Gods saving precedes man's praying.
+4\. And specially in fierce temptations, Gods saving precedes man's praying.
 
 **Verse 6.** God's holy promise, ground for present joy, and for boldly taking possession of the promised good.
 
@@ -234,11 +234,11 @@ As yet the interior fortresses of Edom had not been subdued. Their invading band
 
 **Verse 9.** The soul winner's question.
 
-1\.The object of attack; the strong city of man's heart, barricaded by depravity, ignorance, prejudice, custom, etc.
+1\. The object of attack; the strong city of man's heart, barricaded by depravity, ignorance, prejudice, custom, etc.
 
-2\.Our main design. To penetrate, to reach the citadel for Jesus.
+2\. Our main design. To penetrate, to reach the citadel for Jesus.
 
-3\.Our great enquiry. Eloquence, learning, wit, none of these can force the gate, but there is One who can.
+3\. Our great enquiry. Eloquence, learning, wit, none of these can force the gate, but there is One who can.
 
 **Verse 12.** Divine operation a reason for human activity.
 

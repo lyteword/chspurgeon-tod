@@ -86,7 +86,7 @@ And Israel be glad.
 
 ## Explanatory Notes & Quaint Sayings
 
-**Whole Psalm.** Probably the two Psalms *refer to different periods;* the fourteenth to the earlier portion of the world, or of Jewish history; the fifty-third to a later, perhaps a still future time. Jehovah, through Christ, is frequently said to turn to the world to see what its condition is, and always with the same result. "All flesh had corrupted its way" in the days of Noah, and, "when the Son of Man cometh" again, it is intimated that he will scarcely "find faith on the earth." The two Psalms also *apply to different persons.* The former refers to the enemies of God, who tremble when his presence is made known; *they are in great fear,* because vengeance is about to be inflicted on them for their sins. Here the Supreme Being is called Jehovah. In the fifty-third Psalm the interests of God's people are principally kept in view. The ungodly are regarded as plotting against the righteous, and it is in this relation their case is considered. The fear that was just and reasonable in the fourteenth Psalm, because it concerned the unrighteous under a sense of impending judgment, is said to be unfounded in the fifty-third, because God was in the midst of his people, *scattering the bones of their enemies,* and showing himself, not as Jehovah, but as the Elohim of his redeemed children. The fourteenth Psalm contemplates judgment; the fifty-third deliverance; and thus, though seemingly alike, a different lesson is conveyed in each. The Psalm, then, descriptive of the universal and continuous corruption of man's nature, very properly occupies an introductory place in a series intended to represent the enemies of Messiah, who oppose his church during his absence, and who are to attempt to resist his power when he comes again. Before entering upon an examination of the character of these opponents, this Psalm teaches that, until changed by grace, all are gone astray; "there is none righteous, no, not one, "and that for all there is but one remedy, *the Deliverer coming out of Zion, who shall turn away ungodliness from Jacob. R. H. Ryland, M.A., in "The Psalms restored to Messiah,"* 1853.
+**Whole Psalm.** Probably the two Psalms *refer to different periods;* the fourteenth to the earlier portion of the world, or of Jewish history; the fifty-third to a later, perhaps a still future time. Jehovah, through Christ, is frequently said to turn to the world to see what its condition is, and always with the same result. "All flesh had corrupted its way" in the days of Noah, and, "when the Son of Man cometh" again, it is intimated that he will scarcely "find faith on the earth." The two Psalms also *apply to different persons.* The former refers to the enemies of God, who tremble when his presence is made known; *they are in great fear,* because vengeance is about to be inflicted on them for their sins. Here the Supreme Being is called Jehovah. In the fifty-third Psalm the interests of God's people are principally kept in view. The ungodly are regarded as plotting against the righteous, and it is in this relation their case is considered. The fear that was just and reasonable in the fourteenth Psalm, because it concerned the unrighteous under a sense of impending judgment, is said to be unfounded in the fifty-third, because God was in the midst of his people, *scattering the bones of their enemies,* and showing himself, not as Jehovah, but as the Elohim of his redeemed children. The fourteenth Psalm contemplates judgment; the fifty-third deliverance; and thus, though seemingly alike, a different lesson is conveyed in each. The Psalm, then, descriptive of the universal and continuous corruption of man's nature, very properly occupies an introductory place in a series intended to represent the enemies of Messiah, who oppose his church during his absence, and who are to attempt to resist his power when he comes again. Before entering upon an examination of the character of these opponents, this Psalm teaches that, until changed by grace, all are gone astray; "there is none righteous, no, not one, "and that for all there is but one remedy, *the Deliverer coming out of Zion, who shall turn away ungodliness from Jacob. R. H. Ryland, M. A., in "The Psalms restored to Messiah,"* 1853.
 
 **Whole Psalm.** The state of earth ought to be deeply felt by us. The world lying in wickedness should occupy much of our thoughts. The enormous guilt, the inconceivable pollution, the ineffably provoking Atheism of this fallen province of God's dominion, might be a theme for our ceaseless meditation and mourning. To impress it the more on us, therefore, the Psalm repeats what has been already sung in Psalm 14. It is the same Psalm, with only a few words varied; it is "line upon line, precept upon precept; "the harp's most melancholy, most dismal notes again sounded in our ear. Not that the Lord would detain us always, or disproportionately long, amid scenes of sadness; for elsewhere he repeats in like manner that most triumphant melody, Ps 40:6-12 108:6-13; but it is good to return now and then to the open field on which we all were found, cast out in loathsome degradation. *Andrew A. Bonar, in "Christ and his Church in the Book of Psalms,"* 1859.
 
@@ -96,21 +96,21 @@ And Israel be glad.
 
 **Whole Psalm.** God, in this Psalm, "speaketh twice, "for this is the same almost verbatim with the fourteenth Psalm. The scope of it is to convince us of our sins, to set us blushing, and to set us trembling because of them: there is need of "line upon line" to this purpose. God, by the psalmist, here shows—
 
-1\.The *fact* of sin. God is a witness to it. He looks down from heaven and sees all the sinfulness of men's hearts and lives. All this is open and naked before him.
+1\. The *fact* of sin. God is a witness to it. He looks down from heaven and sees all the sinfulness of men's hearts and lives. All this is open and naked before him.
 
-2\.The *fault* of sin. It is iniquity (Ps 53:1,4); it is an unrighteous thing; it is that in which there is no good (Ps 53:1,3); it is going back from God (Ps 53:3).
+2\. The *fault* of sin. It is iniquity (Ps 53:1,4); it is an unrighteous thing; it is that in which there is no good (Ps 53:1,3); it is going back from God (Ps 53:3).
 
-3\.The *fountain* of sin. How comes it that men are so bad? Surely, it is because there is no fear of God before their eyes; they say in their hearts, there is no God at all to call us to account, none that we need to stand in awe of. Men's bad practices flow from their bad principles.
+3\. The *fountain* of sin. How comes it that men are so bad? Surely, it is because there is no fear of God before their eyes; they say in their hearts, there is no God at all to call us to account, none that we need to stand in awe of. Men's bad practices flow from their bad principles.
 
-4\.The *folly* of sin. He is a *fool* (in the account of God, whose judgment we are sure is right) who harbours such corrupt thoughts. The "workers of iniquity, "whatever they pretend to, "have no knowledge; "they may truly be said to know nothing that do not know God. Ps 53:4.
+4\. The *folly* of sin. He is a *fool* (in the account of God, whose judgment we are sure is right) who harbours such corrupt thoughts. The "workers of iniquity, "whatever they pretend to, "have no knowledge; "they may truly be said to know nothing that do not know God. Ps 53:4.
 
-5\.The *filthiness* of sin. Sinners are "corrupt" (Ps 53:1); their nature is vitiated and spoiled; their iniquity is "abominable; "it is odious to the holy God, and renders them so; whereas, otherwise he "hates nothing that he has made." What neatness soever proud sinners pretend to, it is certain that wickedness is the greatest nastiness in the world.
+5\. The *filthiness* of sin. Sinners are "corrupt" (Ps 53:1); their nature is vitiated and spoiled; their iniquity is "abominable; "it is odious to the holy God, and renders them so; whereas, otherwise he "hates nothing that he has made." What neatness soever proud sinners pretend to, it is certain that wickedness is the greatest nastiness in the world.
 
-6\.The *fruit* of sin. See to what a degree of barbarity it brings men at last! See their cruelty to their brethren! They "eat them up as they eat bread." As if they had not only become beasts, but beasts of prey. See their contempt of God at the same time—they have not called upon him, but scorn to be beholden to him.
+6\. The *fruit* of sin. See to what a degree of barbarity it brings men at last! See their cruelty to their brethren! They "eat them up as they eat bread." As if they had not only become beasts, but beasts of prey. See their contempt of God at the same time—they have not called upon him, but scorn to be beholden to him.
 
-7\.The *fear and shame* that attends sin (Ps 53:5). "There were they in great fear" who had made God their enemy; their own guilty consciences frightened them and filled them with horror. This enables the virgin, the daughter of Zion, to put them to shame and expose them, "because God hath despised them."
+7\. The *fear and shame* that attends sin (Ps 53:5). "There were they in great fear" who had made God their enemy; their own guilty consciences frightened them and filled them with horror. This enables the virgin, the daughter of Zion, to put them to shame and expose them, "because God hath despised them."
 
-8\.The *faith* of the saints, and their hope and power touching this great evil (Ps 53:6). There will come a Saviour, a great salvation, a salvation from sin. O that it might be hastened! for it will bring in glorious and joyful times. There were those in Old Testament times that looked and hoped, that prayed and waited for this redemption. Such salvations were often wrought, and all typical of the everlasting triumphs of the glorious church. *Condensed from Matthew Henry,* 1662-1714.
+8\. The *faith* of the saints, and their hope and power touching this great evil (Ps 53:6). There will come a Saviour, a great salvation, a salvation from sin. O that it might be hastened! for it will bring in glorious and joyful times. There were those in Old Testament times that looked and hoped, that prayed and waited for this redemption. Such salvations were often wrought, and all typical of the everlasting triumphs of the glorious church. *Condensed from Matthew Henry,* 1662-1714.
 
 **Verse 1.** *The fool hath said in his heart,* etc. It is in his heart he says this; this is the secret desire of every unconverted bosom. If the breast of God were within the reach of men, it would be stabbed a million of times in one moment. When God was manifest in the flesh, he was altogether lovely; he did no sin; he went about continually doing good: and yet they took him and hung him on a tree; they mocked him and spat upon him. And this is the way men would do with God again. Learn—First. The fearful depravity of your heart. I venture to say there is not an unconverted man present, who has the most distant idea of the monstrous wickedness that is now within his breast. Stop till you are in hell, and it will break out unrestrained. But still let me tell you what it is—you have a heart that would kill God if you could. If the bosom of God were nor within your reach, and one blow would rid the universe of God, you have a heart fit to do the deed. Second. The amazing love of Christ—"While we were enemies, Christ died for us." *Robert Murray Macheyne,* 1813-1843.
 
@@ -148,15 +148,15 @@ See the hints on Psalm 14.
 
 **Verse 1.** 
 
-1\.The folly of atheism. He who says there is no God is a fool.
+1\. The folly of atheism. He who says there is no God is a fool.
 
 (a) No reason for the assertion.
 
 (b) All reason against it.
 
-2\.The seat of atheism is the heart; it is a moral unbelief not an intellectual, the language of the will not of the understanding.
+2\. The seat of atheism is the heart; it is a moral unbelief not an intellectual, the language of the will not of the understanding.
 
-3\.Cause of atheism.
+3\. Cause of atheism.
 
 (a) Loving evil.
 
@@ -164,17 +164,17 @@ See the hints on Psalm 14.
 
 **Verse 2.** 
 
-1\.God has not left the world to itself.
+1\. God has not left the world to itself.
 
-2\.He takes particular notice of all that is in it.
+2\. He takes particular notice of all that is in it.
 
-3\.The only thing he values in it is the knowledge of himself. *G. R.* 
+3\. The only thing he values in it is the knowledge of himself. *G. R.* 
 
 **Verse 4.** How far knowledge is and is not a restraint upon ungodliness.
 
 **Verse 4.** It is a sin not to call upon God.
 
-1\.What is it to call upon God? Three things required in it.
+1\. What is it to call upon God? Three things required in it.
 
 (a) A drawing near to him.
 
@@ -182,7 +182,7 @@ See the hints on Psalm 14.
 
 (c) A praying to him.
 
-2\.How should we call upon God?
+2\. How should we call upon God?
 
 (a) Reverently, considering (1) God's holiness and greatness; (2) our own sin and weakness. Ge 18:27.
 
@@ -196,13 +196,13 @@ See the hints on Psalm 14.
 
 (f) Constantly. (1) So as to be always in a praying frame. (2) So as to take all occasions of pouring forth our souls in prayer to God. (3) So as to let no day slip without prayer.
 
-3\.How it appears to be a sin not to call upon God.
+3\. How it appears to be a sin not to call upon God.
 
 (a) He hath commanded it. Isa 55:6 1Ti 2:8.
 
 (b) Because praying is one of the principal parts of worship we owe to God.
 
-4\.Who are guilty of this sin?
+4\. Who are guilty of this sin?
 
 (a) All who pray to any one else but God.
 
@@ -212,21 +212,21 @@ See the hints on Psalm 14.
 
 **Verse 5.** 
 
-1\.What persecutors are to themselves-their own tormentors, full even of groundless fears.
+1\. What persecutors are to themselves-their own tormentors, full even of groundless fears.
 
-2\.What they are to one another-though in concert here, their bones are scattered hereafter.
+2\. What they are to one another-though in concert here, their bones are scattered hereafter.
 
-3\.What they are to those whom they persecute—made ashamed before them.
+3\. What they are to those whom they persecute—made ashamed before them.
 
-4\.What they are to God-a contempt and derision. *G. R.* 
+4\. What they are to God-a contempt and derision. *G. R.* 
 
 **Verse 6.** 
 
-1\.There is salvation for Israel.
+1\. There is salvation for Israel.
 
-2\.That salvation is in Zion.
+2\. That salvation is in Zion.
 
-3\.Their salvation remains there when they are banished from it.
+3\. Their salvation remains there when they are banished from it.
 
-4\.Their joy becomes greater when they return. *G. R.* 
+4\. Their joy becomes greater when they return. *G. R.* 
 

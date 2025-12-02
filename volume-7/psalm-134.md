@@ -34,7 +34,7 @@ This last verse is the answer from the temple to the pilgrims preparing to depar
 
 **Whole Psalm.** The tabernacle and temple were served by priests during the night as well as the day. Those priests renewed the altar fire, fed the lamps, and guarded the sacred structure from intrusion and from plunder. The Psalm before us was prepared for the priests who served the sacred place by night. They were in danger of slumbering; and they were in danger of idle reverie. Oh, how much time is wasted in mere reverie—in letting thought wander, and wander, and wander! The priests were in danger, we say, of slumbering, of idle reverie, of vain thoughts, of useless meditation, and of profitless talk: and therefore it is written,—"Behold, bless ye the LORD, all ye servants of the LORD, which by night stand in the house of the LORD." Is it your duty to spend the night in watching? Then spend the night in worship. Do not let the time of watching be idle, wasted time; but when others are slumbering and sleeping, and you are necessarily watchful, sustain the praises of God's house; let there be praise in Zion—still praise by night as well as by day! *Lift up your hands in the sanctuary, and bless the LORD.* We may suppose these words to be addressed to the sacred sentinels, by the head of their course, or by the captain of the guard, or even by the high priest. We can imagine the captain of the guard coming in during the night watches, and saying to the priests who were guarding the temple, *Behold, bless ye the LORD, all ye servants of the LORD, which by night stand in the house of the LORD.* Or we could imagine the high priest, when the watch was set for the first part of the night, going to the priests who were under his control, and addressing to them these same soul stirring words. Now our text is the response of these sacred sentinels. As they listened to the captain of the guard, or to the high priest, telling them to worship by night in the courts of the Lord—to lift up their hands in the sanctuary, and bless the Lord—they answered him, *The LORD that made heaven and earth bless thee out of Zion.* So that here you have brought before you the interesting and instructive subject of mutual benediction—the saints blessing each other.— *Samuel Martin,* 1817-1878.
 
-**Verse 1.** The Targum explains the first verse of the Temple watch. "The custom in the Second Temple appears to have been this. After midnight the chief of the doorkeepers took the key of the inner Temple, and went with some of the priests through the small postern of the Fire Gate. In the inner court this watch divided itself into two companies, each carrying a burning torch; one company turned west, the other east, and so they compassed the court to see whether all were in readiness for the Temple service on the following morning. In the bakehouse, where the *Mincha* ("meat offering") of the High Priest was baked, they met with the cry, `All well.' Meanwhile the rest of the priests arose, bathed themselves, and put on their garments. They then went into the stone chamber (one half of which was the hall of session of the Sanhedrim), and there, under the superintendence of the officer who gave the watchword, and one of the Sanhedrim, surrounded by the priests clad in their robes of office, their several duties for the coming day were assigned to each of the priests by lot. Lu 1:9."— *J.J. Stewart Perowne.* 
+**Verse 1.** The Targum explains the first verse of the Temple watch. "The custom in the Second Temple appears to have been this. After midnight the chief of the doorkeepers took the key of the inner Temple, and went with some of the priests through the small postern of the Fire Gate. In the inner court this watch divided itself into two companies, each carrying a burning torch; one company turned west, the other east, and so they compassed the court to see whether all were in readiness for the Temple service on the following morning. In the bakehouse, where the *Mincha* ("meat offering") of the High Priest was baked, they met with the cry, `All well.' Meanwhile the rest of the priests arose, bathed themselves, and put on their garments. They then went into the stone chamber (one half of which was the hall of session of the Sanhedrim), and there, under the superintendence of the officer who gave the watchword, and one of the Sanhedrim, surrounded by the priests clad in their robes of office, their several duties for the coming day were assigned to each of the priests by lot. Lu 1:9."— *J. J. Stewart Perowne.* 
 
 **Verse 1.** *Behold.* The Psalm begins with the demonstrative adverb Behold setting the matter of their duty before their eyes, for they were to be stimulated to devotion by looking constantly to the Temple. We are to notice the Psalmist's design in urging the duty of praise so earnestly upon them. Many of the Levites, through the tendency which there is in all men to abuse ceremonies, considered that nothing more was necessary than standing idly in the Temple, and thus overlooked the principal part of their duty. The Psalmist would show that merely to keep nightly watch over the Temple, kindle the lamps, and superintend the sacrifices, was of no importance, unless they served God spiritually, and referred all outward ceremonies to that which must be considered the main sacrifice,—the celebration of God's praises. You may think it a very laborious service, as if he had said, to stand at watch in the Temple, while others sleep in their own houses; but the worship which God requires is something more excellent than this, and demands of you to sing his praises before all the people.— *John Calvin.* 
 
@@ -52,7 +52,7 @@ This last verse is the answer from the temple to the pilgrims preparing to depar
 
 **Verse 2.** *Lift up your hands*, etc. The lifting up of the hands was a gesture in prayer, it was an intimation of their expectation of receiving blessings from the Lord, and it was also an acknowledgment of their having received the same.— *Samuel Eyles Pierce.* 
 
-**Verse 2.** *In the sanctuary.* The Hebrew work signifying *holiness* as well as the *holy place* may here be taken in the former sense, the latter having been sufficiently expressed (Ps 134:1) by "the house of the Lord"...The priests (which are here spoken to) before their officiating, which is here expressed by *lifting up their hands,* were obliged to wash their hands.— *Henry Hammond.* 
+**Verse 2.** *In the sanctuary.* The Hebrew work signifying *holiness* as well as the *holy place* may here be taken in the former sense, the latter having been sufficiently expressed (Ps 134:1) by "the house of the Lord"... The priests (which are here spoken to) before their officiating, which is here expressed by *lifting up their hands,* were obliged to wash their hands.— *Henry Hammond.* 
 
 **Verse 3.** *The LORD that made heaven and earth bless thee out of Zion.* He doth not say, the Lord that made the earth bless thee out of heaven; nor, the Lord that made heaven bless thee out of heaven; but *"bless thee out of Zion."* As if he would teach us that all blessings come as immediately and primarily from heaven, so mediately and secondarily from *Zion,* where the Temple stood. If ever, therefore, we would have blessings outward, inward, private, public, secular, spiritual; if ever we would have blessing in our estate, blessing in our land, blessing in our souls, we must pray for it, and pray for it here, in *Zion,* in God's house: for from the piety there exercised all blessings flow, as from a fountain that can never be drawn dry.— *Abraham Wright.* 
 
@@ -64,7 +64,7 @@ This last verse is the answer from the temple to the pilgrims preparing to depar
 
 **Verse 3.** *The LORD bless thee out of Zion.* The Church is the conservator of Divine revelation; the Church is the offerer on earth of true worship; it consists of a company of priests, a royal priesthood, part of whose mission is "to offer up spiritual sacrifices acceptable to God by Jesus Christ." The Church is the heritor of the covenants. God's covenants are made with his Church, and his promises are addressed chiefly to his Church. The Church is the scene of special Divine ministrations, God shows himself to his Church as he does not to that which is called the world. It is also the scene of special heavenly influences: and in a sense next to that in which God is said to reside in heaven, the Church is the dwellingplace of the Most High. Now, what is it to be *blessed out of Zion?* It is surely to be blessed with Zion's blessings, and to have Zion's endowments and gifts rendered sources of advantage and profit to us.— *Samuel Martin.* 
 
-**Verse 3.** *Bless thee.* The singular instead of the plural "bless *you",* because the words are taken from the form used by the High Priest in blessing the people. Nu 6:24.— *J.J. Stewart Perowne.* 
+**Verse 3.** *Bless thee.* The singular instead of the plural "bless *you",* because the words are taken from the form used by the High Priest in blessing the people. Nu 6:24.— *J. J. Stewart Perowne.* 
 
 **Verse 3.** *Bless thee.* It is addressed to the church as one person, and to each individual in this united, unit like church.— *Franz Delitzsch.* 
 
@@ -72,7 +72,7 @@ This last verse is the answer from the temple to the pilgrims preparing to depar
 
 **Whole Psalm.** There are two things in this Psalm.
 
-1\.Our blessing God: Ps 134:1-2.
+1\. Our blessing God: Ps 134:1-2.
 
 a) How? By gratitude, by love, by obedience, by prayer, by praise.
 
@@ -80,7 +80,7 @@ b) Where? "in the house of the Lord", "in the sanctuary."
 
 c) When? Not in the day merely, but at night. Some of old spent the whole night, others part of the night, in the temple, praising God. As Christ spent whole nights in prayer for his people, they should not think it too much occasionally to spend whole nights in praise of him. Evening services should not be neglected on the Sabbath, nor on other days of the week.
 
-2\.God blessing us: Ps 134:3.
+2\. God blessing us: Ps 134:3.
 
 a) The persons blessed: "bless thee"—every one who blesses him.
 
@@ -90,41 +90,41 @@ c) The blessing itself: of the Lord. They are blessed whom he blesses.— *R.*
 
 **Whole Psalm.** 
 
-1\.God—Jehovah—the fountain of blessing.
+1\. God—Jehovah—the fountain of blessing.
 
-2\.The heavens and the earth, evidence of divine capacity to bless.
+2\. The heavens and the earth, evidence of divine capacity to bless.
 
-3\.The church, a channel of blessing.
+3\. The church, a channel of blessing.
 
-4\.The saints, the means of spreading blessing, through the spirit of blessing.
+4\. The saints, the means of spreading blessing, through the spirit of blessing.
 
-5\.The riches involved in the divine benediction.— *Samuel Martin.* 
+5\. The riches involved in the divine benediction.— *Samuel Martin.* 
 
 **Whole Psalm.** 
 
-1\.Unique service: temple watching, night sentinelship. 2 Sublime society: the awful things of the sanctuary.
+1\. Unique service: temple watching, night sentinelship. 2 Sublime society: the awful things of the sanctuary.
 
-3\.Holy uplifting: hands, hearts, eyes.
+3\. Holy uplifting: hands, hearts, eyes.
 
-4\.Praise in the darkness heard far up in the light.
+4\. Praise in the darkness heard far up in the light.
 
-5\.Response from the stars fulfilling the prayer: "The Creator Lord bless thee."— *W.B.H.* 
+5\. Response from the stars fulfilling the prayer: "The Creator Lord bless thee."— *W. B. H.* 
 
 **Verse 1.** 
 
-1\.Night settles on the holy place: dark periods of church story.
+1\. Night settles on the holy place: dark periods of church story.
 
-2\.But God has his guards: Wycliffe and his band watching for the Reformation; Waldenses, etc. Never a night so dark but God is praised and served.
+2\. But God has his guards: Wycliffe and his band watching for the Reformation; Waldenses, etc. Never a night so dark but God is praised and served.
 
-3\.Be it night or day, let the Levites fulfil their courses.— *W.B.H.* 
+3\. Be it night or day, let the Levites fulfil their courses.— *W. B. H.* 
 
 **Verse 1.** The Lord's servants exhorted to be,
 
-1\.Devout and joyful in their service. Sing at your work, though it be in the dark.
+1\. Devout and joyful in their service. Sing at your work, though it be in the dark.
 
-2\.Zealous to employ every season of service aright. "By night", as by day, "bless the Lord."
+2\. Zealous to employ every season of service aright. "By night", as by day, "bless the Lord."
 
-3\.Careful to avoid all hindrances to devotion in their service. When tempted to indolence and drowsiness, say:
+3\. Careful to avoid all hindrances to devotion in their service. When tempted to indolence and drowsiness, say:
 
 "Wake, and lift up thyself, my heart,
 
@@ -132,31 +132,31 @@ And with the angels bear thy part,
 
 Who all night long, unwearied, sing
 
-High praise to the Eternal King." *W.H.J.P.* 
+High praise to the Eternal King." *W. H. J. P.* 
 
 **Verse 1.** Directions for worship.
 
-1\.It should be with great care: "Behold."
+1\. It should be with great care: "Behold."
 
-2\.With grateful joy: "Bless ye the Lord."
+2\. With grateful joy: "Bless ye the Lord."
 
-3\.Unanimously: "all ye."
+3\. Unanimously: "all ye."
 
-4\.With holy reverence, as by "servants of the Lord."
+4\. With holy reverence, as by "servants of the Lord."
 
-5\.With unflagging constancy: "stand by night."
+5\. With unflagging constancy: "stand by night."
 
 **Verse 1.** *Ye that stand by night.* The night watchmen of the Lord's house, their value, their obscurity, their danger slumber, their consolation, their dignity, their reward.
 
 **Verse 2.** Ingredients of worship.
 
-1\.Uplifted hands. Energy, courage, prayer, aspiration.
+1\. Uplifted hands. Energy, courage, prayer, aspiration.
 
-2\.Uplifted hearts. Thank, praise, adore, and love the Lord.
+2\. Uplifted hearts. Thank, praise, adore, and love the Lord.
 
 **Verse 3.** The Divine Benediction.
 
-1\.From the Creator: ample, new, varied, boundless, enduring—all illustrated by his making heaven and earth.
+1\. From the Creator: ample, new, varied, boundless, enduring—all illustrated by his making heaven and earth.
 
-2\.From the Redeemer: blessings most needful, rich, effectual, abiding,—all illustrated and guaranteed by his dwelling among men, purchasing a church, building an abode, revealing his glory, reigning on his throne.
+2\. From the Redeemer: blessings most needful, rich, effectual, abiding,—all illustrated and guaranteed by his dwelling among men, purchasing a church, building an abode, revealing his glory, reigning on his throne.
 

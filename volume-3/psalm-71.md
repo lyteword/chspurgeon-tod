@@ -194,11 +194,11 @@ Who can think of all this and not pray for special grace for himself, should he 
 
 **Verse 9.** *Forsake me not when my strength faileth.* June 28. This day I enter on my eighty-sixth year. I now find I grow old:
 
-1\.My sight is decayed, so that I cannot read a small print, unless in a strong light.
+1\. My sight is decayed, so that I cannot read a small print, unless in a strong light.
 
-2\.My strength is decayed, so that I walk much slower than I did some years since.
+2\. My strength is decayed, so that I walk much slower than I did some years since.
 
-3\.My memory of names, whether of persons, or places, is decayed, till I stop a little to recollect them.
+3\. My memory of names, whether of persons, or places, is decayed, till I stop a little to recollect them.
 
 What I should be afraid of, is, if I took thought for the morrow, that my body should weigh down my mind, and create either stubbornness, by the decrease of my understanding, or peevishness, by the increase of bodily infirmities; But thou shalt answer for me, O Lord my God. *John Wesley.* 
 
@@ -338,37 +338,37 @@ Into a seraph's song.
 
 Arguments used to induce to Lord to hear, drawn,
 
-1\.From his *justice* and *equity: Deliver me in thy righteousness.* 
+1\. From his *justice* and *equity: Deliver me in thy righteousness.* 
 
-2\.From his *word* and *promise: Thou hast given commandment, etc.* 
+2\. From his *word* and *promise: Thou hast given commandment, etc.* 
 
-3\.From his *power: Thou art my rock.* etc.
+3\. From his *power: Thou art my rock.* etc.
 
-4\.From his *relation* to him: *My God, my hope.* 
+4\. From his *relation* to him: *My God, my hope.* 
 
-5\.From the *qualities* of his *adversaries: They were wicked, unrighteous, and cruel.* 
+5\. From the *qualities* of his *adversaries: They were wicked, unrighteous, and cruel.* 
 
-6\.From his *confidence: Thou art my hope.* 
+6\. From his *confidence: Thou art my hope.* 
 
-7\.From his *gracious providence: By thee have I been holden up, etc.* 
+7\. From his *gracious providence: By thee have I been holden up, etc.* 
 
-8\.From his *thankful heart: My praise shall be continually, etc.* 
+8\. From his *thankful heart: My praise shall be continually, etc.* 
 
-9\.He had *none to trust to* but God: *Thou art my refuge. Adam Clarke.* 
+9\. He had *none to trust to* but God: *Thou art my refuge. Adam Clarke.* 
 
 **Verse 1.** Faith is a present act; faith is a personal act, faith deals only with God, faith knows what she is about, faith kills her fears by prayer.
 
 **Verse 2.** An appeal.
 
-1\.To the power of God: *Deliver me.* 
+1\. To the power of God: *Deliver me.* 
 
-2\.To the faithfulness of God: *In thy righteousness.* 
+2\. To the faithfulness of God: *In thy righteousness.* 
 
-3\.To the providence of God: *Cause me to escape.* 
+3\. To the providence of God: *Cause me to escape.* 
 
-4\.To the condescension of God: *Incline thine ear.* 
+4\. To the condescension of God: *Incline thine ear.* 
 
-5\.To the mercy of God: *Save me.* 
+5\. To the mercy of God: *Save me.* 
 
 **Verse 2.** *Cause me to escape.* From whom? From what? How? By what power? For what end?
 
@@ -378,9 +378,9 @@ Arguments used to induce to Lord to hear, drawn,
 
 **Verse 4.** 
 
-1\.When God is for us, the wicked are against us.
+1\. When God is for us, the wicked are against us.
 
-2\.When the wicked are against us, God is for us.
+2\. When the wicked are against us, God is for us.
 
 **Verse 5.** God the essence of hope and faith.
 
@@ -408,7 +408,7 @@ Arguments used to induce to Lord to hear, drawn,
 
 **Verse 7.** Consider the text, with reference to *David,* to *Christ,* and to the *Christian.* 
 
-1\.With reference to *David.* 
+1\. With reference to *David.* 
 
 (a) David was a wonder as a man.
 
@@ -416,7 +416,7 @@ Arguments used to induce to Lord to hear, drawn,
 
 (c) As a servant of God.
 
-2\.With respect to *Christ.* 
+2\. With respect to *Christ.* 
 
 (a) Christ was a wonder in his person.
 
@@ -430,7 +430,7 @@ Arguments used to induce to Lord to hear, drawn,
 
 (f) In his ascension and mediatorial glory.
 
-3\.With regard to the *Christian.* 
+3\. With regard to the *Christian.* 
 
 (a) The Christian is a wonder to himself.
 
@@ -444,9 +444,9 @@ Arguments used to induce to Lord to hear, drawn,
 
 **Verse 8.** 
 
-1\.What? filled with what?—murmurings? doubts? fears? No! Praise. My own?—of men? No. *Thy praise*. *Thy honour*.
+1\. What? filled with what?—murmurings? doubts? fears? No! Praise. My own?—of men? No. *Thy praise*. *Thy honour*.
 
-2\.When? *All the day.* 
+2\. When? *All the day.* 
 
 (a) The whole day.
 
@@ -454,23 +454,23 @@ Arguments used to induce to Lord to hear, drawn,
 
 **Verse 9.** There are some peculiar circumstances of old age which render this blessing—the favour and presence of God—necessary.
 
-1\.Old age is a time of but little natural enjoyment, as Barzillai acknowledged, 2Sa 19:35.
+1\. Old age is a time of but little natural enjoyment, as Barzillai acknowledged, 2Sa 19:35.
 
-2\.It is a time of life in which the troubles of life are often known to increase.
+2\. It is a time of life in which the troubles of life are often known to increase.
 
-3\.Old age is a time in which the troubles of life not only increase, but become less tolerable.
+3\. Old age is a time in which the troubles of life not only increase, but become less tolerable.
 
-4\.Old age is a time which ought to command respect, and does so among dutiful children and all serious Christians: but it is often known to be attended with neglect. This is the case especially where they are poor and dependent. It has been the case where public characters have lost their youthful vivacity, and the brilliancy of their talents. *A. Fuller.* 
+4\. Old age is a time which ought to command respect, and does so among dutiful children and all serious Christians: but it is often known to be attended with neglect. This is the case especially where they are poor and dependent. It has been the case where public characters have lost their youthful vivacity, and the brilliancy of their talents. *A. Fuller.* 
 
 **Verse 9.** There is,
 
-1\.Fear, mixed with faith.
+1\. Fear, mixed with faith.
 
 (a) Natural to old age.
 
 (b) Suggested by the usage of the world.
 
-2\.Faith mixed with fear: "Cast me not, "etc.
+2\. Faith mixed with fear: "Cast me not, "etc.
 
 (a) Old age is not a sin.
 
@@ -480,15 +480,15 @@ Arguments used to induce to Lord to hear, drawn,
 
 **Verses 13-14.** 
 
-1\.What the wicked gain by opposing the righteous: Let them, etc. Ps 71:13.
+1\. What the wicked gain by opposing the righteous: Let them, etc. Ps 71:13.
 
-2\.What the righteous gain from being opposed by them, Ps 71:14: *But I,* etc.
+2\. What the righteous gain from being opposed by them, Ps 71:14: *But I,* etc.
 
 **Verse 14.** See "Spurgeon's Sermons, "No. 998; "More and More."
 
 **Verse 15.** 
 
-1\.The determination avowed.
+1\. The determination avowed.
 
 (a) To recount the instances of the divine faithfulness in his deliverances.
 
@@ -496,13 +496,13 @@ Arguments used to induce to Lord to hear, drawn,
 
 (c) Constantly: *All the day.* 
 
-2\.The reason assigned: *For I know not,* etc. "Eternity's too short to utter all thy praise." Therefore I begin it now, and will continue it.
+2\. The reason assigned: *For I know not,* etc. "Eternity's too short to utter all thy praise." Therefore I begin it now, and will continue it.
 
 **Verse 16.** 
 
-1\.The resolution: *I will go.* 
+1\. The resolution: *I will go.* 
 
-2\.The reservation: *Thy strength only—thy righteousness only.* 
+2\. The reservation: *Thy strength only—thy righteousness only.* 
 
 **Verse 17.** *O God, thou hast taught me.* None but God can teach us experimentally; and the lessons he teaches are always useful and important. He teaches all his scholars to know themselves—their depravity, poverty, and slavery. He teaches them his law—its purity, claims, and penalty. He teaches them his gospel—its fulness, freeness, and sensibility. He teaches them to know himself; as a reconciled God, as their Father and faithful friend. His teaching is accompanied with power and authority. We may know divine teaching by its effects: it always produces humility—they sit as his feet; dependence upon him; abhorrence of sin; love to God as a teacher; obedience to the lessons taught; thirst for further attainments; and it brings us daily to Jesus. *James Smith.* 
 
@@ -512,17 +512,17 @@ Arguments used to induce to Lord to hear, drawn,
 
 **Verse 20.** 
 
-1\.The future benefit of present trials: "Hereafter," said Aneas to his shipwrecked companions. "It will delight us to think of these things."
+1\. The future benefit of present trials: "Hereafter," said Aneas to his shipwrecked companions. "It will delight us to think of these things."
 
-2\.The present benefit of future mercies: "Glory to thee for all the grace we have not tasted yet."
+2\. The present benefit of future mercies: "Glory to thee for all the grace we have not tasted yet."
 
 **Verse 22.** A choice subject for song—"thy truth, "which may mean either doctrinal truth, or the attribute of faithfulness, its manifestation in history, and in our own experience.
 
 **Verse 22-23.** 
 
-1\.The soul of music: Not in the instrument or the voice, but in the soul. "I will sing with the understanding also." "Making melody in the heart, "etc.
+1\. The soul of music: Not in the instrument or the voice, but in the soul. "I will sing with the understanding also." "Making melody in the heart, "etc.
 
-2\.The music of the soul. The *soul which thou hast redeemed*. Redemption is the music of souls once lost. Their only song in heaven.
+2\. The music of the soul. The *soul which thou hast redeemed*. Redemption is the music of souls once lost. Their only song in heaven.
 
 **Verse 24.** How to make familiar talk edifying and useful.
 

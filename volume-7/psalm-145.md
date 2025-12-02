@@ -156,11 +156,11 @@ And immortality endures."
 
 **Verses 1-2.** I will bless thee for ever and ever, and again, Ps 145:2. This intimates,
 
-1\.That he resolved to continue in this work *to the end of his life,* throughout his "for ever" in this world.
+1\. That he resolved to continue in this work *to the end of his life,* throughout his "for ever" in this world.
 
-2\.That the psalms he penned should be made use of in praising God by the church to the end of time. 2Ch 29:30.
+2\. That the psalms he penned should be made use of in praising God by the church to the end of time. 2Ch 29:30.
 
-3\.That he hoped to be praising God to all eternity in the other world: they that make it their constant work on earth, shall have it their everlasting bliss in heaven.— *Matthew Henry.* 
+3\. That he hoped to be praising God to all eternity in the other world: they that make it their constant work on earth, shall have it their everlasting bliss in heaven.— *Matthew Henry.* 
 
 **Verse 2.** *Every day.* Then God is to be blessed and praised in dark as well as bright days— *Johannes Paulus Palanterius, 1600.* 
 
@@ -300,9 +300,9 @@ It is a kingly thing to help the fallen.
 
 **Verse 15.** In agony nature is no atheist, the mind which knows not where to fly, flies to God.— *Hannah More,* 1745-1833.
 
-**Verse 15.** The creatures are his, and therefore to be received with thanksgiving; this our Saviour performed with great rigour and zeal; thus teaching us, when "looking up to heaven", that *"the eyes of all"* ought, in the most literal sense, *"to wait"* upon that Lord *"who gives them their meat in due season."*...A secret sense of God's goodness is by no means enough. Men should make solemn and outward expressions of it, when they receive his creatures for their support; a service and homage not only due to him, but profitable to themselves.— *George Stanhope,* 1660-1728.
+**Verse 15.** The creatures are his, and therefore to be received with thanksgiving; this our Saviour performed with great rigour and zeal; thus teaching us, when "looking up to heaven", that *"the eyes of all"* ought, in the most literal sense, *"to wait"* upon that Lord *"who gives them their meat in due season."*... A secret sense of God's goodness is by no means enough. Men should make solemn and outward expressions of it, when they receive his creatures for their support; a service and homage not only due to him, but profitable to themselves.— *George Stanhope,* 1660-1728.
 
-**Verse 15.** While atheism, in its strict signification, namely, that of total denial of God's existence, is scarcely, if at all, to be found on earth; atheism, as regards the denial of God's providence, is the espoused creed of hundreds amongst us....Providence, which is confessed in great things, is rejected in small things; and even if you can work up men to an easy confession that God presides over national concerns, you will find them withdrawing individuals from his scrutiny. We bring against this paring down of God's providence a distinct charge of atheism. If we confess the existence of a God at all, we read it in the workmanship of the tiniest leaf, as well as in the magnificent pinnacles of Andes and Alps: if we believe in the providence of God at all, we must confess that he numbers the hairs of our heads, as well as marshals the stars of the firmament; and that providence is not universal, and therefore cannot be godlike, if a sparrow, any more than a seraph, flit away unregarded. Now, the words before us set themselves most strenuously against this popular atheism. The whole creation is represented as fastening its gaze on the universal Parent, and as drawing from his fulness the supply of every necessity. *"The eyes of all wait upon thee; and thou give, them their meat in due season."* There is made, you observe, no exception whatever; the exhibition is simply that of every rank and order of beings looking to the Almighty, confessing dependence upon him, and standing environed by his guardianship. So that, in place of anything which approximates to the abandonment of our creation, the Psalmist asserts a ceaseless attention to its wants, the suspension of which for an instant would cause chill and darkness throughout the whole universe.— *Henry Melvill.* 
+**Verse 15.** While atheism, in its strict signification, namely, that of total denial of God's existence, is scarcely, if at all, to be found on earth; atheism, as regards the denial of God's providence, is the espoused creed of hundreds amongst us.... Providence, which is confessed in great things, is rejected in small things; and even if you can work up men to an easy confession that God presides over national concerns, you will find them withdrawing individuals from his scrutiny. We bring against this paring down of God's providence a distinct charge of atheism. If we confess the existence of a God at all, we read it in the workmanship of the tiniest leaf, as well as in the magnificent pinnacles of Andes and Alps: if we believe in the providence of God at all, we must confess that he numbers the hairs of our heads, as well as marshals the stars of the firmament; and that providence is not universal, and therefore cannot be godlike, if a sparrow, any more than a seraph, flit away unregarded. Now, the words before us set themselves most strenuously against this popular atheism. The whole creation is represented as fastening its gaze on the universal Parent, and as drawing from his fulness the supply of every necessity. *"The eyes of all wait upon thee; and thou give, them their meat in due season."* There is made, you observe, no exception whatever; the exhibition is simply that of every rank and order of beings looking to the Almighty, confessing dependence upon him, and standing environed by his guardianship. So that, in place of anything which approximates to the abandonment of our creation, the Psalmist asserts a ceaseless attention to its wants, the suspension of which for an instant would cause chill and darkness throughout the whole universe.— *Henry Melvill.* 
 
 **Verse 15.** *Thou givest them their meat in due season.* The meat which endures to everlasting life; the flesh of Christ, which is meat indeed; the doctrines of the gospel, which, as some of them are milk for babes, others are meat for strong men, or strong meat for experienced believers; and these are given forth under Christ's direction, by his ministering servants, who are his wise and faithful stewards, that give to every one of the family their portion of meat in due season, which is the word fitly spoken; and, when it is so, how good it is! Lu 12:42 Pr 15:23. This is food convenient for them, given out *in his time*, as in the original; either in the Lord's time, when he sees best, or in *their* time, as the Syriac version, when they most need it, and it will do them most good.— *John Gill.* 
 
@@ -328,7 +328,7 @@ Who for thy presence cry.
 
 **Verse 16.** *Thou openest thy hand.* This seems as if depicted from a housekeeper's habit of feeding a brood of chickens and other creatures. She flings abroad with full and open hand a large supply, not measuring to a grain just what might be enough.— *Martin Geier.* 
 
-**Verse 16.** *Thou openest thy hand.* What an idea does this convey of the *paternal goodness* of the great Father of his creation! How opposite to the conduct of many of his creatures one to another, whose hands and hearts are slant! What an idea also does it convey of the *ease* with which the wants of the whole creation are supplied! Let me pause a moment and think of their wants. What a quantity of vegetable and animal food is daily consumed in one town: what a quantity in a large city like London: what a quantity in a nation: in the whole world! But *men* do not compose a hundredth part of "every living thing" I What innumerable wants throughout all animate nature; in the earth, in the air, in the waters! Whence comes their supply? "Thou openest thy hand", and all are satisfied. And can all these wants be supplied by only *the opening of his hand?* What then must sin be, and salvation from it? That is a work of wonderful expense. God openeth his hand and satisfieth all creation, but he must purchase the Church *with his blood*...In what a *variety of ways* are our wants supplied. The earth is fruitful, the air is full of life, the clouds empty themselves upon the earth, the sun pours forth its genial rays; but the operation of all these second causes is only the *opening of his hand!* Nay further: look we to *instruments* as well as means? Parents feed us in our childhood, and supply our youthful wants; ways are opened for our future subsistence; connexions are formed, which prove sources of comfort; friends are kind in seasons of extremity; supplies are presented from quarters that we never expected. What are all these but *the opening of his hand?* If his hand were shut, what a world would this be! The heavens brass, the earth iron; famine, pestilence, and death must follow. See Ps 104:27-29.
+**Verse 16.** *Thou openest thy hand.* What an idea does this convey of the *paternal goodness* of the great Father of his creation! How opposite to the conduct of many of his creatures one to another, whose hands and hearts are slant! What an idea also does it convey of the *ease* with which the wants of the whole creation are supplied! Let me pause a moment and think of their wants. What a quantity of vegetable and animal food is daily consumed in one town: what a quantity in a large city like London: what a quantity in a nation: in the whole world! But *men* do not compose a hundredth part of "every living thing" I What innumerable wants throughout all animate nature; in the earth, in the air, in the waters! Whence comes their supply? "Thou openest thy hand", and all are satisfied. And can all these wants be supplied by only *the opening of his hand?* What then must sin be, and salvation from it? That is a work of wonderful expense. God openeth his hand and satisfieth all creation, but he must purchase the Church *with his blood*... In what a *variety of ways* are our wants supplied. The earth is fruitful, the air is full of life, the clouds empty themselves upon the earth, the sun pours forth its genial rays; but the operation of all these second causes is only the *opening of his hand!* Nay further: look we to *instruments* as well as means? Parents feed us in our childhood, and supply our youthful wants; ways are opened for our future subsistence; connexions are formed, which prove sources of comfort; friends are kind in seasons of extremity; supplies are presented from quarters that we never expected. What are all these but *the opening of his hand?* If his hand were shut, what a world would this be! The heavens brass, the earth iron; famine, pestilence, and death must follow. See Ps 104:27-29.
 
 Consider next the term *"hand."* There is a difference between the *hand* and the *heart*. God opens his hand, in the way of providence, towards his worst enemies. He gave Nebuchadnezzar all the kingdoms of the earth. But he opens his *heart* in the gospel of his Son. This is the better portion of the two. While we are thankful for the one, let us not rest satisfied in it: it is merely a hand portion. Rather let us pray with Jabez to be blessed *indeed* ;and that we might have a Joseph's portion; not only the precious things of the earth and the fulness thereof, but "the good will of him that dwelt in the bush!" Thou satisfiest the desire, etc. God does not give grudgingly. It seems to be a characteristic of the divine nature, both in the natural and moral world, to raise desires, not with a view to disappoint, but to satisfy them. O what a consoling thought is this! If there be any desires in us which are not satisfied, it is through their being self created ones, which is our own fault; or through artificial scarcity from men's luxury, which is the fault of our species. God raises no desires as our Creator, but he gives enough to satisfy them; and none as our Redeemer and Sanctifier but what shall be actually satisfied. O the wonderful munificence of God! "How great is his goodness, and how great is his beauty!"— *Andrew Fuller.* 
 
@@ -348,7 +348,7 @@ Consider next the term *"hand."* There is a difference between the *hand* and th
 
 **Verse 18.** To call upon God in truth is, first, to repose an implicit confidence in the faithfulness of his promise, and to look for unlimited answers to prayer from the riches of his grace in Christ Jesus. But it is also, in the next place, to feel our own urgent need of the things for which we supplicate, and to realize an earnest and unfeigned concern to obtain them. "What things ye desire when ye pray", said the Lord, "believe that ye receive them, and ye shall have them"; and hence we gather, that the hearty desire, arising out of the consciousness of need, is an integral and inseparable part of genuine and effectual prayer.— *Thomas Dale,* 1853.
 
-**Verses 18-19.** God's people are a praying people, a generation of seekers, and such commonly are speeders. God never said to the seed of Jacob, Seek ye my face in vain. They seek his face, righteousness and strength, and he is found of them...The saints alone betake themselves to God and his help, run to him as their sanctuary; others fly from God's presence, run to the rocks, and the tops of the ragged rocks, call to the hills and the mountains; but a child of God goes only and tells his Father, and before him lays open his cause; as good Hezekiah did, when Rabshakeh came out against him; "O Lord, I am oppressed, undertake for me"; or the Church (Isa 33:2), "Be thou our arm every morning, and our salvation in time of trouble." They only sensibly need, and so alone crave and implore divine succour; and God will not suffer his people to lose the precious treasure of their prayers. *"The Lord is nigh unto all them that call upon him; he will fulfil their desire, he will hear their cry"*, etc. That God who prepares his people's heart to pray, prepares also his own ear to hear; and he that promises to hear before we call, will never deny to hearken when we cry unto him. As Calvin saith: "Oppressions and afflictions make man cry, and cries and supplications make God hear."— *F. E., in "The Saint's Ebenezer,* " 1667.
+**Verses 18-19.** God's people are a praying people, a generation of seekers, and such commonly are speeders. God never said to the seed of Jacob, Seek ye my face in vain. They seek his face, righteousness and strength, and he is found of them... The saints alone betake themselves to God and his help, run to him as their sanctuary; others fly from God's presence, run to the rocks, and the tops of the ragged rocks, call to the hills and the mountains; but a child of God goes only and tells his Father, and before him lays open his cause; as good Hezekiah did, when Rabshakeh came out against him; "O Lord, I am oppressed, undertake for me"; or the Church (Isa 33:2), "Be thou our arm every morning, and our salvation in time of trouble." They only sensibly need, and so alone crave and implore divine succour; and God will not suffer his people to lose the precious treasure of their prayers. *"The Lord is nigh unto all them that call upon him; he will fulfil their desire, he will hear their cry"*, etc. That God who prepares his people's heart to pray, prepares also his own ear to hear; and he that promises to hear before we call, will never deny to hearken when we cry unto him. As Calvin saith: "Oppressions and afflictions make man cry, and cries and supplications make God hear."— *F. E., in "The Saint's Ebenezer,* " 1667.
 
 **Verse 19.** *He will fulfil the desire of them that fear him.* This is for comfort for all poor broken hearts in whom God hath engendered the true *desire* of grace. Let such know that the first step to grace is to see they have no grace; and the first degree of grace is the desire of grace. It is not with the body as with the soul, if you will be healed you shall be healed. A man may desire to be healed corporally, and yet his disease continue upon him; but it is not so with the soul: if thou wilt say, "Christ heal me", thou shalt be made whole. If a man have but the true desire of grace it shall be given him: "Lord, thou hast heard the desire of the humble" (Ps 10:17): when the poor soul is humbled before God in the sense of the want of grace, and breathes and desires after it, the Lord will grant such desires: *"He will fulfil the desire of them that fear him: he also will hear their cry, and will save them."* One said, "the greatest part of Christianity is to desire to be a Christian." And another said, "The total sum of a man's religion in this life consists in the true desires of saving grace." This was the perfection Saint Paul attained unto (Ro 7:18): "To will is present with me; but how to perform that which is good I find not." Saint Paul we know was the child of God, and one dearly beloved of God; yet that was the pitch of his godliness; it consisted more in desire than accomplishment. Canst thou approve by evident and sound arguments that thou hast the true desires of grace? Then know for thy comfort that the Lord's spirit of grace hath been moving and stirring in thee: "It is God that worketh in you both the will and the deed" (Php 2:13), and that of his good pleasure, not only of his bounty, from whence he hath bestowed many graces, even upon such as he will damn afterwards for their accursed abuse of them, with the neglect of the power thereof. But if God hath set thy will, and the stream of thy affections and desires, to himself and to grace, it is an evidence of God's good pleasure from which he did at first elect thee, and gave his Son to redeem thee.— *William Fenner* (1560-1640), *in "The Riches of Grace."* 
 
@@ -356,7 +356,7 @@ Consider next the term *"hand."* There is a difference between the *hand* and th
 
 **Verse 19.** (*first clause.*) God will fulfil the will of those who *fear* to disobey his will.— *Simon de Muis.* 
 
-**Verse 19.** *Desire* is the largest and most comprehensive word that can be used; it contains all things in it...Nothing good, nothing necessary: nothing profitable, but comes under this word *"desire."* When God promises to *"fulfil the desires of them that fear him"*, he doth promise all good things; desire comprehends all that can be desired.— *Ralph Robinson.* 
+**Verse 19.** *Desire* is the largest and most comprehensive word that can be used; it contains all things in it... Nothing good, nothing necessary: nothing profitable, but comes under this word *"desire."* When God promises to *"fulfil the desires of them that fear him"*, he doth promise all good things; desire comprehends all that can be desired.— *Ralph Robinson.* 
 
 **Verse 19.** *He will hear their cry,* etc. A mark of a great king—he gives willing audience to suppliants.— *Johannes Paulus Palanterius.* 
 
@@ -380,67 +380,67 @@ Consider next the term *"hand."* There is a difference between the *hand* and th
 
 **Verses 1-2.** Praise.
 
-1\.Personal praise.
+1\. Personal praise.
 
-2\.Daily praise.
+2\. Daily praise.
 
-3\.Enthusiastic praise.
+3\. Enthusiastic praise.
 
-4\.Perpetual praise.
+4\. Perpetual praise.
 
 Or:
 
-1\.The attractive theme of the song.
+1\. The attractive theme of the song.
 
-2\.The increasing fulness of the song.
+2\. The increasing fulness of the song.
 
-3\.The unending life of the singer.— *C. A. D.* 
+3\. The unending life of the singer.— *C. A. D.* 
 
 **Verses 1-2.** The four "I wills" of praise. Praise to the King; praise to the divine character; praise for all time; praise for all eternity.
 
 **Verse 2.** *Every day; for ever.* 
 
-1\.Day by day for ever God and I will endure.
+1\. Day by day for ever God and I will endure.
 
-2\.Day by day for ever our present relations will continue. He the God, I the creature; he the Father, I the child; he the blessing, I the blest.
+2\. Day by day for ever our present relations will continue. He the God, I the creature; he the Father, I the child; he the blessing, I the blest.
 
-3\.Day by day for ever he shall have my homage.— *W. B. H.* 
+3\. Day by day for ever he shall have my homage.— *W. B. H.* 
 
 **Verse 3.** 
 
-1\.The dignity of man is here implied in his capacity for praising God greatly.
+1\. The dignity of man is here implied in his capacity for praising God greatly.
 
-2\.His immortality in his capacity for praising his unsearchable greatness.— *G. R.* 
+2\. His immortality in his capacity for praising his unsearchable greatness.— *G. R.* 
 
 **Verse 3.** (*last clause.*) The unsearchable greatness of God. Consider it,
 
-1\.As a fact amply demonstrated.
+1\. As a fact amply demonstrated.
 
-2\.As a rebuke to despondency: see Isa 40:28.
+2\. As a rebuke to despondency: see Isa 40:28.
 
-3\.As the stay of a soul oppressed by mysteries.
+3\. As the stay of a soul oppressed by mysteries.
 
-4\.As indicating a subject for our everlasting study.— *J. F.* 
+4\. As indicating a subject for our everlasting study.— *J. F.* 
 
 **Verse 4.** 
 
-1\.Our obligation to past generations.
+1\. Our obligation to past generations.
 
-2\.Our duty to generations to come.— *G. R.* 
+2\. Our duty to generations to come.— *G. R.* 
 
 **Verses 5-7.** The Antiphon.
 
-1\.To praise God is a personal duty: "I will."
+1\. To praise God is a personal duty: "I will."
 
-2\.Its right performance will excite others to engage in it: "And men shall."
+2\. Its right performance will excite others to engage in it: "And men shall."
 
-3\.The accompaniment of others in praise will react upon ourselves. "And I will"; "And they shall abundantly", etc.
+3\. The accompaniment of others in praise will react upon ourselves. "And I will"; "And they shall abundantly", etc.
 
-4\.Such praise widens and expands a it rolls along. Beginning with God's majesty and works, it extends to his acts, greatness, goodness, and righteousness.— *C. A. D.* 
+4\. Such praise widens and expands a it rolls along. Beginning with God's majesty and works, it extends to his acts, greatness, goodness, and righteousness.— *C. A. D.* 
 
 **Verses 5-7.** 
 
-1\.Subjects for praise.
+1\. Subjects for praise.
 
 (a) Divine majesty.
 
@@ -454,7 +454,7 @@ Or:
 
 (f) Divine righteousness.
 
-2\.Of whom is it required.
+2\. Of whom is it required.
 
 (a) Personal; "I will speak."
 
@@ -474,13 +474,13 @@ Or:
 
 **Verse 8.** 
 
-1\.Grace to the unworthy.
+1\. Grace to the unworthy.
 
-2\.Compassion to the afflicted.
+2\. Compassion to the afflicted.
 
-3\.Forbearance to the guilty.
+3\. Forbearance to the guilty.
 
-4\.Mercy to the penitent.— *G. R.* 
+4\. Mercy to the penitent.— *G. R.* 
 
 **Verse 9.** The universal goodness of God in no degree a contradiction to the special election of grace.
 
@@ -488,41 +488,41 @@ Or:
 
 **Verse 11.** The glory of Christ's kingdom. The glory of this kingdom is manifested,
 
-1\.In its origin.
+1\. In its origin.
 
-2\.In the manner and spirit of its administration.
+2\. In the manner and spirit of its administration.
 
-3\.In the character of its subjects.
+3\. In the character of its subjects.
 
-4\.In the privileges that are attached to it.— *Robert Hall.* 
+4\. In the privileges that are attached to it.— *Robert Hall.* 
 
 **Verses 11-12.** Talk transfigured.
 
-1\.The faculty of talk is extensively possessed.
+1\. The faculty of talk is extensively possessed.
 
-2\.Is commonly misused.
+2\. Is commonly misused.
 
-3\.May be nobly employed.
+3\. May be nobly employed.
 
-4\.Will then be gloriously useful.— *C. A. D.* 
+4\. Will then be gloriously useful.— *C. A. D.* 
 
 **Verses 11-13.** To show the greatness of God's kingdom, David observes,
 
-1\.The pomp of it. Would we by faith look within the veil, we should "speak of the glory of his kingdom" (Ps 145:11); "and the glorious majesty of it" (Ps 145:12).
+1\. The pomp of it. Would we by faith look within the veil, we should "speak of the glory of his kingdom" (Ps 145:11); "and the glorious majesty of it" (Ps 145:12).
 
-2\.The power of it. When "they speak of the glory of God's kingdom", they must "talk of his power", the extent of it, the efficacy of it.
+2\. The power of it. When "they speak of the glory of God's kingdom", they must "talk of his power", the extent of it, the efficacy of it.
 
-3\.The perpetuity of it (Ps 145:13). The thrones of earthly princes totter, and the flowers of their crowns wither, monarchs come to an end; but, Lord, "thy kingdom is an everlasting kingdom."— *Matthew Henry.* 
+3\. The perpetuity of it (Ps 145:13). The thrones of earthly princes totter, and the flowers of their crowns wither, monarchs come to an end; but, Lord, "thy kingdom is an everlasting kingdom."— *Matthew Henry.* 
 
 **Verse 14.** The grace of God in his kindness to the undeserving and the miserable, who look to him for help.
 
-1\.He "upholdeth all that fall."
+1\. He "upholdeth all that fall."
 
 (a) A description, embracing (1) Sinners who have fallen lowest: (2) Backsliders who have tripped most foully.
 
 (b) An act implying (1) Pity which draws nigh; (2) Power which places the fallen upon their feet; (3) Preservation which keeps them standing.
 
-2\.He "raiseth up all those that are bowed down." Consolation for those who are—
+2\. He "raiseth up all those that are bowed down." Consolation for those who are—
 
 (a) Bowed down with shame and penitence.
 
@@ -534,27 +534,27 @@ Or:
 
 **Verse 14.** Help for the fallible.
 
-1\.Whatever our present position we are liable to fall. Sickness. Loss. Friendlessness. Sin.
+1\. Whatever our present position we are liable to fall. Sickness. Loss. Friendlessness. Sin.
 
-2\.However low we fall we are not below the reach of God's hand.
+2\. However low we fall we are not below the reach of God's hand.
 
-3\.Within the reach of God's hand we shall experience the action of God's love. "Upholdeth." "Raiseth up."— *C.A.D.* 
+3\. Within the reach of God's hand we shall experience the action of God's love. "Upholdeth." "Raiseth up."— *C. A. D.* 
 
 **Verses 15-16.** Universal dependence and divine support. The Psalmist here teaches—
 
-1\.The Universality of Dependence amongst creatures: "The eyes of all wait upon thee." We depend upon God for "life, and breath, and all things." Entire dependence should beget deep humility.
+1\. The Universality of Dependence amongst creatures: "The eyes of all wait upon thee." We depend upon God for "life, and breath, and all things." Entire dependence should beget deep humility.
 
-2\.The Infinitude of the Divine Resources: "And thou givest them their meat." His resources must be,
+2\. The Infinitude of the Divine Resources: "And thou givest them their meat." His resources must be,
 
 a) Infinitely vast.
 
 b) Infinitely various. Both sufficient and adapted for all.
 
-3\.The Timeliness of the Divine Communications: "In due season. "A reason for patience if his gifts seem delayed.
+3\. The Timeliness of the Divine Communications: "In due season. "A reason for patience if his gifts seem delayed.
 
-4\.The Sublime Ease of the Divine Communications: "Thou openest thine hand", and the countless needs of the universe are satisfied. An encouragement to believing prayer.
+4\. The Sublime Ease of the Divine Communications: "Thou openest thine hand", and the countless needs of the universe are satisfied. An encouragement to believing prayer.
 
-5\.The Sufficiency of the Divine Communications: "And satisfiest the desire of every living thing." "God giveth to all liberally." Our subject urges all men to,
+5\. The Sufficiency of the Divine Communications: "And satisfiest the desire of every living thing." "God giveth to all liberally." Our subject urges all men to,
 
 (a) Gratitude. Constant provision should lead to constant thankfulness and consecration.
 
@@ -562,55 +562,55 @@ b) Infinitely various. Both sufficient and adapted for all.
 
 **Verse 17.** 
 
-1\.What God declares himself to be.
+1\. What God declares himself to be.
 
-2\.What his people find him to be.
+2\. What his people find him to be.
 
-3\.What all creatures will ultimately acknowledge him to be.— *G. R.* 
+3\. What all creatures will ultimately acknowledge him to be.— *G. R.* 
 
 **Verses 18-20.** Gather from these verses the character of God's people.
 
-1\.They call upon God.
+1\. They call upon God.
 
-2\.They fear God.
+2\. They fear God.
 
-3\.They have desires towards God.
+3\. They have desires towards God.
 
-4\.They have answers from God.
+4\. They have answers from God.
 
-5\.They love God.
+5\. They love God.
 
 **Verse 18.** (*last clause.*) True prayer, in what it differs essentially from mere formalism.
 
 **Verse 18.** At the palace gates.
 
-1\.Directions to callers.
+1\. Directions to callers.
 
 (a) "Call upon him"; let the repetition suggest pertinacity.
 
 (b) Call "in truth"; sincerely, with promises, in appointed way.
 
-2\.Encouragement for callers. Jehovah is nigh, with his ready ear, sympathizing heart, and helpful hand.— *W. B. H.* 
+2\. Encouragement for callers. Jehovah is nigh, with his ready ear, sympathizing heart, and helpful hand.— *W. B. H.* 
 
 **Verses 18-19.** The blessedness of prayer.
 
-1\.Definition of prayer: "calling upon God."
+1\. Definition of prayer: "calling upon God."
 
-2\.Variety in prayer: "call, desire, cry."
+2\. Variety in prayer: "call, desire, cry."
 
-3\.Essential characteristic of prayer: "truth."
+3\. Essential characteristic of prayer: "truth."
 
-4\.God's nearness in prayer.
+4\. God's nearness in prayer.
 
-5\.Assured success of prayer. "He will fulfil, hear, save."— *C. A. D.* 
+5\. Assured success of prayer. "He will fulfil, hear, save."— *C. A. D.* 
 
 **Verse 20.** Those who love God are preserved *from* excessive temptation, falling into sin, despair, apostasy, remorse, famishing; preserved *in* trial, persecution, depression, death; preserved *to* activity, holiness, victory, glory.
 
 **Verse 20.** Solemn Contrasts.
 
-1\.Between human characters. "Them that love him." "The wicked."
+1\. Between human characters. "Them that love him." "The wicked."
 
-2\.Between human destinies. "Preserveth." "Destroy."— *C. A. D.* 
+2\. Between human destinies. "Preserveth." "Destroy."— *C. A. D.* 
 
 **Verse 20.** How the love of God is the opposite of wickedness, and wickedness inconsistent with the love of God.
 

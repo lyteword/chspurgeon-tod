@@ -94,7 +94,7 @@ The next verse is of the same tenor— *Ye that fear the LORD, trust in the LORD
 
 **Verse 1.** There are many sweet and precious texts of Scripture which are so endeared, and have become so habituated to us, and we to them, that one cannot but think we must carry them with us to heaven, and that they will form not only the theme of our song, but a portion of our blessedness and joy even in that happy home... But if there be one text which more especially belongs to all, and which must, I think, break forth from *every* redeemed one as he enters heaven, and form the unwearying theme of eternity, it is the first verse of this Psalm. I am sure that not one of the Lord's chosen ones on earth, as he reviews the way by which he has been led, as he sees enemy after enemy prostrate before his utter feebleness, and has such thorough evidence and conviction that his weakness is made perfect in the Lord's strength, but must, from the very ground of his heart, say, *Not unto us, O LORD, not unto us, but unto thy name* be the praise and the glory ascribed. And could we see heaven opened—could we hear its glad and glorious hallelujahs—could we see its innumerable company of angels, and its band of glorified saints, as they cast their crowns before the throne, we should hear as the universal chorus from every lip, *"Not unto us, O LORD, not unto us, but unto thy name give glory, for thy mercy, and for thy truth's sake.* I know not why this should not be as gladly and as gratefully the angels' song as the song of the redeemed: they stand not in their own might nor power,—they kept not their first estate through any inherent strength of their own, but, like their feebler brethren of the human race, are equally "kept by the power of God"; and from their ranks, I doubt not, is reechoed the same glorious strain, *"Not unto us, O LORD, not unto us, but unto thy name give glory.* Even our blessed Lord, as on that night of sorrow he sung this hymn of praise, could truly say, in that nature which had sinned, and which was to suffer, "Not unto us, "—not unto man, be ascribed the glory of this great salvation, which I am now with my own blood to purchase, but unto thy name and thy love be the praise given. *Barton Bouchier.* 
 
-**Verse 1.** *"Non nobis, Domine, sed tibi sit gloria."* A part of the Latin version of this Psalm is frequently sung after grace at public dinners, but why we can hardly imagine, except it be for fear that donors should be proud of the guineas they have promised, or gourmands should be vainglorious under the influence of their mighty feeding. *C.H.S.* 
+**Verse 1.** *"Non nobis, Domine, sed tibi sit gloria."* A part of the Latin version of this Psalm is frequently sung after grace at public dinners, but why we can hardly imagine, except it be for fear that donors should be proud of the guineas they have promised, or gourmands should be vainglorious under the influence of their mighty feeding. *C. H. S.* 
 
 **Verses 1-2.** He, in a very short space, assigns three reasons why God should seek the glory of his name in preserving his people. First, because he is merciful; secondly, because he is true and faithful in observing his promise; thirdly, that the Gentiles may not see God's people in a state of destitution, and find cause for blaspheming him or them. He therefore says, *for thy mercy, and for thy truth's sake,* show thy glory, or give glory to thy name, for it is then thy glory will be exhibited when you show mercy to thy people; and then thou wilt have carried out the truth of the promise which thou hast made to our fathers. *Lest the Gentiles should say, Where is their God?* lest the incredulous Gentiles should get an occasion of detracting from thy power, and, perhaps, of ignoring thy very existence. *Robert Bellarmine.* 
 
@@ -200,9 +200,9 @@ Upon you and your children. **
 
 **Verses 17-18.** It is not to be overlooked that there do occur, in certain Psalms, words which have the appearance of excluding the hope of eternal life (Ps 6:5 30:9 88:10,12 89:47 115:17)... Yet it is a very significant fact, that in all the Psalms in question, there is an earnest solicitude expressed for the glory of God. If death is deprecated, it is in order that the Lord may not lose the glory, nor his church the services which a life prolonged might furnish. This is well exemplified in the hundred and fifteenth, which I the rather cite because, being the sole exception to the rule, that the dark views of death are found in Psalms of contrition and deep sorrow; it is the only Psalm to which the preceding observations are inapplicable. It is a tranquil hymn of praise.
 
-17\.It is not the dead who praise Jah: Neither any that go down into silence.
+17\. It is not the dead who praise Jah: Neither any that go down into silence.
 
-18\.But WE will bless Jah, From this time forth and for evermore. Hallelujah!
+18\. But WE will bless Jah, From this time forth and for evermore. Hallelujah!
 
 The Psalm thus closed, was one of the Songs of the Second Temple. What we hear in it is the voice of the church, rather than of an individual soul. And this may assist us in perceiving its entire harmony with faith in the heavenly glory. It much concerns the honour of God that there be continued, on the earth, a visible church, in which his name may be recorded from generation to generation. That is a work which cannot be performed by the dead. Since, therefore, the uppermost desire of the church ought ever to be that God's name may be hallowed, his kingdom advanced, and his will done in the earth; it is her duty to pray for continued subsistence here, on the earth, to witness for God. And it is to be carefully observed, that not only in this passage, but in all the parallel texts in which the Psalmists seem to speak doubtfully or disparagingly of the state of the departed, it is in connection with the interest of God's cause on the earth. The thought that is uppermost in their hearts is, that "in death there is no commemoration" of God—no recording of his name for the salvation of men. This single circumstance might, I think, suffice to put the reader on his guard against a precipitate fastening on them of a meaning which would exclude the hope of eternal life. It goes far to show that what the Psalmist deprecates, is not death simply considered, but premature death. Their prayer is, "O my God, take me not away in the midst of my days." Ps 102:24. And I do not hesitate to say that there are men so placed in stations of eminent usefulness, that it is their duty to make the prayer their own. *William Binnie.* 
 
@@ -210,21 +210,21 @@ The Psalm thus closed, was one of the Songs of the Second Temple. What we hear i
 
 **Verse 1.** The passage may be used as,
 
-1\.A powerful plea in prayer.
+1\. A powerful plea in prayer.
 
-2\.An expression of the true spirit of piety.
+2\. An expression of the true spirit of piety.
 
-3\.A safe guide in theology.
+3\. A safe guide in theology.
 
-4\.A practical direction in choosing our way of life.
+4\. A practical direction in choosing our way of life.
 
-5\.An acceptable spirit when surveying past or present success.
+5\. An acceptable spirit when surveying past or present success.
 
 **Verse 1.** 
 
-1\.No praise is due to man. Have we a being? Not unto us, etc. Have we health? Not unto us, etc. Have we outward comforts? Not unto us, etc. Friends? Not unto us, etc. The means of grace? Not unto us, etc. Saving faith in Christ? Not unto us, etc. Gifts and graces? Not unto us, etc. The hope of glory? Not unto us, etc. Usefulness to others? Not unto us, etc.
+1\. No praise is due to man. Have we a being? Not unto us, etc. Have we health? Not unto us, etc. Have we outward comforts? Not unto us, etc. Friends? Not unto us, etc. The means of grace? Not unto us, etc. Saving faith in Christ? Not unto us, etc. Gifts and graces? Not unto us, etc. The hope of glory? Not unto us, etc. Usefulness to others? Not unto us, etc.
 
-2\.All praise is due to God. (a) Because all we have is from mercy. (b) Because all we expect is from faithfulness. *G. R.* 
+2\. All praise is due to God. (a) Because all we have is from mercy. (b) Because all we expect is from faithfulness. *G. R.* 
 
 **Verse 2.** A taunting question, to which we can give many satisfactory replies.
 
@@ -232,33 +232,33 @@ The Psalm thus closed, was one of the Songs of the Second Temple. What we hear i
 
 **Verses 2-3.** 
 
-1\.The inquiry of heathens: Ps 115:2. (a) Of ignorance. They see a temple but no god. (b) Of reproach to the people of God when their God has forsaken them for a time: "While they say daily unto me, where, "etc.
+1\. The inquiry of heathens: Ps 115:2. (a) Of ignorance. They see a temple but no god. (b) Of reproach to the people of God when their God has forsaken them for a time: "While they say daily unto me, where, "etc.
 
-2\.The reply to their inquiry: Ps 115:3. Do you ask where is our God? Ask rather where he is not? Do you ask what he has done? "He has done whatsoever he hath pleased." *G. R.* 
+2\. The reply to their inquiry: Ps 115:3. Do you ask where is our God? Ask rather where he is not? Do you ask what he has done? "He has done whatsoever he hath pleased." *G. R.* 
 
 **Verse 3.** 
 
-1\.His position betokens absolute dominion.
+1\. His position betokens absolute dominion.
 
-2\.His actions prove it.
+2\. His actions prove it.
 
-3\.Yet he condescends to be "our God."
+3\. Yet he condescends to be "our God."
 
 **Verse 3** (*second clause* ). The sovereignty of God. Establish and improve the great scriptural doctrine, that the glorious God has a right to exercise dominion over all his creatures; and to do, in all respects, as he pleases. This right naturally results from his being the *Former* and the *Possessor* of heaven and earth. Consider
 
-1\.He is infinitely wise; he perfectly knows all his creatures, all their actions, and all their tendencies.
+1\. He is infinitely wise; he perfectly knows all his creatures, all their actions, and all their tendencies.
 
-2\.He is infinitely righteous.
+2\. He is infinitely righteous.
 
-3\.He is infinitely good. *George Burder.* 
+3\. He is infinitely good. *George Burder.* 
 
 **Verses 4-8.** 
 
-1\.The character of idol gods. Whether our gods are natural objects or riches or worldly pleasures, they have no eye to pity, no ear to hear petitions, no tongue to counsel, no hand to help.
+1\. The character of idol gods. Whether our gods are natural objects or riches or worldly pleasures, they have no eye to pity, no ear to hear petitions, no tongue to counsel, no hand to help.
 
-2\.The character of the true God. He is all eye, all ear, all tongue, all hand, all feet, all mind, all heart.
+2\. The character of the true God. He is all eye, all ear, all tongue, all hand, all feet, all mind, all heart.
 
-3\.The character of the idol worshippers. All become naturally assimilated to the objects of their worship.
+3\. The character of the idol worshippers. All become naturally assimilated to the objects of their worship.
 
 **Verse 8.** The likeness between idolaters and their idols. Work it out in the particulars mentioned.
 
@@ -266,19 +266,19 @@ The Psalm thus closed, was one of the Songs of the Second Temple. What we hear i
 
 **Verses 9-11.** 
 
-1\.The reproof. "O Israel!" "O house of Aaron!" "Ye who fear the Lord." Have you been unbelieving towards your God?
+1\. The reproof. "O Israel!" "O house of Aaron!" "Ye who fear the Lord." Have you been unbelieving towards your God?
 
-2\.The correction or admonition. "Trust in the Lord, "Have you trusted in the true God as others have in their false gods?
+2\. The correction or admonition. "Trust in the Lord, "Have you trusted in the true God as others have in their false gods?
 
-3\.The instruction. "He is their help, "etc. Let churches, ministers, and all who fear God know that at all times and under all circumstances he is their help and their shield. *G. R.* 
+3\. The instruction. "He is their help, "etc. Let churches, ministers, and all who fear God know that at all times and under all circumstances he is their help and their shield. *G. R.* 
 
 **Verse 10.** 
 
-1\.Those who publicly serve should specially trust. "O house of Aaron, trust."
+1\. Those who publicly serve should specially trust. "O house of Aaron, trust."
 
-2\.Those who are specially called shall be specially helped. "He is their help."
+2\. Those who are specially called shall be specially helped. "He is their help."
 
-3\.Those who are specially helped in service may be sure of special protection in danger...and their shield.
+3\. Those who are specially helped in service may be sure of special protection in danger...and their shield.
 
 **Verse 11.** Filial fear the foundation of fuller faith.
 
@@ -286,25 +286,25 @@ The Psalm thus closed, was one of the Songs of the Second Temple. What we hear i
 
 **Verses 12-13.** 
 
-1\.What God *has done* for his people: "He hath been mindful of us." (a) Our preservation proves this. (b) Our mercies. (c) Our trials. (d) Our guidance. (e) Our consolations. Everything, even the minutest blessing, represents a thought in the mind of God respecting us. "How precious are thy thoughts concerning me, O God, how great, "etc., and those thoughts go back to an eternity before we came into being. "The Lord hath been mindful of us"; then should we not be more mindful of him?
+1\. What God *has done* for his people: "He hath been mindful of us." (a) Our preservation proves this. (b) Our mercies. (c) Our trials. (d) Our guidance. (e) Our consolations. Everything, even the minutest blessing, represents a thought in the mind of God respecting us. "How precious are thy thoughts concerning me, O God, how great, "etc., and those thoughts go back to an eternity before we came into being. "The Lord hath been mindful of us"; then should we not be more mindful of him?
 
-2\.What he *will do* for his people—"He will bless us." (a) Greatly. His blessings are like himself, great. They are blessed whom he blesses. (b) Suitably. The house of Israel, the house of Aaron, all who fear him, according to their need, both small and great. (c) Assuredly. "He will, ""he will, ""he will, ""he will." With one" will" he curses, with four "wills" he blesses. *G. R.* 
+2\. What he *will do* for his people—"He will bless us." (a) Greatly. His blessings are like himself, great. They are blessed whom he blesses. (b) Suitably. The house of Israel, the house of Aaron, all who fear him, according to their need, both small and great. (c) Assuredly. "He will, ""he will, ""he will, ""he will." With one" will" he curses, with four "wills" he blesses. *G. R.* 
 
 **Verse 13.** 
 
-1\.The general character—"fear the Lord."
+1\. The general character—"fear the Lord."
 
-2\.The degrees of development—"small and great."
+2\. The degrees of development—"small and great."
 
-3\.The common blessing.
+3\. The common blessing.
 
 **Verse 14.** 
 
-1\.Gracious increase—in knowledge, love, power, holiness, usefulness, etc.
+1\. Gracious increase—in knowledge, love, power, holiness, usefulness, etc.
 
-2\.Growing increase—we grow faster, and advance not only more, but more and more.
+2\. Growing increase—we grow faster, and advance not only more, but more and more.
 
-3\.Relative increase—our children grow in grace through our example, etc.
+3\. Relative increase—our children grow in grace through our example, etc.
 
 **Verse 14.** The blessings of God are,
 
@@ -314,15 +314,15 @@ The Psalm thus closed, was one of the Songs of the Second Temple. What we hear i
 
 **Verse 15.** A blessing.
 
-1\.Belonging to a peculiar people—"ye."
+1\. Belonging to a peculiar people—"ye."
 
-2\.Coming from a peculiar quarter—"of the Lord, "etc.
+2\. Coming from a peculiar quarter—"of the Lord, "etc.
 
-3\.Bearing a peculiar date—"are."
+3\. Bearing a peculiar date—"are."
 
-4\.Stamped with peculiar certainty—"Ye are blessed."
+4\. Stamped with peculiar certainty—"Ye are blessed."
 
-5\.Involving a peculiar duty—"Bless the Lord now and evermore."
+5\. Involving a peculiar duty—"Bless the Lord now and evermore."
 
 **Verse 15.** The Creator's blessing—its greatness, fulness, variety, etc.
 
@@ -330,25 +330,25 @@ The Psalm thus closed, was one of the Songs of the Second Temple. What we hear i
 
 **Verses 17-18.** 
 
-1\.Missing voices—"The dead praise not."
+1\. Missing voices—"The dead praise not."
 
-2\.Their stimulus upon ourselves—"But we."
+2\. Their stimulus upon ourselves—"But we."
 
-3\.Their cry to others—"Praise ye the Lord." Let us make up for the silent voices.
+3\. Their cry to others—"Praise ye the Lord." Let us make up for the silent voices.
 
 **Verses 17-18.** 
 
-1\.They who do not praise God here will not praise him hereafter. No reprieve therefore from punishment.
+1\. They who do not praise God here will not praise him hereafter. No reprieve therefore from punishment.
 
-2\.They who praise God in this life will praise him for evermore. Hallelujah for this. "Praise the Lord." *G.R.* 
+2\. They who praise God in this life will praise him for evermore. Hallelujah for this. "Praise the Lord." *G. R.* 
 
 **Verses 17-18.** A new year's sermon.
 
-1\.A mournful memory—"the dead."
+1\. A mournful memory—"the dead."
 
-2\.A happy resolve—"but we will bless the Lord."
+2\. A happy resolve—"but we will bless the Lord."
 
-3\.An appropriate commencement—"from this time forth."
+3\. An appropriate commencement—"from this time forth."
 
-4\.An everlasting continuance—"and for evermore."
+4\. An everlasting continuance—"and for evermore."
 
