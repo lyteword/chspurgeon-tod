@@ -72,7 +72,7 @@ Useful is this doctrine two ways.
 
 **Verse 2.** *Thou art the God of my strength.* The godly man hath from God a threefold strength, namely, natural, providential, and spiritual.
 
-1\. *Natural*, Ac 17:28. This is twofold: of body, of mind. Of robustness, hardness, and agility of body; of wit, invention, and valour of mind. Now, these donations of corporal and mental natural endowments are God's gifts. Ps 18:34,39 ...
+1\. *Natural*, Ac 17:28. This is twofold: of body, of mind. Of robustness, hardness, and agility of body; of wit, invention, and valour of mind. Now, these donations of corporal and mental natural endowments are God's gifts. Ps 18:34,39...
 
 2\. *Providential* strength, which is threefold: (a) God's donation of strengthening mercies—Corporal: wine to make glad, and bread to strengthen. Ps 104:15, and mental, common gifts; as Paul had a singular gift of language and single life; Apollos of elocution, argument, power of convincing. (b) Providential strength is God's making way for his people to act and put forth their strength. Ps 78:50. (c) Providential strength is God's concurrence with our lawful human acting. Ps 18:29.
 
@@ -128,11 +128,11 @@ From *the word of the Spirit*, the word of God. Ps 119:50: "This is my comfort i
 
 **Verse 1.** We apply to God—
 
-1\.As our *Judge* : *Judge me* .
+1\.As our *Judge* : *Judge me*.
 
-2\.As our *Advocate* : *Plead my cause* .
+2\.As our *Advocate* : *Plead my cause*.
 
-3\.As our *Deliverer* : *O deliver me* .
+3\.As our *Deliverer* : *O deliver me*.
 
 **Verse 1.** Popular opinion outweighed by divine approbation.
 
@@ -172,9 +172,9 @@ From *the word of the Spirit*, the word of God. Ps 119:50: "This is my comfort i
 
 2\.His *blessedness* —expressed by *rejoicing in God. Samuel Lavington.* 
 
-**Verse 4.** *(first clause)* . When? *Then.* Where? *Altar of God.* Who? *I.* Why? *My exceeding joy.* 
+**Verse 4.** *(first clause)*. When? *Then.* Where? *Altar of God.* Who? *I.* Why? *My exceeding joy.* 
 
-**Verse 4.** *(second clause)* . It is God alone who can be an exceeding joy to his creatures. *W. Dunlop's Sermons.* 
+**Verse 4.** *(second clause)*. It is God alone who can be an exceeding joy to his creatures. *W. Dunlop's Sermons.* 
 
 **Verse 4.** The joy of joy. The soul of soul joy.
 
@@ -190,7 +190,7 @@ From *the word of the Spirit*, the word of God. Ps 119:50: "This is my comfort i
 
 **Verse 4.** *God my exceeding joy.* A most rich and precious **Title &mdash;** 
 
-**Verse 4.** *(last clause)* . Possession, praise, resolution.
+**Verse 4.** *(last clause)*. Possession, praise, resolution.
 
 **Verse 5.** Discouragement's recovery. *R. Sibbes Sermons.* 
 

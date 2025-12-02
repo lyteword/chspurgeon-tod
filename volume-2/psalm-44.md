@@ -144,7 +144,7 @@ Here ends this memorable Psalm, but in heaven its power ends not, but brings dow
 
 ## Explanatory Notes & Quaint Sayings
 
-**Whole Psalm.** On a survey of this Psalm, it would seem not to admit of a doubt that the speakers are of the race of Israel; and yet expositors for the most part have found much difficulty in so understanding it, in this—the natural sense—so as even to be compelled to abandon it, owing to the impossibility of fixing on any period in the history of that people which would furnish an occasion for it, and verify its language. Thus, it cannot be referred to the times of the Babylonish captivity; for to this it is objected, and with reason; first, that Ps 44:11 4:14 represent the speakers as "scattered among the nations, "and "a byword among the peoples, "whereas their exile was then confined to one country; and, secondly, that in Ps 44:17-21 there is an assertion of faithful adherence to the worship of the true God, which he is called to witness as acquitting the sufferers of having brought the evil on themselves, while that captivity was a punishment of the nation for their apostasy, and especially for the grievous sin of idolatry. And the same objections lie to interpreting it with reference to the times of Antiochus Epiphanes and the Maccabees; beside that, the history of the canon of Scripture is decisive against assigning so late a date to any of the Psalms. Still less can the times of David be looked to for the occasion, since, though religion was then pure, there was, on the other hand, no dispersion of the nation nor any calamity such as to warrant the lamentation, "Thou hast cast us off, and put us to shame. ...Thou hast given us like sheep appointed for meat, "etc. Whence it appeared that there was no alternative but to consider the Psalm as exclusively the language of the Christian church, and, in her primitive days, as the period at once of her greatest purity and suffering. *William de Burgh.* 
+**Whole Psalm.** On a survey of this Psalm, it would seem not to admit of a doubt that the speakers are of the race of Israel; and yet expositors for the most part have found much difficulty in so understanding it, in this—the natural sense—so as even to be compelled to abandon it, owing to the impossibility of fixing on any period in the history of that people which would furnish an occasion for it, and verify its language. Thus, it cannot be referred to the times of the Babylonish captivity; for to this it is objected, and with reason; first, that Ps 44:11 4:14 represent the speakers as "scattered among the nations, "and "a byword among the peoples, "whereas their exile was then confined to one country; and, secondly, that in Ps 44:17-21 there is an assertion of faithful adherence to the worship of the true God, which he is called to witness as acquitting the sufferers of having brought the evil on themselves, while that captivity was a punishment of the nation for their apostasy, and especially for the grievous sin of idolatry. And the same objections lie to interpreting it with reference to the times of Antiochus Epiphanes and the Maccabees; beside that, the history of the canon of Scripture is decisive against assigning so late a date to any of the Psalms. Still less can the times of David be looked to for the occasion, since, though religion was then pure, there was, on the other hand, no dispersion of the nation nor any calamity such as to warrant the lamentation, "Thou hast cast us off, and put us to shame....Thou hast given us like sheep appointed for meat, "etc. Whence it appeared that there was no alternative but to consider the Psalm as exclusively the language of the Christian church, and, in her primitive days, as the period at once of her greatest purity and suffering. *William de Burgh.* 
 
 **Whole Psalm.** S. Ambrose observes, that in former Psalms we have seen a prophecy of Christ's passion, resurrection, and ascension and of the coming of the Holy Ghost, and that here we are taught that we ourselves must be ready to struggle and suffer, in order that these things may profit us. Human will must work together with divine grace. *Christopher Wordsworth.* 
 
@@ -166,7 +166,7 @@ Here ends this memorable Psalm, but in heaven its power ends not, but brings dow
 
 **Verse 3.** God's love to Israel was free, unmerited, and amazing, and he gave them a land for which they did not labour, and cities which they built not, and vineyards and oliveyards which they planted not. Jos 24:13. In some cases neither sword nor bow were used, but hornets were the instruments of conquest. Jos 24:12. Since the fall of Adam all good things in the lot of any mere man are undeserved kindnesses. *William S. Plumer.* 
 
-**Verse 3.** *(last clause)* . The prophet does not suppose any worthiness in the person of Abraham, nor imagine any desert in his posterity, on account of which God dealt so bountifully with them; but ascribes the whole through the good pleasure of God...Nor does the psalmist here treat of the general benevolence of God, which extends to the whole human race: but he discourses of the difference which exists between the elect and the rest of the world, and the cause of this difference is here referred to the mere good pleasure of God. *John Calvin.* 
+**Verse 3.** *(last clause)*. The prophet does not suppose any worthiness in the person of Abraham, nor imagine any desert in his posterity, on account of which God dealt so bountifully with them; but ascribes the whole through the good pleasure of God...Nor does the psalmist here treat of the general benevolence of God, which extends to the whole human race: but he discourses of the difference which exists between the elect and the rest of the world, and the cause of this difference is here referred to the mere good pleasure of God. *John Calvin.* 
 
 **Verse 5.** *Through thee will we push down our enemies* :, literally, "We will toss them in the air with our horn; "a metaphor taken from an ox or bull tossing the dogs into the air which attack him. *Adam Clarke.* 
 
@@ -188,7 +188,7 @@ Here ends this memorable Psalm, but in heaven its power ends not, but brings dow
 
 **Verse 12.** *And dost not increase thy wealth by their price.* Thou hast not advanced thy honour and service thereby; for thy enemies do not serve thee more and better than thy people, nor yet so much. *Matthew Pool.* 
 
-**Verse 12.** *(last clause)* . *Takest no money for them;* literally, *enhances not the price of them,* as a seller usually does to the buyer. *Daniel Creswell.* 
+**Verse 12.** *(last clause)*. *Takest no money for them;* literally, *enhances not the price of them,* as a seller usually does to the buyer. *Daniel Creswell.* 
 
 **Verse 14.** *Thou makest us a byword;* literally, *for a similitude,* (lvm) stands here, as in the original passage De 28:37, in the common signification, *similitude.* The misery of Israel is so great, that people would figuratively call a miserable man a Jew, just as liars were called Cretans; wretched slaves, Sardians. So far as the people from being now "blessed of the Lord" in whom according to the promise, all the heathen are to be blessed. *E. W. Hengstenberg.* 
 
@@ -264,7 +264,7 @@ ANSWER: It is one thing what the afflicted church cries in the heat of her suffe
 
 3\.Discriminating grace revealed.
 
-**Verse 3.** *(last clause)* . The eternal well spring of all mercy.
+**Verse 3.** *(last clause)*. The eternal well spring of all mercy.
 
 **Verse 4.** 
 
@@ -306,7 +306,7 @@ ANSWER: It is one thing what the afflicted church cries in the heat of her suffe
 
 **Verse 9.** In what sense God casts off his people, and why.
 
-**Verse 9.** *(last clause)* . The greatest of all calamities for our churches.
+**Verse 9.** *(last clause)*. The greatest of all calamities for our churches.
 
 **Verse 12.** The human and divine estimate of the results of persecution.
 
@@ -330,7 +330,7 @@ ANSWER: It is one thing what the afflicted church cries in the heat of her suffe
 
 **Verse 17.** What it is to be false to our covenant with God.
 
-**Verse 18.** *(first clause)* . When we may be sure that our heart has not apostatised.
+**Verse 18.** *(first clause)*. When we may be sure that our heart has not apostatised.
 
 **Verse 18.** 
 

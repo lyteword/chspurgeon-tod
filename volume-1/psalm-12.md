@@ -70,7 +70,7 @@ Here we return to the fount of bitterness, which first made the psalmist run to 
 
 **Verse 3.** *"Cut off lips and tongues."* May there not be here an allusion to those terrible but suggestive punishments which Oriental monarchs were wont to execute on criminals? Lips were cut off and tongues torn out when offenders were convicted of lying or treason. So terrible and infinitely more so are the punishments of sin. *C. H. S.* 
 
-**Verses 3, 4.** It need not now seem strange to tell you that the Lord is the owner of our bodies, that he has so much propriety therein that they are more his than ours. The apostle tells us as much. 1 Corinthians 6:20. "Glorify God in your bodies which are his." Our bodies, and every member thereof, are his; for if the whole be so, no part is exempted. And therefore they speak proud things, and presumptuously usurped the propriety of God, who said, *"Our lips* are our own;"as though their lips had not been his who is Lord and Owner of all, but they had been lords thereof, and might have used them as they list. This provoked God to show what right he had to dispose of such lips and tongues, by *cutting them off* . *David Clarkson.* 
+**Verses 3, 4.** It need not now seem strange to tell you that the Lord is the owner of our bodies, that he has so much propriety therein that they are more his than ours. The apostle tells us as much. 1 Corinthians 6:20. "Glorify God in your bodies which are his." Our bodies, and every member thereof, are his; for if the whole be so, no part is exempted. And therefore they speak proud things, and presumptuously usurped the propriety of God, who said, *"Our lips* are our own;"as though their lips had not been his who is Lord and Owner of all, but they had been lords thereof, and might have used them as they list. This provoked God to show what right he had to dispose of such lips and tongues, by *cutting them off*. *David Clarkson.* 
 
 **Verse 4.** *"Who have said, With our tongues will we prevail;* who is Lord over us?"So it was: twelve poor and unlearned men on the one side, all the eloquence of Greece and Rome arrayed on the other. From the time of Tertullus to that of Julian the apostate, every species of oratory, learning, wit, was lavished against the church of God; and the result, like the well-known story of that dispute between the Christian peasant and the heathen philosopher, when the latter, having challenged the assembled fathers of a synod to silence him, was put to shame by the simple faith of the former "In the name of our Lord Jesus Christ, I command thee to be dumb." *"Who is lord over us?"* "Who is the Lord, that I should obey his voice to let Israel go?" Exodus 5:2. "What is the Almighty, that we should serve him?" Job 21:15. "Who is that God that shall deliver you?" Daniel 3:15. *Michael Ayguan, in J. M. Neale's* Commentary. 
 
@@ -102,31 +102,31 @@ Here we return to the fount of bitterness, which first made the psalmist run to 
 
 **Verse 8.** *"When the vilest men are exalted:"* Hebrew, *vilities,* outidanoi the abstract for the concrete, *quisquiliae*, outidanoi. Oft, empty vessels swim aloft, rotten posts are gilt with adulterate gold, the worst weeds spring up bravest. Chaff will get to the top of the fan, when good corn, as it lieth at the bottom of the heap, so it falls low at the feet of the fanner. The reason why wicked men *"walk"* on every side, are so brisk, so busy (and who but they?) is given to be this, because losels and rioters were exalted. See Proverbs 28:12, 18 and 29:2. As rheums and catarrhs fall from the head to the lungs, and cause a consumption of the whole body, so it is in the body politic. As a fish putrefies first in the head and then in all the parts, so here. Some render the text thus, *"When they* (that is, the wicked) *are exalted,"* it is a *"shame* for the sons of men," that other men who better deserve preferment, are not only slighted, but vilely handled by such worthless ambitionists, who yet the higher they climb, as apes, the more they discover their deformities." *John Trapp.* 
 
-**Verse 8.** Good thus translates this verse:— Should the wicked advance on every side; Should the dregs of the earth be uppermost? The original is given literally. (Heb.) means "foeces, foeculences, dregs. (Heb.) is here an adverb, and imports *uppermost*, rather than *exalted* . *J. Mason Good, in loc.* 
+**Verse 8.** Good thus translates this verse:— Should the wicked advance on every side; Should the dregs of the earth be uppermost? The original is given literally. (Heb.) means "foeces, foeculences, dregs. (Heb.) is here an adverb, and imports *uppermost*, rather than *exalted*. *J. Mason Good, in loc.* 
 
 ## Hints to the Village Preacher
 
 **Verse 1.** *"Help, Lord."* I. The Prayer itself, short, suggestive, seasonable, rightly directed, vehement. II. Occasions for its use. III. Modes of its answer. IV. Reasons for expecting gracious reply. 
 
-**Verse 1.** *First two clauses* . Text for funeral of an eminent believer. 
+**Verse 1.** *First two clauses*. Text for funeral of an eminent believer. 
 
-**Verse 1.** *Whole verse* . I. *The fact bewailed* —describe godly and faithful, and show how they fail. II. *The feeling excited.* Mourning the loss, fears for church, personal need of such companions, appeal to God. III. *The forebodings aroused.* Failure of the cause, judgments impending, etc. IV. *The faith remaining:* "Help, Lord." 
+**Verse 1.** *Whole verse*. I. *The fact bewailed* —describe godly and faithful, and show how they fail. II. *The feeling excited.* Mourning the loss, fears for church, personal need of such companions, appeal to God. III. *The forebodings aroused.* Failure of the cause, judgments impending, etc. IV. *The faith remaining:* "Help, Lord." 
 
 **Verse 1.** Intimate connection between yielding honour to God and honesty to man, since they decline together. 
 
 **Verse 2.** (*first clause*). A discourse upon the prevalence and perniciousness of vain talk. 
 
-**Verse 2.** *The whole verse* . Connection between flattery and treachery. 
+**Verse 2.** *The whole verse*. Connection between flattery and treachery. 
 
 **Verse 2.** *"A double heart."* Right and wrong kinds of hearts, and the disease of duplicity. 
 
 **Verse 3.** God's hatred of those twin sins of the lips—Flattery and Pride (which is self flattery). Why he hates them. How he shows his hatred. In whom he hates them most. How to be cleansed from them. 
 
-**Verses 3, 4.** I. *The revolt of the tongue* . Its claim of power, self-possession, and liberty. Contrast this and the believer's confession, "we are not our own." II. *The method of its rebellion* — "flattery, and speaking proud things." III. *The end of its treason* —"cut off." 
+**Verses 3, 4.** I. *The revolt of the tongue*. Its claim of power, self-possession, and liberty. Contrast this and the believer's confession, "we are not our own." II. *The method of its rebellion* — "flattery, and speaking proud things." III. *The end of its treason* —"cut off." 
 
 **Verse 5.** The Lord aroused—How! Why! What to do! When! 
 
-**Verse 5.** *Last clause* . Peculiar danger of believers from those who despise them and their special safety. Good practical topic. 
+**Verse 5.** *Last clause*. Peculiar danger of believers from those who despise them and their special safety. Good practical topic. 
 
 **Verse 6.** The purity, trial, and permanency of the words of the Lord. Seven crucibles in which believers try the word. A little thought will suggest these. 
 

@@ -432,7 +432,7 @@ Note continued on *See Psalms on "Job 42:10."*
 
 **Verse 9.** *A gracious rain;* that is, of manna. *Edmund Law (1703-1787), quoted by Richard Warner in loc.,* 1828.
 
-**Verse 9.** *Rain.* One fountain, says Cyril, waters thy paradise, and the rain that falls upon all the world is the same; it is white in the bloom of the hawthorn, red in the rose, purple in the hyacinth, and diverse kinds, and all in all; yet it itself is the same and of the same kind. . . . So also the Holy Spirit, though he is one and the same and not divisible, yet to every one he divideth grace according as he wills. *Thomas Le Blanc.* 
+**Verse 9.** *Rain.* One fountain, says Cyril, waters thy paradise, and the rain that falls upon all the world is the same; it is white in the bloom of the hawthorn, red in the rose, purple in the hyacinth, and diverse kinds, and all in all; yet it itself is the same and of the same kind.... So also the Holy Spirit, though he is one and the same and not divisible, yet to every one he divideth grace according as he wills. *Thomas Le Blanc.* 
 
 **Verse 9.** *A plentiful rain.* Thy love has been as a shower! The returns, but a dew drop, and that dew drop stained with sin. *James Harrington Evans,* 1785-1849.
 
@@ -680,7 +680,7 @@ From the armoury of God, where stand of old Myriads."
 
 4\.The men that delight in war.
 
-The imprecation is also twofold; the first more gentle; it is but *rebuke the spearmen;* and that with limitation too— *till they submit themselves with pieces of silver.* For they that will not, but delight in war, more severely deal with such: Scatter them; *Scatter the men that delight in war.* ... The church of God never wanted enemies, never will. "There is no peace to the wicked, "saith God: there shall be no peace to the godly, say the wicked. The wicked shall have no peace which God can give; the godly shall have no peace which the wicked can take away. *Thomas Wall.* 
+The imprecation is also twofold; the first more gentle; it is but *rebuke the spearmen;* and that with limitation too— *till they submit themselves with pieces of silver.* For they that will not, but delight in war, more severely deal with such: Scatter them; *Scatter the men that delight in war.*... The church of God never wanted enemies, never will. "There is no peace to the wicked, "saith God: there shall be no peace to the godly, say the wicked. The wicked shall have no peace which God can give; the godly shall have no peace which the wicked can take away. *Thomas Wall.* 
 
 **Verse 30.** 
 

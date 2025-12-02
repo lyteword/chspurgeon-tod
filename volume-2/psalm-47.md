@@ -192,9 +192,9 @@ For the shields of the earth belong unto God. The insignia of pomp, the emblems 
 
 **Verse 6.** The importance of holy song. The repetition rebukes our slackness, and implies that earnestness, frequency, delight, and universality should characterise the praises offered.
 
-**Verse 7** *(last clause)* . The psalmody of the instructed, and instruction by psalmody; praise should be both the fruit and the vehicle of teaching.
+**Verse 7** *(last clause)*. The psalmody of the instructed, and instruction by psalmody; praise should be both the fruit and the vehicle of teaching.
 
-**Verse 8** *(last clause)* . Divine sovereignty always connected with holiness.
+**Verse 8** *(last clause)*. Divine sovereignty always connected with holiness.
 
 **Verse 8.** 
 

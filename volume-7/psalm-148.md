@@ -78,7 +78,7 @@ Even of the children of Israel. The Lord knoweth them that are his. He knows the
 
 **Verse 1.** *Praise ye the Lord*, etc. All things praise, and yet he says, *"Praise ye."* Wherefore doth he say, *"Praise ye",* when they are praising? Because he delighteth in their praising, and therefore it pleaseth him to add, as it were, his own encouragement. Just as, when you come to men who are doing any good work with pleasure in their vineyard or in their harvest field, or in some other matter of husbandry, you are pleased at what they are doing, and say, "Work on", "Go on"; not that they may begin to work, when you say this, but, because you are pleased at finding them working, you add your approbation and encouragement. For by saying, "Work on", and encouraging those who are working, you, so to speak, work with them in wish. In this sort of encouragement, then, the Psalmist, filled with the Holy Ghost, saith this.— *Augustine.* 
 
-**Verse 1.** The thrice repeated exhortation, *"Praise...Praise ...Praise",* in this first verse is not merely imperative, nor only hortative, but it is an exultant hallelujah.— *Martin Geier.* 
+**Verse 1.** The thrice repeated exhortation, *"Praise...Praise...Praise",* in this first verse is not merely imperative, nor only hortative, but it is an exultant hallelujah.— *Martin Geier.* 
 
 **Verse 1.** *From the heavens: praise him in the heights.* Or, high places. As God in framing the world begun above, and wrought downward, so doth the Psalmist proceed in this his exhortation to all creatures to praise the Lord.— *John Trapp.* 
 

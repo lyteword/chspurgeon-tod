@@ -218,7 +218,7 @@ A second time David turns to his diary, and this time in poetic imagery tells us
 
 **Whole Psalm.** The righteous are preserved in Christ with a special preservation, and in a peculiar safety. In the thirty-seventh Psalm this point is excellently and largely handled, both by direct proof, and by answer to all the usual objections against their safety. That they shall be preserved is affirmed, Ps 37:3,17,23,25,32. The objections answered are many.
 
-Objection 1. Wicked men flourish. *Solution* . A righteous man should never grieve at that, for "they shall soon be cut down like the grass, and wither as the green herb." Ps 37:2.
+Objection 1. Wicked men flourish. *Solution*. A righteous man should never grieve at that, for "they shall soon be cut down like the grass, and wither as the green herb." Ps 37:2.
 
 Objection 2. Righteous men are in distress. *Solution* —Ps 37:6. The night of their adversity will be turned into the light of prosperity; and as surely as they can believe when it is night that it shall be day, so surely may they be persuaded when crosses are upon them, that comfort and deliverance shall come.
 
@@ -292,7 +292,7 @@ But if we would be thus delivered, observe: 1. That we must not unthankfully fre
 
 **Verse 5.** *Commit thy way unto.* Margin and Hebrew, *Roll thy way upon* —as one who lays upon the shoulder of one stronger than himself a burden which he is not able to bear. *William De Burgh, D.D., in "A Commentary on the Book of Psalms. Dublin:"* 1860.
 
-**Verse 5.** Note the double again, *Commit* and *trust* . *C. H. S.* 
+**Verse 5.** Note the double again, *Commit* and *trust*. *C. H. S.* 
 
 **Verse 5.** *He shall bring it to pass.* When a hard piece of work is put into the hand of an apprentice for the first assay of his skill, the beholders are justly afraid of a miscarriage in his young and inexperienced hand; but when the worker is an old master of craft, none are afraid but his cunning hand can act again what so oft it hath wrought to the contentment of all the beholders. Were our God a novice in the great art of governing the world, and of the church in the bosom thereof; had he to this day never given any proof of his infinite wisdom, power, and goodness, in turning about the most terrible accidents to the welfare and joy of his saints; we might indeed be amazed whenever we feel ourselves sinking in the dangers wherein the practices of our enemies oft do plunge us over head and ears; but the Lord having given in times past so many documents of his uncontroverted skill and most certain will to bring about all human affairs, as to his own glory, so to the real good of all that love him, it would be in us an impious and unexcusable uncharitableness to suspect the end of any work which he hath begun. *Robert Baylie's Sermon before the House of Commons,* 1643.
 
@@ -408,7 +408,7 @@ A few practical remarks: 1. Our *"resting patiently"* in the Lord applies only t
 
 **Verse 7.** ( *first clause* ). The Hebrew word rendered *silent* is (owr), *dom,* from which the English word *dumb* appears to be derived. The silence here enjoined is opposed to murmuring or complaining. *James Anderson, in Calvin's Commentary.* 
 
-**Verse 7.** Note again the twin duties, *rest* and *wait* .
+**Verse 7.** Note again the twin duties, *rest* and *wait*.
 
 **Verse 7.** *Bringeth wicked devices to pass.* Observe the opposition between this and *God's* bringing to pass, in verse five. The ground for grief is that the ungodly appear to achieve their end, the reason for comfort is that our end shall be achieved also, and that in the best manner by God himself. *C. H. S.* 
 
@@ -452,7 +452,7 @@ A few practical remarks: 1. Our *"resting patiently"* in the Lord applies only t
 
 **Verses 16-17.** A little blest is better than a great deal curst; a little blest is better than a world enjoyed; a pound blest is better than a thousand curst; a black crust blest is better than a feast curst; the gleanings blest are better than the whole harvest curst; a drop of mercy blest is better than a sea of mercy curst; Lazarus crumbs blest was better than Dives' delicates curst; Jacob's little blest unto him was better than Esau's great estate that was curst unto him. It is always better to have scraps with a blessing, than to have manna and quails with a curse; a thin table with a blessing is better than a full table with a snare; a threadbare coat with a blessing is better than a purple robe curst; a hole, a cave, a den, a barn, a chimney corner with a blessing, is better than stately palaces with a curse; a woollen cap blest is better than a golden crown curst; and it may be that emperor understood as much, that said of his crown, when he looked on it with tears: "If you knew the cares that are under this crown you would never stoop to take it up." And therefore, why should not a Christian be contented with a little, seeing his little shall be blest unto him? Isaac tills the ground and sows his seed, and God blesses him with an hundredfold; and Cain tills the ground and sows his seed, but the earth is cursed to him and commanded not to yield to him his strength. Oh, therefore never let a Christian murmur because he hath but little, but rather let him be still blessing of that God that hath blest his little, and doth bless his little, and that will bless his little to him. *Thomas Brooks.* 
 
-**Verse 17.** *For the arms of the wicked shall be broken: but he upholdeth* (or underprops) *the righteous* . By *the arms of the wicked*, you are to understand their strength, their valour, their power, their wit, their wealth, their abundance, which is all the arms they have to support and bear up themselves in the world with. Now, these arms shall be broken, and when they are broken, then, even then, will God uphold the righteous, that is, God will be a continual overflowing fountain of good to his righteous ones; so that they shall never want, though all the springs of the wicked are dried up round about them. *Thomas Brooks.* 
+**Verse 17.** *For the arms of the wicked shall be broken: but he upholdeth* (or underprops) *the righteous*. By *the arms of the wicked*, you are to understand their strength, their valour, their power, their wit, their wealth, their abundance, which is all the arms they have to support and bear up themselves in the world with. Now, these arms shall be broken, and when they are broken, then, even then, will God uphold the righteous, that is, God will be a continual overflowing fountain of good to his righteous ones; so that they shall never want, though all the springs of the wicked are dried up round about them. *Thomas Brooks.* 
 
 **Verse 18.** *The Lord knoweth the days of the upright.* Deposits their days, lays them up in safety for them: for such is the original idea of (edy). *John Fry.* 
 
@@ -654,7 +654,7 @@ Luther closes his Exposition of the Psalm with the words, Oh, shame on our faith
 
 5\.Rest in the *relation* thy God fills to thee; he is the Father.
 
-6\.Rest in the Lord as he is manifested in Jesus, thy God *in covenant* .
+6\.Rest in the Lord as he is manifested in Jesus, thy God *in covenant*.
 
 James Smith.
 

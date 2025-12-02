@@ -186,7 +186,7 @@ The rich poor man's emphatically poor."
 
 **Verses 10-12.** Our estimate of man depends upon our estimate of God. David knows that men of low and high degree, if separated from the primal fount of every good, weigh *nothing,* and are less than nothing. Riches are nothing, especially ill gotten ones. Man is not to get proud when riches increase. But such is the course of things, that in proportion as the gifts of God are rich, men confide more in the gifts than in the rich giver. But holy David is better instructed. Once and again he has heard the divine voice in his soul, "that power belongeth unto God only." Job 33:14. This powerful God is merciful: can then any merit attach to our poor works? and yet the Lord rendereth to every pious man according to his imperfect pious work. *Agustus F. Tholuck.* 
 
-**Verse 12.** *Also unto thee, O Lord, belongeth mercy.* Something more is necessary to invite us to a dependence on God than his bare *power* and ability to help us. There must be also a firm persuasion of the promptitude and readiness of his will to do what he is able; and this we have in the other attribute of his *mercy.* ... "Unto thee, "unto thee *alone,* and unto none else. The most tender mercy amongst the creatures is none at all, being compared with the divine mercy. It belongeth *unto thee,* as thy prerogative and peculiar excellency. Mercy is a peculiar jewel of his crown. Or, *thine, O Lord, is mercy.* Nothing amongst the creature deserves the name of mercy but his own. Nothing is worthy to be so called, but what is proper and peculiar to God. Or, *with thee is mercy,* as it is expressed elsewhere. Ps 130:4,7. It is *with him;* that is, it is inseparable from his nature. He is merciful in a way peculiar to himself, "the Father of mercies." 2Co 1:3. *William Wisheart.* 
+**Verse 12.** *Also unto thee, O Lord, belongeth mercy.* Something more is necessary to invite us to a dependence on God than his bare *power* and ability to help us. There must be also a firm persuasion of the promptitude and readiness of his will to do what he is able; and this we have in the other attribute of his *mercy.*... "Unto thee, "unto thee *alone,* and unto none else. The most tender mercy amongst the creatures is none at all, being compared with the divine mercy. It belongeth *unto thee,* as thy prerogative and peculiar excellency. Mercy is a peculiar jewel of his crown. Or, *thine, O Lord, is mercy.* Nothing amongst the creature deserves the name of mercy but his own. Nothing is worthy to be so called, but what is proper and peculiar to God. Or, *with thee is mercy,* as it is expressed elsewhere. Ps 130:4,7. It is *with him;* that is, it is inseparable from his nature. He is merciful in a way peculiar to himself, "the Father of mercies." 2Co 1:3. *William Wisheart.* 
 
 **Verse 12.** *For thou rend rest to every man according to his work;* namely—judgment to the wicked, and mercy to the righteous; where the Syriac interpreter giveth the good note: *Est gratia Dei ut reddat homini secunda opera bona, quia merces bonorum operum est ex gratia:* It is mercy in God to set his love on them that keep his commandments. Ex 20:6. *John Trapp.* 
 
@@ -220,7 +220,7 @@ The rich poor man's emphatically poor."
 
 **Verse 5.** ( *last clause* ). What we expect from God, and why and when?
 
-**Verse 2, 6** . I shall not be greatly moved. I shall not be moved. Growth in faith. How it is produced, preserved, and evidenced.
+**Verse 2, 6**. I shall not be greatly moved. I shall not be moved. Growth in faith. How it is produced, preserved, and evidenced.
 
 **Verse 10.** Evils usually connected with the love of riches. Idolatry, covetousness, carking, care, meanness, forgetfulness of God and spiritual truth, neglect of charity, hardness of heart, tendency to injustice, etc. Means for escaping this seductive sin.
 
@@ -236,5 +236,5 @@ The rich poor man's emphatically poor."
 
 An Exposition upon some Select Psalmes of David. Containing *great store of most excellent and comfortable doctrine and instruction for all those that (under the burden of sinne), thirst for comfort in Christ Jesus.* Written by that faithful servant of God, M. ROBERT ROLLOK, sometime pastor in the Church of Edinburgh: and translated out of Latin into English, by CHARLES LUMISDEN. Minister of the Gospel of Christ at Dudingstoun... 1600. (Contains an Exposition of Psalm 62.)
 
-Certain Comfortable Expositions of the constant Martyr of Christ, *John Hooper, bishop of Gloucester and Worcester* ... Written in the time of tribulation and imprisonment, upon the Twenty-third, Sixty-second, Seventy-third, and Seventy-seventh Psalms of the prophet David.
+Certain Comfortable Expositions of the constant Martyr of Christ, *John Hooper, bishop of Gloucester and Worcester*... Written in the time of tribulation and imprisonment, upon the Twenty-third, Sixty-second, Seventy-third, and Seventy-seventh Psalms of the prophet David.
 

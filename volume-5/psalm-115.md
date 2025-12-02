@@ -50,7 +50,7 @@ The repetition of the words, *Not unto us,* would seem to indicate a very seriou
 
 ### Verse 10
 
-*O house of Aaron, trust in the LORD.* You who are nearest to him, trust him most; your very calling is connected with his truth and is meant to declare his glory, therefore never entertain a doubt concerning him, but lead the way in holy confidence. The priests were the leaders, teachers, and exemplars of the people, and therefore above all others they should place an unreserved reliance upon Israel's God. The Psalmist is glad to add that they did so, for he says, He is their help and their shield. It is good to exhort those to faith who have faith: "These things have I written unto you that believe on the name of the Son of God; ...that ye may believe on the name of the Son of God." We may stir up pure minds by way of remembrance, and exhort men to trust in the Lord because we know that they are trusting already.
+*O house of Aaron, trust in the LORD.* You who are nearest to him, trust him most; your very calling is connected with his truth and is meant to declare his glory, therefore never entertain a doubt concerning him, but lead the way in holy confidence. The priests were the leaders, teachers, and exemplars of the people, and therefore above all others they should place an unreserved reliance upon Israel's God. The Psalmist is glad to add that they did so, for he says, He is their help and their shield. It is good to exhort those to faith who have faith: "These things have I written unto you that believe on the name of the Son of God;...that ye may believe on the name of the Son of God." We may stir up pure minds by way of remembrance, and exhort men to trust in the Lord because we know that they are trusting already.
 
 ### Verse 11
 
@@ -152,7 +152,7 @@ Effigies inter vestras, statuamque Bathylli. Sat. 13, ver. 113.
 
 **Verse 7.** *Neither speak they through their throat. Yehgu* ;not so much as the low faint moaning of a dove. Isa 38:14. *William Kay.* 
 
-**Verse 7.** *Speak,* or, as the Hebrew word likewise signifies, *breathe* . They are not only irrational, but also inanimate. *Thomas Fenton.* 
+**Verse 7.** *Speak,* or, as the Hebrew word likewise signifies, *breathe*. They are not only irrational, but also inanimate. *Thomas Fenton.* 
 
 **Verse 8.** *They that make them are like unto them.* They that make them *images*, show their ingenuity, and doubtless are sensible men; but they that make them *gods* show their stupidity, and are as senseless blockish things as the idols themselves. *Matthew Henry.* 
 
@@ -184,7 +184,7 @@ Upon you and your children. **
 
 — *William Green, in "A New Translation of the Psalms,"* 1762.
 
-**Verse 15.** *Blessed are ye,* etc. Ye are the people blessed of old in the person of your father Abraham, by Melchizedek, priest of the Most High God, "Creator of heaven and earth, "Ge 14:19. *"Of Jehovah, "* literally, *to Jehovah*, as an object of benediction to him. Or the Hebrew proposition, as in many other cases, may be simply equivalent to our *by* . The creative character of God is mentioned, as ensuring his ability, no less than his willingness, to bless his people. *Joseph Addison Alexander.* 
+**Verse 15.** *Blessed are ye,* etc. Ye are the people blessed of old in the person of your father Abraham, by Melchizedek, priest of the Most High God, "Creator of heaven and earth, "Ge 14:19. *"Of Jehovah, "* literally, *to Jehovah*, as an object of benediction to him. Or the Hebrew proposition, as in many other cases, may be simply equivalent to our *by*. The creative character of God is mentioned, as ensuring his ability, no less than his willingness, to bless his people. *Joseph Addison Alexander.* 
 
 **Verse 16.** *The heaven, even the heavens, are the LORD'S.* He demonstrates, that, as God has his dwelling place in the heavens, he must be independent of all worldly riches; for, assuredly, neither wine, nor corn, nor anything requisite for the support of the present life, is produced there. Consequently, God has every resource in himself. To this circumstance the repetition of the term *"heavens"* refers. The *heavens, the heavens are enough for God* ;and as he is superior to all aid, he is to himself instead of a hundred more. *John Calvin.* 
 
@@ -194,7 +194,7 @@ Upon you and your children. **
 
 **Verse 17.** *The dead praise not the LORD,* etc. Who are here meant by *"the dead"?* I cannot rest in the view taken by those who consider this verse simply as a plea by those who use it, that they may be saved from death. They are words provided for the church at large, as the subsequent verse proves By *"the dead, "* then, I understand those who descend to the silence of eternal death, who have not praised God, and never can. For them the earth might seem never to have been given. *W. Wilson.* 
 
-**Verse 17.** *Into silence.* Into the grave—the land of silence. Ps 94:17. Nothing is more impressive in regard to the grave than its utter *silence* . Not a voice, not a sound, is heard there,—of birds or men—of song or conversation—of the roaring of the sea, the sighing of the breeze, the fury of the storm, the tumult of battle. Perfect stillness reigns there; and the first sound that shall be heard there will be the archangel's trump. *Albert Barnes.* 
+**Verse 17.** *Into silence.* Into the grave—the land of silence. Ps 94:17. Nothing is more impressive in regard to the grave than its utter *silence*. Not a voice, not a sound, is heard there,—of birds or men—of song or conversation—of the roaring of the sea, the sighing of the breeze, the fury of the storm, the tumult of battle. Perfect stillness reigns there; and the first sound that shall be heard there will be the archangel's trump. *Albert Barnes.* 
 
 **Verses 17-18.** The *people* of God cannot die, because the praise of God would die with them, which would be impossible. *E. W. Hengstenberg.* 
 

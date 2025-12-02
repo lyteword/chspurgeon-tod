@@ -118,7 +118,7 @@ They cannot overpower us.
 
  *—S. W. Christophers, in "Hymn Writers and their Hymns," 1866* 
 
-**Verse 1.** *God is our refuge and strength,* etc. It begins abruptly, but nobly; ye may trust in whom and in what ye please; but GOD (ELOHIM) *is our refuge and strength* . *A very present help* . A help found to be very powerful and effectual in straits and difficulties. The words are very emphatic: (dam aumn twrub hrze), *ezrah betsaroth nimtsa meod,* "He is found an exceeding, or superlative, help in difficulties." Such we have found him, and therefore celebrate his praise. *Adam Clarke.* 
+**Verse 1.** *God is our refuge and strength,* etc. It begins abruptly, but nobly; ye may trust in whom and in what ye please; but GOD (ELOHIM) *is our refuge and strength*. *A very present help*. A help found to be very powerful and effectual in straits and difficulties. The words are very emphatic: (dam aumn twrub hrze), *ezrah betsaroth nimtsa meod,* "He is found an exceeding, or superlative, help in difficulties." Such we have found him, and therefore celebrate his praise. *Adam Clarke.* 
 
 **Verse 2.** *Though the earth be removed.* John Wesley preached in Hyde park, on the occasion of the earthquake felt in London, March 8, 1750, and repeated these words. Charles Wesley composed Hymn 67, Wesley's Collection, the following lines of which illustrate this verse:
 
@@ -214,7 +214,7 @@ On the rock of heavenly love.
 
 **Verse 4.** Glad tidings in sad times; or, the city of God in the times of trouble and confusion, watered with the river of consolation. *Ralph Erskine.* 
 
-**Verse 4.** What can this *river* be but that blessed covenant to which David himself repaired in the time of trouble? ...And what are *the streams* of this river, but the outgoings and effects of this divine constitution?
+**Verse 4.** What can this *river* be but that blessed covenant to which David himself repaired in the time of trouble?...And what are *the streams* of this river, but the outgoings and effects of this divine constitution?
 
 1\.The blood of Jesus.
 

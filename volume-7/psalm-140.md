@@ -112,7 +112,7 @@ The poison of the soul is only *sin*, and this is like to poison in many respect
 
 **Verse 3.** Often the tongue of the serpent is spoken of as the seat of its venom. This is popular, not scientific language.— *William Swan Plumer.* 
 
-**Verse 3.** *Adder.* The word *acshub* (pronounced, ak-shoob), only occurs in this one passage. The precise species represented by this word is unknown. Buxtorf, however, explains the word as the Spitter, "illud genus quod venelmm proeul exspuit." Now, if we accept this derivation, we must take the word *acshub* as a synonym for *pethen* . We have already identified the Pethen with the Naja haje, a snake which has the power of expelling the poison to some distance, when it is out of reach of its enemy. Whether the snake really intends to eject the poison, or whether it is merely flung from the hollow fangs by the force of the suddenly checked stroke, is uncertain. That the Haje cobra can expel its poison is an acknowledged fact, and the Dutch colonists of the Cape have been so familiarly acquainted with this habit, that they have called this reptile by the name of Spuugh Slange, or Spitting Snake, a name which, if we accept Buxtorf's etymology, is precisely equivalent to the word acshub.— *J.G. Wood*, in *"Bible Animals."* 
+**Verse 3.** *Adder.* The word *acshub* (pronounced, ak-shoob), only occurs in this one passage. The precise species represented by this word is unknown. Buxtorf, however, explains the word as the Spitter, "illud genus quod venelmm proeul exspuit." Now, if we accept this derivation, we must take the word *acshub* as a synonym for *pethen*. We have already identified the Pethen with the Naja haje, a snake which has the power of expelling the poison to some distance, when it is out of reach of its enemy. Whether the snake really intends to eject the poison, or whether it is merely flung from the hollow fangs by the force of the suddenly checked stroke, is uncertain. That the Haje cobra can expel its poison is an acknowledged fact, and the Dutch colonists of the Cape have been so familiarly acquainted with this habit, that they have called this reptile by the name of Spuugh Slange, or Spitting Snake, a name which, if we accept Buxtorf's etymology, is precisely equivalent to the word acshub.— *J.G. Wood*, in *"Bible Animals."* 
 
 **Verses 3, 5, 8.** Selah. We meet with Selah here for the first time since Psalm 89. From Psalm 90 to Psalm 140 no Selah occurs. Why omitted in these fifty we cannot tell any more than why so often recurring in others. However, there are only about forty Psalms in all in which it is used.— *Andrew A. Bonar.* 
 
@@ -130,7 +130,7 @@ The poison of the soul is only *sin*, and this is like to poison in many respect
 
 **Verse 6.** *The voice of my supplications.* The one safety for simple and unlearned people when assailed by the crafty arguments of heretics and infidels is not controversy, but prayer, a weapon their adversaries seldom use and cannot understand.— *Bruno of Aste,* 1123.
 
-**Verse 7.** *Thou hast covered my head in the day of battle.* Hebrew, *of armour* . For David had never indeed any battle with Saul, but declined it; but Saul often armed against him; but then God's providence covered him as a shield: but the head is only spoken of to set forth his whole body, because that is chiefly aimed at by the enemy, as where the life principally lieth.— *John Mayer.* 
+**Verse 7.** *Thou hast covered my head in the day of battle.* Hebrew, *of armour*. For David had never indeed any battle with Saul, but declined it; but Saul often armed against him; but then God's providence covered him as a shield: but the head is only spoken of to set forth his whole body, because that is chiefly aimed at by the enemy, as where the life principally lieth.— *John Mayer.* 
 
 **Verse 7.** *Thou hast covered my head*, etc. That is, I had no other helmet or armour but thy Almighty power in the day when I fought with Goliath. 1Sa 17:39-40,50.— *Thomas Fenton.* 
 
@@ -310,7 +310,7 @@ d) Praise practised by communion.
 
 **Verse 9.** How the sin of evil speakers comes home to them.— *W. B. H.* 
 
-**Verse 11.** ( *first clause* .)
+**Verse 11.** ( *first clause*.)
 
 1\.Notice a few varieties of evil speakers.
 

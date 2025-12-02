@@ -26,7 +26,7 @@ weight: 31
 
 ### Verse 4
 
-*Pull me out of the net that they have laid privily for me* . The enemies of David were cunning as well as mighty; if they could not conquer him by power, they would capture him by craft. Our own spiritual foes are of the same order—they are of the serpent's brood, and seek to ensnare us by their guile. The prayer before us supposes the possibility of the believer being caught like a bird; and, indeed, we are so foolish that this often happens. So deftly does the fowler do his work that simple ones are soon surrounded by it. The text asks that even out of the meshes of the net the captive one may be delivered; and this is a proper petition, and one which can be granted; from between the jaws of the lion and out of the belly of hell can eternal love rescue the saint. It may need a sharp *pull* to save a soul from the net of temptation, and a mighty pull to extricate a man from the snares of malicious cunning, but the Lord is equal to every emergency, and the most skilfully placed nets of the hunter shall never be able to hold his chosen ones. Woe unto those who are so clever at net laying: they who tempt others shall be destroyed themselves. Villains who lay traps in secret shall be punished in public. *For thou art my strength.* What an inexpressible sweetness is to be found in these few words! How joyfully may we enter upon labours, and how cheerfully may we endure sufferings when we can lay hold upon celestial power. Divine power will rend asunder all the toils of the foe, confound their politics and frustrate their knavish tricks; he is a happy man who has such matchless might engaged upon his side. Our own strength would be of little service when embarrassed in the nets of base cunning, but the Lord's strength is ever available; we have but to invoke it, and we shall find it near at hand. If by faith we are depending alone upon the strength of the strong God of Israel, we may use our holy reliance as a plea in supplication.
+*Pull me out of the net that they have laid privily for me*. The enemies of David were cunning as well as mighty; if they could not conquer him by power, they would capture him by craft. Our own spiritual foes are of the same order—they are of the serpent's brood, and seek to ensnare us by their guile. The prayer before us supposes the possibility of the believer being caught like a bird; and, indeed, we are so foolish that this often happens. So deftly does the fowler do his work that simple ones are soon surrounded by it. The text asks that even out of the meshes of the net the captive one may be delivered; and this is a proper petition, and one which can be granted; from between the jaws of the lion and out of the belly of hell can eternal love rescue the saint. It may need a sharp *pull* to save a soul from the net of temptation, and a mighty pull to extricate a man from the snares of malicious cunning, but the Lord is equal to every emergency, and the most skilfully placed nets of the hunter shall never be able to hold his chosen ones. Woe unto those who are so clever at net laying: they who tempt others shall be destroyed themselves. Villains who lay traps in secret shall be punished in public. *For thou art my strength.* What an inexpressible sweetness is to be found in these few words! How joyfully may we enter upon labours, and how cheerfully may we endure sufferings when we can lay hold upon celestial power. Divine power will rend asunder all the toils of the foe, confound their politics and frustrate their knavish tricks; he is a happy man who has such matchless might engaged upon his side. Our own strength would be of little service when embarrassed in the nets of base cunning, but the Lord's strength is ever available; we have but to invoke it, and we shall find it near at hand. If by faith we are depending alone upon the strength of the strong God of Israel, we may use our holy reliance as a plea in supplication.
 
 ### Verse 5
 
@@ -192,7 +192,7 @@ O hands of the Eternal God, who made and still preserve the heavens and earth fo
 
 **Verse 6.** The sense lies thus, that heathen men, when any danger or difficulty approacheth them, are solemnly wont to apply themselves to auguries and divinations, and so to false gods, to receive advice and direction from them: but doing so and observing their responses most superstitiously, they yet gain nothing at all by it. These David detests, and keeps close to God, hoping for no aid but from him. *H. Hammond, D.D.* 
 
-**Verse 7.** *I will be glad and rejoice in thy mercy.* In the midst of trouble faith will furnish matter of joy, and promise to itself gladness, especially from the memory of by past experiences of God's mercy; as here, *I will be glad and rejoice in thy mercy.* ...The ground of our gladness, when we have found a proof of God's kindness to us should not be in the benefit so much as in the fountain of the benefit; for this giveth us hope to drink again of the like experience from the fountain which did send forth that benefit. Therefore David says, *I will be glad and rejoice in thy mercy. David Dickson.* 
+**Verse 7.** *I will be glad and rejoice in thy mercy.* In the midst of trouble faith will furnish matter of joy, and promise to itself gladness, especially from the memory of by past experiences of God's mercy; as here, *I will be glad and rejoice in thy mercy.*...The ground of our gladness, when we have found a proof of God's kindness to us should not be in the benefit so much as in the fountain of the benefit; for this giveth us hope to drink again of the like experience from the fountain which did send forth that benefit. Therefore David says, *I will be glad and rejoice in thy mercy. David Dickson.* 
 
 **Verse 7.** *Thou hast considered my trouble:* 
 
@@ -224,7 +224,7 @@ Add but a faith, and say as beggars say: *Master, I am poor, and blind, in great
 
 **Verse 10.** *Mine iniquity.* Italian version, *"my pains; "* because that death and all miseries are come into the world by reason of sin, the Scripture doth often confound the names of the cause and of the effects. *John Diodati.* 
 
-**Verse 10.** . I find that when the saints are under trial and well humbled, little sins raise great cries in the conscience; but in prosperity, conscience is a pope that gives dispensations and great latitude to our hearts. The cross is therefore as needful as the crown is glorious. *Samuel Rutherford.* 
+**Verse 10.**. I find that when the saints are under trial and well humbled, little sins raise great cries in the conscience; but in prosperity, conscience is a pope that gives dispensations and great latitude to our hearts. The cross is therefore as needful as the crown is glorious. *Samuel Rutherford.* 
 
 **Verse 11.** *I was a reproach among all mine enemies.* If anyone strives after patience and humility, he is a hypocrite. If he allows himself in the pleasures of this world, he is a glutton. If he seeks justice, he is impatient; if he seeks it not, he is a fool. If he would be prudent, he is stingy; if he would make others happy, he is dissolute. If he gives himself up to prayer, he is vainglorious. And this is the great loss of the church, that by means like these many are held back from goodness! which the psalmist lamenting says, *I became a reproof among all mine enemies. Chrysostom, quoted by J.M. Neale.* 
 
@@ -258,7 +258,7 @@ Reserved by God to follow this."
 
  *—Robert Browning.* 
 
-To this end God's real way is made up of all the ways of our life. His hand holds all our times. *My times* ; "" *Thy hand* ." Some lives greatly differ from others. This we know; but see, some lives fulfil life's course, gain life's crown—life in their degree. This, on the contrary, others quite miss. Yet, for even human strength there must be a love meted out to rule it. It is said, there is a moon to control the tides of every sea; is there not a master power for souls? It may not always be so, apparently, in the more earthly lives, but it is so in the heavenly; not more surely does the moon sway tides, than God sways souls. It does not seem sometimes as if man found no adequate external power, and stands forth ordained to be a law to his own sphere; but even then his times are in the hands of God, as the pathway of a star is in the limitations of its system—as the movements of a satellite are in the forces of its planet. But while I would not pause on morbid words or views of life, so neither do I desire you to receive or charge me with giving only a moody, morbid view of the world, and an imperfect theology; but far other. *My times are in thy hand* — *the hand of my Saviour."* 
+To this end God's real way is made up of all the ways of our life. His hand holds all our times. *My times* ; "" *Thy hand*." Some lives greatly differ from others. This we know; but see, some lives fulfil life's course, gain life's crown—life in their degree. This, on the contrary, others quite miss. Yet, for even human strength there must be a love meted out to rule it. It is said, there is a moon to control the tides of every sea; is there not a master power for souls? It may not always be so, apparently, in the more earthly lives, but it is so in the heavenly; not more surely does the moon sway tides, than God sways souls. It does not seem sometimes as if man found no adequate external power, and stands forth ordained to be a law to his own sphere; but even then his times are in the hands of God, as the pathway of a star is in the limitations of its system—as the movements of a satellite are in the forces of its planet. But while I would not pause on morbid words or views of life, so neither do I desire you to receive or charge me with giving only a moody, morbid view of the world, and an imperfect theology; but far other. *My times are in thy hand* — *the hand of my Saviour."* 
 
 "I report as a man may of God's work—all's love, but all's law. In the Godhead I seek and I find it, and so it shall be
 
@@ -268,7 +268,7 @@ And now he is "the restorer of paths to dwell in." The hand of Jesus is the hand
 
 **Verse 15.** When David had Saul at his mercy in the cave, those about him said, *This is the time* in which God will deliver thee. 1Sa 24:4. No, saith David, the time is not come for my deliverance till it can be wrought without sin, and I will wait for that time; for it is God's time, and that is the best time. *Matthew Henry.* 
 
-**Verse 16.** *Make thy face to shine upon thy servant.* When the cloud of trouble hideth the Lord's favour, faith knoweth it may shine again, and therefore prayeth through the cloud for the dissolving of it. *Make thy face to shine upon thy servant* . *David Dickson.* 
+**Verse 16.** *Make thy face to shine upon thy servant.* When the cloud of trouble hideth the Lord's favour, faith knoweth it may shine again, and therefore prayeth through the cloud for the dissolving of it. *Make thy face to shine upon thy servant*. *David Dickson.* 
 
 **Verse 18.** *Lying lips...which speak grievous things proudly and contemptuously against the righteous.* The primitive persecutors slighted the Christians for a company of bad, illiterate fellows, and therefore they used to paint the God of the Christians with an ass's head and a book in his hand, saith Tertullian; to signify, that though they pretended learning, yet they were silly and ignorant people. Bishop Jewel, in his sermon upon Lu 11:15, cites this out of Tertullian and applies it to his times. Do not our adversaries the like, saith he, against all that profess the gospel? Oh! say they, who are those that favour this way? None but shoemakers, tailors, weavers, and such as never were at the University. These are the bishop's own words. Bishop White said in open court, that the Puritans were all a company of blockheads. *Charles Bradbury.* 
 
@@ -320,7 +320,7 @@ They say that he is a Vaudes, and worthy of punishment."
 
 **Verse 23.** *O love the Lord, all ye his saints.* The holy psalmist in the words does, with all the warmth of an affectionate zeal, incite us to the love of God, which is the incomparably noblest passion of a reasonable mind, its brightest glory and most exquisite felicity; and it is, as appears evident from the nature of the thing, and the whole train of divine revelation, the comprehensive sum of that duty which we owe to our Maker, and the very soul which animates a religious life, that we "love the Lord with all our heart, and strength, and mind." *William Dunlap. A.M.,* 1692-1720.
 
-**Verse 23.** *O love the Lord, all ye his saints,* etc. Some few words are to be attended in the clearing of the sense. *Saints* here in the text is or may be read, *ye that feel mercies* . *"Faithful, "* the word is sometimes taken for *persons,* sometimes *things;* and so the Lord is said to preserve true men, and truths, faithful men, and faithfulnesses. *He plenteously rewardeth the proud doer;* or, the Lord rewardeth plenteously; *the Lord,* who doth wonderful things. *Plenteously* is either *in cumulum, abunde,* or *in nepotes,* as some would have it; but I would rather *commend,* than go about to *amend* translations: though I could wish some of my learned brethren's quarrelling hours were spent rather upon clearing the originals, and so conveying over pure Scripture to posterity, than in scratching others with their sharpened pens, and making cockpits of pulpits. *Hugh Peter's* "Sermon preached before both Houses of Parliament, "the Lord Mayor and Aldermen of the City of London, and the Assembly of Divines, at the last Thanksgiving Day, April 2. For the recovering of the West, and disbanding of 5,000 of the King's Horse, etc., 1645.
+**Verse 23.** *O love the Lord, all ye his saints,* etc. Some few words are to be attended in the clearing of the sense. *Saints* here in the text is or may be read, *ye that feel mercies*. *"Faithful, "* the word is sometimes taken for *persons,* sometimes *things;* and so the Lord is said to preserve true men, and truths, faithful men, and faithfulnesses. *He plenteously rewardeth the proud doer;* or, the Lord rewardeth plenteously; *the Lord,* who doth wonderful things. *Plenteously* is either *in cumulum, abunde,* or *in nepotes,* as some would have it; but I would rather *commend,* than go about to *amend* translations: though I could wish some of my learned brethren's quarrelling hours were spent rather upon clearing the originals, and so conveying over pure Scripture to posterity, than in scratching others with their sharpened pens, and making cockpits of pulpits. *Hugh Peter's* "Sermon preached before both Houses of Parliament, "the Lord Mayor and Aldermen of the City of London, and the Assembly of Divines, at the last Thanksgiving Day, April 2. For the recovering of the West, and disbanding of 5,000 of the King's Horse, etc., 1645.
 
 **Verse 23.** *And plentifully rewardeth the proud doer.* The next query is, *how God rewardeth the proud doer?* in which, though the Lord's proceedings be diverse, and many times his paths in the clouds, and his judgments in the deep, and the uttermost farthing shall be paid the proud doer at the great day; yet so much of his mind he hath left unto us, that even in this life he gives out something to the proud which he calls "the day of recompense, "which he commonly manifests in these particulars:
 
@@ -338,7 +338,7 @@ They say that he is a Vaudes, and worthy of punishment."
 
 **Verse 1.** Faith expressed, confusion deprecated, deliverance sought.
 
-**Verse 1.** ( *first clause* ). *Open avowal of faith* . 1. Duties which precede it, self examination, etc.
+**Verse 1.** ( *first clause* ). *Open avowal of faith*. 1. Duties which precede it, self examination, etc.
 
 2\.Modes of making the confession.
 
@@ -356,11 +356,11 @@ They say that he is a Vaudes, and worthy of punishment."
 
 **Verse 3.** Work out the metaphor of God as a rocky fastness of the soul.
 
-**Verse 3.** ( *last clause* ). 1. A blessing needed, *lead me* .
+**Verse 3.** ( *last clause* ). 1. A blessing needed, *lead me*.
 
 2\.A blessing obtainable.
 
-3\.An argument for its being granted, *for thy name's sake* .
+3\.An argument for its being granted, *for thy name's sake*.
 
 **Verse 4.** *The rescue of the ensnared.* 
 
@@ -412,9 +412,9 @@ They say that he is a Vaudes, and worthy of punishment."
 
 **Verse 10.** *My strength faileth because of mine iniquity.* The weakening influence of sin.
 
-**Verse 11.** . The good man evil spoken of.
+**Verse 11.**. The good man evil spoken of.
 
-**Verses 12-15** .
+**Verses 12-15**.
 
 Forgot as those who in the grave abide,
 

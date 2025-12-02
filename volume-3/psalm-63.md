@@ -318,7 +318,7 @@ Let this be the resolution of both saved and unsaved. *G. J. K.*
 
 CHANDLER'S *"Life of David"* contains an Exposition of this Psalm. Vol. 1, pp. 130-4.
 
-"An Exposition of the 63 Psalm, "in eight Sermons, in *"Choice and Practical Expositions on four Select Psalms* ... By THOMAS HORTON, D.D., 1675." (Folio.)
+"An Exposition of the 63 Psalm, "in eight Sermons, in *"Choice and Practical Expositions on four Select Psalms*... By THOMAS HORTON, D.D., 1675." (Folio.)
 
 Twelve Sermons (on Ps 63:1-8) in "Sermons on various Practical *Subjects.* By ALEXANDER SHANKS (1731-1799), late Minister of the Associate Congregation of Jedburgh, Edinburgh, 1081."
 

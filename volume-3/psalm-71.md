@@ -216,7 +216,7 @@ What I should be afraid of, is, if I took thought for the morrow, that my body s
 
 **Verse 14.** *And I will always hope, and add to (literally, add upon, accumulate, increase) all thy praise.* To all thy praise which I have uttered hitherto, I will continue still to add. *Joseph Addison Alexander.* 
 
-**Verse 14.** *I will expect continually.* But what did he *expect?* That for which he prayed in the ninth verse—the preservation of his prosperity, the presence and the help of God to the very end of life. Wherefore, he adds, *continually,* in perpetuity, in the time of old age,— *usque ad mortem* . *Hermann Venema.* 
+**Verse 14.** *I will expect continually.* But what did he *expect?* That for which he prayed in the ninth verse—the preservation of his prosperity, the presence and the help of God to the very end of life. Wherefore, he adds, *continually,* in perpetuity, in the time of old age,— *usque ad mortem*. *Hermann Venema.* 
 
 **Verse 14.** As there is no end to the lovingkindness of Jehovah, there should be none to our gratitude. The hope of a Christian enableth him to be thankful, even in the dark season of affliction. *Mrs. Thomson.* 
 
@@ -444,7 +444,7 @@ Arguments used to induce to Lord to hear, drawn,
 
 **Verse 8.** 
 
-1\.What? filled with what?—murmurings? doubts? fears? No! Praise. My own?—of men? No. *Thy praise* . *Thy honour* .
+1\.What? filled with what?—murmurings? doubts? fears? No! Praise. My own?—of men? No. *Thy praise*. *Thy honour*.
 
 2\.When? *All the day.* 
 
@@ -522,7 +522,7 @@ Arguments used to induce to Lord to hear, drawn,
 
 1\.The soul of music: Not in the instrument or the voice, but in the soul. "I will sing with the understanding also." "Making melody in the heart, "etc.
 
-2\.The music of the soul. The *soul which thou hast redeemed* . Redemption is the music of souls once lost. Their only song in heaven.
+2\.The music of the soul. The *soul which thou hast redeemed*. Redemption is the music of souls once lost. Their only song in heaven.
 
 **Verse 24.** How to make familiar talk edifying and useful.
 

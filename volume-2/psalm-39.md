@@ -52,7 +52,7 @@ weight: 39
 
 ### Verse 11
 
-*When thou with rebukes dost correct man for iniquity.* God does not trifle with his rod; he uses it because of sin, and with a view to whip us from it; hence he means his strokes to be felt, and felt they are. *Thou makest his beauty to consume away like a moth.* As the moth frets the substance of the fabric, mars all its beauty, and leaves it worn out and worthless, so do the chastisements of God discover to us our folly, weakness, and nothingness, and make us feel ourselves to be as worn out vestures, worthless and useless. Beauty must be a poor thing when a moth can consume it and a rebuke can mar it. All our desires and delights are wretched moth eaten things when the Lord visits us in his anger. *Surely every man is vanity.* He is as Trapp wittily says "a curious picture of nothing." He is unsubstantial as his own breath, a vapour which appeareth for a little while, and then vanisheth away. *Selah* . Well may this truth bring us to a pause, like the dead body of Amasa, which, lying in the way, stopped the hosts of Joab.
+*When thou with rebukes dost correct man for iniquity.* God does not trifle with his rod; he uses it because of sin, and with a view to whip us from it; hence he means his strokes to be felt, and felt they are. *Thou makest his beauty to consume away like a moth.* As the moth frets the substance of the fabric, mars all its beauty, and leaves it worn out and worthless, so do the chastisements of God discover to us our folly, weakness, and nothingness, and make us feel ourselves to be as worn out vestures, worthless and useless. Beauty must be a poor thing when a moth can consume it and a rebuke can mar it. All our desires and delights are wretched moth eaten things when the Lord visits us in his anger. *Surely every man is vanity.* He is as Trapp wittily says "a curious picture of nothing." He is unsubstantial as his own breath, a vapour which appeareth for a little while, and then vanisheth away. *Selah*. Well may this truth bring us to a pause, like the dead body of Amasa, which, lying in the way, stopped the hosts of Joab.
 
 ### Verse 12
 
@@ -114,7 +114,7 @@ Secondly, affirmatively. 1. He was dumb so as neither to complain of, nor quarre
 
 **Verse 11.** *Surely every man is vanity.* What is greatness? Can we predicate it of man, independently of his qualities as an immortal being? or of his actions, independently of principles and motives? Then the glitter of nobility is not superior to the plumage of the peacock; nor the valour of Alexander to the fury of a tiger; nor the sensual delights of Epicurus to those of any animal that roams the forest. *Ebenezer Porter, D.D., in Lectures on Homiletics,* 1834.
 
-**Verse 12.** *Hear my prayer, O Lord,* etc. Now, in this prayer of David, we find three things, which are the chief qualifications of all acceptable prayers. The first is *humility.* He humbly confesses his sins, and his own weakness and worthlessness. We are not to put on a stoical, flinty kind of spirit under our affliction, that so we may seem to shun womanish repinings and complaints, lest we run into the other evil, of *despising the hand of God,* but we are to humble our proud hearts, and break our unruly passions...The second qualification of this prayer is, *fervency* and *importunity,* which appears in the elegant gradation of the words, *Hear my prayer*, my words; if not that, yet, *Give ear to my cry,* which is louder; and if that prevail not, yet, *Hold not thy peace at my tears,* which is the loudest of all; so David, elsewhere, calls it *the voice of weeping.* ...The third qualification is *faith.* "He who comes to God must believe that he is, and is a rewarder of them that diligently seek him." Heb 11:6. And, certainly, as he that comes to God must believe this, so he that believes this, cannot but come to God; and if he be not presently answered, "he that believes makes no haste, "he resolves patiently to wait for the Lord, and go to no other. *Condensed from Robert Leighton.* 
+**Verse 12.** *Hear my prayer, O Lord,* etc. Now, in this prayer of David, we find three things, which are the chief qualifications of all acceptable prayers. The first is *humility.* He humbly confesses his sins, and his own weakness and worthlessness. We are not to put on a stoical, flinty kind of spirit under our affliction, that so we may seem to shun womanish repinings and complaints, lest we run into the other evil, of *despising the hand of God,* but we are to humble our proud hearts, and break our unruly passions...The second qualification of this prayer is, *fervency* and *importunity,* which appears in the elegant gradation of the words, *Hear my prayer*, my words; if not that, yet, *Give ear to my cry,* which is louder; and if that prevail not, yet, *Hold not thy peace at my tears,* which is the loudest of all; so David, elsewhere, calls it *the voice of weeping.*...The third qualification is *faith.* "He who comes to God must believe that he is, and is a rewarder of them that diligently seek him." Heb 11:6. And, certainly, as he that comes to God must believe this, so he that believes this, cannot but come to God; and if he be not presently answered, "he that believes makes no haste, "he resolves patiently to wait for the Lord, and go to no other. *Condensed from Robert Leighton.* 
 
 **Verse 12.** *Hold not thy peace at my tears.* We may, in all humility, plead our heart breakings and weepings in sense of want of mercies which we crave, and our pantings and faintings after the same. *Thomas Cobbett.* 
 
@@ -136,7 +136,7 @@ Secondly, affirmatively. 1. He was dumb so as neither to complain of, nor quarre
 
 (a). Commend him who pleads for life as a *penitent.* Was it recently that the Holy Spirit first wounded him with the arrows of conviction? Perhaps, he doubts the source, the quality, and the result, of his powerful feelings. He knows that we may be solemnly impressed, without being converted. There are many considerations which entitle to favourable opinion those who, not having arrived at a view of their moral state, at once evident and encouraging, wish earnestly to live till grace shall have carried them from victory to victory, and enabled them "to make" their "calling and election sure." Even they may fall from their steadfastness; and these words, "O spare me, that I may recover strength, "may proceed from the lips of a backslider, once more blushing, trembling, and petitioning to be restored.
 
-(b). Commend him, in the next place, who pleads for life, as a *saint.* ...The distinguishing office of pleading, acting, and suffering, for the advancement of the divine honour among the profane, the sensual, the formal, and the worldly is delegated, exclusively, to "the saints which are upon the earth." Yet, surely he whose attachment to life is strongly enhanced by a commission which dooms him to the contradiction of sinners, and defers "the fulness of joy, "a saint so magnanimous and devoted, puts forth the expressions of a piety which the very angels are compelled to revere.
+(b). Commend him, in the next place, who pleads for life, as a *saint.*...The distinguishing office of pleading, acting, and suffering, for the advancement of the divine honour among the profane, the sensual, the formal, and the worldly is delegated, exclusively, to "the saints which are upon the earth." Yet, surely he whose attachment to life is strongly enhanced by a commission which dooms him to the contradiction of sinners, and defers "the fulness of joy, "a saint so magnanimous and devoted, puts forth the expressions of a piety which the very angels are compelled to revere.
 
 (c). Commend him, finally, who pleads for life as a *philanthropist.* I refer to the generous *patron,* a man intent on doing good. I would also refer to a fond *parent.* I would now refer to *"a preacher of righteousness, "* "a good minister of Jesus Christ."
 
@@ -212,7 +212,7 @@ Outline of a Sermon entitled "Attachment to Life, "preached by *Joseph Hughes, M
 
 **Verse 6.** The vanity of man, as mortal, is here instanced in three things, and the vanity of each shown.
 
-1\.The vanity of our joys and honours: *Surely every man walketh in a vain show* .
+1\.The vanity of our joys and honours: *Surely every man walketh in a vain show*.
 
 2\.The vanity of our griefs and fears: *Surely they are disquieted in vain.* 
 
@@ -230,7 +230,7 @@ Outline of a Sermon entitled "Attachment to Life, "preached by *Joseph Hughes, M
 
 **Verse 8.** 
 
-1\.Prayer should be *general* : *Deliver me from all my transgressions* . We often need anew to say, "God be merciful to me a sinner." Afflictions should remind us of our sins. If we pray to be delivered from all transgressions, we are sure to be delivered from the one for which affliction was sent.
+1\.Prayer should be *general* : *Deliver me from all my transgressions*. We often need anew to say, "God be merciful to me a sinner." Afflictions should remind us of our sins. If we pray to be delivered from all transgressions, we are sure to be delivered from the one for which affliction was sent.
 
 2\.Prayer should be *particular* : *Make me not the reproach of the foolish.* Suffer me not so to speak or show impatience in affliction as to give occasion even to the foolish to blaspheme. The thought that many watch for our halting should be a preservative from sin. —G. Rogers.
 
@@ -238,13 +238,13 @@ Outline of a Sermon entitled "Attachment to Life, "preached by *Joseph Hughes, M
 
 1\.The *occasion* referred to. *I was dumb,* etc. We are not told what the particular trial was, that each one may apply it to his own affliction, and because all are to be viewed in the same light.
 
-2\.The *conduct* of the psalmist upon that particular occasion: *I opened not my mouth* . (a) Not in anger and rebellion against God in murmurs or complaints. (b) Not in impatience, or complaining, or angry feelings against men. (c) The *reason* he assigns for this conduct: *Because thou didst it. G. Rogers.* 
+2\.The *conduct* of the psalmist upon that particular occasion: *I opened not my mouth*. (a) Not in anger and rebellion against God in murmurs or complaints. (b) Not in impatience, or complaining, or angry feelings against men. (c) The *reason* he assigns for this conduct: *Because thou didst it. G. Rogers.* 
 
 **Verse 10.** 
 
-1\. *Afflictions are sent by God* . *Thy strokes.* They are strokes of *his* hand, not of the rod of the law, but of the shepherd's rod. Every affliction is *his* stroke.
+1\. *Afflictions are sent by God*. *Thy strokes.* They are strokes of *his* hand, not of the rod of the law, but of the shepherd's rod. Every affliction is *his* stroke.
 
-2\. *Afflictions are removed by God* . *Remove* . He asks not for miracles, but that God in his own way, in the use of natural means, would interpose for his deliverance. We should seek his blessing upon the means employed for our deliverance both by ourselves and others. *"Cause to remove, "* etc.
+2\. *Afflictions are removed by God*. *Remove*. He asks not for miracles, but that God in his own way, in the use of natural means, would interpose for his deliverance. We should seek his blessing upon the means employed for our deliverance both by ourselves and others. *"Cause to remove, "* etc.
 
 3\. *Afflictions have their end from God. I am consumed by the conflict,* etc. God hath a controversy with his people. It is a conflict between his will and their wills. The psalmist owns himself conquered and subdued in the struggle. We should be more anxious that this end should be accomplished than that the affliction should be removed, and when this is accomplished the affliction will be removed. *G. Rogers.* 
 

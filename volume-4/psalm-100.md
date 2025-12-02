@@ -90,9 +90,9 @@ Resting on his sure word, we feel that joy which is here commanded, and in the s
 
 2\.That he is our Creator: *It is he that hath made us, and not we ourselves.* We do not, we could not make ourselves; it is God's prerogative to be his own cause; our being is derived and depending.
 
-3\.That therefore *he is our rightful owner* . The Masorites, by altering one letter in the Hebrew, read it, "He made us, and his we are, "or, "to him we belong." Put both the readings together, and we learn, that because God "made us, and not we ourselves, "therefore we are not our own but his.
+3\.That therefore *he is our rightful owner*. The Masorites, by altering one letter in the Hebrew, read it, "He made us, and his we are, "or, "to him we belong." Put both the readings together, and we learn, that because God "made us, and not we ourselves, "therefore we are not our own but his.
 
-4\.That *he is our sovereign Ruler* . *We are his people,* or subjects, and he is our prince, our rector or governor, that gives laws to us as moral agents, and will call us to an account for what we do.
+4\.That *he is our sovereign Ruler*. *We are his people,* or subjects, and he is our prince, our rector or governor, that gives laws to us as moral agents, and will call us to an account for what we do.
 
 5\.That *he is our bountiful Benefactor* ;we are not only his sheep whom he is entitled to, but *the sheep of his pasture,* whom he takes care of.
 
@@ -140,11 +140,11 @@ Resting on his sure word, we feel that joy which is here commanded, and in the s
 
 **Verse 2** ( *first clause* ) A true heart,
 
-1\.Is humble— *serves* .
+1\.Is humble— *serves*.
 
 2\.Is pious—"serve the Lord."
 
-3\.Is active— *serves* .
+3\.Is active— *serves*.
 
 4\.Is consequently joyful—"with gladness."
 

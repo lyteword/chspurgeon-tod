@@ -190,7 +190,7 @@ Those who choose evil shall have their choice. Men who hate divine mercy shall n
 
 ## Explanatory Notes & Quaint Sayings
 
-**Title &mdash;** *To the Chief Musician, on the lilies, of David* . *On the lilies,* points to the beauty of the subject treated of. *D. W. Hengstenberg.* 
+**Title &mdash;** *To the Chief Musician, on the lilies, of David*. *On the lilies,* points to the beauty of the subject treated of. *D. W. Hengstenberg.* 
 
 **Whole Psalm.** The subject of the Psalm is an ideal person, representing the whole class of religious sufferers. The only individual in whom the various traits meet is Christ. That he is not, however, the exclusive, or even the immediate subject, is clear from the confession in Ps 69:5. There is no Psalm, except for the twenty-second, more distinctly applied to him in the New Testament. *Joseph Addison Alexander.* 
 
@@ -206,7 +206,7 @@ Those who choose evil shall have their choice. Men who hate divine mercy shall n
 
 **Verse 1.** *The waters are come in unto my soul.* What means he by *coming in unto his soul?* Surely no other than this:—that they oppressed his spirit, and, as it were, penetrated into his conscience, raising fears and perplexities there, by reason of his sins, which at present put his faith and hope to some disorder; so that he could not for a while see to the comfortable end of his affliction, but was as one under water, covered with his fears, as appears by what follows (Ps 69:2): *I sink in deep mire, where there is no standing.* He compares himself to one in a quagmire that can feel no ground to bear him up; and, observe whence his trouble rose, and where the waters made their entrance (Ps 69:5): *O God, thou knowest my foolishness; and my sins are not hid from thee.* This holy man lay under some fresh guilt, and this made him so uncomfortable under his affliction, because he saw his sin in the face of that, and tasted some displeasure from God for it in his outward trouble, which made it so bitter in the going down; and, therefore, when once he had humbled himself by confessing his sin, and was able to see the coast clear between heaven and him, so as to believe the pardon of his sin, and hope for good news from God again, he then returns to his sweet temper, and sings in the same affliction, where before he sunk. *William Gurnall.* 
 
-**Verse 3.** *I am weary of my crying.* The word egy means properly, *to gape, to gasp,* then, *to become weary.* ... but *to gasp in his crying,* is not so much to grow weary because of the great vehemence thereof, but while the crying lasts, and while he is in the act, to succumb under the burden of his dangerous and shameful calamity. *Hermann Venema.* 
+**Verse 3.** *I am weary of my crying.* The word egy means properly, *to gape, to gasp,* then, *to become weary.*... but *to gasp in his crying,* is not so much to grow weary because of the great vehemence thereof, but while the crying lasts, and while he is in the act, to succumb under the burden of his dangerous and shameful calamity. *Hermann Venema.* 
 
 **Verse 3.** *I am weary of my crying.* He had cried to God for the ways of man; he had cried to man of the ways of God; he had not ceased, from his first beginning to teach, till he said upon the cross, "I thirst." His eyes had grown dim, and his flesh was faint and weary with his sufferings, through the long passion of his life on earth. He had been waiting in poverty, and insult, and treachery, and scourging, and pain, until he cried, "My God, my God, why hast thou forsaken me?" *From "A Plain Commentary."* 
 
@@ -402,7 +402,7 @@ But, if ever human heart was riven and ruptured by the mere amount of mental ago
 
 **Verse 32.** *Your heart shall live that seek God.* As such who are poor in spirit, and truly humbled, do live upon God's alms, and are daily at his doors for relief of their necessities, and for communion with his gracious goodness; so shall they thrive well in this trade. *David Dickson.* 
 
-**Verse 32.** *Your heart shall live.* The *heart,* or the *soul,* is said *to live, to be converted,* or to return, when it is refreshed and cured of its pains and griefs. In this way it could be said of Jacob, when the good tidings were brought, that his *spirit revived* ... On the contrary, when Nabal heard the bad news, it is recorded that *his heart died within him, and he became as a stone. Lorinus.* 
+**Verse 32.** *Your heart shall live.* The *heart,* or the *soul,* is said *to live, to be converted,* or to return, when it is refreshed and cured of its pains and griefs. In this way it could be said of Jacob, when the good tidings were brought, that his *spirit revived*... On the contrary, when Nabal heard the bad news, it is recorded that *his heart died within him, and he became as a stone. Lorinus.* 
 
 **Verse 33.** *The Lord heareth the poor.* The consolation is much greater when it is said, "The Lord heareth the poor, "than if it were written, He hath heard poor David. *Musculus.* 
 

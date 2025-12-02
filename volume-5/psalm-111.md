@@ -128,9 +128,9 @@ To ages shall endure.
 
 **Verse 2.** *Sought out of all them that have pleasure therein.* This is a true characteristic of the upright and pious. The works of God are said to be *"sought out of them, "* when they regard them, call them to mind, and carefully, taking them one by one, investigate them; and at the same time explain them to others, and recount them: all which is included in the verb vrd; for that verb, properly is *trivit* (to rub, beat, or bray) hence by thrashing and grinding he has investigated perfectly, and has rubbed out the kernel of it for the use and profit of another: whence it is used for *concionari,* etc.— *Hermann Venema.* 
 
-**Verse 2.** *Sought out, ...have pleasure therein.* Philosophy seeks truth, Theology finds it, but Religion possesses it. Human things must be known to be loved, but divine things must be loved to be known.— *Blaise Pascal,* 1623-1662.
+**Verse 2.** *Sought out,...have pleasure therein.* Philosophy seeks truth, Theology finds it, but Religion possesses it. Human things must be known to be loved, but divine things must be loved to be known.— *Blaise Pascal,* 1623-1662.
 
-**Verse 2-4.** Sought out... The LORD is gracious and full of compassion. This is the grand discovery of all the searching, and therein lies the glory that is the conclusion of all. As in searching into any experiments in nature, there is an infinite pleasure that accompanies such a study to them that are addicted thereunto; so to him that hath pleasure in the works of God, and is addicted to spy out his kindness in them, there is nothing so pleasant as the discovery of new circumstances of mercy that render his work *glorious and honourable* . Get, therefore, skill in his dealings with thee, and study thy friend's carriage to thee. It is the end why he raised thee up, and admitted thee into friendship with him, to show his art of love and friendship to thee; to show, in a word, how well he could love thee.— *Thomas Goodwin.* 
+**Verse 2-4.** Sought out... The LORD is gracious and full of compassion. This is the grand discovery of all the searching, and therein lies the glory that is the conclusion of all. As in searching into any experiments in nature, there is an infinite pleasure that accompanies such a study to them that are addicted thereunto; so to him that hath pleasure in the works of God, and is addicted to spy out his kindness in them, there is nothing so pleasant as the discovery of new circumstances of mercy that render his work *glorious and honourable*. Get, therefore, skill in his dealings with thee, and study thy friend's carriage to thee. It is the end why he raised thee up, and admitted thee into friendship with him, to show his art of love and friendship to thee; to show, in a word, how well he could love thee.— *Thomas Goodwin.* 
 
 is addicted to spy out his kindness in them, there is nothing so pleasant as the discovery of new circumstances of mercy that render his work *glorious and honourable.* Get, therefore, skill in his dealings with thee, and study thy friend's carriage to thee. It is the end why he raised thee up, and admitted thee into friendship with him, to show his art of love and friendship to thee; to show, in a word, how well he could love thee.— *Thomas Goodwin.* 
 
@@ -344,5 +344,5 @@ d. To arouse our praise: "Praise ye the Lord."
 
 In the Works of John Boys, 1626, folio, pp. 841-845, there is a short exposition of this psalm.
 
- *Jesus God and Man; an Exposition of Psalms 111 and 112.* By the Rev. James H. Vidal, M.A., Vicar of Chiddingley, Sussex. London: 1863 *12mo* .
+ *Jesus God and Man; an Exposition of Psalms 111 and 112.* By the Rev. James H. Vidal, M.A., Vicar of Chiddingley, Sussex. London: 1863 *12mo*.
 

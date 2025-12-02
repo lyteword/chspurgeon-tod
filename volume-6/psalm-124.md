@@ -204,7 +204,7 @@ To bark or bite without thee?"
 
 **Verse 1.** *The LORD who was on our side.* Who is he? Why on our side? How does he prove it? What are we bound to do?
 
-**Verses 1-3** . Regard the text,
+**Verses 1-3**. Regard the text,
 
 1\.From the life of Jacob or Israel.
 
@@ -314,7 +314,7 @@ To bark or bite without thee?"
 
 ## Works Upon The Hundred Twenty Fourth Psalm
 
- *Comfortable sermons upon the 124 psalme* . Being thankfull Remembrances for God's wonderfull deliverance of us from the late gunpowder treason. Preached before the Lady Elizabeth Her Grace, at Combe. By Daniel, Dike, Bachelor in Divinity... London; ...1635 *also 1617. Quarto.* Of no value whatever.
+ *Comfortable sermons upon the 124 psalme*. Being thankfull Remembrances for God's wonderfull deliverance of us from the late gunpowder treason. Preached before the Lady Elizabeth Her Grace, at Combe. By Daniel, Dike, Bachelor in Divinity... London;...1635 *also 1617. Quarto.* Of no value whatever.
 
- *An Exposition on the 124, 125, 126. Psalmes* called the Psalmes of Degrees, or The Churches Deliverance. Plainly set forth for the benefit of God's Church. By T *homas* S *tint.* ... London: 1621. *8vo.* Excessively rare.
+ *An Exposition on the 124, 125, 126. Psalmes* called the Psalmes of Degrees, or The Churches Deliverance. Plainly set forth for the benefit of God's Church. By T *homas* S *tint.*... London: 1621. *8vo.* Excessively rare.
 

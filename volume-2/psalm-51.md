@@ -464,7 +464,7 @@ Exposition of the Fifty-first Psalm, by MARTIN LUTHER, in "Select works of Marti
 
 Exposition of Psalm LI., in "Chandler's Life of David." Vol. 2 pg 254-273.
 
-"The Portraiture of the Christian Penitent: attempted in a course of *Sermons upon Psalm LI* ...By the Rev. CHA. DE COETLOGON, A.M. 1775."
+"The Portraiture of the Christian Penitent: attempted in a course of *Sermons upon Psalm LI*...By the Rev. CHA. DE COETLOGON, A.M. 1775."
 
 "Lectures on the Fifty-first Psalm, delivered in the Parish Church *of St. James', Bristol.* By the Rev. THOMAS T. BIDDULPH, A.M. 1835."
 

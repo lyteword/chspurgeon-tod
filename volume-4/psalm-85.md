@@ -250,7 +250,7 @@ Whose pleasure is in unison with God's."
 
 2\.The language of faith.
 
-(a) In the grace of pardon: *Thou hast turned away wrath* . We could not, by anything we could do or suffer.
+(a) In the grace of pardon: *Thou hast turned away wrath*. We could not, by anything we could do or suffer.
 
 (b) In the method of pardon: *Turned away.* Turned it from us to our Surety.
 
