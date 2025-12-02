@@ -132,7 +132,7 @@ Of alabaster, topped with golden spires.
 
 **Verse 13.** *Mark ye well her bulwarks.* Margin as in the Hebrew, *"Set your heart to her bulwarks."* That is, pay close attention to them; make the investigation with care, not as one does whose heart is not in the thing, and who does it negligently. The word rendered *bulwarks*, (lyx), *khail* —means properly, a host or army, and then a fortification or entrenchment, especially the *ditch* or *trench,* with the low wall or breastwork which surrounds it. 2Sa 20:15 Isa 26:1. ( *Gesenius, Lex.)—Albert Barnes.* 
 
-**Verse 13.** *Mark ye well* : *set your heart,* mind earnestly, set your affections on. *Henry Ainsworth.* 
+**Verse 13.** *Mark ye well*: *set your heart,* mind earnestly, set your affections on. *Henry Ainsworth.* 
 
 **Verse 13.** *Her bulwarks.* 
 

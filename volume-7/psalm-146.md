@@ -102,7 +102,7 @@ Never to hope again."
 
 **Verse 3.** For one man to put confidence in another, is as if one beggar should ask an alms of another, or one cripple should carry another, or the blind lead the blind.— *Anthony Farindon.* 
 
-**Verses 3-4.** You see the first and the last, highest and lowest, of all the sons of Adam, they may be made honourable *princes*, but they are born sinful, *the sons of men* ; born weak, *there is no help in them* ; born mortal, *their breath departeth* ; born corruptible, *they return to their earth* ; and lastly, the mortality and corruption is not only in their flesh, but in some part or remnant of their spirits, for *their thoughts perish.* The prophet (if you mark it) climbeth up by degrees to the disabling of the best men amongst us, and in them of all the rest. For if princes deserve not confidence, the argument must needs hold by comparison, much less do meaner men deserve it. The order of the words is so set that the members following are evermore either the reason or some confirmation to that which went before. *"Trust not in princes."* Why? Because they are *"the sons of men."* Why not in *"the sons of men"?* Because there is *no help in them.* Why is there no help in them? Because when *"their breath goeth forth, they turn again to their earth."* What if their flesh be corrupted? Nay, *"their thoughts"* also *"come to nothing."* 
+**Verses 3-4.** You see the first and the last, highest and lowest, of all the sons of Adam, they may be made honourable *princes*, but they are born sinful, *the sons of men*; born weak, *there is no help in them*; born mortal, *their breath departeth*; born corruptible, *they return to their earth*; and lastly, the mortality and corruption is not only in their flesh, but in some part or remnant of their spirits, for *their thoughts perish.* The prophet (if you mark it) climbeth up by degrees to the disabling of the best men amongst us, and in them of all the rest. For if princes deserve not confidence, the argument must needs hold by comparison, much less do meaner men deserve it. The order of the words is so set that the members following are evermore either the reason or some confirmation to that which went before. *"Trust not in princes."* Why? Because they are *"the sons of men."* Why not in *"the sons of men"?* Because there is *no help in them.* Why is there no help in them? Because when *"their breath goeth forth, they turn again to their earth."* What if their flesh be corrupted? Nay, *"their thoughts"* also *"come to nothing."* 
 
 For, first, this first order and rank which the prophet hath here placed, the princes and gods of the earth, are by birth *men;* 
 
@@ -218,7 +218,7 @@ fifthly, if their bodies only were dissolved, and their intentions and actions m
 
 **Verse 1.** Public worship.
 
-1\.Should be with a sense of fellowship: "Praise *ye"* : pleasures of communion in praise.
+1\.Should be with a sense of fellowship: "Praise *ye"*: pleasures of communion in praise.
 
 2\.Should never lose its individuality: "O my soul." God is only praised by individual hearts. Temptations to wandering in public services.
 

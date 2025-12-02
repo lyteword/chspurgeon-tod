@@ -92,7 +92,7 @@ Secondly, affirmatively. 1. He was dumb so as neither to complain of, nor quarre
 
 **Verse 9.** *Because thou didst it.* This holy man had a breach made both at his body and spirit at this time; he was sick and sad; yet he remembers from whose hand the blow came. Thou, Lord, didst it; thou, whom I love dearly, and so can take it kindly; thou whom I have offended, and so take it patiently; yea, thou, who mightest have cast me into a bed of flames, instead of my bed of sickness, and therefore I accept thy correction thankfully. Thus he catches at the blow without retorting it back upon God by any quarrelling discontented language. *William Gurnall.* 
 
-**Verse 9.** *Because thou didst it.* We digest not a blow from our equals, but a blow from our king we can well digest. If the King of kings lays his hand on our backs, let us, beloved, lay our hands on our mouths. I am sure this stopped David's mouth from venting fretful speeches. "I held my tongue and said nothing." Why didst thou so, David? *Because thou, Lord, didst it* ; and God gives this testimony of such an one; that he is a prudent man that keeps silence at an evil time. Am 5:13. *Nicholas Estwick, B.D.,* 1644.
+**Verse 9.** *Because thou didst it.* We digest not a blow from our equals, but a blow from our king we can well digest. If the King of kings lays his hand on our backs, let us, beloved, lay our hands on our mouths. I am sure this stopped David's mouth from venting fretful speeches. "I held my tongue and said nothing." Why didst thou so, David? *Because thou, Lord, didst it*; and God gives this testimony of such an one; that he is a prudent man that keeps silence at an evil time. Am 5:13. *Nicholas Estwick, B.D.,* 1644.
 
 **Verse 9.** Perkins, in his *"Salve for a Sick Man, "* gives the "last words" of many holy men, among others of Calvin:—"I held my tongue, because thou, Lord, hast done it—I mourned as a dove—Lord, you ground me to powder, but it suffices me because it is thy hand."
 
@@ -230,9 +230,9 @@ Outline of a Sermon entitled "Attachment to Life, "preached by *Joseph Hughes, M
 
 **Verse 8.** 
 
-1\.Prayer should be *general* : *Deliver me from all my transgressions*. We often need anew to say, "God be merciful to me a sinner." Afflictions should remind us of our sins. If we pray to be delivered from all transgressions, we are sure to be delivered from the one for which affliction was sent.
+1\.Prayer should be *general*: *Deliver me from all my transgressions*. We often need anew to say, "God be merciful to me a sinner." Afflictions should remind us of our sins. If we pray to be delivered from all transgressions, we are sure to be delivered from the one for which affliction was sent.
 
-2\.Prayer should be *particular* : *Make me not the reproach of the foolish.* Suffer me not so to speak or show impatience in affliction as to give occasion even to the foolish to blaspheme. The thought that many watch for our halting should be a preservative from sin. —G. Rogers.
+2\.Prayer should be *particular*: *Make me not the reproach of the foolish.* Suffer me not so to speak or show impatience in affliction as to give occasion even to the foolish to blaspheme. The thought that many watch for our halting should be a preservative from sin. —G. Rogers.
 
 **Verse 9.** 
 

@@ -100,7 +100,7 @@ It is holy."
 
 Thus he connects "hory" with Jehovah's footstool, mentioned in the preceding clause. There appears to me great propriety and beauty in this construction, which divides the poem into three members. Of these the first terminates with ascribing "holiness" to the *name* of Jehovah: the second, with ascribing the same property to his *abode* :and then, at the conclusion of the hymn, "holiness, " essential holiness, is ascribed to Jehovah himself. Our Bible marginal translation recognizes this construction of the 5th verse. *Richard Mant.* 
 
-**Verse 6.** *Moses and Aaron among his priests,* or chief *officers* ; as in 1Ch 18:17. Moses was, if not a priest, yet a continual intercessor for the people, and a type of Christ the great Mediator of his church. *Aben-Ezra* called him *Cohen haccohanim*, the priest of priests; and Philo, writing his life, concludeth, This was the life and death of Moses the king, the lawgiver, the prophet, and the chief priest. *John Trapp.* 
+**Verse 6.** *Moses and Aaron among his priests,* or chief *officers*; as in 1Ch 18:17. Moses was, if not a priest, yet a continual intercessor for the people, and a type of Christ the great Mediator of his church. *Aben-Ezra* called him *Cohen haccohanim*, the priest of priests; and Philo, writing his life, concludeth, This was the life and death of Moses the king, the lawgiver, the prophet, and the chief priest. *John Trapp.* 
 
 **Verse 6.** Moses twice performed acts essentially priestly (Ex 24:4-8 and Ex 40:22, compared with Le 8:1-36), at the ratification of the covenant, and at the consecration of the priests. For this reason he could the more readily be placed here among the priestly mediators. *C. B. Moll.* 
 

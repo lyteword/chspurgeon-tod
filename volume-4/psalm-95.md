@@ -256,7 +256,7 @@ Or again, if any one of us, notwithstanding the multiplied proofs of Divine lovi
 
 The meaning of the ninth verse is, that when the children of Israel tempted God, they proved him, *i.e.,* found out by bitter experience how great his displeasure was, and saw his works or his dealings with them forty years. He retained them in the wilderness during that period until the death of all who disbelieved his word at the return of the spies; he gave them this proof of his displeasure.— *John Owen, of Thrussington,* 1853.
 
-**Verse 10.** O the desperate presumption of man, that he should offend his Maker *forty years* ! O the patience and longsuffering of his Maker, that he should allow him forty years to offend in! Sin begins in the *heart*, by its desires *wandering* and going astray after forbidden objects; whence follows inattention to the *ways* of God, to his dispensations, and our own duty. Lust in the heart, like vapour in the stomach, soon affects the head, and clouds the understanding.— *George Horne.* 
+**Verse 10.** O the desperate presumption of man, that he should offend his Maker *forty years*! O the patience and longsuffering of his Maker, that he should allow him forty years to offend in! Sin begins in the *heart*, by its desires *wandering* and going astray after forbidden objects; whence follows inattention to the *ways* of God, to his dispensations, and our own duty. Lust in the heart, like vapour in the stomach, soon affects the head, and clouds the understanding.— *George Horne.* 
 
 **Verse 10.** *Forty Years.* It is curious to know that the ancient Jews believed that "the days of the Messiah were to be forty years." Thus Tanchuma, F. 79, 4. "Quamdiu durant anni Messiae? R. Akiba dixit, 40 annos, quemadmodum Israelitae per tot annos in deserto fuerunt." It is remarkable, that in forty years after the ascension, the whole Jewish nation were cut off equally as they who fell in the wilderness.— *John Brown, in "An Exposition of the Epistle to the Hebrews."* 1862.
 
@@ -274,7 +274,7 @@ The meaning of the ninth verse is, that when the children of Israel tempted God,
 
 **Verse 10.** *Err in their heart.* He had called them sheep, and now he notes their wandering propensity, and their incapacity for being led; for the footsteps of their Shepherd they did not know, much less follow.— *C.H.S.* 
 
-**Verse 10.** *They have not known my ways* ; that is, they have not regarded my ways, have not allowed of them, or loved them; for otherwise they were not ignorant of them; they heard his words, and *saw his works.* — *David Dickson.* 
+**Verse 10.** *They have not known my ways*; that is, they have not regarded my ways, have not allowed of them, or loved them; for otherwise they were not ignorant of them; they heard his words, and *saw his works.* — *David Dickson.* 
 
 **Verse 10.** *They have not known my ways.* This ungrateful people did not approve of God's ways—they did not enter into his designs—they did not conform to his commands—they paid no attention to his miracles—and did not acknowledge the benefits which they received from his hands.— *Adam Clarke.* 
 

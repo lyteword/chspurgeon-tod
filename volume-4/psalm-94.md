@@ -180,7 +180,7 @@ Early may fly the Babylonian woe." *John Milton.*
 
 **Verses 8-15.** God hath ability, bowels, verity. Ability, *He that made the eye, cannot he see? He that planted the ear, cannot he hear?* Ps 94:8-11. Bowels, *He doth but chasten his, not cast them off*, Ps 94:12-14. Verity, *this is but until a pit be made for the wicked*, Ps 94:13. Mordecai is frowned upon, but till a gallows be made for Haman, and then judgment returns unto righteousness. *Nicholas Lockyer.* 
 
-**Verse 9.** *He that planted the ear, shall he not hear?* etc. The psalmist does not say, He that planteth the ear, *hath he not an ear?* He that formed the eye, *hath he not eyes?* No; but, Shall he not *hear* ? Shall he not *see?* And why does he say so? To prevent the error of humanizing God, of attributing members or corporeal parts to the infinite Spirit. *Adam Clarke.* 
+**Verse 9.** *He that planted the ear, shall he not hear?* etc. The psalmist does not say, He that planteth the ear, *hath he not an ear?* He that formed the eye, *hath he not eyes?* No; but, Shall he not *hear*? Shall he not *see?* And why does he say so? To prevent the error of humanizing God, of attributing members or corporeal parts to the infinite Spirit. *Adam Clarke.* 
 
 **Verse 9.** *Planted the ear.* The mechanism of the ear, like a root planted in the earth, is sunk deep into the head, and concealed from view. *Bagster's Comprehensive Bible.* 
 

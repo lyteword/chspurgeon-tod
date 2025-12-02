@@ -146,5 +146,5 @@ I will magnify thy matchless grace.
 
 2\.Profession: *Thou art my help,* etc.
 
-3\.Supplication: *Make haste* ; *Make no tarrying.* 
+3\.Supplication: *Make haste*; *Make no tarrying.* 
 

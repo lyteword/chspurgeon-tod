@@ -254,7 +254,7 @@ O thou who changest not, abide with me."
 
 **Whole Psalm.** In the liturgical language this Psalm is called *par excellence* the great Hallel, for according to its broadest compass the great Hallel comprehends Ps 120:1-136:26, whilst the Hallel which is absolutely so called extends from Ps 113:1-118:29.— *Franz Delitzsch.* 
 
-**Whole Psalm.** Praise ye (wdwh) *Jehovah* ; not as in Ps 135:1, "Hallelujah", but varying the words, "Be ye *Judahs* to the Lord!"
+**Whole Psalm.** Praise ye (wdwh) *Jehovah*; not as in Ps 135:1, "Hallelujah", but varying the words, "Be ye *Judahs* to the Lord!"
 
 Praise him for what he is (Ps 136:1-3).
 

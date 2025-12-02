@@ -184,7 +184,7 @@ Benjamin Grosvenor, D.D. (1675-1758), in "An Exhortation to the *Duty of Singing
 
 3\.There is flying to that refuge.
 
-(a) By faith; *My soul trusteth in thee* ; *Under the shadow,* etc.
+(a) By faith; *My soul trusteth in thee*; *Under the shadow,* etc.
 
 (b) By prayer; *"Be  "* etc.
 

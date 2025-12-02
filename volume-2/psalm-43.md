@@ -128,11 +128,11 @@ From *the word of the Spirit*, the word of God. Ps 119:50: "This is my comfort i
 
 **Verse 1.** We apply to God—
 
-1\.As our *Judge* : *Judge me*.
+1\.As our *Judge*: *Judge me*.
 
-2\.As our *Advocate* : *Plead my cause*.
+2\.As our *Advocate*: *Plead my cause*.
 
-3\.As our *Deliverer* : *O deliver me*.
+3\.As our *Deliverer*: *O deliver me*.
 
 **Verse 1.** Popular opinion outweighed by divine approbation.
 

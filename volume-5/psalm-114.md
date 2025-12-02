@@ -122,9 +122,9 @@ And fires and seas confess their Lord.
 
 **Verse 2.** One peculiarity of the second verse requires attention. It twice uses the word *"his"*, without naming any one. There are two theories to account for this circumstance. One is that Psalm 114 was always sung in immediate connection with 113, in which the name of God occurs no less than six times, so that the continuance of the train of thought made a fresh repetition of it here unnecessary. But this view, to be fully consistent with itself, must assume that the two Psalms are really one, with a merely arbitrary division, which does not, on the face of the matter, seem by any means probable, as the scope of thought in the two is perfectly distinct. The other, which is more satisfactory, regards the omission of the Holy Name in this part of the Psalm as a practical artifice to heighten the effect of the answer to the sudden apostrophe in verses five and six. There would be nothing marvellous in the agitation of the sea, and river, and mountains in the presence of God, but it may well appear wonderful till that potent cause is revealed, as it is most forcibly in the dignified words of the seventh verse.— *Ewald and Perowne, in Neale and Littledale.* 
 
-**Verse 3.** *The sea saw it* : to wit this glorious work of God in bringing his people out of Egypt.— *Matthew Pool.* 
+**Verse 3.** *The sea saw it*: to wit this glorious work of God in bringing his people out of Egypt.— *Matthew Pool.* 
 
-**Verse 3.** *The sea saw it.* Saw there that "Judah" was "God's sanctuary, ""and Israel his dominion, "and therefore *"fled"* ; for nothing could be more awful. It was this that *drove Jordan back*, and was an invincible dam to his streams; God was at the head of that people, and therefore they must give way to them, must make room for them, they must retire, contrary to their nature, when God speaks the word.— *Matthew Henry.* 
+**Verse 3.** *The sea saw it.* Saw there that "Judah" was "God's sanctuary, ""and Israel his dominion, "and therefore *"fled"*; for nothing could be more awful. It was this that *drove Jordan back*, and was an invincible dam to his streams; God was at the head of that people, and therefore they must give way to them, must make room for them, they must retire, contrary to their nature, when God speaks the word.— *Matthew Henry.* 
 
 **Verse 3.** *The sea saw it, and fled.* 
 
@@ -196,7 +196,7 @@ Ye little hills, like sheep?— *John Keble.*
 
 **Verse 7.** 
 
-"At the presence of the Lord be in pangs, O earth." " *Lord*, " *Adon*, the Sovereign Ruler. "Pangs, " *Chuli* : Mic 4:10. The convulsions of nature, which accompanied the Exodus, were as the birth throes of the Israelite people. "A nation was born in a day." But the deliverance out of Babylon was the prelude to a far more wondrous truth; that of him, in whom human nature was to be regenerated.— *William Kay.* 
+"At the presence of the Lord be in pangs, O earth." " *Lord*, " *Adon*, the Sovereign Ruler. "Pangs, " *Chuli*: Mic 4:10. The convulsions of nature, which accompanied the Exodus, were as the birth throes of the Israelite people. "A nation was born in a day." But the deliverance out of Babylon was the prelude to a far more wondrous truth; that of him, in whom human nature was to be regenerated.— *William Kay.* 
 
 **Verses 7-8.** *Tremble,* etc. This is an answer to the preceding question: as if he had said, It is no wonder that Sinai, and Horeb, and a few adjoining hills should thus tremble at the majestic presence of God; for the whole earth must do so, whenever he pleases.— *Thomas Fenton.* 
 
