@@ -66,7 +66,7 @@ weight: 64
 
 **Verse 4.** *That they may shoot in secret.* The wicked are said to shoot their arrows *in secret* at the perfect; and then "they say, Who shall see them?" Ps 64:5. Thus Satan lets fly a temptation so secretly, that he is hardly suspected in the thing. Sometimes he useth a wife's tongue to do his errand; another while he gets behind the back of a husband, friend, servant, etc., and is not seen all the while he is doing his work. Who would have thought to have found a devil in Peter, tempting his Master, or suspected that Abraham should be the instrument to betray his beloved wife into the hands of a sin? yet it was so. Nay, sometimes he is so secret, that he borrows God's bow to shoot his arrows from, and the poor Christian is abused, thinking it is God chides and is angry, when it is the devil tempts him to think so, and only counterfeits God's voice. *William Gurnall.* 
 
-**Verse 8.** ( *first clause* ).
+**Verse 8.** (*first clause* ).
 
 In these cases,
 
@@ -110,7 +110,7 @@ To our own lips. *William Shakespeare.*
 
 (c) For the divine glory. *G. R.* 
 
-**Verse 2.** ( *first clause* ). Applied to Satan.
+**Verse 2.** (*first clause* ). Applied to Satan.
 
 1\. *The danger considered.* 
 
@@ -146,7 +146,7 @@ To our own lips. *William Shakespeare.*
 
 **Verse 3.** *The whetting of the tongue.* Fresh faults discovered, evil motives imputed, exaggerations invented, lies forged, innuendoes suggested, old slanders furnished, and ancient hatreds rekindled.
 
-**Verse 6.** ( *two first clauses* ). The fault hunter; his motive, his character, his pretences, and his punishment.
+**Verse 6.** (*two first clauses* ). The fault hunter; his motive, his character, his pretences, and his punishment.
 
 **Verse 9.** 
 

@@ -18,11 +18,11 @@ The Levites began: *Hallelujah* (Praise ye the Lord).
 
 The people repeated: *Hallelu Jah.* 
 
-The Levites: Praise ( *Hallelu* ), O ye servants of Jehovah.
+The Levites: Praise (*Hallelu* ), O ye servants of Jehovah.
 
 The people responded: *Hallelu Jah.* 
 
-The Levites: Praise ( *Hallelu* ) the name of Jehovah.
+The Levites: Praise (*Hallelu*) the name of Jehovah.
 
 The people responded: *Hallelu Jah.* 
 
@@ -126,7 +126,7 @@ Such verses as these should give great encouragement to those who are lowest in 
 
 ## Explanatory Notes & Quaint Sayings
 
-**Whole Psalm.** With this Psalm begins the *Hallel,* which is recited at the three great feasts, at the feast of the Dedication ( *Chanucca* ) and at the new moons, and not on New Year's day and the day of Atonement, because a cheerful song of praise does not harmonise with the mournful solemnity of these days. And they are recited only in fragments during the last days of the Passover, for "my creatures, saith the Holy One, blessed be He, were drowned in the sea, and ought ye to break out into songs of rejoicing?" In the family celebration of the Passover night it is divided into two parts, the one half, Psalm 113-114, being sung before the repast, before the emptying of the second festal cup, and the other half, Psalm 115-118, after the repast, after the filling of the fourth cup, to which the umnhsantev (Mt 26:30 Mk 14:26), or singing a hymn, after the institution of the Lord's Supper, which was connected with the fourth festal cup, may refer. Paulus Burgensis styles Psalm 113 to Psalm 118 *Alleluja Judaeorum magnum.* (The great Alleluiah of the Jews). This designation is also frequently found elsewhere. But according to the prevailing custom, Psalm 113-118, and more particularly Psalm 115-118, are called only *Hallel,* and Psalm 136, with its "for his mercy endureth for ever" repeated twenty-six times, bears the name of *"The Great Hallel"* (lwdgh llh).— *Frank Delitzsch.* 
+**Whole Psalm.** With this Psalm begins the *Hallel,* which is recited at the three great feasts, at the feast of the Dedication (*Chanucca*) and at the new moons, and not on New Year's day and the day of Atonement, because a cheerful song of praise does not harmonise with the mournful solemnity of these days. And they are recited only in fragments during the last days of the Passover, for "my creatures, saith the Holy One, blessed be He, were drowned in the sea, and ought ye to break out into songs of rejoicing?" In the family celebration of the Passover night it is divided into two parts, the one half, Psalm 113-114, being sung before the repast, before the emptying of the second festal cup, and the other half, Psalm 115-118, after the repast, after the filling of the fourth cup, to which the umnhsantev (Mt 26:30 Mk 14:26), or singing a hymn, after the institution of the Lord's Supper, which was connected with the fourth festal cup, may refer. Paulus Burgensis styles Psalm 113 to Psalm 118 *Alleluja Judaeorum magnum.* (The great Alleluiah of the Jews). This designation is also frequently found elsewhere. But according to the prevailing custom, Psalm 113-118, and more particularly Psalm 115-118, are called only *Hallel,* and Psalm 136, with its "for his mercy endureth for ever" repeated twenty-six times, bears the name of *"The Great Hallel"* (lwdgh llh).— *Frank Delitzsch.* 
 
 **Whole Psalm.** The Jews have handed down the tradition, that this Psalm, and those that follow on to the 118th, were all sung at the Passover; and they are denominated *"The Great Hallel."* This tradition shows, at all events, that the ancient Jews perceived in these six psalms some link of close connection. They all sing of God the Redeemer, in some aspect of his redeeming character; and this being so, while they suited the paschal feast, we can see how appropriate they would be in the lips of the Redeemer, in his Upper Room. Thus—
 

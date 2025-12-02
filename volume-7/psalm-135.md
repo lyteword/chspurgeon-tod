@@ -340,7 +340,7 @@ b) By his operations in nature, providence, and grace (Ps 135:6-13).
 
 **Verse 6.** *Whatsoever the LORD pleased, that did he.* God's good pleasure in the work of grace. Seen, not in the death of the wicked, Eze 33:11; but in the election of his people, 1Sa 12:22; in the infliction of suffering on the substitute, Isa 53:10; in the provision of all fulness for his people in Christ, Col 1:19; in the arrangement of salvation by faith in Christ, Joh 6:39; in instituting preaching as the means of salvation, 1Co 1:21; in the adoption of believers as his children, Eph 1:5; in their sanctification, 1Th 4:3; in their ultimate triumph and reign, Lu 12:32.— *C. A. D.* 
 
-**Verse 6.** ( *last words* ). The power of God in places of trouble, change, and danger— *seas* ;and in conditions of sin, weakness, despair, perplexity—in all *deep places*.
+**Verse 6.** (*last words* ). The power of God in places of trouble, change, and danger— *seas* ;and in conditions of sin, weakness, despair, perplexity—in all *deep places*.
 
 **Verses 6-12.** The Resistless Pleasure of Jehovah.
 
@@ -450,7 +450,7 @@ d) To all who fear God, wherever they may be. Even they who fear God are invited
 
 **Verse 20.** The Levites, their history, duties, rewards, and obligations to bless God.
 
-**Verse 20.** ( *second clause* ).
+**Verse 20.** (*second clause* ).
 
 1\.The fear of God includes all religion.
 

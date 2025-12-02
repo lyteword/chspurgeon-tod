@@ -202,7 +202,7 @@ c) Activity in ministering to others, rather than desiring to be ministered unto
 
 **Verse 3.** The chosen place for blessing. A church; a church united, a church bedewed of the Spirit. What a blessing for the world that there is a commanded place of blessing!
 
-**Verse 3.** ( *first clause* ). This should be rendered, "As the dew of Hermon, that cometh down on the mountains of Zion." From the snows upon the lofty Hermon, the moisture raised by the sun is carried in the form of vapour, by the wind towards the lesser elevations of Zion, upon which it falls as a copious dew. Thus, Christian concord in church fellowship—
+**Verse 3.** (*first clause* ). This should be rendered, "As the dew of Hermon, that cometh down on the mountains of Zion." From the snows upon the lofty Hermon, the moisture raised by the sun is carried in the form of vapour, by the wind towards the lesser elevations of Zion, upon which it falls as a copious dew. Thus, Christian concord in church fellowship—
 
 1\.Despises not the little ones, i.e. the mean, poor, and less gifted. It,
 

@@ -104,7 +104,7 @@ The next verse is of the same tenor— *Ye that fear the LORD, trust in the LORD
 
 **Verse 3.** *And our God (is) in heaven; all that he pleased he has done.* The *"and, "* though foreign from our idiom, adds sensibly to the force of the expression. They ask thus, as if our God were absent or had no existence; and yet all the while our God is in heaven, in his exalted and glorious dwelling place. *Joseph Addison Alexander.* 
 
-**Verse 3** ( *first clause* ). It would be folly to assert the like concerning idols; therefore, if the heathen say, *Where is your God?* we reply, *He is in heaven,* &c.: but where are your idols? In the earth, not making the earth, but made from the earth, &c. *Martin Geier.* 
+**Verse 3** (*first clause* ). It would be folly to assert the like concerning idols; therefore, if the heathen say, *Where is your God?* we reply, *He is in heaven,* &c.: but where are your idols? In the earth, not making the earth, but made from the earth, &c. *Martin Geier.* 
 
 **Verse 3.** *But our God is in the heavens.* When they place God in heaven, they do not confine him to a certain locality, nor set limits to his infinite essence; but on the contrary they deny the limitation of his power, its being shut up to human instrumentality only, or its being subject to fate or fortune. In short, they put the universe under his control; and teach us that, being superior to every obstruction, he does freely everything that may seem good to him. This truth is still more plainly asserted in the subsequent clause, *he hath done whatsoever he hath pleased.* God then may be said to dwell in heaven, as the world is subject to his will, and nothing can prevent his accomplishing his purposes. *John Calvin.* 
 
@@ -160,7 +160,7 @@ Effigies inter vestras, statuamque Bathylli. Sat. 13, ver. 113.
 
 **Verse 8.** *Like unto them.* etc. Every one is just what his God is; whoever serves the Omnipotent is omnipotent with him: whoever exalts feebleness, in stupid delusion, to be his god, is feeble along with that god. This is an important preservative against fear for those who are sure that they worship the true God. *E. W. Hengstenberg.* 
 
-**Verse 8.** *Like unto them.* Namely, "hollowness, "vanity, unprofitableness: ( *tohu* ). Isa 44:9-10. *William Kay.* 
+**Verse 8.** *Like unto them.* Namely, "hollowness, "vanity, unprofitableness: (*tohu* ). Isa 44:9-10. *William Kay.* 
 
 **Verse 8.** They that serve a base god cannot but be of a base spirit, and so can do nothing worthily and generously. Every man's temper is as his god is. *Thomas Manton.* 
 
@@ -244,7 +244,7 @@ The Psalm thus closed, was one of the Songs of the Second Temple. What we hear i
 
 3\.Yet he condescends to be "our God."
 
-**Verse 3** ( *second clause* ). The sovereignty of God. Establish and improve the great scriptural doctrine, that the glorious God has a right to exercise dominion over all his creatures; and to do, in all respects, as he pleases. This right naturally results from his being the *Former* and the *Possessor* of heaven and earth. Consider
+**Verse 3** (*second clause* ). The sovereignty of God. Establish and improve the great scriptural doctrine, that the glorious God has a right to exercise dominion over all his creatures; and to do, in all respects, as he pleases. This right naturally results from his being the *Former* and the *Possessor* of heaven and earth. Consider
 
 1\.He is infinitely wise; he perfectly knows all his creatures, all their actions, and all their tendencies.
 

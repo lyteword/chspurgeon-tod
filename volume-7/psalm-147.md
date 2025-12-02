@@ -536,7 +536,7 @@ c) The converts blessed to others.
 
 4\.The presence of God: the source of all blessing.
 
-**Verse 15.** ( *second clause* ). See "Spurgeon's Sermons", No. 1607: "The Swiftly Running Word."
+**Verse 15.** (*second clause* ). See "Spurgeon's Sermons", No. 1607: "The Swiftly Running Word."
 
 **Verse 16.** The unexpected results of adversity: snow acting as wool.
 

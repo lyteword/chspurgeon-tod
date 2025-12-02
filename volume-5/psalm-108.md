@@ -238,9 +238,9 @@ After sun rising, for day sullies flowers."
 
 **Verse 8.** *Judah is my lawgiver.* Jesus the sole and only lawmaker in the church.
 
-**Verse 11.** ( *first clause* ).—Confidence in a frowning God.
+**Verse 11.** (*first clause* ).—Confidence in a frowning God.
 
-**Verse 11.** ( *second clause* ). Whether God will go forth with our hosts depends upon—Who they are? What is their object? What is their motive and spirit? What weapons do they use? etc.
+**Verse 11.** (*second clause* ). Whether God will go forth with our hosts depends upon—Who they are? What is their object? What is their motive and spirit? What weapons do they use? etc.
 
 **Verse 12.** The failure of human help is often
 

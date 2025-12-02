@@ -88,7 +88,7 @@ For a throne is in our language called a seat. For some, conversant with the Heb
 
 **Verses 4-5.** Our King *loveth righteousness* :he will execute perfect justice, tempered with perfect mercy. He will judge every man according to his works, summing up and completing the unnoticed righteousness of his providence by an open manifestation to the universe of his holiness and equity. "We believe that he will come to be our judge, "therefore let us magnify and exalt him with our lips and hearts; and let us fall down and worship the man Christ Jesus, who took our nature, even his manhood, from the earth, which is his footstool, into the eternity of the Godhead, in which he is equal to the Father. As heaven, which is the throne of God, and earth, which is his footstool, form one universe, so is God and man one Christ, the everlasting Lord, "holy and true, "in whom we sinners may appeal from the throne of eternal justice to the footstool of eternal mercy. *"Plain Commentary."* 
 
-**Verse 5** ( *second elause* ). Mark the peculiar expression, *Worship at his footstool.* What humility and subjection does it imply! It is the worship of one whose heart has been subdued by divine grace. *W. Wilson.* 
+**Verse 5** (*second elause* ). Mark the peculiar expression, *Worship at his footstool.* What humility and subjection does it imply! It is the worship of one whose heart has been subdued by divine grace. *W. Wilson.* 
 
 **Verse 5.** Bishop Horsley thus renders this verse:
 

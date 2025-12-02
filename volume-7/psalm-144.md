@@ -216,7 +216,7 @@ Their force overthrow.
 
 **Verse 8.** *Their right hand is a right hand of falsehood.* The pledge of the right hand, which used to be a witness of good faith, was violated by treachery and wickedness.— *Cicero. Philip. xi. c. 2.* 
 
-**Verse 9.** *Psaltery—an instrument of ten strings. Nebelazor.* We are led to the conclusion that the *nebel* was the veritable *harp* of the Hebrews. It could not have been large, because it is so frequently mentioned in the Bible as being carried in processions...The English translators render *nebel* (apparently without any special reason) by no less than four words; (1) psaltery, (2) psalm, (3) lute, (4) viol. The first of these is by far the most common in the Authorized Version, and is no doubt the most correct translation if the word be understood in its true sense as a *portable harp. Nebels* were made of fir wood, and afterwards of almug, or algum, which was, perhaps, the red sandalwood of India...With *nebel* is often associated the word *azor,* which is traced to a root signifying *ten,* and which has therefore been rendered in the Septuagint by byen dekacordwor asqalthrion dekacordon,( *psalterium decem chordarum* ) or *in dechachordo psalterio* in the Vulgate. In the Chaldee, Syriac, and Arabic versions also are found words implying the existence of ten strings in the *nebelazor.* The word *azor* may therefore be considered as qualifying or describing the special kind of *nebel* to be used, much in the same way as we now speak of a *trichord* pianoforte. It is in our English version always rendered by the words *"ten stringed."* — *John Stainer, in "The Music of the Bible,"* 1882.
+**Verse 9.** *Psaltery—an instrument of ten strings. Nebelazor.* We are led to the conclusion that the *nebel* was the veritable *harp* of the Hebrews. It could not have been large, because it is so frequently mentioned in the Bible as being carried in processions...The English translators render *nebel* (apparently without any special reason) by no less than four words; (1) psaltery, (2) psalm, (3) lute, (4) viol. The first of these is by far the most common in the Authorized Version, and is no doubt the most correct translation if the word be understood in its true sense as a *portable harp. Nebels* were made of fir wood, and afterwards of almug, or algum, which was, perhaps, the red sandalwood of India...With *nebel* is often associated the word *azor,* which is traced to a root signifying *ten,* and which has therefore been rendered in the Septuagint by byen dekacordwor asqalthrion dekacordon,( *psalterium decem chordarum*) or *in dechachordo psalterio* in the Vulgate. In the Chaldee, Syriac, and Arabic versions also are found words implying the existence of ten strings in the *nebelazor.* The word *azor* may therefore be considered as qualifying or describing the special kind of *nebel* to be used, much in the same way as we now speak of a *trichord* pianoforte. It is in our English version always rendered by the words *"ten stringed."* — *John Stainer, in "The Music of the Bible,"* 1882.
 
 **Verse 10.** *It is he that giveth salvation unto kings.* Ferdinand, king of Aragon, sending his son against the Florentines, thus bespake him: Believe me, son, victories are not gotten by art or subtlety, but given of God.— *John Trapp.* 
 
@@ -492,7 +492,7 @@ d) Near to his Saviour and his God.
 
 **Verse 12.** Youth attended with development, stability, usefulness, and spiritual health.
 
-**Verse 12.** ( *first clause* ). To Young Men. Consider,
+**Verse 12.** (*first clause* ). To Young Men. Consider,
 
 1\.What is desired on your behalf: "Sons may be as plants", etc.
 
@@ -512,7 +512,7 @@ d) Near to his Saviour and his God.
 
 (d) A resolute tendency within to answer the God appointed purpose of your existence.— *J.F.* 
 
-**Verse 12.** ( *second clause* ). To Young Women. Consider,
+**Verse 12.** (*second clause* ). To Young Women. Consider,
 
 1\.The important position you may occupy in the social fabric: "As cornerstones."
 

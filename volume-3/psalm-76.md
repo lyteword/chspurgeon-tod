@@ -64,7 +64,7 @@ The fear of man is a snare, but the fear of God is a great virtue, and has great
 
 ## Explanatory Notes & Quaint Sayings
 
-**Whole Psalm.** No Psalm has a greater right to follow Psalm 75 than this, which is inscribed *To the Precentor, with accompaniment of stringed instruments (vid.) iv. 1*, *a Psalm by Asaph, a song.* Similar expressions ( *God of Jacob,* Ps 75:10 77:7; *saints, wicked of the earth,* Ps 75:9 76:10), and the same impress throughout speak in favour of unity of authorship. In other respects too, they form a pair: Psalm 75 prepares the way for the divine deed of judgments as imminent, which Psalm 76 celebrates as having taken place. *Franz Delitzsch.* 
+**Whole Psalm.** No Psalm has a greater right to follow Psalm 75 than this, which is inscribed *To the Precentor, with accompaniment of stringed instruments (vid.) iv. 1*, *a Psalm by Asaph, a song.* Similar expressions (*God of Jacob,* Ps 75:10 77:7; *saints, wicked of the earth,* Ps 75:9 76:10), and the same impress throughout speak in favour of unity of authorship. In other respects too, they form a pair: Psalm 75 prepares the way for the divine deed of judgments as imminent, which Psalm 76 celebrates as having taken place. *Franz Delitzsch.* 
 
 **Verse 1.** *In Judah is God known.* God is truly and savingly known only in and through his Son; God indeed is obscurely and darkly known in his *works,* as a God of power; in his providence, as a God of authority, wisdom, and order; in his common mercies, as a God of bounty; and in his punishments and judgments, as a God of justice; but in Christ opened and preached in the gospel, God is known with a clear, a comfortable, and saving knowledge, as a father of grace and singular mercy and lovingkindness. *In Judah* (saith the psalmist) *is God known: his name is great in Israel. In Judah,* in his church, where his word and ordinances are, where Christ is preached and the mystery of man's salvation is opened, there God is known *truly* without error, *perspicuously* without obscurities, and *savingly* without uncertainties; there he is known as a *King* in his courts, for the glory and beauty which he there manifests; as a *teacher* in his school, for the wisdom and knowledge which he there dispenses; as a *dweller* in his house, for the holy orders he there prescribes, and gracious rule and dominion he there erects and beareth in the souls of his servants; as a *bridegroom* in the banqueting house, for the spiritual dainties he there maketh, for the clear and open manifestation of himself, and love and comforts he there ministereth to his spiritual friends and guests; *and his name is great in Israel;* his power, wisdom, truth, love, and goodness is much magnified and very glorious in their apprehensions who know him in Christ Jesus. *Alexander Grosse.* 
 
@@ -94,9 +94,9 @@ The fear of man is a snare, but the fear of God is a great virtue, and has great
 
 **Verse 5.** *The stouthearted are spoiled.* Some translate it, *They are spoiled of their stout heart.* The stouthearted, the strong, are spoiled. The strong man may be spoiled by a stronger; that's a good sense, but it is more elegantly rendered, *they are spoiled of their stout heart;* that is, the Lord takes their heart out of their bosom. Daring men, who fear nothing, are turned into *Magor-missabibs—fear round about;* their stout hearts are taken from them, and they are so far from being a terror to other men, that they run from the shadow of a man; their courage is down; they cannot give a child a confident look, much less look dangers or enemies in the face. *Joseph Caryl.* 
 
-**Verse 5.** ( *last clause* ). The strength and power of a man is in his hands; if they be gone, all his hope is gone. If a man's sword be taken from him, he will do what he can with his hands; but if his hands be gone, he may go to sleep for any disturbance he will work. For men not to find their hands, is not to have that power for the execution of their designs which formerly they had. *John Owen.* 
+**Verse 5.** (*last clause* ). The strength and power of a man is in his hands; if they be gone, all his hope is gone. If a man's sword be taken from him, he will do what he can with his hands; but if his hands be gone, he may go to sleep for any disturbance he will work. For men not to find their hands, is not to have that power for the execution of their designs which formerly they had. *John Owen.* 
 
-**Verse 5.** ( *last clause* ). As we say of a man that goes lamely or lazily, "he cannot find his feet; "so of a man that acts lamely or lazily, or of a soldier that fights faintly and cowardly, *he cannot find his hands. Joseph Caryl.* 
+**Verse 5.** (*last clause* ). As we say of a man that goes lamely or lazily, "he cannot find his feet; "so of a man that acts lamely or lazily, or of a soldier that fights faintly and cowardly, *he cannot find his hands. Joseph Caryl.* 
 
 **Verses 5-6.** 
 
@@ -190,7 +190,7 @@ Thou girdest thyself with the remnant of wrath."
 
 **Verse 2.** The peculiar relation of God to his church.
 
-**Verse 2.** ( *first clause* ). A peaceful church the tabernacle of God. The benefits peace confers, the evils of strife, the causes of dissension, and the means of promoting unity.
+**Verse 2.** (*first clause* ). A peaceful church the tabernacle of God. The benefits peace confers, the evils of strife, the causes of dissension, and the means of promoting unity.
 
 **Verse 3.** Christian glories, or the victories vouchsafed to the church over heathenism, heresy, persecution, etc.
 

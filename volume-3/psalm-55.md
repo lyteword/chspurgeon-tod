@@ -314,7 +314,7 @@ And in wailings would pour forth my moan.
 
 **Verse 15.** Throughout this series of Psalms, there appears to be a peculiar penalty attached to each class of transgressions, or, each variety of opposition against God meets a suitable end. The ungodly, that is, the irreligious and indifferent, lay up for themselves an evil recompense when the wrath of God shall be revealed (Ps 54:5): but an instant punishment falls upon false and treacherous professors; as Paul denounced "anathema" against any who perverted the gospel of Christ in the churches of Galatia; so in this Psalm, *Let death seize upon them, and let them go down quick into hell,* announces the awful judgment of Jehovah, as once it was shown upon Dathan and Abiram; a punishment that will by its suddenness and notoriety at the same time expose the guilt, and make manifest the displeasure of the Almighty against it. *R. H. Ryland, in "The Psalms restored to Messiah,"* 1853.
 
-**Verse 17.** *Evening, and morning, and at noon, will I pray.* This was the custom of the pious Hebrews. See Da 6:10. The Hebrews began their day in the *evening,* and hence David mentions the *evening first.* The rabbins say, men should pray three times each day because the day changes three times. This was observed in the primitive church; but the times in different places were various. The old Psalter gives this a curious turn: "At *even* I sall tell his louing ( *praise* ) what the Christ was on the Crosse; and at *morn* I sall schew his louing, what tim he ros fra dede. And sua he sall here my voice at *midday,* that is sitand at the right hand of his fader, wheder he stegh (ascended) at midday." *Adam Clarke.* 
+**Verse 17.** *Evening, and morning, and at noon, will I pray.* This was the custom of the pious Hebrews. See Da 6:10. The Hebrews began their day in the *evening,* and hence David mentions the *evening first.* The rabbins say, men should pray three times each day because the day changes three times. This was observed in the primitive church; but the times in different places were various. The old Psalter gives this a curious turn: "At *even* I sall tell his louing (*praise*) what the Christ was on the Crosse; and at *morn* I sall schew his louing, what tim he ros fra dede. And sua he sall here my voice at *midday,* that is sitand at the right hand of his fader, wheder he stegh (ascended) at midday." *Adam Clarke.* 
 
 **Verse 17.** *Evening and morning,* etc. The three principle parts of the day are mentioned, not as marking special times set apart for prayer, but as a poetical expression for "the whole day, ""at all times, ""without ceasing." *J. J. Stewart Perowne.* 
 
@@ -360,7 +360,7 @@ His purpose obtained, a fig for his man.
 
 **Verse 21.** *The words of his mouth were smoother than butter, but war was in his heart: his words were softer than oil, yet were they drawn swords.* Well, when I came to the justice again, there was Mr. Foster, of Bedford, who coming out of another room, and seeing me by the light of the candle, for it was dark night when I came thither, he said unto me, "Who is there? John Bunyan?" with much seeming affection, as if he would have leaped in my neck and kissed me, (A right Judas.), which made me somewhat wonder that such a man as he, with whom I had so little acquaintance, and, besides, that had ever been a close opposer of the ways of God, should carry himself so full of love to me, but afterwards when I saw what he did, it caused me to remember those sayings, *Their tongues were softer than oil, yet were they drawn swords,* and again, "Beware of men, "etc. When I had answered him that, blessed be God, I was well, he said, "What is the occasion of your being here?" or to that purpose. To whom I answered that I was at a meeting of people a little way off, intending to speak a word of exhortation to them; but the justice hearing thereof (said I) was pleased to send his warrant to fetch me before him, etc.—John Bunyan. In relation to J.B.'s imprisonment: written by *himself. Offor's edit., Vol. 1. p. 52.* 
 
-**Verse 21.** ( *first clause* ).—
+**Verse 21.** (*first clause* ).—
 
 Smooth are his words, his voice as honey sweet,
 
@@ -388,11 +388,11 @@ And I see the good ship riding, all in a perilous road; The low reef booming on 
 
 **Verse 23.** *Half their days.* In the Jewish account threescore years was the age of a man, and death at any time before that was looked upon as untimely, and deemed and styled trd excision, of which they made thirty-six degrees; so that *not to live out half one's days*, is in their style *to die before thirty years old. Henry Hammond.* 
 
-**Verse 23.** ( *second clause* ). The more sins we do commit, the more we hasten our own death; because as the wise man saith, "The fear of the Lord prolongeth days, but the years of the wicked shall be shortened" (Pr 10:27); and the prophet David saith, *Bloody and deceitful men shall not live out half their days;* for sin is an epitomiser or shortener of everything: it consumes our wealth, it confines our liberty, it impeaches our health, and it abbreviates our life, and brings us speedily unto our grave. *Griffith Williams,* 1636.
+**Verse 23.** (*second clause* ). The more sins we do commit, the more we hasten our own death; because as the wise man saith, "The fear of the Lord prolongeth days, but the years of the wicked shall be shortened" (Pr 10:27); and the prophet David saith, *Bloody and deceitful men shall not live out half their days;* for sin is an epitomiser or shortener of everything: it consumes our wealth, it confines our liberty, it impeaches our health, and it abbreviates our life, and brings us speedily unto our grave. *Griffith Williams,* 1636.
 
 ## Hints to the Village Preacher
 
-**Verse 1.** ( *second clause* ).
+**Verse 1.** (*second clause* ).
 
 1\.An evil to be dreaded: *Hide not thyself,* etc.
 
@@ -422,7 +422,7 @@ And I see the good ship riding, all in a perilous road; The low reef booming on 
 
 4\.What is the reflex duty on our part? To attend and hear him.
 
-**Verse 2.** ( *second clause* ). Allowable complaining.
+**Verse 2.** (*second clause* ). Allowable complaining.
 
 1\.Not *of* God but *to* God.
 
@@ -460,11 +460,11 @@ And I see the good ship riding, all in a perilous road; The low reef booming on 
 
 7\.Would lessen the value of heaven.
 
-**Verse 9.** ( *first clause* ). The Babel of heresies. *Essential,* for truth is one. *Inevitable,* for the motives of heretics clash. *Providential,* for so they weaken each other. *Judicial,* for so they torment each other.
+**Verse 9.** (*first clause* ). The Babel of heresies. *Essential,* for truth is one. *Inevitable,* for the motives of heretics clash. *Providential,* for so they weaken each other. *Judicial,* for so they torment each other.
 
-**Verse 10.** ( *first clause* ). The activity of evil.
+**Verse 10.** (*first clause* ). The activity of evil.
 
-**Verse 10.** ( *second clause* ). The diabolical twins, or cause and effect.
+**Verse 10.** (*second clause* ). The diabolical twins, or cause and effect.
 
 **Verse 14.** The social companionships which grow out of religion.
 
@@ -500,7 +500,7 @@ And I see the good ship riding, all in a perilous road; The low reef booming on 
 
 **Verse 19.** The eternal government of God a threat to the ungodly.
 
-**Verse 19.** ( *second part* ). Prosperity creating atheism. This involves—
+**Verse 19.** (*second part* ). Prosperity creating atheism. This involves—
 
 1\.Ingratitude—they ought to be the more devout.
 
@@ -528,7 +528,7 @@ And I see the good ship riding, all in a perilous road; The low reef booming on 
 
 6\.They will kill himself.
 
-**Verse 22.** ( *first clause* ). Here we see the believer has—
+**Verse 22.** (*first clause* ). Here we see the believer has—
 
 1\.A *burden* to try him.
 
@@ -536,9 +536,9 @@ And I see the good ship riding, all in a perilous road; The low reef booming on 
 
 3\.A *promise* to encourage him, "He shall sustain, "etc. *Ebenezer Temple,* 1850.
 
-**Verse 22.** ( *last clause* ). Who are the righteous? What is meant by their being moved? Whose permission is needful to accomplish it? Will he give it? "Never." Why not?
+**Verse 22.** (*last clause* ). Who are the righteous? What is meant by their being moved? Whose permission is needful to accomplish it? Will he give it? "Never." Why not?
 
-**Verse 23.** ( *last clause* ). The grand "I WILL." Sum up the Psalm.—
+**Verse 23.** (*last clause* ). The grand "I WILL." Sum up the Psalm.—
 
 1\.When I pray, Ps 55:1-3.
 

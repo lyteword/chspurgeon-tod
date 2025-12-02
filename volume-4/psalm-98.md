@@ -316,7 +316,7 @@ Or, because this Psalm is prophetical, a new song, that is, the song of the glor
 
 **Verse 5.** *The voice of a Psalm.* With psalms Jehoshaphat and Hezekiah celebrated their victories. Psalms made glad the heart of the exiles who returned from Babylon. Psalms gave courage and strength to the Maccabees
 
-**Verse 6.** *Trumpets.* tlruux, *Chatsotseroth* :here only in the Psalter. These were the straight trumpets (such as are seen on the Arch of Titus) used by the priests for giving signals. Nu 10:2-10; 1Ch 15:24,28, etc. The *shofar*, rmwv ( *cornet* ), was the ordinary curved trumpet, cornet, or horn. *William Kay.* 
+**Verse 6.** *Trumpets.* tlruux, *Chatsotseroth* :here only in the Psalter. These were the straight trumpets (such as are seen on the Arch of Titus) used by the priests for giving signals. Nu 10:2-10; 1Ch 15:24,28, etc. The *shofar*, rmwv (*cornet* ), was the ordinary curved trumpet, cornet, or horn. *William Kay.* 
 
 **Verse 6.** *Trumpets.* The word here used is uniformly rendered trumpets in the Scriptures, Nu 10:2,8-10 31:6; *et al*. The trumpet was mainly employed for convening a public assembly for worship, or for assembling the hosts for battle. The original word, xruux *chatsotserah*, is supposed to have been designed to imitate "the broken pulse like sound of the trumpet, like the Latin, *taratantara.* " So the German *trarara*, and the Arabic, *hadadera*. The word here used was given to the long, straight trumpet. *Albert Barnes.* 
 
@@ -398,7 +398,7 @@ And joyful ages, from behind, in crowding ranks appear.
 
 6\.The manner in which its neglect will be punished. *W. J.* 
 
-**Verse 2.** ( *first clause* ).
+**Verse 2.** (*first clause* ).
 
 1\.What is salvation?
 
@@ -426,9 +426,9 @@ And joyful ages, from behind, in crowding ranks appear.
 
 4\.It is meant for all sorts of men—"heathen."
 
-**Verse 3.** ( *first clause* ). The Lord's memory of his covenant. Times in which he seems to forget it; ways in which even in those times he proves his faithfulness; great deeds of grace by which at other times he shows his memory of his promises; and reasons why he must ever be mindful of his covenant.
+**Verse 3.** (*first clause* ). The Lord's memory of his covenant. Times in which he seems to forget it; ways in which even in those times he proves his faithfulness; great deeds of grace by which at other times he shows his memory of his promises; and reasons why he must ever be mindful of his covenant.
 
-**Verse 3.** ( *last clause* ). *All the ends of the earth.* 
+**Verse 3.** (*last clause* ). *All the ends of the earth.* 
 
 1\.Literally. Missionaries have visited every land.
 

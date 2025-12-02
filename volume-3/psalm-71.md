@@ -206,7 +206,7 @@ What I should be afraid of, is, if I took thought for the morrow, that my body s
 
 **Verse 13.** *Let them be confounded,* etc. Let them, who were so wicked that they never hoped anything good of me, *be confounded* by the evidence of the blessings which manifestly fall upon me; and, *let them fail,* the grounds of their abuse being taken away, as a fire fails when the fagots are removed. *Gerhohus.* 
 
-**Verse 13.** *Let them be confounded,* etc. By the law of retaliation ( *talio* ), he might have said: "Be thou an adversary to their souls, and seek their hurt." Nothing of this is hinted at: his only desire is that they may be confounded and fail, that they may be covered with disgrace and shame. He seeks nothing beyond the frustration of their attempts, that they may begin to be ashamed, and have no cause for boasting that they came off victorious. *Musculus.* 
+**Verse 13.** *Let them be confounded,* etc. By the law of retaliation (*talio* ), he might have said: "Be thou an adversary to their souls, and seek their hurt." Nothing of this is hinted at: his only desire is that they may be confounded and fail, that they may be covered with disgrace and shame. He seeks nothing beyond the frustration of their attempts, that they may begin to be ashamed, and have no cause for boasting that they came off victorious. *Musculus.* 
 
 **Verse 13.** Shame ariseth from utter disappointments. If hope deferred causeth shame, then much more hope destroyed. When a man sees his hopes quite cut off, so that he can no way reach the thing he looked for, shame takes hold of him strongly. *Joseph Caryl.* 
 
@@ -372,9 +372,9 @@ Arguments used to induce to Lord to hear, drawn,
 
 **Verse 2.** *Cause me to escape.* From whom? From what? How? By what power? For what end?
 
-**Verse 3.** ( *first two clauses* ). The believer abiding in God and continually resorting to him.
+**Verse 3.** (*first two clauses* ). The believer abiding in God and continually resorting to him.
 
-**Verse 3.** ( *Third clause* ). A command based on the divine promise, clothed with divine power, addressed to all necessary agencies, and embracing all exigencies.
+**Verse 3.** (*Third clause* ). A command based on the divine promise, clothed with divine power, addressed to all necessary agencies, and embracing all exigencies.
 
 **Verse 4.** 
 
@@ -384,7 +384,7 @@ Arguments used to induce to Lord to hear, drawn,
 
 **Verse 5.** God the essence of hope and faith.
 
-**Verse 7.** ( *first clause* ). may be accommodated to,
+**Verse 7.** (*first clause* ). may be accommodated to,
 
 1\. *The Saviour.* 
 

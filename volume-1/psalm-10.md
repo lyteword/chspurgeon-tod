@@ -78,7 +78,7 @@ Verses 16, 17, 18. The Psalm ends with a song of thanksgiving to the great and e
 
 **Verse 1.** *"Why hidest thou thyself in times of* trouble?"The answer to this is not far to seek, for if the Lord did not hide himself it would not be a time of trouble at all. As well ask why the sun does not shine at night, when for certain there could be no night if he did. It is essential to our thorough chastisement that the Father should withdraw his smile: there is a needs be not only for manifold temptations, but that we be in heaviness through them. The design of the rod is only answered by making us smart. If there be no pain, there will be no profit. If there be no hiding of God, there will be no bitterness, and consequently no purging efficacy in his chastisements. *C. H. S.* 
 
-**Verse 1.** ( *last clause* ). *"Times of trouble"* should be times of confidence; fixedness of heart on God would prevent fears of heart. Psalm 112:7. "He shall not be afraid of evil tidings: his heart is fixed." How? "Trusting in the Lord. His heart is established, he shall not be afraid." Otherwise without it we shall be as light as a weather-cock, moved with every blast of evil tidings, our hopes will swim or sink according to the news we hear. Providence would seem to sleep unless faith and prayer awaken it. The disciples had but little faith in their Master's accounts, yet that little faith awakened him in a storm, and he relieved them. Unbelief doth only discourage God from showing his power in taking our parts. *Stephen Charnock.* 
+**Verse 1.** (*last clause* ). *"Times of trouble"* should be times of confidence; fixedness of heart on God would prevent fears of heart. Psalm 112:7. "He shall not be afraid of evil tidings: his heart is fixed." How? "Trusting in the Lord. His heart is established, he shall not be afraid." Otherwise without it we shall be as light as a weather-cock, moved with every blast of evil tidings, our hopes will swim or sink according to the news we hear. Providence would seem to sleep unless faith and prayer awaken it. The disciples had but little faith in their Master's accounts, yet that little faith awakened him in a storm, and he relieved them. Unbelief doth only discourage God from showing his power in taking our parts. *Stephen Charnock.* 
 
 **Verse 2.** *"The wicked in his pride doth persecute the* poor."THE OPPRESSOR'S PLEA. I seek but what is my own by law; it was his own free act and deed—the execution lies for goods and body; and goods or body I will have, or else my money. What if his beggardly children pine, or his proud wife perish? they perish at their own charge, not mine; and what is that to me? I must be paid, or he lie by it until I have my utmost farthing, or his bones. The law is just and good; and, being ruled by that, how can my fair proceedings be unjust? What is thirty in the hundred to a man of trade? Are we born to thrum caps or pick straws? and sell our livelihood for a few tears, and a whining face? I thank God they move me not so much as a howling dog at midnight. I'll give no day if heaven itself would be security. I must have present money, or his bones..... Fifteen shillings in the pound composition! I'll hang first. Come, tell me not of a good conscience: a good conscience is no parcel in my trade; it hath made more bankrupts than all the loose wives in the universal city. My conscience is no fool: it tells me my own is my own, and that a well crammed bag is no deceitful friend, but will stick close to me when all my friends forsake me. If to gain a good estate out of nothing, and to regain a desperate debt which is as good as nothing, be the fruits and signs of a bad conscience, God help the good. Come, tell me not of griping and oppression. The world is hard, and he that hopes to thrive must gripe as hard. What I give I give, and what I lend I lend. If the way to heaven be to turn beggar upon earth, let them take it that like it. I know not what you call oppression, the law is my direction; but of the two, it is more profitable to oppress than to be oppressed. If debtors would be honest and discharge, our hands were bound: but when their failing offends my bags, they touch the apple of my eye, and I must right them. *Francis Quarles.* 
 
@@ -208,7 +208,7 @@ Verses 16, 17, 18. The Psalm ends with a song of thanksgiving to the great and e
 
 **Verse 4.** Pride the barrier in the way of conversion. 
 
-*Verse* 4 ( *last clause* ). Thoughts in which God is not, weighed and condemned. 
+*Verse* 4 (*last clause* ). Thoughts in which God is not, weighed and condemned. 
 
 **Verse 5.** *"Thy judgments are far above out of his* sight."Moral inability of men to appreciate the character and acts of God. 
 
@@ -218,7 +218,7 @@ Verses 16, 17, 18. The Psalm ends with a song of thanksgiving to the great and e
 
 **Verse 9.** The ferocity, craftiness, strength, and activity of Satan. 
 
-*Verse* 9 ( *last clause* ). The Satanic fisherman, his art, diligence, success, etc. 
+*Verse* 9 (*last clause* ). The Satanic fisherman, his art, diligence, success, etc. 
 
 **Verse 10.** Designing humility unmasked. 
 
@@ -226,16 +226,16 @@ Verses 16, 17, 18. The Psalm ends with a song of thanksgiving to the great and e
 
 **Verse 12.** *"Arise, O Lord."* A prayer needful, allowable, seasonable, etc. 
 
-*Verse* 13 ( *first clause* ). An astounding fact, and a reasonable enquiry. 
+*Verse* 13 (*first clause* ). An astounding fact, and a reasonable enquiry. 
 
 **Verse 13.** Future retribution: doubts concerning it. I. By whom indulged: *"the* wicked." II. Where fostered: *"in his* heart." III. For what purpose: *quieting* of conscience,etc. IV. With what practical tendency: *"contemn God."* He who disbelieves hell, distrusts heaven. 
 
 Verses 13, 14. Divine government in the world. I. Who doubt it? and why? II. Who believe it? and what does this faith cause them to do? 
 
-*Verse* 14 ( *last clause* ). A plea for orphans. 
+*Verse* 14 (*last clause* ). A plea for orphans. 
 
 **Verse 16.** The Eternal Kingship of Jehovah. 
 
-*Verse* 17 ( *first clause* ). I. The Christian's character— *"humble."* II. An attribute of the Christian's whole life— *"desire:"* he desires more holiness, communion, knowledge, grace, and usefulness; and then he desires glory. III. The Christian's great blessedness— *"Lord, thou hast heard the desire of the* humble." 
+*Verse* 17 (*first clause* ). I. The Christian's character— *"humble."* II. An attribute of the Christian's whole life— *"desire:"* he desires more holiness, communion, knowledge, grace, and usefulness; and then he desires glory. III. The Christian's great blessedness— *"Lord, thou hast heard the desire of the* humble." 
 
-*Verse* 17 ( *whole verse* ). I. Consider the *nature* of gracious desires. II. Their *origin.* III. Their *result.* The three sentences readily suggest these divisions, and the subject may be very profitable. 
+*Verse* 17 (*whole verse* ). I. Consider the *nature* of gracious desires. II. Their *origin.* III. Their *result.* The three sentences readily suggest these divisions, and the subject may be very profitable. 

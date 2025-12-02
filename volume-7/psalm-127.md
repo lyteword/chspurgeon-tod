@@ -114,11 +114,11 @@ But prayer he will hear.
 
 **Verse 2.** *So he giveth his beloved sleep.* hnv wdykyl Nty Nk. These latter words are variously rendered, and sufficiently obscurely, because all take this Nk as a particle of comparison, which does not seem to be in place here: some even omit it altogether. But Nk also signifies *"well"*, *"rightly"*: 2Ki 7:9 Nu 27:7. Why should we not render it here, *"He giveth to His beloved to sleep well"*: i.e., While those who, mistrusting God, attribute all things to their own labour, do not sleep well; for truly they "rise early and sit up late"; he gives to his beloved this grace, that reposing in his fatherly care and goodness, they fully enjoy their sleep, as those who know that such anxious labour is not necessary for them: or, *"Truly, he giveth to his beloved sleep; "* as Kn may be the same as Nka. But hnv may betaken for hnvb, and rendered, *"Truly, he giveth to his beloved in sleep; "* viz., that he should be refreshed by this means.— *Louis De Dieu*, 1590-1642.
 
-**Verse 2.** ( *last clause* ). The sentence may be read either, he will give sleep to his beloved, or, he will give in sleeping; that is, he will give them those things which unbelievers labour to acquire by their own industry. The particle Nk, *ken, thus*, is put to express certainty; for with the view of producing a more undoubted persuasion of the truth—that God gives fool to his people without any great care on their part—which seems incredible and a fiction, Solomon points to the thing as it were with the finger. He indeed speaks as if God nourished the slothfulness of his servants by his gentle treatment; but as we know that men are created with the design of their being occupied, and as in the subsequent Psalm we shall find that the servants of God are accounted happy when they eat the labour of their hands, it is certain that the word *sleep* is not to be understood as implying slothfulness, but a placid labour, to which true believers subject themselves by the obedience of faith. Whence proceeds this so great ardour in the unbelieving, that they move not a finger without a tumult or bustle, in other words, without tormenting themselves with superfluous cares, but because they attribute nothing to the providence of God! The faithful, on the other hand, although they lead a laborious life, yet follow their vocations with composed and tranquil minds. Thus their hands are not idle, but their minds repose in the stillness of faith, as if they were asleep.— *John Calvin*, 1509-1564.
+**Verse 2.** (*last clause* ). The sentence may be read either, he will give sleep to his beloved, or, he will give in sleeping; that is, he will give them those things which unbelievers labour to acquire by their own industry. The particle Nk, *ken, thus*, is put to express certainty; for with the view of producing a more undoubted persuasion of the truth—that God gives fool to his people without any great care on their part—which seems incredible and a fiction, Solomon points to the thing as it were with the finger. He indeed speaks as if God nourished the slothfulness of his servants by his gentle treatment; but as we know that men are created with the design of their being occupied, and as in the subsequent Psalm we shall find that the servants of God are accounted happy when they eat the labour of their hands, it is certain that the word *sleep* is not to be understood as implying slothfulness, but a placid labour, to which true believers subject themselves by the obedience of faith. Whence proceeds this so great ardour in the unbelieving, that they move not a finger without a tumult or bustle, in other words, without tormenting themselves with superfluous cares, but because they attribute nothing to the providence of God! The faithful, on the other hand, although they lead a laborious life, yet follow their vocations with composed and tranquil minds. Thus their hands are not idle, but their minds repose in the stillness of faith, as if they were asleep.— *John Calvin*, 1509-1564.
 
 **Verse 2.** *He giveth his beloved sleep.* It is a *peculiar rest*, it is a rest peculiar to sons, to saints, to heirs, to beloved ones. "So he gives *his beloved* rest", or as the Hebrew hath it, dearling, or dear beloved, quiet rest, without care or sorrow. The Hebrew word akv, *shena*, is written with a, a quiet dumb letter, which is not usual, to denote the more quietness and rest. This rest is a crown that God sets only upon the head of saints; it is a gold chain that he only puts about his children's necks; it is a jewel that he only hangs between his beloved's breasts: it is a flower that he only sticks in his darlings' bosoms. This rest is a tree of life that is proper and peculiar to the inhabitants of that heavenly country; it is children's bread, and shall never be given to dogs.— *Thomas Brooks*, 1608-1680.
 
-**Verse 2.** ( *last clause* ). As the Lord *gave* a precious gift to his *beloved*, the first Adam, while he *slept*, by taking a rib from his side, and by building there from a woman, Eve, his bride, the Mother of all living; so, while Christ, the Second Adam, the true Jedidiah, the Well beloved Son of God, was sleeping in death on the cross, God formed for him, in his death, and by his death,—even by the life giving streams flowing from his own precious side,—the Church, the spiritual Eve, the Mother of all living; and gave her to him as his bride. Thus he *built* for him in his *sleep* the spiritual Temple of his Church.— *Christopher Wordsworth.* 
+**Verse 2.** (*last clause* ). As the Lord *gave* a precious gift to his *beloved*, the first Adam, while he *slept*, by taking a rib from his side, and by building there from a woman, Eve, his bride, the Mother of all living; so, while Christ, the Second Adam, the true Jedidiah, the Well beloved Son of God, was sleeping in death on the cross, God formed for him, in his death, and by his death,—even by the life giving streams flowing from his own precious side,—the Church, the spiritual Eve, the Mother of all living; and gave her to him as his bride. Thus he *built* for him in his *sleep* the spiritual Temple of his Church.— *Christopher Wordsworth.* 
 
 **Verse 2.** Quiet sleep is the gift of God, and it is the love of God to give quiet sleep.
 
@@ -236,7 +236,7 @@ a) By owning our short sight.
 
 b) By trusting to his foresight.— *G. R.* 
 
-**Verse 1.** ( *first part* ).—Illustrate the principles:
+**Verse 1.** (*first part* ).—Illustrate the principles:
 
 1\.In building up character.
 
@@ -268,7 +268,7 @@ b) By trusting to his foresight.— *G. R.*
 
 3\.When the devil brings it, it is deadly meat.
 
-**Verse 2.** ( *last clause* ).—Blessings that come to us in sleep.
+**Verse 2.** (*last clause* ).—Blessings that come to us in sleep.
 
 1\.Renewed health and vigour of body.
 
@@ -278,7 +278,7 @@ b) By trusting to his foresight.— *G. R.*
 
 4\.Providential gifts. The rains fall, the fruits of the earth grow and ripen, the mill wheel goes round, the ship pursues her voyage, etc., while we slumber. Often when we are doing nothing for ourselves God is doing most.— *W. H. J.P.* 
 
-**Verse 2.** ( *last clause* ). See "Spurgeon's Sermons," No. 12: "The Peculiar Sleep of the Beloved."
+**Verse 2.** (*last clause* ). See "Spurgeon's Sermons," No. 12: "The Peculiar Sleep of the Beloved."
 
 **Verse 3.** Sermon by Thomas Manton. Works: vol. 18. pp. 84-95. *Nichol's Edition.* 
 

@@ -266,7 +266,7 @@ Eternal youth: it may, yet much more than for David, now be the portion of every
 
 **Verse 9.** *He will not always chide.* Certainly it is as unpleasing to God to chide, as it is to us to be chidden; and so little he likes of anger, that he rids his hands of it as fast as th can: he is not so slow in coming to it, but he is as quick in getting from it; for chiding is a bar to mercy, and anger an impediment to compassion; nothing is so distasteful to God as that any block should lie in the way of his mcrcy, or that the liberty of his compassion should have any cause of restraint: and then we may be sure he will not himself lay a block in the way with chiding, nor be a cause to restrain his compassion by keeping his anger. *Sir R. Baker.* 
 
-**Verse 9.** ( *Second Clause* ). *To keep anger for ever*, corresponds with the French phrase, *Je lui garde, Il me la garde,* (*"I am watching him, as he has watched to do a bad turn to me") which we use when the man, who cannot forgive the injuries he has received, cherishes secret revenge in his heart, and waits for an opportunity of retaliation. Now David denies that God, after the manner of men, keeps anger on account of injuries done to him, since he condescends to be reconciled. *Calvin.* 
+**Verse 9.** (*Second Clause* ). *To keep anger for ever*, corresponds with the French phrase, *Je lui garde, Il me la garde,* (*"I am watching him, as he has watched to do a bad turn to me") which we use when the man, who cannot forgive the injuries he has received, cherishes secret revenge in his heart, and waits for an opportunity of retaliation. Now David denies that God, after the manner of men, keeps anger on account of injuries done to him, since he condescends to be reconciled. *Calvin.* 
 
 **Verse 10.** *He hath not dealt with us after our sins.* Might we not have expected, with such conduct, that God would have withdrawn from us the blessing of his providence, withheld from us the communication of his Spirit, permitted us to find the means of grace profitless, left our temptations to multiply, and suffered us to sink into a state of fixed backsliding?—and then, with our hearts at last sinking into too natural depression, might we not have seemed to hear him saying to us this day, "Thine own wickedness shall correct thee, and thy backslidings shall reprove thee; know, therefore, and see that it is an evil thing and bitter, that thou hast forsaken the Lord thy God, and that my fear is not in thee, saith the Lord God of Hosts." *Baptist W. Noel,* 1798-1873.
 
@@ -452,7 +452,7 @@ Thirdly, over all *creatures* ;binding the influences of Pleiades, and loosing t
 
 3\.Self-encouragement: "All that is within me"—every faculty of my mental, moral and spiritual being: with ten strings—every chord in motion. No need for one faculty of the soul to say to another, "know the Lord, for all shall know him from the least even unto the greatest." *G. R.* 
 
-**Verse 1** ( *First clause*, and Ps 103:22, *last clause* ). Personal worship the Alpha and Omega of religion. *C. Davis.* 
+**Verse 1** (*First clause*, and Ps 103:22, *last clause* ). Personal worship the Alpha and Omega of religion. *C. Davis.* 
 
 **Verse 2.** Inquire into the causes of our frequent forgetfulness of the Lord's mercies, show the evil of it, and advise remedies.
 
@@ -472,7 +472,7 @@ Thirdly, over all *creatures* ;binding the influences of Pleiades, and loosing t
 
 3\.The remedy by which God heals these diseases. (a) His pardoning mercy through the redemption of Christ. (b) The sanctifying influences of grace. (c) The means of grace. (d) The resurrection of the body. *From "The Study, "* 1873.
 
-**Verse 3** ( *last clause* ).—Our diseases by nature, our great Physician, the perfect soundness which he works in us, results of that soundness.
+**Verse 3** (*last clause* ).—Our diseases by nature, our great Physician, the perfect soundness which he works in us, results of that soundness.
 
 **Verses 3-5.** Mercy's Hexapla.
 
@@ -494,7 +494,7 @@ Or
 
 6\.Power renewed. *W. Durban.* 
 
-**Verse 4.** ( *first clause* ). The Redemption of David's life from destruction.
+**Verse 4.** (*first clause* ). The Redemption of David's life from destruction.
 
 1\.His shepherd life.
 

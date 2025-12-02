@@ -50,7 +50,7 @@ weight: 23
 
 **Verse 1.** *"Shepherd."* May this sweet title persuade Japhet to dwell in the tents of Shem: my meaning is, that those who as yet never knew what it was to be enfolded in the bosom of Jesus, who as yet were never lambs nor ewes in Christ's fold, consider the sweetness of this Shepherd, and come in to him. Satan deals seemingly sweet, that he may draw you into sin, but in the end he will be really bitter to you. Christ, indeed, is seemingly bitter to keep you from sin, hedging up your way with thorns. But he will be really sweet if you come into his flock, even notwithstanding your sins. Thou lookest into Christ's fold, and thou seest it hedged and fenced all about to keep you in from sin, and this keeps thee from entering; but, oh! let it not. Christ, indeed, is unwilling that any of his should wander, and if they be unwilling too, it's well. And if they wander he'll fetch them in, it may be with his shepherd's *dog* (some affliction); but he'll not be, as we say, *dogged* himself. No, he is and will be sweet. It may be, Satan smiles, and is pleasant to you while you sin; but know, he'll be bitter in the end. He that sings syren-like now, will devour lion-like at last. He'll torment you and vex you, and be burning and bitterness to you. O come in therefore to Jesus Christ; let him be now the shepherd of thy soul. And know then, he'll be sweet in endeavouring to keep thee from sin before thou commit it; and he'll be sweet in delivering thee from sin after thou hast committed it. O that this thought—that Jesus Christ is sweet in his carriage unto all his members, unto all his flock, especially the sinning ones, might persuade the hearts of some sinners to come in unto his fold. *John Durant,* 1652. 
 
-*Verse* 1 ( *first clause* ). *Feedeth me,* or is *my feeder, my pastor.* The word comprehendeth all duties of a good herd, as together feeding, guiding, governing, and defending his flock. *Henry Ainsworth.* 
+*Verse* 1 (*first clause* ). *Feedeth me,* or is *my feeder, my pastor.* The word comprehendeth all duties of a good herd, as together feeding, guiding, governing, and defending his flock. *Henry Ainsworth.* 
 
 **Verse 1.** *"The Lord is my shepherd."* Now the reasons of this resemblance I take to be these:—First, one property of a good shepherd is, skill to know and judge aright of his sheep, and hence is it that it is a usual thing to set mark upon sheep, to the end that if they go astray (as of all creatures they are most subject to wander), the shepherd may seek them up and bring them home again. The same thing is affirmed of Christ, or rather indeed Christ affirmeth the same thing of himself, "I know them, and they follow me." John 10:27. Yea, doubtless, he that hath numbered the stars, and calleth them all by their names, yea, the very hairs of our head, taketh special notice of his own children, "the sheep of his pasture," that they may be provided for and protected from all danger. Secondly, a good shepherd must have skill in the pasturing of his sheep, and in bringing them into such fruitful ground, as they may battle and thrive upon: a good shepherd will not suffer his sheep to feed upon rotten soil, but in wholesome pastures.... Thirdly, a good shepherd, knowing the straying nature of his sheep, is so much the more diligent to watch over them, and if at any time they go astray, he brings them back again. This is the Lord's merciful dealing towards poor wandering souls.... Fourthly, a good shepherd must have will to feed his sheep according to his skill: the Lord of all others is most willing to provide for his sheep. How earnest is Christ with Peter, to "feed his sheep," urging him unto it three several times! Fifthly, a good shepherd is provided to defend his flock.... The Lord is every way provided for the safety and defence of his sheep, as David confesseth in this Psalm (verse 4), *"Thy rod and thy staff* they comfort me."And again, "I took unto me two staves" (saith the Lord), "the one I called Beauty, and the other I called Bands; and I fed the flock." Zechariah 11:7. Sixthly, it is the property of a good shepherd, that if any of his sheep be weak and feeble, or his lambs young, for their safety and recovery he will bear them in his arms. The Lord is not wanting to us herein. Isaiah 40:11. And lastly, it is the property of a good shepherd to rejoice when the strayed sheep is brought home. The Lord doth thus rejoice at the conversion of a sinner. Luke 15:7. *Samuel Smith.* 
 
@@ -84,7 +84,7 @@ weight: 23
 
 **Verse 2.** This short but touching epitaph is frequently seen in the catacombs at Rome, *"In Christo, in pace"* —(In Christ, in peace). Realise the constant presence of the Shepherd of peace. "HE maketh me to lie down!" "HE leadeth me." *J. R. Macduff, D.D.* 
 
-*Verse* 2 ( *last clause* ). *"Easily leadeth,"* or *"comfortably guideth* me:"it noteth a soft and gentle leading, with sustaining of infirmity. *H. Ainsworth.* 
+*Verse* 2 (*last clause* ). *"Easily leadeth,"* or *"comfortably guideth* me:"it noteth a soft and gentle leading, with sustaining of infirmity. *H. Ainsworth.* 
 
 **Verse 2.** *"Green pastures."* Here are many pastures, and every pasture rich so that it can never be eaten bare; here are many streams, and every stream so deep and wide that it can never be drawn dry. The sheep have been eating in these pastures ever since Christ had a church on earth, and yet they are as full of grass as ever. The sheep have been drinking at these streams ever since Adam, and yet they are brim full to this very day, and they will so continue till the sheep are above the use of them in heaven! *Ralph Robinson,* 1656. 
 
@@ -182,15 +182,15 @@ weight: 23
 
 **Verse 1.** Work out the similitude of a shepherd and his sheep. He rules, guides, feeds, and protects them; and they follow, obey, love and trust him. Examine as to whether we are sheep; show the lot of the goats who feed side by side with the sheep. 
 
-**Verse 1.** ( *second clause* ). The man who is beyond the reach of want for time and eternity. 
+**Verse 1.** (*second clause* ). The man who is beyond the reach of want for time and eternity. 
 
-**Verse 2.** ( *first clause* ). Believing rest. I. Comes from God— *"He maketh."* II. Is deep and profound— *"lie down."* III. Has solid sustenance— *"in green pastures."* IV. Is subject for constant praise. 
+**Verse 2.** (*first clause* ). Believing rest. I. Comes from God— *"He maketh."* II. Is deep and profound— *"lie down."* III. Has solid sustenance— *"in green pastures."* IV. Is subject for constant praise. 
 
 **Verse 2.** The contemplative and the active element provided for. 
 
 **Verse 2.** The freshness and richness of Holy Scripture. 
 
-**Verse 2.** ( *second clause* ). Onward. The Leader, the way, the comforts of the road, and the traveller in it. 
+**Verse 2.** (*second clause* ). Onward. The Leader, the way, the comforts of the road, and the traveller in it. 
 
 **Verse 3.** Gracious restoration, holy guidance, and divine motives. 
 
@@ -200,17 +200,17 @@ weight: 23
 
 **Verse 4.** Life in death and light in darkness. 
 
-**Verse 4.** ( *second clause* ). The calm and quiet of the good man's end. 
+**Verse 4.** (*second clause* ). The calm and quiet of the good man's end. 
 
-**Verse 4.** ( *last clause* ). The tokens of divine government—the consolation of the obedient. 
+**Verse 4.** (*last clause* ). The tokens of divine government—the consolation of the obedient. 
 
 **Verse 5.** The warrior feasted, the priest anointed, the guest satisfied. 
 
-**Verse 5.** ( *last clause* ). The means and uses of the continual anointings of the Holy Spirit. 
+**Verse 5.** (*last clause* ). The means and uses of the continual anointings of the Holy Spirit. 
 
 **Verse 5.** Providential super-aboundings, and what is our duty concerning them. 
 
-**Verse 6.** ( *first clause* ). The blessedness of content. 
+**Verse 6.** (*first clause* ). The blessedness of content. 
 
 **Verse 6.** On the road and at home, or heavenly attendants and heavenly mansions. 
 

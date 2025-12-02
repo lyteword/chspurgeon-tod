@@ -136,7 +136,7 @@ But what we would particularly remark is, that *the excellent principle of the p
 
 **Verse 2.** *Harp; Psaltery,* etc. Our church does not use musical instruments, as harps and psalteries, to praise God withal, that she may not seem to Judaise. *Thomas Aquinas.* It was only permitted to the Jews, as sacrifice was, for the heaviness and grossness of their souls. God condescended to their weakness, because they were lately drawn off from idols; but now instead of organs, we may use our own bodies to praise him withal. *Chrysostom.* The use of singing with instrumental music was not received in the Christian churches as it was among the Jews in their infant state, but only the use of plain song. *Justin Martyr.* 
 
-**Verse 2.** ( *last clause* ). It is said that David praised God upon *an instrument of ten strings;* and he would never have told how many strings there were, but that without doubt he made use of them all. God hath given all of us bodies, as it were, instruments of many strings; and can we think it music good enough to strike but one string, to call upon him with our tongues only? No, no; when the still sound of the heart by holy thoughts, and the shrill sound of the tongue by holy words, and the loud sound of the hands by pious works, do all join together, that is God's concert, and the only music wherewith he is affected. *Sir Richard Baker.* 
+**Verse 2.** (*last clause* ). It is said that David praised God upon *an instrument of ten strings;* and he would never have told how many strings there were, but that without doubt he made use of them all. God hath given all of us bodies, as it were, instruments of many strings; and can we think it music good enough to strike but one string, to call upon him with our tongues only? No, no; when the still sound of the heart by holy thoughts, and the shrill sound of the tongue by holy words, and the loud sound of the hands by pious works, do all join together, that is God's concert, and the only music wherewith he is affected. *Sir Richard Baker.* 
 
 **Verse 3.** *Sing unto him.* I. Singing is the music of *nature.* The Scriptures tell us the mountains sing Isa 55:12; the valleys sing Ps 65:13; the trees of the wood sing 1Ch 16:33; nay, the air is the birds' music room, they chant their musical notes. II. Singing is the music of *ordinances.* Augustine reports of himself, that when he came to Milan and heard the people sing, he wept for joy in the church to hear that pleasing melody. And Beza confesses that at his first entrance into the congregation, and hearing them sing the ninety-first Psalm, he felt himself exceedingly comforted, and did retain the sound of it afterwards upon his heart. The Rabbins tell us that the Jews, after the feast of the Passover was celebrated, sang the hundred and eleventh and five following Psalms; and our Saviour and his apostles sang a hymn immediately after the blessed Supper. Mt 26:30. III. Singing is the music of *saints.* (1.) They have performed this duty in their greatest *numbers.* Ps 149:1-2. (2.) In their greatest *straits.* Isa 26:19. (3.) In their greatest *flight.* Isa 42:10-11. (4.) In their greatest *deliverances.* (5.) In their greatest *plenties.* Isa 65:14. In all these changes singing hath been their stated duty and delight. And indeed it is meet that the saints and servants of God should sing forth their joys and praises to the Lord Almighty: every attribute of him can set both their song and their tune. IV. Singing is the music of *angels.* Job tells us "the morning stars sang together, "Job 38:7. Now these "morning stars, "as Pineda tells us, are the angels; to which the Chaldee paraphrase accords, naming these morning stars, *aciem angelorum,* an host of angels. Nay, when this heavenly host was sent to proclaim the birth of our dearest Jesus, they deliver their message in this raised way of duty. Lu 2:13. They were (ainountev), delivering their messages in a laudatory singing, the whole company of angels making a musical quire. Nay, in heaven there is the angels' joyous music; they there sing hallelujahs to the Most High, and to the Lamb who sits upon the throne, Re 5:11. V. Singing is the music of *heaven;* the glorious saints and angels accent their praises this way, and make one harmony in their state of blessedness; and this is the music of the Bride chamber. The saints who were tuning here their Psalms, are now singing their hallelujahs in a louder strain, and articulating their joys, which here they could not express to their perfect satisfaction; here they laboured with drowsy hearts, and faltering tongues; but in glory these impediments are removed, and nothing is left to jar their joyful celebration. *John Wells, in "Morning Exercises."* 
 
@@ -180,7 +180,7 @@ Truth, it is God! and God is everywhere!
 
 **Verse 6.** *By the word of the Lord were the heavens made; and all the host of them by the breath of his mouth.* That the (hwd) is not *spirit,* but *breath,* is evident from the words *of his mouth* (compare Isa 11:4), and from the parallelism with *word.* Simple *word* is simple *breath;* both together, they stand in contrast to that exercise of strength, that labour, that use of means and instruments without which feeble man can bring nothing to perfection. Then there are the parallel passages, "All the while my breath is in me, and the Spirit of God is in my nostrils." Job 27:3. "The Spirit of God hath made me, and the breath of the Almighty hath given me life." Job 33:4. "Thou takest away their breath, they die, and return to their dust, thou sendest forth thy *breath,* they are created." Ps 104:29,30. On the other hand, however, the exposition which would interpret (wyp xwr), without reference to the *Spirit of God,* cannot be a correct one. In the history of the creation, to which the verse before us, as well as verses seven and nine, generally refer, the creation is described as the work of the SPIRIT of God, and his WORD. First, the *Spirit of God* moved upon the face of the waters, then God *said.* We may also suppose that the Spirit and the power of God are here represented by the *figure* of breath, because that in man is the first sign of life. *E. W. Hengstenberg.* 
 
-**Verse 6.** *By the word of the Lord.* May be understood of the hypostatic Word, as John teaches us. Joh 1:1. ( *John Cocceius* ), 1603-1669. This is an illustration of the old saying, that while Grotius finds Christ nowhere, Cocceius finds Christ everywhere. *C. H. S.* 
+**Verse 6.** *By the word of the Lord.* May be understood of the hypostatic Word, as John teaches us. Joh 1:1. (*John Cocceius* ), 1603-1669. This is an illustration of the old saying, that while Grotius finds Christ nowhere, Cocceius finds Christ everywhere. *C. H. S.* 
 
 **Verse 6.** Let any make a world, and he shall be a God, saith Augustine; hence is it that the church maketh it the very first article of her Creed to believe in God the Father Almighty, maker of heaven and earth. *John Weemse.* 
 
@@ -210,7 +210,7 @@ Truth, it is God! and God is everywhere!
 
 **Verse 11.** The wheels in a watch or a clock move contrary one to another, some one way, some another, yet all serve the intent of the workman, to show the time, or to make the clock strike. So in the world, the providence of God may seem to run cross to his promises; one man takes this way, another runs that way; good men go one way, wicked men another, yet all in conclusion accomplish the will, and centre in the purpose of God the great Creator of all things. *Richard Sibbes.* 
 
-**Verse 11.** ( *last clause* ). Think not, brethren, because he said, *The thoughts of his heart,* that God as it were sitteth down and thinketh what he should do, and taketh counsel to do anything, or not to do anything. To thee, O man, belongs such tardiness. *Augustine.* 
+**Verse 11.** (*last clause* ). Think not, brethren, because he said, *The thoughts of his heart,* that God as it were sitteth down and thinketh what he should do, and taketh counsel to do anything, or not to do anything. To thee, O man, belongs such tardiness. *Augustine.* 
 
 **Verse 12.** *Blessed—whom he hath chosen.* A man may have his name set down in the chronicles, yet lost; wrought in durable marble, yet perish; set upon a monument equal to a Colossus, yet be ignominious; inscribed on the hospital gates, yet go to hell; written in the front of his own house, yet another come to possess it; all these are but writings in the dust, or upon the waters, where the characters perish so soon as they are made; they no more prove a man happy than the fool could prove Pontius Pilate because his name was written in the Creed. But the true comfort is this, when a man by assurance can conclude with his own soul that his name is written in those eternal leaves of heaven, in the book of God's election, which shall never be wrapped up in the cloudy sheets of darkness but remain legible to all eternity. *Thomas Adams.* 
 
@@ -226,7 +226,7 @@ Truth, it is God! and God is everywhere!
 
 **Verse 15.** The Creator of all things *fashioneth their hearts alike;* the word (dxy), which signifies together at once, intimating that the hearts of all men though separated from one another by never so vast a gulf of time or place, are as exactly alike in respect of their original inclinations, as if they had been all moulded at the same time. The worship of a God and then some kind of religion, is necessary to us, we cannot shift it off. *William Pinke,* 1631.
 
-**Verse 15.** ( *last clause* ). Two men give to the poor, one seeketh his reward in heaven, the other the praise of men. Thou in two seest one thing, God understandeth two. For he understandeth what is within, and knoweth what is within; their ends he seeth, their base intentions he seeth. *He understandeth all their works. Augustine.* 
+**Verse 15.** (*last clause* ). Two men give to the poor, one seeketh his reward in heaven, the other the praise of men. Thou in two seest one thing, God understandeth two. For he understandeth what is within, and knoweth what is within; their ends he seeth, their base intentions he seeth. *He understandeth all their works. Augustine.* 
 
 **Verse 16.** *There is no king saved by the multitude of an host.* At the battle of Arbela, the Persian hosts numbered between five hundred thousand and a million men, but they were utterly put to the rout by Alexander's band of fifty thousand; and the once mighty Darius was soon vanquished. Napoleon led more than half a million of men into Russia:
 
@@ -294,17 +294,17 @@ Weak his force his lord to save.
 
 **Verse 1.** Rejoicing—the soul of praise; the Lord—a wellspring of joy. Character—indispensable to true enjoyment.
 
-**Verse 1.** ( *last clause* ). *Praise comely. What?* Vocal, meditative, habitual praise. *Why?* It is comely as wings to an angel, we mount with it; as flowers to a tree, it is our fruit; as a robe to a priest, it is our office; as long hair to a woman, it is our beauty; as a crown to a king, it is our highest honour. *When?* Evermore, but chiefly amid blasphemy, persecution, sickness, poverty, death. *Whom?* Not from the ungodly, hypocritical, or thoughtless. To be without praise is to miss our comeliest adornment.
+**Verse 1.** (*last clause* ). *Praise comely. What?* Vocal, meditative, habitual praise. *Why?* It is comely as wings to an angel, we mount with it; as flowers to a tree, it is our fruit; as a robe to a priest, it is our office; as long hair to a woman, it is our beauty; as a crown to a king, it is our highest honour. *When?* Evermore, but chiefly amid blasphemy, persecution, sickness, poverty, death. *Whom?* Not from the ungodly, hypocritical, or thoughtless. To be without praise is to miss our comeliest adornment.
 
 **Verse 2.** Instrumental music. Is it lawful? Is it expedient? If so, its uses, limits, and laws. A sermon to improve congregational music.
 
-**Verse 3.** ( *first clause* ). The duty of maintaining the freshness of our devotions. Freshness, skill, and heartiness, to be combined in our congregational psalmody.
+**Verse 3.** (*first clause* ). The duty of maintaining the freshness of our devotions. Freshness, skill, and heartiness, to be combined in our congregational psalmody.
 
 **Verse 4.** God's word and works, their rightness, and agreement, and our view of both.
 
-**Verse 4.** ( *first clause* ). The word doctrinal, preceptive, historical, prophetic, promissory, and experimental, always right, *i.e.,* free from error or evil.
+**Verse 4.** (*first clause* ). The word doctrinal, preceptive, historical, prophetic, promissory, and experimental, always right, *i.e.,* free from error or evil.
 
-**Verse 4.** ( *second clause* ). God's work of creation, providence, and grace, always in conformity with truth. His hatred of everything like a sham.
+**Verse 4.** (*second clause* ). God's work of creation, providence, and grace, always in conformity with truth. His hatred of everything like a sham.
 
 **Verses 4-5.** A fourfold argument for praise, from the *truth,* the *faithfulness* the *justice,* and *goodness* of God:
 
@@ -320,7 +320,7 @@ Weak his force his lord to save.
 
 **Verse 5.** Justice and goodness equally conspicuous in the divine action.
 
-**Verse 5.** ( *last clause* ). A matchless theme for an observant eye and an eloquent tongue.
+**Verse 5.** (*last clause* ). A matchless theme for an observant eye and an eloquent tongue.
 
 **Verse 6.** The power of the Word and the Spirit in the old and new creations.
 
@@ -330,7 +330,7 @@ Weak his force his lord to save.
 
 **Verse 8.** Reasons for universal worship, obstacles to it, future prospects of it, our duty in relation to it.
 
-**Verse 8.** ( *last clause* ). Awe—the soul of worship.
+**Verse 8.** (*last clause* ). Awe—the soul of worship.
 
 **Verse 9.** *The irresistible word of Jehovah* in creation, in calling his people, in their comfort and deliverance, in their entrance to glory.
 
@@ -376,7 +376,7 @@ Weak his force his lord to save.
 
  *—William Jay.* 
 
-**Verse 20.** ( *first clause* ). The believer's hourly position.
+**Verse 20.** (*first clause* ). The believer's hourly position.
 
 **Verse 21.** Joy, the outflow of faith.
 

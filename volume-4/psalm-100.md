@@ -112,7 +112,7 @@ Resting on his sure word, we feel that joy which is here commanded, and in the s
 
 **Whole Psalm.** This is a bunch of the grapes of Eshcol. It is a taste of what is still the promised land. The Jewish church came to its perfection in the reign of Solomon, but a greater than Solomon is here. The perfection of the New Testament church is here anticipated. This psalm teaches,
 
-1\. *That there will be a joyful state of the whole world* ( *Ps 100:1* ). (a) To whom the address is given—to "all lands, "and all in those lands. (b) The subject of the address—"Make a joyful noise." What a doleful noise it has made! (c) By whom the address is given, by him who secures what he commands.
+1\. *That there will be a joyful state of the whole world* (*Ps 100:1* ). (a) To whom the address is given—to "all lands, "and all in those lands. (b) The subject of the address—"Make a joyful noise." What a doleful noise it has made! (c) By whom the address is given, by him who secures what he commands.
 
 2\. *That this joyful state of the whole world will arise from the enjoyment of the Divine Being* (Ps 100:2). (a) Men have long tried to be happy without God. (b) They will find at last that their happiness is in God. The conversion of an individual in this respect is a type of the conversion of the world.
 
@@ -138,7 +138,7 @@ Resting on his sure word, we feel that joy which is here commanded, and in the s
 
 7\.You get fitness for heaven. *George Bowen.* 
 
-**Verse 2** ( *first clause* ) A true heart,
+**Verse 2** (*first clause*) A true heart,
 
 1\.Is humble— *serves*.
 
@@ -148,7 +148,7 @@ Resting on his sure word, we feel that joy which is here commanded, and in the s
 
 4\.Is consequently joyful—"with gladness."
 
-**Verse 2.** ( *first clause* ). "Serving the Lord with gladness." See "Spurgeon's Sermons, "No. 769.
+**Verse 2.** (*first clause* ). "Serving the Lord with gladness." See "Spurgeon's Sermons, "No. 769.
 
 **Verse 3.** *Know ye that the LORD he is God.* That you may be true amid superstition, hopeful in contrition, persistent in supplication, unwearied in exertion, calm in affliction, firm in temptation, bold in persecution, and happy in dissolution. *W. J.* 
 

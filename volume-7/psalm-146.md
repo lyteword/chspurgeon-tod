@@ -134,7 +134,7 @@ fifthly, if their bodies only were dissolved, and their intentions and actions m
 
 2\.Secondly, the spirit goeth *free or inviolate in essence;* death is not the end, but the outgoing of the soul, a transmigration or journey from one place to another. *"It goeth forth";* so the character of our weakness we see in the issue; it is an argument of our eternity; for man indeed is perishing, but so is not his spirit. The phoenix goes forth or out of his ashes, "the spirit returneth to God who gave it" (Ec 12:7); that is, it abides still; and as in the body it pleased God to inclose the soul for a season, so it may as well exist elsewhere without it, if God will; for it hath no rise at all from the clay, yea, it bears in it immortality, an image of that breast whence it is breathed. The separate and very abstract acts of the spirit, even while it is in the body, the wondrous visions of the Lord to his prophets, usually when their bodies were bound up in sleep; Saint Paul's rapture when he knew not whether he was in the body or out of it; the admirable inventions and arts of men, manifest the soul's self consisting. Not Socrates, and Cato, and the civilised heathen only, but the very savages believe this, and so entertain death, *ut exitum, non ut exitium,* as a dissolution, not as a destruction: *spiritus exit, "his spirit goeth forth."* — *Thomas Williamson.* 
 
-**Verse 4.** *His breath goeth forth*, etc. The Hebrew gives the idea not that the *spirit,* but the mortal part of man will return to the dust. "His *soul* (fem.xwr) goeth forth", *i.e.,* returneth to God; "returneth *he* (masc.bv) to his earth." As in Ec 12:7: *"He"* is the mortal man of clay, but "his *breath"* ( *soul* ) is the real immortal man.— *Simon de Muis.* 
+**Verse 4.** *His breath goeth forth*, etc. The Hebrew gives the idea not that the *spirit,* but the mortal part of man will return to the dust. "His *soul* (fem.xwr) goeth forth", *i.e.,* returneth to God; "returneth *he* (masc.bv) to his earth." As in Ec 12:7: *"He"* is the mortal man of clay, but "his *breath"* (*soul*) is the real immortal man.— *Simon de Muis.* 
 
 **Verse 4.** *He returneth to his earth.* Returning, in its proper notion, is a going back to that place from whence we came, so that in this clause here is a threefold truth, implied, expressed, inferred.
 
@@ -174,7 +174,7 @@ fifthly, if their bodies only were dissolved, and their intentions and actions m
 
 **Verse 6.** *Which keepeth truth for ever.* God does indeed keep the truth from age to age—how else would the Book of God have lived?— *John Lorinus.* 
 
-**Verses 6-9.** The LORD, is an *Almighty* God, as the Creator of the universe; next, he is a *faithful* God "who keepeth truth forever"; further, he is a *righteous* God (Ps 146:7) a *bountiful* God ( *ib.* ) a *gracious* God (Ps 146:7-9).— *J.J. Stewart Perowne.* 
+**Verses 6-9.** The LORD, is an *Almighty* God, as the Creator of the universe; next, he is a *faithful* God "who keepeth truth forever"; further, he is a *righteous* God (Ps 146:7) a *bountiful* God (*ib.*) a *gracious* God (Ps 146:7-9).— *J.J. Stewart Perowne.* 
 
 **Verse 7.** *Giveth food to the hungry.* We learn from this that he is not always so indulgent to his own as to load them with abundance, but occasionally withdraws his blessing, that he may succour them when reduced to hunger. Had the Psalmist said that God fed his people with abundance and pampered them, would not any of those under want, or in famine have immediately desponded? The goodness of God is therefore properly extended farther to the feeding of the hungry.— *John Calvin.* 
 
@@ -242,7 +242,7 @@ fifthly, if their bodies only were dissolved, and their intentions and actions m
 
 **Verse 4.** Decease, Decay, Defeat.
 
-**Verse 4.** ( *second clause* ). The failure of man's projects, the disappearance of his philosophies, the disproving of his boastings.
+**Verse 4.** (*second clause* ). The failure of man's projects, the disappearance of his philosophies, the disproving of his boastings.
 
 **Verse 5.** The secret of true happiness.
 
@@ -262,7 +262,7 @@ fifthly, if their bodies only were dissolved, and their intentions and actions m
 
 5\.Deliverer.
 
-**Verse 7.** ( *last clause* ).—See "Spurgeon's Sermons", No. 484: "The Lord—the Liberator."
+**Verse 7.** (*last clause* ).—See "Spurgeon's Sermons", No. 484: "The Lord—the Liberator."
 
 **Verse 7.** The People's Rights.
 
@@ -274,11 +274,11 @@ fifthly, if their bodies only were dissolved, and their intentions and actions m
 
 4\.The men who are fashioned and trained under this *regime.* — *W.B.H.* 
 
-**Verse 8.** ( *first clause* ). Spiritual blindness, its curse, cause, and cure.
+**Verse 8.** (*first clause* ). Spiritual blindness, its curse, cause, and cure.
 
-**Verse 8.** ( *second clause* ). Who are the people? Who raises them? How he does it. And what then?
+**Verse 8.** (*second clause* ). Who are the people? Who raises them? How he does it. And what then?
 
-**Verse 8.** ( *third clause* ). God's love to the righteous.
+**Verse 8.** (*third clause* ). God's love to the righteous.
 
 1\.He made them righteous.
 
@@ -290,9 +290,9 @@ fifthly, if their bodies only were dissolved, and their intentions and actions m
 
 **Verse 9.** Observe the provision made in the Jewish law for the stranger. The way in which strangers were received by God. The truth that his chosen are strangers in the world. His design to gather in strangers in the latter days.
 
-**Verse 9.** ( *centre clause* ). The claims of orphans and widows upon the people of God.
+**Verse 9.** (*centre clause* ). The claims of orphans and widows upon the people of God.
 
-**Verse 9.** ( *last clause* ). Illustrated by Joseph's brethren, Haman, and others.
+**Verse 9.** (*last clause* ). Illustrated by Joseph's brethren, Haman, and others.
 
 **Verse 10.** 
 

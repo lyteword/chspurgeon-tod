@@ -92,7 +92,7 @@ Farewell, fear. Come hither, gratitude and faith, and sing right joyously.
 
 **Verse 2.** When I stood that morning on the brow of Olivet, and looked down on the city, crowning those battlemented heights, encircled by those deep and dark ravines, I involuntarily exclaimed, *Beautiful for situation, the joy of the whole earth, is mount Zion, on the sides of the north, the city of the great King.* And as I gazed, the red rays of the rising sun shed a halo round the top of the castle of David; then they tipped with gold each tapering minaret, and gilded each dome of mosque and church, and at length, bathed in one flood of ruddy light the terraced roofs of the city, and the grass and foliage, the cupolas, pavements, and colossal walls of the Haram. No human being could be disappointed who first saw Jerusalem from Olivet. *J. L. Porter.* 
 
-**Verse 2.** ( *first clause* ). *Beautiful in climate,* that is, Mount Zion is situated in a fair and lovely climate. This is the view taken by Montanus and Ainsworth. Bate and Parkhurst read, *"Beautiful in extension, i.e.,* in the prospect which it extends to the eye." *Editorial Note to Calvin in loc.* 
+**Verse 2.** (*first clause* ). *Beautiful in climate,* that is, Mount Zion is situated in a fair and lovely climate. This is the view taken by Montanus and Ainsworth. Bate and Parkhurst read, *"Beautiful in extension, i.e.,* in the prospect which it extends to the eye." *Editorial Note to Calvin in loc.* 
 
 **Verse 2.** *Beautiful for situation.* This earth is, by sin, covered with deformity, and therefore justly might that spot of ground, which was thus beautified with holiness, be called *the joy of the whole earth,* i.e., what the whole earth had reason to rejoice in, because God would thus in very deed dwell with man upon the earth. *Matthew Henry.* 
 
@@ -130,7 +130,7 @@ Of alabaster, topped with golden spires.
 
 **Verses 12-13.** In a spiritual sense *the towers* and *bulwarks* of Sion are those doctrines of the true faith, which are the strength and glory of the church, which are to be maintained in their soundness and stability against the assaults of heretical teachers, so that they may be transmitted unimpaired to following generations. *Origen and Theodoret, quoted by Wordsworth.* 
 
-**Verse 13.** *Mark ye well her bulwarks.* Margin as in the Hebrew, *"Set your heart to her bulwarks."* That is, pay close attention to them; make the investigation with care, not as one does whose heart is not in the thing, and who does it negligently. The word rendered *bulwarks*, (lyx), *khail* —means properly, a host or army, and then a fortification or entrenchment, especially the *ditch* or *trench,* with the low wall or breastwork which surrounds it. 2Sa 20:15 Isa 26:1. ( *Gesenius, Lex.)—Albert Barnes.* 
+**Verse 13.** *Mark ye well her bulwarks.* Margin as in the Hebrew, *"Set your heart to her bulwarks."* That is, pay close attention to them; make the investigation with care, not as one does whose heart is not in the thing, and who does it negligently. The word rendered *bulwarks*, (lyx), *khail* —means properly, a host or army, and then a fortification or entrenchment, especially the *ditch* or *trench,* with the low wall or breastwork which surrounds it. 2Sa 20:15 Isa 26:1. (*Gesenius, Lex.)—Albert Barnes.* 
 
 **Verse 13.** *Mark ye well*: *set your heart,* mind earnestly, set your affections on. *Henry Ainsworth.* 
 
@@ -156,7 +156,7 @@ Of alabaster, topped with golden spires.
 
 **Verse 14.** *Unto death,* or as some explain it, *at death, i.e.,* he will save us from it; others, *over death,* beyond it. But the most obvious explanation, and the one most agreeable to usage, is that which makes the phrase mean even to the end of life, or as long as we live. The idea of a future state, though not expressed, is not excluded. *J. A. Alexander.* 
 
-**Verse 14.** ( *last clause* ). The last clause is much misunderstood. It is not, "Our guide *unto* death, "for the words are, (twm-le wnghny), "shall lead us *over* death." Surely it means, "It is he who leads over *death to resurrection"* —over Jordan to Canaan. The (Heb.) is used in Le 15:25, for *"beyond, "* in regard to time, and is not this the sense here? " *Beyond* the time of death"? Till death is to us over? Till we have *stood upon the grace of death?* Yes; he it is who leads us on to this last victory; he swallows up death in victory, and leads us to *trample on death*. And so viewed, we easily discern the beautiful link of thought that joins this Psalm to that which follows. Such is the celebration of *The Mighty One become the glory of Jerusalem. Andrew A. Bonar.* 
+**Verse 14.** (*last clause* ). The last clause is much misunderstood. It is not, "Our guide *unto* death, "for the words are, (twm-le wnghny), "shall lead us *over* death." Surely it means, "It is he who leads over *death to resurrection"* —over Jordan to Canaan. The (Heb.) is used in Le 15:25, for *"beyond, "* in regard to time, and is not this the sense here? " *Beyond* the time of death"? Till death is to us over? Till we have *stood upon the grace of death?* Yes; he it is who leads us on to this last victory; he swallows up death in victory, and leads us to *trample on death*. And so viewed, we easily discern the beautiful link of thought that joins this Psalm to that which follows. Such is the celebration of *The Mighty One become the glory of Jerusalem. Andrew A. Bonar.* 
 
 ## Hints to the Village Preacher
 
@@ -262,7 +262,7 @@ All the suggestions under this Psalm except those otherwise designated, are by o
 
 5\.What is the testimony which we have to give concerning this matter to the ensuing generation? *John Owen's Sermon.* 
 
-**Verse 14.** ( *first clause* ). This is the language of a *proprietary* in God: 1. Of an *assured* proprietary—"This God is *our* God." 2. Of a *permanent* proprietary— *for ever and ever.* 3. Of an *exulting* proprietary. *W. Jay.* 
+**Verse 14.** (*first clause* ). This is the language of a *proprietary* in God: 1. Of an *assured* proprietary—"This God is *our* God." 2. Of a *permanent* proprietary— *for ever and ever.* 3. Of an *exulting* proprietary. *W. Jay.* 
 
 **Verse 14.** 
 

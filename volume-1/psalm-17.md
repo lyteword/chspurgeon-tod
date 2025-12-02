@@ -88,7 +88,7 @@ Almost every word of this verse has furnished matter for discussion to scholars,
 
 **Verse 3.** *"Thou hast visited me in the night,"* etc. In the night the soul is free from business with the world, and therefore freest for business with God; and then did God prove and visit David, that is, examine and sift him, by calling to his mind all his ways and works in former passages; and the issue of this trial was, *he found nothing;* not that his soul was empty of good things, or that there was nothing evil in him; but God, upon examination, found nothing of that evil in him which some men suspected him of; namely either any ill will or evil design against Saul, in reference to whom he called his cause a righteous cause, or *"the right"* (verse 1); "Hear the right, O Lord."— *Joseph Caryl.* 
 
-*Verse* 3 ( *third clause, New Translation.* ) *"Thou hast smelted me, and* found in me no dross."A metaphor taken from the smelting of metals to purify them from extraneous matter.— *Geddes.* 
+*Verse* 3 (*third clause, New Translation.*) *"Thou hast smelted me, and* found in me no dross."A metaphor taken from the smelting of metals to purify them from extraneous matter.— *Geddes.* 
 
 **Verse 3.** *"Proved... visited in the night... tried."* Tribulation whereby, when examined, I was found righteous, is called not only night, in that it is wont to disturb with fear, but fire in that it actually burns.— *Augustine.* 
 
@@ -142,7 +142,7 @@ Almost every word of this verse has furnished matter for discussion to scholars,
 
 **Verses 13, 14.** " *Thy sword... thy hand.* " Thou canst as easily command and manage them, as a man may wield his sword, or move his hand. Wilt thou suffer thine own sword, thine own hand, to destroy thine own servant?— *J. Howe* 
 
-*Verse* 14 ( *first clause* ). How wonderful are the dispensations of the providence of God, who can use even the wicked to promote the present happiness and the final salvation of his saints!— *J. Edwards, M.A.,* 1856. 
+*Verse* 14 (*first clause* ). How wonderful are the dispensations of the providence of God, who can use even the wicked to promote the present happiness and the final salvation of his saints!— *J. Edwards, M.A.,* 1856. 
 
 **Verse 14.** *"Men of the world, which have their portion in this life."* Time and this lower world, bound all their hopes and fears. They have no serious believing apprehensions of anything beyond this present life; therefore, have nothing to withhold them from the most injurious violence, if thou withhold them not; men that believe not another world, are the ready actors of any imaginable mischiefs and tragedies in this.— *John Howe.* 
 
@@ -220,7 +220,7 @@ Almost every word of this verse has furnished matter for discussion to scholars,
 
 **Verse 3.** *"Thou hast visited me in the night."* I. Glorious visitor. II. Favoured individual. III. Peculiar season. IV. Refreshing remembrance. V. Practical result. 
 
-*Verse* 3 ( *last sentence* ). Transgressions of the lip, and how to avoid them. 
+*Verse* 3 (*last sentence* ). Transgressions of the lip, and how to avoid them. 
 
 **Verse 4.** The highway and the by-paths. *The world and sin.* *"The paths* of the destroyer"—a significant name for transgression. 
 
@@ -230,7 +230,7 @@ Almost every word of this verse has furnished matter for discussion to scholars,
 
 **Verse 6.** *Two words*, both great, though little, "call" and "hear." *Two* persons,one little and the other great, "I," "Thee, O God." *Two tenses:* past, "I have;" future, "Thou wilt." *Two wonders,* that we do not call more, and that God hears such unworthy prayers. 
 
-**Verse 7.** ( *first sentence* ). See Exposition. A view of divine lovingkindness desired. 
+**Verse 7.** (*first sentence* ). See Exposition. A view of divine lovingkindness desired. 
 
 **Verse 7.** *"O thou,"* etc. God, the Saviour of believers. 
 

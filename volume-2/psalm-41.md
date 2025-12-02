@@ -156,7 +156,7 @@ And plants relief for coming miseries. **
 
 **Verse 4.** God is the strength of a Christian's heart, by healing and restoring him when the infused habits of grace fail, and sin grows strong and vigorous. A Christian never fails in the exercise of grace, but sin gives him a wound; and therefore David prayed, *Lord, heal my soul, for I have sinned.* And what David prayed for, God promises to his people: "I will heal their backsliding." Ho 14:4. The weakness and decay of grace, brings a Christian presently to the falling sickness; and so it did in David and Ephraim; aye, but God will be a physician to the soul in this case, and will heal their diseases; and so he did David's falling sickness, for which he returned the tribute of praise. Ps 103:3. *Samuel Blackerby.* 
 
-**Verse 4.** ( *last clause* ). Saul and Judas each said, "I have sinned; "but David says," I have sinned *against thee." William S. Plumer.* 
+**Verse 4.** (*last clause* ). Saul and Judas each said, "I have sinned; "but David says," I have sinned *against thee." William S. Plumer.* 
 
 **Verses 1, 5.** He that considereth. Mine enemies. Strigelius has observed, there is a perpetual antithesis in this Psalm between the few who have a due regard to the poor in spirit, and the many who afflict or desert them. *W. Wilson, D.D.* 
 
@@ -222,7 +222,7 @@ When the child is persuaded that his father loveth him, he is bold to ask this a
 
 ## Hints to the Village Preacher
 
-**Verse 1.** ( *first clause* ). The incidental blessings resulting from considering the pious poor.
+**Verse 1.** (*first clause* ). The incidental blessings resulting from considering the pious poor.
 
 1\.We learn gratitude.
 
@@ -242,13 +242,13 @@ When the child is persuaded that his father loveth him, he is bold to ask this a
 
 **Verse 2.** *Blessed upon the earth.* What blessings of an earthly character godly character secures, and in general what it is to be blessed with regard to this life.
 
-**Verse 2.** ( *second clause* ). What it is to be delivered *in* trouble. From impatience, from despair, from sinful expedients, from violent attacks, from losing fellowship with God.
+**Verse 2.** (*second clause* ). What it is to be delivered *in* trouble. From impatience, from despair, from sinful expedients, from violent attacks, from losing fellowship with God.
 
 **Verse 3.** Strength in weakness. Inward strength, divinely given, continuously sustained, enduring to the end, triumphant in death, glorifying to God, proving the reality of grace, winning others to the faith.
 
-**Verse 3.** ( *last clause* ). The heavenly bed making.
+**Verse 3.** (*last clause* ). The heavenly bed making.
 
-**Verse 4.** ( *first clause* ). A saying worth repeating: *I said*. It expresses penitence, humility, earnestness, faith, importunity, fear of God, etc.
+**Verse 4.** (*first clause* ). A saying worth repeating: *I said*. It expresses penitence, humility, earnestness, faith, importunity, fear of God, etc.
 
 **Verse 4.** *Heal my soul.* 
 
@@ -262,9 +262,9 @@ When the child is persuaded that his father loveth him, he is bold to ask this a
 
 **Verse 5.** What we may expect. What our enemies desire. What we may therefore prize, *i.e.,* the power of Christian life and name. What we should do—tell the Lord all in prayer. What good will then come of the evil.
 
-**Verse 6.** ( *first clause* ). The folly and sin of frivolous visits.
+**Verse 6.** (*first clause* ). The folly and sin of frivolous visits.
 
-**Verse 6.** ( *second and third clauses* ). Like to like, or the way in which character draws its like to itself. The same subject might be treated under the title of *The Chiffonnier,* or the rag collector. What he gathers; where he puts it—in his *heart*; what he does with it; what he gets for it; and what will become of him.
+**Verse 6.** (*second and third clauses* ). Like to like, or the way in which character draws its like to itself. The same subject might be treated under the title of *The Chiffonnier,* or the rag collector. What he gathers; where he puts it—in his *heart*; what he does with it; what he gets for it; and what will become of him.
 
 **Verses 7-12.** On a sick bed a man discovers not only his enemies and his friends, but himself and his God, more intimately.
 

@@ -156,7 +156,7 @@ As yet the interior fortresses of Edom had not been subdued. Their invading band
 
 **Verse 8.** *Moab is my washpot.* Implying that Moab should be reduced to slavery, it being the business of a slave to present the hand washing basin to his master. With the Greeks, *plunein tina,* to wash down any one, was a slang term, signifying to ridicule, abuse, or beat; hence we have the word *washpot* applied to the subject of such treatment. "You do not appear to be in your right senses, who make a washpot of me in the presence of many men." *Aristophanes. Thomas S. Millington, in "The Testimony of the Heathen to the Truths of Holy Writ,"* 1863.
 
-**Verse 8.** ( *second clause* ). When, keeping in view the idea of washing the feet, a person throws his shoes, which he has taken off, to any one to be taken away or to be cleaned—kylvh with le and also with la, 1Ki 19:19, is *"to throw to any one"* —the individual to whom it belongs to perform such an office must be a slave of the lowest kind. *E. W. Hengstenberg.* 
+**Verse 8.** (*second clause* ). When, keeping in view the idea of washing the feet, a person throws his shoes, which he has taken off, to any one to be taken away or to be cleaned—kylvh with le and also with la, 1Ki 19:19, is *"to throw to any one"* —the individual to whom it belongs to perform such an office must be a slave of the lowest kind. *E. W. Hengstenberg.* 
 
 **Verse 8.** *Over Edom will I cast out my shoe,* which notes either contempt of them, as if he had said, O look upon them as worthy only to scrape and make clean my shoes. Or secondly, conquest over them—I will walk through Edom and subdue it. *Joseph Caryl.* 
 
@@ -166,7 +166,7 @@ As yet the interior fortresses of Edom had not been subdued. Their invading band
 
 **Verse 8.** Of the Philistines he says, *Over Philistia it is mine to boast;* for so I would translate, and not, as is usual, *Philistia, triumph thou over me,* which does not yield a consistent meaning. *Hermann Venema.* 
 
-**Verse 8.** ( *last clause* ). Let not our adversaries triumph over our *breaches.* "Rejoice not against me, O mine enemy." Or, if they will, let them triumph: *Triumph thou, O Philistia, because of me,* or *over me. John Brinsley.* 
+**Verse 8.** (*last clause* ). Let not our adversaries triumph over our *breaches.* "Rejoice not against me, O mine enemy." Or, if they will, let them triumph: *Triumph thou, O Philistia, because of me,* or *over me. John Brinsley.* 
 
 **Verses 8-10.** Moab in the East, Edom in the South, and Philistia in the West (the North is not mentioned, because the banner of David had already been victorious there.) *Augustus F. Tholuck.* 
 
@@ -212,9 +212,9 @@ As yet the interior fortresses of Edom had not been subdued. Their invading band
 
 5\.For what cause. *Because of the truth.* Truth promotes truth.
 
-**Verse 5.** The deliverance of the elect needs a saving God, a mighty God ( *right hand* ), and a prayer hearing God.
+**Verse 5.** The deliverance of the elect needs a saving God, a mighty God (*right hand* ), and a prayer hearing God.
 
-**Verse 5.** ( *last clause* ). *Save... and hear.* The remarkable order of these words suggests that—
+**Verse 5.** (*last clause* ). *Save... and hear.* The remarkable order of these words suggests that—
 
 1\.In the purpose of God.
 

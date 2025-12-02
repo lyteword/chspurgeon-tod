@@ -82,7 +82,7 @@ If we fear God we may dismiss all other fear. In walking in God's ways we shall 
 
 But vain are all such dreams and longings. They are of human, not of Divine origin, and spring from a root of selfishness and not of holiness. They cannot be realized in a fallen world, full of sorrow because full of sin. All blessings in man's economy are got from pains. Happiness is the flower that grows from a thorn of sorrow transformed by man's cultivation. The beautiful myth which placed the golden apples of the Hesperides in a garden guarded by dragons, is an allegory illustrative of the great human fact that not till we have slain the dragons of selfishness and sloth can we obtain any of the golden successes of life. Supposing it were possible that we could obtain the objects of our desire without any toil or trouble, we should not enjoy them. To benefit us really, they must be the growths of our own self denial and labour. And this is the great lesson which the miracles of our Lord, wrought in the manner in which they were, unfolded. They teach us that, in both temporal and spiritual things, we should not so throw ourselves upon the providence or grace of God as to neglect the part we have ourselves to act,—that God crowns every honest and faithful effort of man with success: *"Blessed is every one that feareth the LORD; that walketh in his ways. For thou shalt eat the labour of thine hands: happy shalt thou be, and it shall be well with thee."* — *Hugh Macmillan, in "The Ministry of Nature,"* 1871.
 
-**Verse 2.** ( *first clause* ).
+**Verse 2.** (*first clause* ).
 
 Labour, the symbol of man's punishment;
 
@@ -180,7 +180,7 @@ In the inner part, literally, "the sides of thy house", as in Am 6:10, i.e., the
 
 — *W. H. J. P.* 
 
-**Verse 2.** ( *first clause* ). Success in life.
+**Verse 2.** (*first clause* ). Success in life.
 
 1\.Its source—God's blessing.
 
@@ -190,7 +190,7 @@ In the inner part, literally, "the sides of thy house", as in Am 6:10, i.e., the
 
 4\.The enjoyment. We are permitted to eat or enjoy our labour.
 
-**Verse 2.** ( *second clause* ). Godly happiness.
+**Verse 2.** (*second clause* ). Godly happiness.
 
 1\.Follows upon God's blessing.
 
@@ -200,7 +200,7 @@ In the inner part, literally, "the sides of thy house", as in Am 6:10, i.e., the
 
 4\.It is supported by wellbeing: see following sentence.
 
-**Verse 2.** ( *last clause* ).
+**Verse 2.** (*last clause* ).
 
 1\.It shall be well with thee while thou livest.
 
@@ -238,5 +238,5 @@ In the inner part, literally, "the sides of thy house", as in Am 6:10, i.e., the
 
 — *W. H. J. P.* 
 
-**Verse 6.** ( *last clause* ). Church peace—its excellence, its enemies, its friends, its fruits.
+**Verse 6.** (*last clause* ). Church peace—its excellence, its enemies, its friends, its fruits.
 

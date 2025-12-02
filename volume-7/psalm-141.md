@@ -310,7 +310,7 @@ b) With fervency: "Give ear", etc.
 
 5\.Repaid, by our prayers for them in time of trouble.
 
-**Verse 5.** ( *last clause.* ) "Intercessory Prayer." See" Spurgeon's Sermons", No. 1,049.
+**Verse 5.** (*last clause.*) "Intercessory Prayer." See" Spurgeon's Sermons", No. 1,049.
 
 **Verse 6.** 
 

@@ -198,7 +198,7 @@ Outline of a Sermon entitled "Attachment to Life, "preached by *Joseph Hughes, M
 
 3\.He prays that he may gain much instruction and benefit from the frailties of life. *That I may know,* etc. My frailties may make me more humble, more diligent, while I am able for active service; more dependent upon divine strength, more patient and submissive to the divine will, more ripe for heaven. —G. Rogers.
 
-**Verse 5.** ( *last clause* ). Man is vanity, *i.e.,* he is mortal, he is mutable. Observe how emphatically this truth is expressed here.
+**Verse 5.** (*last clause* ). Man is vanity, *i.e.,* he is mortal, he is mutable. Observe how emphatically this truth is expressed here.
 
 1\. *Every* man is vanity, without exception, high and low, rich and poor.
 
@@ -268,7 +268,7 @@ Outline of a Sermon entitled "Attachment to Life, "preached by *Joseph Hughes, M
 
  *—Matthew Henry.* 
 
-**Verse 12.** ( *last clause* ). Am I a stranger and a sojourner with God? Let me realise, let me exemplify the condition.
+**Verse 12.** (*last clause* ). Am I a stranger and a sojourner with God? Let me realise, let me exemplify the condition.
 
 1\.Let me look for *the treatment* such characters commonly meet with.
 

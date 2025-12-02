@@ -118,15 +118,15 @@ Natural enough is this closing prayer, for what would so effectually convince at
 
 ## Hints to the Village Preacher
 
-*Verse* 1 ( *first clause* ). The folly of atheism. 
+*Verse* 1 (*first clause* ). The folly of atheism. 
 
 **Verse 1.** Atheism of the heart. *Jamieson's Sermons on the* Heart. 
 
-*Verse* 1 ( *whole verse* ). Describe: I. The creed of the fool. II. The fool who holds the creed: or thus, Atheism. I. Its source: *"the heart."* II. Its creed: *"no God."* III. Its fruits: *"corrupt,"* etc. 
+*Verse* 1 (*whole verse* ). Describe: I. The creed of the fool. II. The fool who holds the creed: or thus, Atheism. I. Its source: *"the heart."* II. Its creed: *"no God."* III. Its fruits: *"corrupt,"* etc. 
 
 **Verse 1.** I. The great source of sin—alienation from God. II. Its place of dominion—the heart. III. Its effect upon the intellect— makes man a fool. IV. Its manifestations in the life—acts of commission and omission. 
 
-*Verse* 1 ( *last clause* ). The lantern of Diogenes. Hold it up upon all classes, and denounce their sins. 
+*Verse* 1 (*last clause* ). The lantern of Diogenes. Hold it up upon all classes, and denounce their sins. 
 
 **Verse 2.** I. Condescending search. II. Favoured subjects. III. Generous intentions. 
 
@@ -138,9 +138,9 @@ Natural enough is this closing prayer, for what would so effectually convince at
 
 **Verse 4.** *"Have all the workers of iniquity no* knowledge?"If men rightly knew God, his law, the evil of sin, the torment of hell, and other great truths, would they sin as they do? Or if they know these and yet continue in their iniquities, how guilty and foolish they are! Answer the question both positively and negatively, and it supplies material for a searching discourse. 
 
-*Verse* 4 ( *first clause* ). The crying sin of transgressing against light and knowledge. 
+*Verse* 4 (*first clause* ). The crying sin of transgressing against light and knowledge. 
 
-*Verse* 4 ( *last clause* ). Absence of prayer, a sure mark of a graceless state. 
+*Verse* 4 (*last clause* ). Absence of prayer, a sure mark of a graceless state. 
 
 **Verse 5.** The foolish fears of those who have no fear of God. 
 

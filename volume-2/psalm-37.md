@@ -404,9 +404,9 @@ Melodious hymns shall chant.
 
 A few practical remarks: 1. Our *"resting patiently"* in the Lord applies only to the trials which he sends, not to the troubles which even Christians often make for themselves. There is a difference in the burdens that come in the way of duty, and those that come through our wandering into other ways. We can roll the one upon the Lord, but with the other our punishment may be to be left to bear them long, and to be bruised in bearing them. 2. The duty here enjoined is to be carried through all our life. We all admit that *patient* waiting is needed for the great trials of life, but may not acknowledge so readily that it is needed as much for little, daily, commonplace vexations. But these are as much a test of Christian principle as the other. 3. This resting in God is a criterion of a man's spiritual state. It needs a special faculty of discernment, a new sense to be opened in the soul, before our fallen nature can understand or desire it. *James D. Burns, M.A.* 
 
-**Verse 7.** ( *first clause* ). *Hold thee still* (so it may be translated). And this is the hardest precept that is given to man; insomuch that the most difficult precept of action sinks into nothing when compared with this command to inaction. *Jerome.* 
+**Verse 7.** (*first clause* ). *Hold thee still* (so it may be translated). And this is the hardest precept that is given to man; insomuch that the most difficult precept of action sinks into nothing when compared with this command to inaction. *Jerome.* 
 
-**Verse 7.** ( *first clause* ). The Hebrew word rendered *silent* is (owr), *dom,* from which the English word *dumb* appears to be derived. The silence here enjoined is opposed to murmuring or complaining. *James Anderson, in Calvin's Commentary.* 
+**Verse 7.** (*first clause* ). The Hebrew word rendered *silent* is (owr), *dom,* from which the English word *dumb* appears to be derived. The silence here enjoined is opposed to murmuring or complaining. *James Anderson, in Calvin's Commentary.* 
 
 **Verse 7.** Note again the twin duties, *rest* and *wait*.
 
@@ -510,7 +510,7 @@ On the contrary, the good man *is merciful, and lendeth; and his seed is blessed
 
 **Verse 31.** *The law of his God is in his heart,* etc. The flock of sheep that's indisposed and unwilling to drive, start out of the way into every lane's end, one this way and another that; and just so is it with an unwilling heart; one thought starts this way, and another that, and it's a piece of skill to drive them through. But a willing heart, a heart prepared and ready to every good work, it flies quite up an end, and delights itself in the Lord. *Richard Steele.* 
 
-**Verse 31.** ( *first clause* ). He hath a Bible in his head, and another in his heart; he hath a good treasure within, and there hence bringeth good things. *John Trapp.* 
+**Verse 31.** (*first clause* ). He hath a Bible in his head, and another in his heart; he hath a good treasure within, and there hence bringeth good things. *John Trapp.* 
 
 **Verses 32-33.** The Jews *watched* that Just One daily and hourly; they *sought to slay him,* and did so; but *Jehovah left him not in their hands,* but vindicated his innocence by raising him from the dead. *George Horne.* 
 
@@ -522,7 +522,7 @@ On the contrary, the good man *is merciful, and lendeth; and his seed is blessed
 
 **Verse 35.** *Green bay tree.* The LXX translate (Nner xrzak) as if it were (Nnbl xrzak), "Like the cedar of Lebanon; "but (Nner xrza) according to Delitzsch, means a noble timber tree, one that in the course of centuries of growth has acquired a gigantic trunk, and an umbrageous, dome like crown.
 
-**Verse 35.** *Green bay tree.* The marginal rendering—"a tree that groweth in his own soil"—is, no doubt, the true one. The idea generally formed of this passage by the reader of the English Bible is that the tree referred to was the bay laurel ( *Prunus laurocerasus* ), or cherry laurel of our gardens. But this plant belongs to an entirely different family. The bay and the Portugal laurels, whose forms of growth and evergreen leaves make them highly ornamental in shrubberies, belong to a subfamily ( *Drupaceae*, Lind.) of the rose tribe ( *Rosaceae* ), but the bay tree proper, which flourisheth luxuriantly in Southern Europe, is the type of the laurel family ( *Lauraceae* ). Several circumstances make it unlikely that the true bay tree represents the Hebrew *esrach.* There is no evidence that it was ever so plentiful in Palestine as to be chosen by the psalmist in an illustration in a poem for popular use. It is indeed to be met with, but that chiefly in localities on the borders of the eastern shore of the Great Sea. The chief objection to the supposition that the bay tree was referred to by the royal poet is to be found in the Psalm itself. Having mentioned it in the lines quoted above, he adds, "Yet he passed away, and, lo, he was not: yea, I sought him, but he could not be found." The idea here is not one which could be represented and illustrated by an evergreen plant, slow of growth, and yet reaching in maturity a height of above thirty feet. The words demand a quick growing tree, in a soil more than usually favourable to its growth. Thus planted, and shooting up in calm and sunshine, it would attract every eye; but when the storm broke over it, when the strong wind swept imperiously through its branches, it would not stand. Torn up by the root, and its timber comparatively useless, like Abraham's dead, it would be buried out of sight. And thus with the wicked. He was sought and could not be found. *John Duns, D.D., F.R.S.E., in "Biblical Natural Science."* 
+**Verse 35.** *Green bay tree.* The marginal rendering—"a tree that groweth in his own soil"—is, no doubt, the true one. The idea generally formed of this passage by the reader of the English Bible is that the tree referred to was the bay laurel (*Prunus laurocerasus* ), or cherry laurel of our gardens. But this plant belongs to an entirely different family. The bay and the Portugal laurels, whose forms of growth and evergreen leaves make them highly ornamental in shrubberies, belong to a subfamily (*Drupaceae*, Lind.) of the rose tribe (*Rosaceae* ), but the bay tree proper, which flourisheth luxuriantly in Southern Europe, is the type of the laurel family (*Lauraceae* ). Several circumstances make it unlikely that the true bay tree represents the Hebrew *esrach.* There is no evidence that it was ever so plentiful in Palestine as to be chosen by the psalmist in an illustration in a poem for popular use. It is indeed to be met with, but that chiefly in localities on the borders of the eastern shore of the Great Sea. The chief objection to the supposition that the bay tree was referred to by the royal poet is to be found in the Psalm itself. Having mentioned it in the lines quoted above, he adds, "Yet he passed away, and, lo, he was not: yea, I sought him, but he could not be found." The idea here is not one which could be represented and illustrated by an evergreen plant, slow of growth, and yet reaching in maturity a height of above thirty feet. The words demand a quick growing tree, in a soil more than usually favourable to its growth. Thus planted, and shooting up in calm and sunshine, it would attract every eye; but when the storm broke over it, when the strong wind swept imperiously through its branches, it would not stand. Torn up by the root, and its timber comparatively useless, like Abraham's dead, it would be buried out of sight. And thus with the wicked. He was sought and could not be found. *John Duns, D.D., F.R.S.E., in "Biblical Natural Science."* 
 
 **Verse 35.** We see no force in the observation of Dr. Duns; in fact, if there were not other reasons for preferring the translation given in the following note by Wilson, we should see all the more reason to keep to the bay tree. It was a tree of permanence and of long continued verdure, and so the prosperous wicked seem to be. They look as if their happiness would be eternal; yet, for all that, those who carefully note the dealings of providence, observe with holy wonder that divine justice cuts short their glory, and they perish utterly. *C. H. S.* 
 
@@ -602,7 +602,7 @@ Luther closes his Exposition of the Psalm with the words, Oh, shame on our faith
 
 4\.His certainty of provision.
 
-**Verse 3.** ( *last clause* ). Read it in four ways.
+**Verse 3.** (*last clause* ). Read it in four ways.
 
 1\."Certainly fed, "or the certainty of supply.
 
@@ -702,7 +702,7 @@ James Smith.
 
 4\.The reasons declared.
 
-**Verse 17.** ( *last clause* ).
+**Verse 17.** (*last clause* ).
 
 1\.The favoured persons.
 
@@ -724,7 +724,7 @@ James Smith.
 
 —William Jay.
 
-**Verse 18** ( *last clause* ). What it is. How they come by it. How long they hold it.
+**Verse 18** (*last clause* ). What it is. How they come by it. How long they hold it.
 
 **Verse 19.** Good words for hard times.
 
@@ -792,9 +792,9 @@ What may be. What cannot be. What shall be.
 
 **Verse 34.** Patient faith, persevering holiness, and promised exaltation.
 
-**Verse 34** ( *last clause* ). Emotions caused in the godly by a sight of the sinner's doom.
+**Verse 34** (*last clause* ). Emotions caused in the godly by a sight of the sinner's doom.
 
-**Verse 34.** ( *last clause* ). The wicked are often cut off 1. Even *in life*, from their places, and riches, and prospects. 2. At *death* they are cut off from all their possessions and comforts. 3. In *the last day* they will be cut off from "the resurrection of life." *William Jay.* 
+**Verse 34.** (*last clause* ). The wicked are often cut off 1. Even *in life*, from their places, and riches, and prospects. 2. At *death* they are cut off from all their possessions and comforts. 3. In *the last day* they will be cut off from "the resurrection of life." *William Jay.* 
 
 **Verses 35-37.** Three memorable scenes.
 

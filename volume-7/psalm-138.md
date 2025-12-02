@@ -228,7 +228,7 @@ c) By exhibiting the strength in soul which was given in answer to prayer.
 
 2\.They are to be presented with an eye to God in Christ, for he is the temple: the place of divine indwelling, sacrifice, intercession, priesthood, oracle, and manifestation.
 
-**Verse 2.** ( *first clause* ).—
+**Verse 2.** (*first clause* ).—
 
 1\.The soul's noblest attitude: "Toward thy temple."
 
@@ -336,7 +336,7 @@ c) As a preparation to eternally honouring him.
 
 — *W.B.H.* 
 
-**Verse 7.** ( *first clause* ).
+**Verse 7.** (*first clause* ).
 
 1\.The Psalmist's dismal excursion: walking "in the midst of trouble"; this is not a spectator, but one assailed. Troubles—personal, social, ecclesiastical, national.
 
@@ -366,7 +366,7 @@ b) Their deliverance is complete.— *G.R.*
 
 3\.The flask to the lips: "thou wilt revive me." Sweet awakening to know the beauty of his face and strength of his hand!— *W.B.H.* 
 
-**Verse 7.** ( *third clause* ). Right hand salvation.
+**Verse 7.** (*third clause* ). Right hand salvation.
 
 1\.It shall be wrought of God.
 
@@ -374,13 +374,13 @@ b) Their deliverance is complete.— *G.R.*
 
 3\.His utmost dexterity shall be displayed.
 
-**Verse 8.** ( *first clause* ).
+**Verse 8.** (*first clause* ).
 
 1\.A wide subject "That which concerneth me." Not necessarily that which gives me concern.
 
 2\.A promise that covers it: "the Lord will perfect."— *A.G.B.* 
 
-**Verse 8.** ( *first and last clauses* ). Faith in divine purpose no hindrance to prayer, but rather an encouragement in it: "The Lord will perfect." "Forsake not."— *A.G.B* 
+**Verse 8.** (*first and last clauses* ). Faith in divine purpose no hindrance to prayer, but rather an encouragement in it: "The Lord will perfect." "Forsake not."— *A.G.B* 
 
 **Verse 8.** See "Spurgeon's Sermons", Nos. 231 and 1506: "Faith in Perfection", and, "Choice Comfort for a Young Believer."
 

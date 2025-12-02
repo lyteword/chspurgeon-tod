@@ -130,7 +130,7 @@ How wealthy is the place of every believer, and how doubly does he feel it to be
 
 **Verse 3.** *Thine enemies submit themselves.* Literally, *lie unto thee.* This was remarkably the case with *Pharaoh* and the *Egyptians.* They promised again and again to let the people go, when the hand of the Lord was upon them; and they as frequently falsified their word. *Adam Clarke.* 
 
-**Verse 3.** ( *second clause* ). In times of affliction every hypocrite—all tag and rag—will be ready to come in to God in an outward profession; but usually this submission to God at this time is not out of truth. Hence it is said, *Through the greatness of thy power shall thine enemies submit themselves unto thee:* in the original it is, *they shall lie unto thee,* and so it is translated by Arias Montanus, and some others, noting hereby that a forced submission to God is seldom in truth. *Jeremiah Burroughs.* 
+**Verse 3.** (*second clause* ). In times of affliction every hypocrite—all tag and rag—will be ready to come in to God in an outward profession; but usually this submission to God at this time is not out of truth. Hence it is said, *Through the greatness of thy power shall thine enemies submit themselves unto thee:* in the original it is, *they shall lie unto thee,* and so it is translated by Arias Montanus, and some others, noting hereby that a forced submission to God is seldom in truth. *Jeremiah Burroughs.* 
 
 **Verse 3.** The earthquakes in New England occasioned a kind of religious panic. A writer, who was then one of the ministers of Boston, informs us, that immediately after the great earthquake, as it was called, a great number of his flock came and expressed a wish to unite themselves with the church. But, on conversing with them, he could find no evidence of improvement in their religious views or feelings, no convictions of their own sinfulness; nothing, in short, but a kind of superstitious fear, occasioned by a belief that the end of the world was at hand. All their replies proved that they had not found God, though they had seen *the greatness of his power* in the earthquake. *Edward Payson, D.D.* 
 
@@ -174,7 +174,7 @@ How wealthy is the place of every believer, and how doubly does he feel it to be
 
 3\. *Over our heads.* Is it not contentment enough to their pride to *ride,* to their malice to ride *over us,* but must they delight in bloodiness to ride over our *heads?* Will not the breaking of our arms and legs, and such inferior limbs, satisfy their indignation? Is it not enough to rack our strength, to mock our innocence, to prey on our estates, but must they thirst after our bloods and lives? *Quo tendit saeva libido?* Whither will their madness run? But we must not tie ourselves to the letter. Here is a mystical or metamorphical gradation of their cruelty. Their riding is proud; their riding over us is malicious; and their riding over our heads is bloody oppression. *Thomas Adams.* 
 
-**Verse 12.** ( *first clause* ). The time was when the Bonners and butchers rode over the faces of God's saints, and madefied (Madefy, to moisten, to make wet) the earth with their bloods, every drop whereof begot a new believer. *Thomas Adams.* 
+**Verse 12.** (*first clause* ). The time was when the Bonners and butchers rode over the faces of God's saints, and madefied (Madefy, to moisten, to make wet) the earth with their bloods, every drop whereof begot a new believer. *Thomas Adams.* 
 
 **Verse 12.** *Thou hast caused men to ride over our heads.* This verse is like that sea (Mt 8:24) so tempestuous at first, that the vessel was covered with waves; but Christ's rebuke quieted all, and there followed a great calm. Here are cruel Nimrods riding over innocent heads, as they would over fallow lands; and dangerous passages through fire and water; but the storm is soon ended, or rather the passengers are landed. *Thou broughtest us out into a wealthy place.* So that this strain of David's music, or psalmody, consists of two notes—one mournful, the other mirthful; the one a touch of distress, the other of redress: which directs our course to an observation of *misery* and of *mercy;* of grievous misery, of gracious mercy. There is desolation and consolation in one verse: a deep dejection, as laid under the feet of beasts; a happy deliverance, *broughtest us out into a wealthy place.* In both these strains God hath his stroke; he is a principal in this concert. He is brought in for an *actor,* and for an *author;* and actor in the persecution, and author in the deliverance. *Thou causest,* etc; *Thou broughtest,* etc. In the one he is a causing worker; in the other a sole working cause. In the one he is joined with company: in the other he works alone. He hath a finger in the former; his whole hand is in the latter. We must begin with *misery* before we come to *mercy.* If there were no trouble, we should not know the worth of a deliverance. The passion of the saints is given, by the hearty and ponderous description, for very grievous; yet it is written in the forehead of the text, "The Lord caused it." *Thou causest men to ride,* etc. Hereupon, some wicked libertine may offer to rub his filthiness upon God's purity, and to plead an authentic derivation of all his villainy against the saints from the Lord's warrant: *He caused it.* We answer, to the justification of truth itself, that God doth ordain and order every persecution that striketh his children, without any allowance to the instrument that gives the blow. God works in the same action with others, not after the same manner. In the affliction of Job were three agents—God, Satan, and the Sabeans. The devil works on his body, the Sabeans on his goods; yet Job confessed a third party: "The Lord gives, and the Lord takes away." Here oppressors trample on the godly, and God is said to cause it. He causeth affliction for trial (so Ps 66:10-11: *Thou hast tried us,* etc.); they work it for malice; neither can God be accused nor they excused. *Thomas Adams.* 
 
@@ -212,13 +212,13 @@ Their solemn oath they knew not of the deed."
 
 So there is the deliverer, *aliquid celsitudinis, Thou; * in the delivery, *certitudinis, broughtest out, * in the delivered, *solitudinis, us; * in the happiness, *plenitudinis, into a wealthy place.* There is highness and lowness, sureness and fulness. The deliverer is great, the deliverance is certain, the distress grievous, the exaltation glorious. There is yet a first word, that like a key unlocks this golden gate of mercy, a *veruntamen:—* BUT. This is *vox respirationis,* a gasp that fetcheth back again the very life of comfort. *But thou broughtest, * etc. We were fearfully endangered into the hands of our enemies; they rode and trod upon us, and drove us through hard perplexities. *But thou, * etc. If there had been a full point or period at our misery, if those gulfs of persecution had quite swallowed us, and all our light of comfort had been thus smothered and extinguished we might have cried, *Periit spes nostra,* yea, *periit salus nostra.* —Our hope, our help is *quite* gone. He had mocked us that would have spoken, Be of good cheer. This same *but* is like a happy oar, that turns our vessel from the rocks of despair, and lands it at the haven of comfort. *Thomas Adams.* 
 
-**Verse 12.** ( *second and third clause* ).
+**Verse 12.** (*second and third clause* ).
 
 1\.The outlet of the trouble is happy. They are in fire and water, yet they get through them; we went through fire and water, and did not perish in the flames or floods. Whatever the troubles of the saints are, blessed be God there is a way through them.
 
 2\.The inlet to a better state is much more happy. *Thou broughtest us out into a wealthy place,* into a well watered place; for the word is, *like the gardens of the Lord,* and therefore fruitful. *Matthew Henry.* 
 
-**Verse 12.** ( *last clause* ). Thou, O God, with the temptation hast given the issue. *Thou broughtest us out into a wealthy place.* 
+**Verse 12.** (*last clause* ). Thou, O God, with the temptation hast given the issue. *Thou broughtest us out into a wealthy place.* 
 
 1\.Thou hast proved, and thou hast brought.
 
@@ -326,7 +326,7 @@ So there is the deliverer, *aliquid celsitudinis, Thou; * in the delivery, *cert
 
 **Verse 7.** Sovereignty, immutability ("for ever"), and omniscience,—the enemies of proud rebels.
 
-**Verse 8.** ( *last clause* ). To get a hearing for the gospel—difficult, necessary, and possible. Ways and means for so doing.
+**Verse 8.** (*last clause* ). To get a hearing for the gospel—difficult, necessary, and possible. Ways and means for so doing.
 
 **Verses 8-9.** 
 
@@ -400,13 +400,13 @@ Or
 
 7\.Create capacity for the varied joys of heaven.
 
-**Verse 12.** ( *first clause* ). The rage of oppression. *Thomas Adam's Sermon.* 
+**Verse 12.** (*first clause* ). The rage of oppression. *Thomas Adam's Sermon.* 
 
-**Verse 12.** ( *last clause* ). A plentiful place, free from penury; a pleasant place, void of sorrow; a safe place, free from dangers and distresses. *Daniel Wilcocks.* 
+**Verse 12.** (*last clause* ). A plentiful place, free from penury; a pleasant place, void of sorrow; a safe place, free from dangers and distresses. *Daniel Wilcocks.* 
 
-**Verse 12.** ( *last clause* ). The victory of patience, with the expiration of malice. *Thomas Adams' Sermon.* 
+**Verse 12.** (*last clause* ). The victory of patience, with the expiration of malice. *Thomas Adams' Sermon.* 
 
-**Verse 12.** ( *last clause* ). The wealth of a soul whom God has tried and delivered. Among other riches he has the wealth of experience, of strengthened graces, of confirmed faith, and of sympathy for others.
+**Verse 12.** (*last clause* ). The wealth of a soul whom God has tried and delivered. Among other riches he has the wealth of experience, of strengthened graces, of confirmed faith, and of sympathy for others.
 
 **Verse 13.** God's house; or, the place of praises. *Thomas Adams' Sermon.* 
 

@@ -484,7 +484,7 @@ In infinite progression.
 
 **Verse 13.** *Thou hast possessed my reins.* The *reins* are made specially prominent in order to mark them, the seat of the most tender, most secret emotions, as the work of him who trieth the heart and the reins.— *Franz Delitzsch.* 
 
-**Verse 13.** *Thou hast covered me in my mother's womb.* The word here rendered *cover* means properly to interweave; to weave; to knit together, and the literal translation would be, "Thou hast woven me in my mother's womb", meaning that God had put his parts together, as one who weaves cloth, or who makes a basket. So it is rendered by De Wette and by Gesenius ( *Lex.* ). The original word has, however, also the idea of protecting, as in a booth or hut, woven or knit together,—to wit, of boughs and branches. The former signification best suits the connection; and then the sense would be, that as God had made him—as he had formed his members, and united them in a bodily frame and form before he was born—he must be able to understand all his thoughts and feelings. As he was not concealed from God before he saw the light, so he could not be anywhere.— *Albert Barnes.* 
+**Verse 13.** *Thou hast covered me in my mother's womb.* The word here rendered *cover* means properly to interweave; to weave; to knit together, and the literal translation would be, "Thou hast woven me in my mother's womb", meaning that God had put his parts together, as one who weaves cloth, or who makes a basket. So it is rendered by De Wette and by Gesenius (*Lex.* ). The original word has, however, also the idea of protecting, as in a booth or hut, woven or knit together,—to wit, of boughs and branches. The former signification best suits the connection; and then the sense would be, that as God had made him—as he had formed his members, and united them in a bodily frame and form before he was born—he must be able to understand all his thoughts and feelings. As he was not concealed from God before he saw the light, so he could not be anywhere.— *Albert Barnes.* 
 
 **Verse 14.** *I will praise thee*, etc. All God's works are admirable, man wonderfully wonderful. "Marvellous are thy works; and that my soul knoweth right well." What infers he on all this? Therefore *"I will praise thee."* If we will not praise him that made us, will he not repent that he made us? Oh that we knew what the saints do in heaven, and how the sweetness of that doth swallow up all earthly pleasures! They sing honour and glory to the Lord. Why? Because he hath created all things: Re 4:11. When we behold an exquisite piece of work, we presently enquire after him that made it, purposely to commend his skill: and there is no greater disgrace to an artist, than having perfected a famous work, to find it neglected, no man minding it, or so much as casting an eye upon it. All the works of God are considerable, and man is bound to this contemplation. "When I consider the heavens", etc., I say, "What is man?." Ps 8:3-4. He admires the heavens, but his admiration reflects upon man. *Quis homo?* There is no workman but would have his instruments used, and used to that purpose for which they were made...Man is set like a little world in the midst of the great, to glorify God; this is the scope and end of his creation.— *Thomas Adams.* 
 
@@ -564,7 +564,7 @@ Whoever observes this (in truth he will not be able to observe it in the common 
 
 **Verses 17-18.** Mercies are either ordinary or extraordinary—our common necessaries, or the remarkable supplies which we receive now and then at the hand of God. Thou must not only praise him for some extraordinary mercy, that comes with such pomp and observation that all thy neighbours take notice of it with thee, as the mercy which Zacharias and Elizabeth had in their son, that was noised about all the country (Lu 1:65); but also for ordinary every day mercies: for first, we are unworthy of the least mercy (Ge 32:10), and therefore God is worthy of praise for the least, because it is more than he owes us. Secondly, these common, ordinary mercies are many. Thus David enhances the mercies of this kind,— *O God, how great is the sum of them.* "If I should count them, they are more in number than the sand; when I wake I am still with thee." As if he had said, There is not a point of time wherein thou art not doing me good; as soon as I open my eyes in the morning I have a new theme, in some fresh mercies given since I closed them over night, to employ my meditations that are full of praise. Many little items make together a great sum. What is lighter than a grain of sand, yet what is heavier than the sand upon the seashore? As little sins (such as vain thoughts and idle words), because of their multitude, arise to a great guilt, and will bring in a long bill, a heavy reckoning at last; so, ordinary mercies, what they want in their size of some other great mercies, have compensated it in their number. Who will not say that a man shows greater kindness in maintaining one at his table with ordinary fare all the year than in entertaining him at a great feast twice or thrice in the same time?— *William Gurnall.* 
 
-**Verse 18.** *They are more in number than the sand.* Pindar says, that sand flies number ( *Olymp. Ode 2* ). The Pythian oracle indeed boastingly said, I know the number of the sand, and the measure of the sea ( *Herodot. Clio.* l. i. c. 47). It is to this that Lucan may refer when he says, measure is not wanting to the ocean, or number to the sand ( *Pharsal.* l. 5, v. 182).— *Samuel Burder.* 
+**Verse 18.** *They are more in number than the sand.* Pindar says, that sand flies number (*Olymp. Ode 2* ). The Pythian oracle indeed boastingly said, I know the number of the sand, and the measure of the sea (*Herodot. Clio.* l. i. c. 47). It is to this that Lucan may refer when he says, measure is not wanting to the ocean, or number to the sand (*Pharsal.* l. 5, v. 182).— *Samuel Burder.* 
 
 **Verse 18.** *If I should count them, they are more in number than the sand.* 
 
@@ -712,9 +712,9 @@ c) Produces carefulness of conduct.— *J.F.*
 
 4\.To our words: Ps 139:4. It has been said that the words of all men and from all time are registered in the atmosphere, and may be faithfully recalled. Whether it be so or not, they are phonographed in the mind of God.— *G.R.* 
 
-**Verse 2.** ( *first clause* ). The importance of the commonest acts of life.
+**Verse 2.** (*first clause* ). The importance of the commonest acts of life.
 
-**Verse 2.** ( *second clause* ). The serious nature of thoughts. Known to God; seen through, their drift perceived; and attention given to them while as yet in the distance.
+**Verse 2.** (*second clause* ). The serious nature of thoughts. Known to God; seen through, their drift perceived; and attention given to them while as yet in the distance.
 
 **Verse 3.** The encircling Presence, in our activities, meditations, secrecies, and movements.
 
@@ -902,5 +902,5 @@ b) With a desire for the help of God: Ps 139:23. Look me through, and through, a
 
 2\.The everlasting way. There is but one, we need leading in it. It is the good old way, it does not come to an end, it leads to blessedness without end.
 
-**Verse 24.** ( *last clause* ).—See "Spurgeon's Sermons," No. 903: "The Way Everlasting."
+**Verse 24.** (*last clause* ).—See "Spurgeon's Sermons," No. 903: "The Way Everlasting."
 

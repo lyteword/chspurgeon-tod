@@ -116,7 +116,7 @@ The natural result of oppression is the destruction of the despot; his own iniqu
 
 **Verse 1.** I do not think that we sufficiently attend to the distinction that exists between revenge and vengeance. "Revenge, "says Dr. Johnson, "is an act of passion, vengeance of justice; injuries are revenged, crimes avenged." And it is from not attending to this essential distinction that the scorner has been led into such profane remarks, as if there were a vindictive spirit in the Almighty, and as if he found delight in wreaking vengeance on an adversary. The call which the psalmist here makes on God as a God to whom vengeance belongeth, is no other than if he had said, "O God, to whom justice belongeth!" Vengeance indeed is not for man, because with man's feelings and propensities it would ever degenerate into revenge. "I wilt be even with him, "says nature; "I will be above him, "says grace. *Barton Bouchier.* 
 
-**Verse 1.** The two divine names ( *El* and *Jehovah* ,— *God* and *Lord* ) recognize God as almighty, eternal, self existent, bound by covenant to his people, and alone entitled to take vengeance. *J. A. Alexander.* 
+**Verse 1.** The two divine names (*El* and *Jehovah* ,— *God* and *Lord*) recognize God as almighty, eternal, self existent, bound by covenant to his people, and alone entitled to take vengeance. *J. A. Alexander.* 
 
 **Verses 1-6.** 
 

@@ -128,7 +128,7 @@ Here we enter upon one of the most wonderful passages in the whole of the Old Te
 
 **Verse 6.** John Calvin, in treating upon the interpretation, "mine ears hast thou bored, "says, "this mode of interpretation appears to be too forced and refined."
 
-**Verse 6.** *Mine ears hast thou opened.* If it is to be said that the apostle to the Hebrews read this differently, I answer, this does not appear to me. It is true, he found a different, but corrupted translation ( *wtia, ears,* as the learned have observed, having been changed into *swma, body* ) in the LXX, which was the version then in use; and he was obliged to quote it as he found it, under the penalty, if he altered it, of being deemed a false quoter. He therefore took the translation as he found it, especially as it served to illustrate his argument equally well. Upon this quotation from the LXX the apostle argues, Ps 40:9, "He, (Christ) taketh away the first (namely, legal sacrifices), that he may establish the second" (namely, obedience to God's will), in offering himself a sacrifice for the sins of mankind; and thus he must have argued upon a quotation for the Hebrew text as it stands at present. *Green, quoted in S. Burder's "Scripture Expositor."* 
+**Verse 6.** *Mine ears hast thou opened.* If it is to be said that the apostle to the Hebrews read this differently, I answer, this does not appear to me. It is true, he found a different, but corrupted translation (*wtia, ears,* as the learned have observed, having been changed into *swma, body*) in the LXX, which was the version then in use; and he was obliged to quote it as he found it, under the penalty, if he altered it, of being deemed a false quoter. He therefore took the translation as he found it, especially as it served to illustrate his argument equally well. Upon this quotation from the LXX the apostle argues, Ps 40:9, "He, (Christ) taketh away the first (namely, legal sacrifices), that he may establish the second" (namely, obedience to God's will), in offering himself a sacrifice for the sins of mankind; and thus he must have argued upon a quotation for the Hebrew text as it stands at present. *Green, quoted in S. Burder's "Scripture Expositor."* 
 
 **Verse 6.** The apostle's reading Heb 10:5, though it be far distant from the letter of the Hebrew, and in part from the LXX (as I suppose it to have been originally), yet is the most perspicuous interpretation of the meaning of it: *Christ's body* comprehended the *ears,* and that assumed on purpose to perform in it the utmost degree of obedience to the will of God, to be obedient even to death, and thereby to be as the priest. *Henry Hammond.* 
 
@@ -148,7 +148,7 @@ And opens my willing ear.
 
  *—* *James Merrick, M.A.,* 1720-1769.
 
-**Verses 6-7.** In these words an allusion is made to a custom of the Jews *to bore the ears* of such as were to be their perpetual servants, and *to enrol their names in a book*, or make some instrument of the covenant. "Sacrifices and burnt offerings thou wouldst not have; "but because I am thy vowed servant, bored with an awl, and enrolled in thy book, *I said, Lo, I come; I delight to do thy will, O my God.* These words of the Psalm are alleged by S. Paul, Hebrews 10. But the first of them with a most strange difference. For whereas the psalmist hath, according to the Hebrew verity, *Sacrifice and burnt offering thou wouldst not: mine ears thou hast bored or digged,* (tyrn); S. Paul reads with the LXX, *swma kathrtisw moi, "A body thou hast prepared* or *fitted me."* What equipollency can be in sense between these two? This difficulty is so much the more augmented because most interpreters make the life of the quotation to lie in those very words where the difference is, namely, That the words, *"A body thou hast prepared* me, "are brought by the apostle to prove our Saviour's incarnation; whereunto the words in the Psalm itself ( *Mine ears hast thou bored*, or *digged,* or *opened* ), take them how you will in no wise suit. I answer, therefore, That the life of the quotation lies not in the words of difference, nor can do, because this epistle was written to the Hebrews, and so first in the Hebrew tongue, where this translation of the LXX could have no place. And if the life of the quotation lay here, I cannot see how it can possibly be reconciled. It lies therefore in the words where there is no difference, namely, That Christ was such a High Priest as came to sanctify us, not with the legal offerings and sacrifices, but by his obedience in doing like a devoted servant the will of his Father. Thus, the allegation will not depend at all upon the words of difference, and so they give us liberty to reconcile them: *Mine ears hast thou bored,* saith the psalmist, *i.e.,* Thou hast accepted me for a perpetual servant, as masters are wont, according to the law, to *bore* such servants' *ears* as refuse to part from them. Now the LXX, according to whom the apostle's epistle readeth, thinking perhaps the meaning of this speech would be obscure to such as knew not that custom, chose rather to translate it generally *swma de katertisw moi, "Thou hast fitted my body, "* namely, to be thy servant, in such a manner as servants' bodies are wont to be. And so the sense is all one, though not specified to the Jewish custom of boring the ear with an awl, but left indifferently applicable to the custom of any nation in marking and stigmatising their servants' bodies. *Joseph Mede, B.D.,* 1586-1638.
+**Verses 6-7.** In these words an allusion is made to a custom of the Jews *to bore the ears* of such as were to be their perpetual servants, and *to enrol their names in a book*, or make some instrument of the covenant. "Sacrifices and burnt offerings thou wouldst not have; "but because I am thy vowed servant, bored with an awl, and enrolled in thy book, *I said, Lo, I come; I delight to do thy will, O my God.* These words of the Psalm are alleged by S. Paul, Hebrews 10. But the first of them with a most strange difference. For whereas the psalmist hath, according to the Hebrew verity, *Sacrifice and burnt offering thou wouldst not: mine ears thou hast bored or digged,* (tyrn); S. Paul reads with the LXX, *swma kathrtisw moi, "A body thou hast prepared* or *fitted me."* What equipollency can be in sense between these two? This difficulty is so much the more augmented because most interpreters make the life of the quotation to lie in those very words where the difference is, namely, That the words, *"A body thou hast prepared* me, "are brought by the apostle to prove our Saviour's incarnation; whereunto the words in the Psalm itself (*Mine ears hast thou bored*, or *digged,* or *opened* ), take them how you will in no wise suit. I answer, therefore, That the life of the quotation lies not in the words of difference, nor can do, because this epistle was written to the Hebrews, and so first in the Hebrew tongue, where this translation of the LXX could have no place. And if the life of the quotation lay here, I cannot see how it can possibly be reconciled. It lies therefore in the words where there is no difference, namely, That Christ was such a High Priest as came to sanctify us, not with the legal offerings and sacrifices, but by his obedience in doing like a devoted servant the will of his Father. Thus, the allegation will not depend at all upon the words of difference, and so they give us liberty to reconcile them: *Mine ears hast thou bored,* saith the psalmist, *i.e.,* Thou hast accepted me for a perpetual servant, as masters are wont, according to the law, to *bore* such servants' *ears* as refuse to part from them. Now the LXX, according to whom the apostle's epistle readeth, thinking perhaps the meaning of this speech would be obscure to such as knew not that custom, chose rather to translate it generally *swma de katertisw moi, "Thou hast fitted my body, "* namely, to be thy servant, in such a manner as servants' bodies are wont to be. And so the sense is all one, though not specified to the Jewish custom of boring the ear with an awl, but left indifferently applicable to the custom of any nation in marking and stigmatising their servants' bodies. *Joseph Mede, B.D.,* 1586-1638.
 
 **Verses 6-10.** Here we have in Christ for our instruction, and in David also (his type) for our example; 1. A firm purpose of obedience, in a *bored ear*, and a yielding heart. 2. A ready performance thereof: *Lo, I come.* 3. A careful observance of the word written: *In the volume of the Book it is written of me*, Ps 40:7. 4. A hearty delight in that observance, Ps 40:8. 5. A public profession and communication of God's goodness to others, Ps 40:9-10. Now, we should labour to express Christ to the world, to walk as he walked 1Jo 2:6: our lives should be in some sense parallel with his life, as the transcript with the original: he left us a copy to write by, saith St. Peter, 1Pe 2:21. *John Trapp.* 
 
@@ -240,7 +240,7 @@ But the dearest connexion in the world cannot be always thinking upon you. Half 
 
 **Verse 3.** The new song, the singer, the teacher.
 
-**Verse 4.** ( *last clause* ).
+**Verse 4.** (*last clause* ).
 
 1\.Find out who turn aside to lies—Atheists, Papists, self righteous, lovers of sin.
 
@@ -296,7 +296,7 @@ But the dearest connexion in the world cannot be always thinking upon you. Half 
 
 **Verse 9.** Referring to our Lord; a great preacher, a great subject, a great congregation, and his great faithfulness in the work.
 
-**Verse 10.** ( *first clause* ).
+**Verse 10.** (*first clause* ).
 
 1\.The righteousness *possessed* by God.
 
@@ -354,7 +354,7 @@ Hide me, O Gethsemane!"
 
 **Verse 12.** Compare this with Ps 40:5. The number of our sins, and the number of his thoughts of love.
 
-**Verse 12.** ( *second clause* ).
+**Verse 12.** (*second clause* ).
 
 1\.The soul arrested—"taken hold."
 
@@ -376,7 +376,7 @@ Hide me, O Gethsemane!"
 
 **Verse 14.** *Honi soit mal y pense;* or, the reward of malignity.
 
-**Verse 16.** ( *last clause* ). An everyday saying. Who can use it? What does it mean? Why should *they* say it? Why say it continually?
+**Verse 16.** (*last clause* ). An everyday saying. Who can use it? What does it mean? Why should *they* say it? Why say it continually?
 
 **Verse 17.** The humble *But,* and the believing *Yet.* The little *I am,* and the great *Thou art.* The fitting prayer.
 

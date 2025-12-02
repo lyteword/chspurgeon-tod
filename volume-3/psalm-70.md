@@ -78,7 +78,7 @@ I will magnify thy matchless grace.
 
 **Verse 5.** *O Lord, make no tarrying.* His prayer for himself, like his prayer for his foes and for his friends, was answered. The Lord made no tarrying. Ere four and twenty hours had rolled past, his rescued spirit was in Paradise, and the crucified thief was with him. O, what a change! The morning saw him condemned at the bar of an earthly tribunal, sentenced to death, and nailed to the bitter tree; before the evening shadowed the hill of Calvary, he was nestling in the bosom of God, and had become the great centre of attraction and of admiration to all the holy intelligences of the universe. The morning saw him led out through the gate of the Jerusalem below, surrounded by a ribald crowd, whose hootings rung in his ear; but ere the night fell, he had passed through the gate of the Jerusalem above, and his tread was upon the streets of gold, and angel anthems rose high through the dome of heaven, and joy filled the heart of God. *James Frame.* 
 
-**Verse 5.** ( *third clause* ). *Helper,* in all good works; *Deliverer,* from all evil ones. *Make no long tarrying:* it is the cry of the individual sinner. *Dionysius the Carthusian (1471) quoted in Neale and Littledale's Commentary.* 
+**Verse 5.** (*third clause* ). *Helper,* in all good works; *Deliverer,* from all evil ones. *Make no long tarrying:* it is the cry of the individual sinner. *Dionysius the Carthusian (1471) quoted in Neale and Littledale's Commentary.* 
 
 ## Hints to the Village Preacher
 
@@ -122,7 +122,7 @@ I will magnify thy matchless grace.
 
 **Verse 4.** Joy for seekers, and employment for finders.
 
-**Verse 4.** ( *last clause* ).
+**Verse 4.** (*last clause* ).
 
 1\.The character.
 

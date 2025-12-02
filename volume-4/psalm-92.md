@@ -132,7 +132,7 @@ This mercy to the aged proves the faithfulness of their God, and leads them to s
 
 **Verse 2.** *In the morning, and...every night.* God is Alpha and Omega. It is fit we should begin and end the day with his praise, who begins and ends it for us with mercy. Well, thou seest thy duty plainly laid before thee. As thou wouldst have God prosper thy labour in the day, and sweeten thy rest in the night, clasp them both together with thy morning and evening devotions. He that takes no care to set forth God's portion of time in the morning, doth not only rob God of his due, but is a thief to himself all the day after, by losing the blessing which a faithful prayer might bring from heaven on his undertakings. And he that closes his eyes at night without prayer, lies down before his bed is made.— *William Gurnall.* 
 
-**Verse 2.** *Thy faithfulness* (Vulg. *`veritas, '* ) *every night.* Truth can be taken in its proper signification. Thus St. Jerome on our Psalm takes it, and says: "The truth of the Lord is announced in the night, as if it were wrapped up in some verbal obscurities. In an enigma it is spoken, and in parables; that seeing, they should not see, and hearing, they should not understand. Moses ascended Mount Sinai, Ex 24:9, and passed into the tempest and into the blackness and darkness, and there spake with the Lord." Thus Jerome. Christ brings back the light to us, as Lactantius teaches. Shall we wait, says he, till Socrates shall know something? Or Anaxagoras find light in the darkness? Or Democritus draw forth the truth from a well? Or till Empedocles expands the paths of his soul? Or Ascesilas and Carneades see, feel, and perceive? Behold a voice from heaven teaches us the truth, and reveals it more clearly to us than the sun himself...In the night truth is to be shown forth, that the night may be turned into day.— *Le Blanc.* 
+**Verse 2.** *Thy faithfulness* (Vulg. *`veritas, '*) *every night.* Truth can be taken in its proper signification. Thus St. Jerome on our Psalm takes it, and says: "The truth of the Lord is announced in the night, as if it were wrapped up in some verbal obscurities. In an enigma it is spoken, and in parables; that seeing, they should not see, and hearing, they should not understand. Moses ascended Mount Sinai, Ex 24:9, and passed into the tempest and into the blackness and darkness, and there spake with the Lord." Thus Jerome. Christ brings back the light to us, as Lactantius teaches. Shall we wait, says he, till Socrates shall know something? Or Anaxagoras find light in the darkness? Or Democritus draw forth the truth from a well? Or till Empedocles expands the paths of his soul? Or Ascesilas and Carneades see, feel, and perceive? Behold a voice from heaven teaches us the truth, and reveals it more clearly to us than the sun himself...In the night truth is to be shown forth, that the night may be turned into day.— *Le Blanc.* 
 
 **Verse 3.** *Upon an instrument of ten strings.* Eusebius, in his comment on this psalm, says: *"The psaltery of ten strings* is the worship of the Holy Spirit performed by means of the five senses of the body, and by the *five* powers of the soul." And to confirm this interpretation, he quotes the apostle, 1Co 14:15: "I will pray with the spirit, and with the understanding also; I will sing with the spirit, and with the understanding also." "As the mind has its influence by which it moves the body, so the spirit has its own influence by which it moves the soul." Whatever may be thought of this gloss, one thing is pretty evident from it, that *instrumental music* was not in use in the church of Christ in the time of Eusebius, which was near the middle of the *fourth* century. Had any such thing then existed in the Christian Church, he would have doubtless alluded to or spiritualized it; or, as he quoted the words of the apostle above, would have shown that *carnal usages* were substituted for *spiritual exercises.* — *Adam Clarke.* 
 
@@ -150,7 +150,7 @@ Like David's harp of solemn sound."
 
 — *Andrew Fuller.* 
 
-**Verse 3.** ( *last clause* ). *On meditation with a harp.* (New translation.) By a bold but intelligible figure, meditation is referred to as an instrument, precisely as the lyre and harp are, the latter being joined with it as a mere accompaniment.— *J.A. Alexander.* 
+**Verse 3.** (*last clause* ). *On meditation with a harp.* (New translation.) By a bold but intelligible figure, meditation is referred to as an instrument, precisely as the lyre and harp are, the latter being joined with it as a mere accompaniment.— *J.A. Alexander.* 
 
 **Verse 3.** *With a solemn sound.* Let Christians abound as much as they will in the holy, heavenly exercise of singing in God's house and in their own houses; but let it be performed as a holy act, wherein they have immediately and visibly to do with God. When any social open act of devotion or solemn worship of God is performed, God should be reverenced as present. As we would not have the ark of God depart from us, her provoke God to make a breach upon us, we should take heed that we handle the ark with reverence.— *Jonathan Edwards, in "Errors connected with singing praises to God."* 
 
@@ -284,7 +284,7 @@ Against the wind and open sky.
 
 **Verse 10.** *Anointed with fresh oil.* Every kind of benediction and refreshment I have received, do receive, and shall receive, like one at a feast, who is welcomed as a friend, and whose *head* is copiously anointed with oil or fragrant balm. In this way, the spirits are gently refreshed, an inner joyousness excited, the beauty of the face and limbs, according to the custom of the country, brought to perfection. Or, there is an allusion to the custom of *anointing* persons at their solemn installation in some splendid office. Compare Ps 23:5 *"Thou anointest my head with oil, "* and Ps 45:7, *"God, thy God, hath anointed thee with the oil of gladness."* — *Martin Geier.* 
 
-**Verse 10.** ( *last clause* ). The phrase is not "I am anointed", hvm; but ytlb, *imbutus sum—perfusus sum;* apparently in reference to the abundance of perfume employed on the occasion, viz., his being elected King over all the tribes, as indicative of the greater popularity of the act, or the higher measure of Jehovah's blessing on his people. The difference, indeed, between the first anointing of David and that of Saul, as performed by Samuel, is well worthy of notice on the present occasion. When Samuel was commanded to anoint Saul, he "took a *vial* of oil, and poured it upon his head." in private, 1Sa 16:13. Here we find the horn again made use of and apparently full to the brim— *David was soaked or imbued with it.* — *John Mason Good.* 
+**Verse 10.** (*last clause* ). The phrase is not "I am anointed", hvm; but ytlb, *imbutus sum—perfusus sum;* apparently in reference to the abundance of perfume employed on the occasion, viz., his being elected King over all the tribes, as indicative of the greater popularity of the act, or the higher measure of Jehovah's blessing on his people. The difference, indeed, between the first anointing of David and that of Saul, as performed by Samuel, is well worthy of notice on the present occasion. When Samuel was commanded to anoint Saul, he "took a *vial* of oil, and poured it upon his head." in private, 1Sa 16:13. Here we find the horn again made use of and apparently full to the brim— *David was soaked or imbued with it.* — *John Mason Good.* 
 
 **Verse 11.** *Mine enemies.* —The word here used rwv *shur* —occurs nowhere else. It means, properly, a lier in wait, one who *watches;* one who is in ambush; and refers to persons who *watched* his conduct; who *watched* for his ruin.— *A. Barnes.* 
 
@@ -396,7 +396,7 @@ Ps 92:3. Inanimate nature enlisted in the holy work.
 
 5\. *Deep reverence* —"solemn sound."
 
-**Verse 4.** ( *first sentence* ).
+**Verse 4.** (*first sentence* ).
 
 1\.My state—"glad."
 
@@ -430,9 +430,9 @@ Ps 92:3. Inanimate nature enlisted in the holy work.
 
 **Verses 7, 12-14.** The wicked and the righteous pourtrayed.— *C.A. Davis.* 
 
-**Verse 10.** ( *last clause* ). Christian illumination, consecration, gladness, and graces, are all of them the anointing of the Spirit.— *William Garrett Lewis,* 1872.
+**Verse 10.** (*last clause* ). Christian illumination, consecration, gladness, and graces, are all of them the anointing of the Spirit.— *William Garrett Lewis,* 1872.
 
-**Verse 10.** ( *last clause* ). The subject of David's confidence was—
+**Verse 10.** (*last clause* ). The subject of David's confidence was—
 
 1\.Very comprehensive, including renewed strength, fresh tokens of favour, confirmation in office, qualification for it, and new joys.
 

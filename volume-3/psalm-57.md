@@ -102,7 +102,7 @@ For a saint to hold his tongue."
 
 **Verse 4.** *My soul is among lions.* This may also be construed of the church, and that both in respect of her spiritual enemies and temporal. As for her ghostly foes, the devil is *a roaring lion* (1Pe 5:8), and our sins are the *whelps of lions,* ready to devour us. And concerning outward enemies, the church in this world is like Daniel in the lion's den, or as "the sucking child playing upon the hole of the asp." Isa 11:8. She hath here no visible power or outward help to fly to for succour, all her trust is in the Lord, and "under the shadow of his wings is her refuge, till this evil is overpast."... And surely, beloved, if the church had not any other enemies, but only these monstrous Antichrists of Rome, yet she might truly complain with our prophet here, *My soul is among lions.* Eleven popes had that name, whereof all, excepting two or three, were roaring lions in their Bulls, and ravening lions in seeking after their prey. *Leo* the tenth so pilled (Pill—peel, to pillage, plunder, strip) and polled (Poll, used synonymously with peel) the goodly nations of Germany with his unpardonable pardons and merciless indulgences, as that his insupportable cruelty gave the first occasion of the Reformation of religion in that country. *John Boys.* 
 
-**Verse 4.** ( *first clause* ). Mudge translates literally, *I lie with my soul amidst lionesses.* This agrees with the opinion of Bochart, who thinks that the animals here intended are lionesses, properly, when giving suck to their young, a time when they are peculiarly fierce and dangerous, "nor need we wonder, "he observes, "that the lioness is reckoned among the fiercest lions; for the lioness equals, or even exceeds, the lion in strength and fierceness; "and this he proves from the testimonies of ancient writers. *James Anderson's Note to Calvin in loc,* 1846.
+**Verse 4.** (*first clause* ). Mudge translates literally, *I lie with my soul amidst lionesses.* This agrees with the opinion of Bochart, who thinks that the animals here intended are lionesses, properly, when giving suck to their young, a time when they are peculiarly fierce and dangerous, "nor need we wonder, "he observes, "that the lioness is reckoned among the fiercest lions; for the lioness equals, or even exceeds, the lion in strength and fierceness; "and this he proves from the testimonies of ancient writers. *James Anderson's Note to Calvin in loc,* 1846.
 
 **Verse 4.** *And I lie even among them that are set on fire.* The whole pith lies in the word hbkva, *I will recline,* which denotes a tranquil and secure condition of body and mind, like a man *reclining* and sleeping, as Ps 3:5; *I laid me down and slept, I awaked;* and lived composedly; Ps 4:9; *I will both lay me down in peace,* etc. *Hermann Venema.* 
 
@@ -154,7 +154,7 @@ Benjamin Grosvenor, D.D. (1675-1758), in "An Exhortation to the *Duty of Singing
 
 ## Hints to the Village Preacher
 
-**Verse 1.** ( *first clause* ). *Repetition in prayer.* 
+**Verse 1.** (*first clause* ). *Repetition in prayer.* 
 
 1\.Its dangers. May degenerate into "vain repetitions." Carried to excess painfully suggests the idea, God is unwilling.
 
@@ -212,7 +212,7 @@ Benjamin Grosvenor, D.D. (1675-1758), in "An Exhortation to the *Duty of Singing
 
 **Verse 3.** The celestial messengers. What they are. The certainty of their being sent. Their efficient operation. The grateful receiver.
 
-**Verse 3.** ( *last clause* ). The harmony of the divine attributes in salvation. Mercy founded on truth, truth vindicating mercy. Mercy without injustice, justice honoured in mercy.
+**Verse 3.** (*last clause* ). The harmony of the divine attributes in salvation. Mercy founded on truth, truth vindicating mercy. Mercy without injustice, justice honoured in mercy.
 
 **Verse 5.** 
 
@@ -224,7 +224,7 @@ Benjamin Grosvenor, D.D. (1675-1758), in "An Exhortation to the *Duty of Singing
 
 (b) Passively, by submission to his will. *G. R.* 
 
-**Verse 7.** ( *first clause* ). It is implied that the *heart* is the main thing required in all acts of devotion; nothing is done to purpose in religion further than it is done with the heart. The heart must be *fixed;* fixed *for* the duty, fitted and put in frame for it; fixed *in* the duty by a close application; *attending on the Lord* without distraction. *Matthew Henry.* 
+**Verse 7.** (*first clause* ). It is implied that the *heart* is the main thing required in all acts of devotion; nothing is done to purpose in religion further than it is done with the heart. The heart must be *fixed;* fixed *for* the duty, fitted and put in frame for it; fixed *in* the duty by a close application; *attending on the Lord* without distraction. *Matthew Henry.* 
 
 **Verse 7.** 
 

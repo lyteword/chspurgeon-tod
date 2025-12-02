@@ -100,7 +100,7 @@ This Psalm has in its stern contents something no doubt strange to our ears. But
 
 **Verse 1.** *That rise up against me.* He insists upon the strength and violence of his enemies, with the view of exciting his mind to greater fervour in the duty of prayer. These he describes as *rising up* against him, in which expression he alludes, not simple to the audacity or fierceness of their assaults, but to the eminent superiority of power which they possessed; and yet he asks that he may be lifted up on high, as it were, above the reach of this over swelling inundation. *John Calvin.* 
 
-**Verse 3.** ( *first clause* ). On the expression, *they lie in wait for my soul, * compare 1Sa 19:11, "And Michal, David's wife, told him, saying, If thou save not thy life *soul* tonight, tomorrow thou shalt be slain; "and Ps 7:2,5. *E. W. Hengstenberg.* 
+**Verse 3.** (*first clause* ). On the expression, *they lie in wait for my soul, * compare 1Sa 19:11, "And Michal, David's wife, told him, saying, If thou save not thy life *soul* tonight, tomorrow thou shalt be slain; "and Ps 7:2,5. *E. W. Hengstenberg.* 
 
 **Verse 3.** *The mighty are gathered against me,* is rendered by Chandler, *The mighty are turned aside to lay snares against me.* 
 
@@ -166,7 +166,7 @@ And surround the city."
 
 **Verse 8.** God sees and smiles, he looks and laughs at these giants; he sits in heaven far above their reach; neither doth he much trouble himself about the matter; no more should we, but trust in him, and know that there is a counsel in heaven, that will dash the mould of all contrary counsels upon the earth, as the stone cut out of the mountain did the four great monarchies. Da 2:34. And therefore though the wicked, in the pride of his heart, doth persecute the poor; though they belch out with their mouth, and seek to double murder the innocent, by detraction and by deadly practice, yet God both hears and jeers at their madness, and will bring all their purposes to nought with little ado; nay, the very cruelty of his enemies will move God to make haste. The saints fare the better for the insolence and outrages of their enemies, whose ruin is thereby accelerated; and somewhat God will do the sooner for his people, lest the enemy exalt himself. Ps 140:8. *Abraham Wright.* 
 
-**Verse 8.** ( *last clause* ). In the close of the verse, mention is made of *all nations,* to intimate, that though they might equal the whole world in numbers, they would prove a mere mockery with all their influence and resources. Or the words may be read—EVEN AS *thou hast all the nations in derision.* One thing is obvious, that David ridicules the vain boasting of his enemies, who thought no undertaking too great to be accomplished by their numbers. *John Calvin.* 
+**Verse 8.** (*last clause* ). In the close of the verse, mention is made of *all nations,* to intimate, that though they might equal the whole world in numbers, they would prove a mere mockery with all their influence and resources. Or the words may be read—EVEN AS *thou hast all the nations in derision.* One thing is obvious, that David ridicules the vain boasting of his enemies, who thought no undertaking too great to be accomplished by their numbers. *John Calvin.* 
 
 **Verses 8-9.** 
 
@@ -180,7 +180,7 @@ For God is my high fort. *William Kay.*
 
 **Verse 9.** *Because of his strength will I wait upon thee.* Those seem to come nearest the meaning of the psalmist, who construe the words as one continuous sentence, *I will put in trust his strength with thee,* meaning that however intemperately Saul might boast of his strength, he would rest satisfied in the assurance that there was a secret divine providence restraining his actions. We must learn to view all men as subordinated in this manner, and to conceive of their strength and their enterprises as depending upon the sovereign will of God. In my opinion, the following version is the best— *His strength is with thee, I will wait.* The words are parallel with those in the end of the Psalm, where there can be no doubt that the nominative case is employed, *My strength is with thee, I will sing. John Calvin.* 
 
-**Verse 9.** ( *first clause* ). *His strength* is great, humanly viewed; but to the eye of faith what is it! LXX, *to kratoz moi* (— *uzzi* ); and so most ancient versions. (The contrast is given in Ps 59:16-17.) *William Kay.* 
+**Verse 9.** (*first clause* ). *His strength* is great, humanly viewed; but to the eye of faith what is it! LXX, *to kratoz moi* (— *uzzi* ); and so most ancient versions. (The contrast is given in Ps 59:16-17.) *William Kay.* 
 
 **Verse 9.** *Will I wait upon thee,* literally, *I will keep watch to thee,* alluding to the title, "When Saul sent, and they *watched* the house *to kill* him." David sets *watching before God,* against their *watching to kill* him. *A. R. Fausset.* 
 
@@ -196,7 +196,7 @@ For God is my high fort. *William Kay.*
 
 4\.It prevents our endeavours. *The God of my mercy shall prevent me. John Spalding, in "Synaxis Sacra,"* 1703.
 
-**Verse 10.** ( *first clause* ). The psalmist was sure of mercy upon these grounds, he knew he was safe, because God was his God, and the God of his mercy: *The God of my mercy shall prevent me.* Some read it, *hath prevented me;* others, *doth prevent me;* and others, as in my text, *shall prevent me.* Each of these senses is exceedingly sweet and full. Take it in the first sense, *hath prevented me;* and it implies thus much, that the psalmist never was in any difficulty, temptation, or fear, but God was beforehand with him; having always the mercy ready which he stood in need of; and had given it in due season, and that when he least expected it, and it may be was least prepared for it. Take it in the second sense, *doth prevent*, it argues the psalmist's ground of confidence when all present appearances were gone; as if he had said, "God is of one mind, his thoughts are thoughts of peace, and not of evil; he may vary his providence, but his heart is the same as ever; why should I fear, why should I not hope and rejoice? for my God is a tried God, he is working for me even now. He prevents my fears, and he will prevent my falling." Take the words as they lie in my text, and it comes to the same thing. "God sees all my enemies' designs, and he is ready for them; my prayer is heard, and sure I am deliverance will come, though I know not the time of it." My design, under the Spirit's influence, is to look into my own heart and yours, and show you what wonders of providence and grace God, as *the God of our mercy,* has caused to pass before us. In discoursing on these words, I shall enquire,
+**Verse 10.** (*first clause* ). The psalmist was sure of mercy upon these grounds, he knew he was safe, because God was his God, and the God of his mercy: *The God of my mercy shall prevent me.* Some read it, *hath prevented me;* others, *doth prevent me;* and others, as in my text, *shall prevent me.* Each of these senses is exceedingly sweet and full. Take it in the first sense, *hath prevented me;* and it implies thus much, that the psalmist never was in any difficulty, temptation, or fear, but God was beforehand with him; having always the mercy ready which he stood in need of; and had given it in due season, and that when he least expected it, and it may be was least prepared for it. Take it in the second sense, *doth prevent*, it argues the psalmist's ground of confidence when all present appearances were gone; as if he had said, "God is of one mind, his thoughts are thoughts of peace, and not of evil; he may vary his providence, but his heart is the same as ever; why should I fear, why should I not hope and rejoice? for my God is a tried God, he is working for me even now. He prevents my fears, and he will prevent my falling." Take the words as they lie in my text, and it comes to the same thing. "God sees all my enemies' designs, and he is ready for them; my prayer is heard, and sure I am deliverance will come, though I know not the time of it." My design, under the Spirit's influence, is to look into my own heart and yours, and show you what wonders of providence and grace God, as *the God of our mercy,* has caused to pass before us. In discoursing on these words, I shall enquire,
 
 1\.In what sense, or in what respects, God is *the God* of our mercy.
 
@@ -258,17 +258,17 @@ You smiling, smooth, detested parasites."
 
 **Verse 17.** *Unto thee, O my strength.* In opposition to *the enemy's strength,* Ps 59:9. *Thy power,* or *strength* —the Hebrew word is the same (Ps 59:16)—is *my strength.* There is an elegant play on similar sounds in the Hebrew for *I will wait upon thee,* hrmva (Ps 59:9), and "I will sing, "hrmza *A. R. Faussett.* 
 
-**Verse 17.** ( *first clause* ). As on account of *Saul's strength* my *watching* was directed to thee; so now, no account of *thy strength* vouchsafed to me, my *singing* of praises also shall be directed to thee alone. *Martin Geier.* 
+**Verse 17.** (*first clause* ). As on account of *Saul's strength* my *watching* was directed to thee; so now, no account of *thy strength* vouchsafed to me, my *singing* of praises also shall be directed to thee alone. *Martin Geier.* 
 
 **Verse 17.** *Strength—Mercy.* He joins these two attributes, *"strength"* and *"mercy"*, very well; for take away *strength* from him, and he cannot; remove mercy, and he will not, protect; both must go together in any one that will defend; *power,* that he can, *mercy,* that he will; otherwise it is but in vain to hope for help from him David found God to be both, and for both he extols him. *William Nicholson.* 
 
 ## Hints to the Village Preacher
 
-**Verse 1.** ( *first clause* ). Deliver me from temptation, uphold me in temptation, cleanse me from the result of temptation. The world, the flesh, the devil, and chiefly sin, these are our enemies. We cannot escape them of ourselves, but the Lord by providence and grace can rescue us.
+**Verse 1.** (*first clause* ). Deliver me from temptation, uphold me in temptation, cleanse me from the result of temptation. The world, the flesh, the devil, and chiefly sin, these are our enemies. We cannot escape them of ourselves, but the Lord by providence and grace can rescue us.
 
-**Verse 2.** ( *first clause* ). From being tempted by their promises, cowed by their threats, corrupted by their teaching, influenced by their example, injured by their slander, hindered in usefulness by their opposition.
+**Verse 2.** (*first clause* ). From being tempted by their promises, cowed by their threats, corrupted by their teaching, influenced by their example, injured by their slander, hindered in usefulness by their opposition.
 
-**Verse 3.** ( *first clause* ). The subtleties of Satan. Watches for places, times, states, and ways in which to assail us. Errors in doctrine, practice, spirit, set forth to entrap us. "Ye are not ignorant of his devices." Or, the diabolical ambush, discovered by watchfulness, and defeated by faith.
+**Verse 3.** (*first clause* ). The subtleties of Satan. Watches for places, times, states, and ways in which to assail us. Errors in doctrine, practice, spirit, set forth to entrap us. "Ye are not ignorant of his devices." Or, the diabolical ambush, discovered by watchfulness, and defeated by faith.
 
 **Verse 4.** The activity of the evil a rebuke for the good.
 
@@ -284,11 +284,11 @@ You smiling, smooth, detested parasites."
 
 **Verse 9.** The greatness of difficulty a reason for prayer and faith.
 
-**Verse 10.** ( *first clause* ). The divine forwardness to bless.
+**Verse 10.** (*first clause* ). The divine forwardness to bless.
 
 **Verse 11.** The continuance of our enemies a salutary ordinance of God for the prevention of an evil to which we are very liable.
 
-**Verse 13** ( *last clause* ). God as the God of the church, his government as such, known in all human history.
+**Verse 13** (*last clause* ). God as the God of the church, his government as such, known in all human history.
 
 **Verse 16.** The heavenly chorister.
 

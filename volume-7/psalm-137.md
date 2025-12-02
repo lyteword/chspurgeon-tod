@@ -294,7 +294,7 @@ These have I yet to see, perhaps yet more. **
 
 3\.In anticipation of future blessing. They did not dash their harps to pieces. Term of exile limited. Return expressly foretold. We shall want our harps in the good times coming. Sinners play their harps now, but must soon lay them aside for ever.— *W. J.* 
 
-**Verse 3.** ( *last clause* ). Taken away from the text this is a very pleasant and praiseworthy request. Why do we wish for such a song?
+**Verse 3.** (*last clause* ). Taken away from the text this is a very pleasant and praiseworthy request. Why do we wish for such a song?
 
 1\.It is sure to be pure.
 

@@ -100,7 +100,7 @@ weight: 77
 
 **Verse 1.** *Even unto God with my voice.* The repetition here is emphatic. The idea is that it was an earnest or fervent cry. *Albert Barnes.* 
 
-**Verse 1.** ( *last clause* ). At the second knock, the door of grace flew open: *the Lord heard me. John Collings.* 
+**Verse 1.** (*last clause* ). At the second knock, the door of grace flew open: *the Lord heard me. John Collings.* 
 
 Whole Psalm. *See Psalms on "Ps 77:1"* for further information.
 
@@ -260,7 +260,7 @@ And terrors of a God." *George Rogers.*
 
 3\.Agonizing prayer: *my soul refused to be comforted, until the answer came*. "Being in an agony, he prayed, "etc.
 
-**Verse 2.** ( *last clause* ). When this is wise, and when it is censurable.
+**Verse 2.** (*last clause* ). When this is wise, and when it is censurable.
 
 **Verse 4.** 
 
@@ -296,7 +296,7 @@ And terrors of a God." *George Rogers.*
 
 7\.It is a means of *usefulness.* When one spark of grace is truly kindled in the heart, it will quickly endeavour to heat others also. *R. Steele.* 
 
-**Verse 7.** ( *first clause* ). To place the question in a strong light, let us consider,
+**Verse 7.** (*first clause* ). To place the question in a strong light, let us consider,
 
 1\.Of whom is the question raised? *the Lord.* 
 

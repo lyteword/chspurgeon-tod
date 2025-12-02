@@ -62,7 +62,7 @@ Deliver me from my persecutors. If he did not get out of their hands, they would
 
 **Verse 2.** The committing of our cause to God is at once our duty, our safety, and our ease.— *Abraham Wright.* 
 
-**Verse 3.** *When my spirit was overwhelmed within me. "When even my spirit* (the higher faculty) *is wrapped in darkness upon me"* that is, when even my spirit ( *ruach* ), which ought to elevate my *soul (nephesh)* falls heavily upon me, as in a swoon.
+**Verse 3.** *When my spirit was overwhelmed within me. "When even my spirit* (the higher faculty) *is wrapped in darkness upon me"* that is, when even my spirit (*ruach* ), which ought to elevate my *soul (nephesh)* falls heavily upon me, as in a swoon.
 
 "When heavy, like a veil of woe,
 
@@ -238,13 +238,13 @@ He doth sit by us and moan.
 
 3\.The unveiling of the heart in prayer—"shewed before him my trouble."
 
-**Verse 3.** ( *first clause* ).
+**Verse 3.** (*first clause* ).
 
 1\.When.
 
 2\.Then.
 
-**Verse 3.** ( *latter clause* ). Temptations.
+**Verse 3.** (*latter clause* ). Temptations.
 
 1\.What form they take?—"snares."
 
@@ -254,7 +254,7 @@ He doth sit by us and moan.
 
 4\.What becomes of the tempted believer? He lives to tell the tale, to warn others, to glorify God.
 
-**Verse 4.** ( *last clause* ). The soul considered of no value.
+**Verse 4.** (*last clause* ). The soul considered of no value.
 
 1\.Consider the worth of the soul.
 
@@ -290,7 +290,7 @@ Remark: The great responsibility resting upon every Christian.
 
 — *Jacob Knapp, in "The Homiletic Monthly",* 1882.
 
-**Verse 4.** ( *last clause* ). The burden of souls.
+**Verse 4.** (*last clause* ). The burden of souls.
 
 1\.What is meant by care for souls?
 
@@ -420,9 +420,9 @@ c) A new life of bounty and blessing—when we get out.
 
 3\.The duty of fidelity to prison vows and lessons.— *W.B.H.* 
 
-**Verse 7.** ( *middle clause* ). A Queen Bee. An under shepherd. A warm hearth. A Museum of wonders. Or, they shall surround me, interested in my story—"out of prison"; drawn by my song—"praise thy name"; attracted by likeness of character, and admiring the goodness of the Lord.
+**Verse 7.** (*middle clause* ). A Queen Bee. An under shepherd. A warm hearth. A Museum of wonders. Or, they shall surround me, interested in my story—"out of prison"; drawn by my song—"praise thy name"; attracted by likeness of character, and admiring the goodness of the Lord.
 
-**Verse 7.** ( *last clause* ). Take this with Ps 116:7. "The Lord hath dealt bountifully with thee." Infer the future from the past.
+**Verse 7.** (*last clause* ). Take this with Ps 116:7. "The Lord hath dealt bountifully with thee." Infer the future from the past.
 
 ## Works Upon The Hundred And Forty-Second Psalm
 

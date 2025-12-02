@@ -126,7 +126,7 @@ Here, then, consider how the lottery of Canaan may shadow out to us that blessed
 
 **Verse 5.** *Such as turn aside unto their crooked ways.* This is the anxiety of the pastor in this pilgrim song. The shepherd would keep his sheep from straggling. His distress is that all in Israel are not true Israelites. Two sorts of people, described by the poet, have ever been in the church. The second class, instead of being at the trouble to "withstand in the evil day", will "put forth their hands unto iniquity". Rather than feel, they will follow the rod of the wicked. They will "turn aside unto their crooked ways", sooner than risk temporal and material interests.— *Edward Jewitt Robinson, in "The Caravan and the Temple,"* 1878.
 
-**Verse 5.** *Such as turn aside unto their crooked ways.* All the ways of sin are called *"crooked ways",* and they are our own ways. The Psalmist calls them *"their* crooked ways"; that is, the ways of their own devising; whereas the way of holiness is the Lord's way. To exceed or do more; to be deficient or do less, than God requires, both these are "crooked ways". The way of the Lord lies straight forward, right before us. "Whoso walketh uprightly shall be saved; but he that is perverse (or *crooked* ) in his ways shall fall at once": Pr 28:18. The motion of a godly man is like that of the kine that carried the ark: "Who took the straight way to the way of Bethshemesh, and went along the highway, lowing as they went, and turned not aside to the right hand or to the left": 1Sa 6:12.— *Joseph Caryl.* 
+**Verse 5.** *Such as turn aside unto their crooked ways.* All the ways of sin are called *"crooked ways",* and they are our own ways. The Psalmist calls them *"their* crooked ways"; that is, the ways of their own devising; whereas the way of holiness is the Lord's way. To exceed or do more; to be deficient or do less, than God requires, both these are "crooked ways". The way of the Lord lies straight forward, right before us. "Whoso walketh uprightly shall be saved; but he that is perverse (or *crooked*) in his ways shall fall at once": Pr 28:18. The motion of a godly man is like that of the kine that carried the ark: "Who took the straight way to the way of Bethshemesh, and went along the highway, lowing as they went, and turned not aside to the right hand or to the left": 1Sa 6:12.— *Joseph Caryl.* 
 
 **Verse 5.** *Crooked ways.* The ways of sinners are *"crooked"*; they shift from one pursuit to another, and turn hither and thither to deceive; they wind about a thousand ways to conceal their base intentions, to accomplish their iniquitous projects, or to escape the punishment of their crimes; yet disappointment, detection, confusion, and misery, are their inevitable portion.— *Thomas Scott,* 1747-1821.
 
@@ -250,9 +250,9 @@ b) They shall be exposed by an irresistible power: "The Lord shall lead them for
 
 c) They shall meet with terrible execution with the wicked in hell.— *J. Field.* 
 
-**Verse 5.** ( *last clause* ). To whom peace belongs. To "Israel"; the chosen, the once wrestler, the now prevailing prince. Consider Jacob's life after he obtained the name of Israel; note his trials, and his security under them as illustrating this text. Then take the text as a sure promise.
+**Verse 5.** (*last clause* ). To whom peace belongs. To "Israel"; the chosen, the once wrestler, the now prevailing prince. Consider Jacob's life after he obtained the name of Israel; note his trials, and his security under them as illustrating this text. Then take the text as a sure promise.
 
-**Verse 5.** ( *last clause* ). Enquire,
+**Verse 5.** (*last clause* ). Enquire,
 
 1\.Who are the Israel?
 

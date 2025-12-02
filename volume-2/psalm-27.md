@@ -178,7 +178,7 @@ God is willing to be known. He is willing to open and discover himself; God deli
 
 **Verse 9.** *Leave me not;* rather, "dismiss me not; ""let not go thy hold of me." This is the proper sense of the Hebrew verb (vjn), to set a thing loose, to let it go, to abandon it. *Samuel Horsley.* 
 
-**Verse 10.** *When my father and my mother forsake me.* As there seems to be some difficulty in supposing the psalmist's parents to have "deserted" him, they might perhaps be said to have *"forsaken"* him ( *as Muis conjectures* ), that is, to have left him behind them, as being dead. *James Merrick,* M.A., 1720-1769.
+**Verse 10.** *When my father and my mother forsake me.* As there seems to be some difficulty in supposing the psalmist's parents to have "deserted" him, they might perhaps be said to have *"forsaken"* him (*as Muis conjectures* ), that is, to have left him behind them, as being dead. *James Merrick,* M.A., 1720-1769.
 
 **Verse 10.** *When my father and my mother forsake me.* It is indeed the nature of all living creatures, though never so tender of their young ones, yet when they are grown to a ripeness of age and strength, to turn them off to shift for themselves; and even a father and a mother, as tender as they are, have yet somewhat of this common nature in them; for while their children are young they lead them by the hand, but when they are grown up they leave them to their own legs, and if they chance to fall let them rise as they can. But God even then takes his children up, for he knows of what they are made; he knows their strength must be as well supported as their weakness be assisted; he knows they must as well be taken up when they fall, as be held up when they stand. *Sir Richard Baker.* 
 
@@ -240,7 +240,7 @@ Love Jesus! and of conquest rest secure.
 
 ## Hints to the Village Preacher
 
-**Verse 1.** ( *first clause* ). The relation of illumination to salvation, or the need of light if men would be saved.
+**Verse 1.** (*first clause* ). The relation of illumination to salvation, or the need of light if men would be saved.
 
 **Verse 1.** The Christian hero, and the secret springs of his courage.
 
@@ -272,9 +272,9 @@ Love Jesus! and of conquest rest secure.
 
 **Verse 4.** A breathing after God. *R. Sibbes's Sermon.* 
 
-**Verse 4.** ( *last clause* ). Sabbath occupations and heavenly delights.
+**Verse 4.** (*last clause* ). Sabbath occupations and heavenly delights.
 
-**Verse 4.** ( *final clause* ). Matters for enquiry in the Temple of old opened up in the light of the New Testament.
+**Verse 4.** (*final clause* ). Matters for enquiry in the Temple of old opened up in the light of the New Testament.
 
 **Verse 6.** The saint's present triumph over his spiritual foes, his practical gratitude, and his vocal praises.
 

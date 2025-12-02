@@ -342,7 +342,7 @@ Robert Murray Macheyne.
 
 **Verse 9.** *In his temple.* Some conceive that this Psalm was appointed by David to be sung in the temple in time of thunder, which is not unlikely. There are writers who make God to be the nominative case to the verb speaketh; and render it thus, *in his temple doth he utter all his glory.* As much as to say, much of his glory God uttereth in his thunder, but all in his temple, for whatsoever there he speaketh with his mouth he fulfils it with his hand. *John Trapp.* 
 
-**Verse 9.** ( *last clause* ). David speaking in the former part of the Psalm of the effects of natural thunder only, towards the close of the Psalm applies it to the Word of God, while he saith, *And in his temple doth every one speak of his glory;* that is, the word and ordinances of God, ministered in his church or temple, will put every one to acknowledge and speak of the glorious power of God, even much more than the mighty thunder which sounds in our ears, or the subtle lightning which flashes in our eyes. There is far more royal power in the thunder of the Word, than in the word of thunder. This terrifies only to conviction, but that terrifies to salvation; for after God speaks terror there in his threatenings, he speaks comfort in the promises; and when he hath affrighted us with a sense of our sins and of his wrath due to us for our sins, as with an horrible tempest, he presently refresheth us with the gentle gales of revealed grace, and with the pleasant amiable sunshine of his favour by Jesus Christ. *Joseph Caryl.* 
+**Verse 9.** (*last clause* ). David speaking in the former part of the Psalm of the effects of natural thunder only, towards the close of the Psalm applies it to the Word of God, while he saith, *And in his temple doth every one speak of his glory;* that is, the word and ordinances of God, ministered in his church or temple, will put every one to acknowledge and speak of the glorious power of God, even much more than the mighty thunder which sounds in our ears, or the subtle lightning which flashes in our eyes. There is far more royal power in the thunder of the Word, than in the word of thunder. This terrifies only to conviction, but that terrifies to salvation; for after God speaks terror there in his threatenings, he speaks comfort in the promises; and when he hath affrighted us with a sense of our sins and of his wrath due to us for our sins, as with an horrible tempest, he presently refresheth us with the gentle gales of revealed grace, and with the pleasant amiable sunshine of his favour by Jesus Christ. *Joseph Caryl.* 
 
 **Verse 11.** *The Lord will give strength unto his people; the Lord will bless his people with peace;* i.e., he is in war their strength, and their felicity in peace; in war he is the Author of all that power wherewith they are enabled to oppose and overcome potent enemies; and in peace, he is their truly felicitating good, and makes them, by his own vouchsafed presence, a truly blessed people. *John Howe.* 
 
@@ -356,15 +356,15 @@ Robert Murray Macheyne.
 
 **Verse 1.** National glorying should be in the Lord.
 
-**Verse 2.** ( *first clause* ). Royal dues, the royal treasury, loyal subjects paying their dues, the king receiving them. Smugglers and preventive men.
+**Verse 2.** (*first clause* ). Royal dues, the royal treasury, loyal subjects paying their dues, the king receiving them. Smugglers and preventive men.
 
-**Verse 2.** ( *second clause* ). Inspired ritualism. What to do? *Worship.* Whom? *The Lord.* How? *In the beauty of holiness.* Absence of all allusions to place, time, order, words, form, vestments, etc.
+**Verse 2.** (*second clause* ). Inspired ritualism. What to do? *Worship.* Whom? *The Lord.* How? *In the beauty of holiness.* Absence of all allusions to place, time, order, words, form, vestments, etc.
 
 **Verse 3.** God's voice heard in trouble and above trouble, or in great personal and national calamities.
 
 **Verse 4.** Power and majesty of the gospel. Illustrate by succeeding verses.
 
-**Verse 4.** ( *last clause* ). "The majestic voice." See Spurgeon's Sermons, No. 87.
+**Verse 4.** (*last clause* ). "The majestic voice." See Spurgeon's Sermons, No. 87.
 
 **Verse 5.** The breaking power of the gospel.
 
@@ -376,7 +376,7 @@ Robert Murray Macheyne.
 
 **Verse 9.** The revealing power of the word of God in the secrets of man's heart, and its regenerating force.
 
-**Verse 9** ( *last clause* ). 1. Matchless temple.
+**Verse 9** (*last clause* ). 1. Matchless temple.
 
 2\.Unanimous worship.
 

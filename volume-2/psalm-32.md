@@ -290,7 +290,7 @@ The comfort that this day doth bring.
 
 **Verse 4.** The sorrows of a convinced soul. Daily, nightly, from God, heavy, weakening, destroying.
 
-**Verse 4.** ( *last clause* ) Spiritual drought.
+**Verse 4.** (*last clause*) Spiritual drought.
 
 **Verse 5.** The gracious results of a full confession; or, confession and absolution scripturally explained.
 
@@ -298,21 +298,21 @@ The comfort that this day doth bring.
 
 **Verse 6.** The experience of one, the encouragement of all.
 
-**Verse 6.** ( *first clause* ).—The day of grace, how to improve it.
+**Verse 6.** (*first clause* ).—The day of grace, how to improve it.
 
-**Verse 6.** ( *whole verse* ).—Pardon of sin the guarantee that other mercies shall be given.
+**Verse 6.** (*whole verse* ).—Pardon of sin the guarantee that other mercies shall be given.
 
-**Verse 6.** ( *last clause* ).—Imminent troubles, eminent deliverances.
+**Verse 6.** (*last clause* ).—Imminent troubles, eminent deliverances.
 
-**Verse 6.** ( *last clause* ).—The felicity of the faithful. *Thomas Playfere.* 
+**Verse 6.** (*last clause* ).—The felicity of the faithful. *Thomas Playfere.* 
 
 **Verse 7.** Danger felt, refuge known, possession claimed, joy experienced.
 
-**Verse 7.** ( *first sentence* ).—Christ, a hiding place from sin, Satan, and sorrow, in death and at judgment.
+**Verse 7.** (*first sentence* ).—Christ, a hiding place from sin, Satan, and sorrow, in death and at judgment.
 
-**Verse 7.** ( *second sentence* ).—Troubles from which saints shall be preserved.
+**Verse 7.** (*second sentence* ).—Troubles from which saints shall be preserved.
 
-**Verse 7.** ( *last sentence* ).—The circle of song—who draws the circle, what is the circumference, who is in the centre.
+**Verse 7.** (*last sentence* ).—The circle of song—who draws the circle, what is the circumference, who is in the centre.
 
 **Verse 7.** *Songs of deliverance.* From guilt, hell, death, enemies, doubts, temptations, accidents, plots, etc. The divine schoolmaster, his pupils, their lessons, their chastisements and their rewards.
 

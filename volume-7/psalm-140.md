@@ -108,7 +108,7 @@ A strange text, some may say, and 'tis true; but it is the fitter for these stra
 
 The poison of the soul is only *sin*, and this is like to poison in many respects. Poison, wherever it enters, stays not there, but diffuses itself all over the body, and never ceaseth till it has infected all. Such is the nature of sin; enter where it will it creeps from one member of the body to another, and from the body to the soul, till it has infected tim whole man; and then from man to man, till a whole family; and stays not there, but runs like a wildfire, from family to family, till it has poisoned a whole town, and so a whole country, and a whole kingdom. Woeful experience proves this true, both for Popish opinions, idle fashions, vain customs, and ill—examples of all sorts, which once set on foot, spread themselves over the politic body of church and commonwealth, like a gangrene or a leprosy over the natural body, or like a poison through all the blood. Poison, having entered anywhere, as it seeks to creep presently over all, so desires it especially to seize upon the heart; such a malice and pride lies in the malignant nature of it, that it aspires to the heart; and such a craft and cunning lurks in it, that having once entered, it creeps closely and unfelt till it gets to the heart; but having possessed itself of that sovereign part of man, then like a tyrant it reigns and rages, and infecting first the vital blood and noble parts, it diffuses itself over all and every part. And such is the nature of sin, the spiritual poison of the soul; enter where it will, it is tim heart it aims at, and it will never stay till it comes there. The truth of this is so clear that proofs are needless; for who knows not that the senses are but the doors or windows, but the heart is the throne, and the soul itself the seat of sin: and hence it is that Solomon advises,—"My son, keep thy heart with all diligence": Pr 4:23.— *William Crashaw, in "The Parable of Poyson,"* 1618.
 
-**Verse 3.** *Adders' poison is under their lips.* The word rendered *"adder"*, bwvke, *achsub*, occurs here only; and it is perhaps impossible to determine what species is intended. As the word, in its proper signification, seems to express coiling, or bending back—an act common to most serpents—the name has perhaps no determinate reference; or it may be another name for the *pethen*, mentioned under Job 20.; which seems also to have been the opinion of the Seventy, as they render both words by, aspiv, and are followed by the Vulgate ( *aspis* ). As to the *poison*, it will be observed, that in the venomous serpents there is a gland under the eye secreting the poisonous matter, which is conveyed, in a small tube or canal, to the end of a fang which lies concealed at the roof of the mouth. This fang is moveable at the pleasure of the serpent, and is protruded when it is about to strike at an antagonist. The situation of this poison, which is, in a manner, behind the upper lip, gives great propriety to the expression, *"adders' poison is under their lips."* The usage of the Hebrew language renders it by no means improbable that the fang itself is called Nwvl lashon, a tongue, in the present text; and a serpent might then be said to sharpen its tongue, when, in preparing to strike, it protruded its fangs. We do not see any explanation by which a more consistent meaning may be extracted from the expression here employed.— *John Kitto, in the "Pictorial Bible."* 
+**Verse 3.** *Adders' poison is under their lips.* The word rendered *"adder"*, bwvke, *achsub*, occurs here only; and it is perhaps impossible to determine what species is intended. As the word, in its proper signification, seems to express coiling, or bending back—an act common to most serpents—the name has perhaps no determinate reference; or it may be another name for the *pethen*, mentioned under Job 20.; which seems also to have been the opinion of the Seventy, as they render both words by, aspiv, and are followed by the Vulgate (*aspis* ). As to the *poison*, it will be observed, that in the venomous serpents there is a gland under the eye secreting the poisonous matter, which is conveyed, in a small tube or canal, to the end of a fang which lies concealed at the roof of the mouth. This fang is moveable at the pleasure of the serpent, and is protruded when it is about to strike at an antagonist. The situation of this poison, which is, in a manner, behind the upper lip, gives great propriety to the expression, *"adders' poison is under their lips."* The usage of the Hebrew language renders it by no means improbable that the fang itself is called Nwvl lashon, a tongue, in the present text; and a serpent might then be said to sharpen its tongue, when, in preparing to strike, it protruded its fangs. We do not see any explanation by which a more consistent meaning may be extracted from the expression here employed.— *John Kitto, in the "Pictorial Bible."* 
 
 **Verse 3.** Often the tongue of the serpent is spoken of as the seat of its venom. This is popular, not scientific language.— *William Swan Plumer.* 
 
@@ -212,7 +212,7 @@ c) Should the mischievous ones succeed, still trust in God, who can make their m
 
 **Verse 3.** The depraved state of the natural man as to his speech.
 
-**Verse 4.** ( *first clause* ). A wise prayer. The wicked will slander, and oppress, or mislead, flatter and defile. No one can keep us but the Lord.
+**Verse 4.** (*first clause* ). A wise prayer. The wicked will slander, and oppress, or mislead, flatter and defile. No one can keep us but the Lord.
 
 **Verse 5.** The Dangers of Society.
 
@@ -310,7 +310,7 @@ d) Praise practised by communion.
 
 **Verse 9.** How the sin of evil speakers comes home to them.— *W. B. H.* 
 
-**Verse 11.** ( *first clause*.)
+**Verse 11.** (*first clause*.)
 
 1\.Notice a few varieties of evil speakers.
 
@@ -340,9 +340,9 @@ b) The earth is the only sphere of his influence; but, alas! men on the earth ar
 
 c) Then, become righteous and true, by faith in the Righteous One and the "Truth."— *J. F.* 
 
-**Verse 11.** ( *second clause.* ) The Cruel Hunter pursued by his own Dogs.
+**Verse 11.** (*second clause.*) The Cruel Hunter pursued by his own Dogs.
 
-**Verse 11.** ( *second clause.* ) Theme—Sins committed, and not repented of, pursue men to their ruin.
+**Verse 11.** (*second clause.*) Theme—Sins committed, and not repented of, pursue men to their ruin.
 
 1\.Illustrate.
 
@@ -362,7 +362,7 @@ b) The mole terrible because self created.
 
 c) Flee from the avenging pursuers to Christ, the only and safe refuge.— *J. F.* 
 
-**Verse 11.** ( *second clause.* ) The hunt and pursuit of the violent sinner.
+**Verse 11.** (*second clause.*) The hunt and pursuit of the violent sinner.
 
 1\.The progress of the chase.
 

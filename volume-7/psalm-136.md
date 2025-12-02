@@ -342,7 +342,7 @@ He leads thee to thy Fatherland.
 
 — *B.S., in "The Christian Treasury,"* 1865.
 
-**Verses 1-9.** Like the preceding Psalm, this Psalm allies itself to the Book of Deuteronomy. The first clauses of Ps 136:2-3 ( *God of gods* and *Lord of Lords* ) are taken from De 10:17; Ps 136:12, first clause ( *with a strong hand and stretched out arm* ) from De 4:34, and De 5:15. Ps 136:16, first clause, is like De 8:15 (cf. Jer 2:6).— *Franz Delitzsch.* 
+**Verses 1-9.** Like the preceding Psalm, this Psalm allies itself to the Book of Deuteronomy. The first clauses of Ps 136:2-3 (*God of gods* and *Lord of Lords*) are taken from De 10:17; Ps 136:12, first clause (*with a strong hand and stretched out arm*) from De 4:34, and De 5:15. Ps 136:16, first clause, is like De 8:15 (cf. Jer 2:6).— *Franz Delitzsch.* 
 
 **Verses 1-26.** All repetitions are not vain, nor is all length in prayer to be accounted babbling. For repetitions may be used,
 
@@ -448,7 +448,7 @@ Without the light of the moon, the inhabitants of the polar regions would be for
 
 **Verse 15.** *But overthrew Pharaoh*, etc. Thus fell Sethos the Second. It was his terrible destiny to leave to after times the strongest exemplification of daring wickedness and mad impiety in his life, and of the vengeance of God in his death, that ever was enacted on the earth. Never had such a judgment befallen any nation, as his reign in Egypt. Accordingly the memory of this fearful event has never departed from among men. The gulf in which he perished is named Bahr Kolzoum, "the sea of destruction", to this day. The memory and name of Sethos the Second were infamous in Egypt. His tomb was desecrated, and his sarcophagus publicly and judicially broken. The vault seems to have been used as a burying place for slaves. The distinctive title of his name, *Sethos,* has been mutilated on all the monuments of Egypt. In Lower Egypt the mutilation has even been extended to the same title in the rings of his great grandfather (Sethos the First), such was the deep abhorrence in which the name had fallen, after it had been borne by this wicked king. His is the only one in the whole range of the kings of Egypt which has suffered this mark of public infamy.— *William Osburn.* 
 
-**Verse 15.** *But overthrew Pharaoh*, etc. Margin, as in Hebrew, *shaked off.* The word is applicable to a tree shaking off its foliage, Isa 33:9. The same word is used in Ex 14:27: "And the Lord overthrew (Margin, *shook off* ) the Egyptians in the midst of the sea." He shook them off as if he would no longer protect them. He left them to perish.— *Albert Barnes.* 
+**Verse 15.** *But overthrew Pharaoh*, etc. Margin, as in Hebrew, *shaked off.* The word is applicable to a tree shaking off its foliage, Isa 33:9. The same word is used in Ex 14:27: "And the Lord overthrew (Margin, *shook off*) the Egyptians in the midst of the sea." He shook them off as if he would no longer protect them. He left them to perish.— *Albert Barnes.* 
 
 **Verse 15.** *But shook off Pharaoh.* This translation gives an image of locusts. They fell into the sea like a swarm of locusts.— *Zachary Mudge,* 1769.
 

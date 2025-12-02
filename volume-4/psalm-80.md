@@ -224,7 +224,7 @@ Now, can you watch such a scene, and not think of that Shepherd who leadeth Jose
 
 **Verses 17-18.** The power of God seen in Jesus, the cause of the perseverance of the saints.
 
-**Verse 18** ( *last clause* ). The need of quickening in order to acceptable worship.
+**Verse 18** (*last clause* ). The need of quickening in order to acceptable worship.
 
 ## Works Upon The Eightieth Psalm
 

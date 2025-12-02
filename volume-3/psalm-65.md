@@ -136,7 +136,7 @@ From Psalm 65 onwards we find ourselves in the midst of a series of Psalms which
 
 **Verse 1.** *Vow.* A vow is a voluntary and deliberate promise made unto God in an extraordinary case. "It is a religious promise made unto God in a holy manner:" so a modern writer defines it. (Szegedinus.) It is a "holy and religious promise, advisedly and freely made unto God, concerning something which to do or to omit appeareth to be grateful and well pleasing unto him:" so Bucanus. I forbear Aquinas's definition of a vow. If these which I have given satisfy not, then view it in the words of Peter Martyr, a man of repute, and well known to our own nation in the days of Edward VI., of ever blessed memory: "It is a holy promise, whereby we bind ourselves to offer somewhat unto God." There is one more who defines it, and he is a man whose judgment, learning, and holiness hath perfumed his name; it is learned Perkins, in his "Cases of Conscience." "A vow, " saith he, "is a promise made unto God of things lawful and possible." *Henry Hurst(—1690), in "The Morning Exercises."* 
 
-**Verse 1.** ( *last clause* ). The reference here is to the vows or promises which the people had made in view of the manifested judgments of God, and the proofs of his goodness. Those vows they were now ready to carry out in expressions of praise. *Albert Barnes.* 
+**Verse 1.** (*last clause* ). The reference here is to the vows or promises which the people had made in view of the manifested judgments of God, and the proofs of his goodness. Those vows they were now ready to carry out in expressions of praise. *Albert Barnes.* 
 
 **Verse 2.** *O thou that hearest prayer,* etc. This is one of his titles of honour, he is a God that hears prayer; and it is as truly ascribed to him as mercy or justice. He hears all prayer, therefore, *unto thee shall all flesh come.* He never rejects any that deserves the name of prayer, how weak, how unworthy soever the petitioner be. *All flesh!* And will he (may faith say) reject mine only? Ro 10:12, "He is rich unto all that call upon him; " Ps 86:5, "Thou art plenteous in mercy to all that call upon thee; "Heb 11:6, "A rewarder of them that diligently seek him." This must be believed as certainly as we believe that God is. As sure as God is the true God, so sure is it that none who sought him diligently departed from him without a reward. He rewards all seekers, for *indefinita in materia necessaria aequipollet universali.* And if all, why not me? You may as well doubt that he is God, as doubt that he will not reward, not hear prayer; so Jas 1:5, "If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him." *David Clarkson.* 
 
@@ -250,7 +250,7 @@ Sixthly. The experiences which the saints of all ages have had of the answer of 
 
 **Verse 1.** The limitations, advantages, and obligations of vows.
 
-**Verse 2.** ( *first clause* ). The hearing and granting of prayer is the Lord's property, his usual practice, his pleasure, his nature, and his glory. *David Dickson.* 
+**Verse 2.** (*first clause* ). The hearing and granting of prayer is the Lord's property, his usual practice, his pleasure, his nature, and his glory. *David Dickson.* 
 
 **Verse 3.** 
 
@@ -288,7 +288,7 @@ Sixthly. The experiences which the saints of all ages have had of the answer of 
 
 **Verse 8.** Tokens of God's presence; those causing terror, and those inspiring joy.
 
-**Verse 8.** ( *last clause* ). The peculiar joys of morning and evening.
+**Verse 8.** (*last clause* ). The peculiar joys of morning and evening.
 
 **Verse 9.** *The river of God.* John Bunyan's treatise on "The Water of Life" would be suggestive on this topic.
 

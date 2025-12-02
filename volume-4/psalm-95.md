@@ -114,7 +114,7 @@ Fickleness is bound up in the heart of man, unbelief is our besetting sin; we mu
 
 **Verse 2.** *Let us come before his presence.* Hebrew, *prevent his face,* be there with the first. *"Let us go speedily*...I will go also", Zec 8:21. Let praise wait for God in Sion, Ps 65:1.— *John Trapp.* 
 
-**Verse 2.** ( *second clause* ). *Let us chant aloud to him the measured lay.* twrmz, I take to be songs, in measured verse, adjusted to the bars of a chaunt.— *S. Horsley.* 
+**Verse 2.** (*second clause* ). *Let us chant aloud to him the measured lay.* twrmz, I take to be songs, in measured verse, adjusted to the bars of a chaunt.— *S. Horsley.* 
 
 **Verse 3.** He that hath a mind to praise God, shall not want matter of praise, as they who come before princes do, who for want of true grounds of praise in them, do give them flattering words; *for the Lord is a great God*, for power and preeminence, for strength and continuance.— *David Dickson.* 
 

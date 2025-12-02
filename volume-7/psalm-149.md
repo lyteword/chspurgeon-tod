@@ -72,7 +72,7 @@ We are almost at the last Psalm, and still among the Hallelujahs. This is *"a ne
 
 **Verse 3.** *Timbrel.* The *toph* was employed by David in all the festivities of religion (2Sa 6:5). The occasions on which it was used were mostly joyful, and those who played upon it were generally females (Ps 68:25), as was the case among most ancient nations, and is so at the present day in the East. The usages of the modern East might adequately illustrate all the scriptural allusions to this instrument, but happily we have more ancient and very valuable illustration from the monuments of Egypt. In these we find that the tambourine was a favourite instrument, both on sacred and festive occasions. There were three kinds, differing, no doubt, in sound as well as in form; one was circular, another square or oblong, and the third consisted of two squares separated by a bar. They were all beaten by the land, and often used as an accompaniment to the harp and other instruments. The tambourine was usually played by females, who are represented as dancing to its sound without the accompaniment of any other instrument.— *John Kitto.* 
 
-**Verse 3.** *Harp.* Of the *kinnor* the Scripture affords little further information than that it was composed of the sounding parts of good wood, and furnished with strings. Josephus asserts that it was furnished with ten strings, and played with a *plectrum;* which, however, is not understood to imply that it never had any other number of strings, or was always played with the *plectrum.* David certainly played it with the hand (1Sa 16:23 18:10 19:9); and it was probably used in both ways, according to its size. That this instrument was really a *harp* is now very generally denied ( *Kitto* ). The reader will, by this time, have balanced the probabilities as to the nature and construction of the *kinnor;* and most likely he will be led to think that it was either a *guitar* or *lyre,* a belief which seems to be gaining ground, on account of the aptitude of such instruments for the uses to which the *kinnor* was devoted.— *J. Stainer.* 
+**Verse 3.** *Harp.* Of the *kinnor* the Scripture affords little further information than that it was composed of the sounding parts of good wood, and furnished with strings. Josephus asserts that it was furnished with ten strings, and played with a *plectrum;* which, however, is not understood to imply that it never had any other number of strings, or was always played with the *plectrum.* David certainly played it with the hand (1Sa 16:23 18:10 19:9); and it was probably used in both ways, according to its size. That this instrument was really a *harp* is now very generally denied (*Kitto* ). The reader will, by this time, have balanced the probabilities as to the nature and construction of the *kinnor;* and most likely he will be led to think that it was either a *guitar* or *lyre,* a belief which seems to be gaining ground, on account of the aptitude of such instruments for the uses to which the *kinnor* was devoted.— *J. Stainer.* 
 
 **Verse 4.** *For the Lord taketh pleasure in his people.* In the text there are two causes assigned why the saints should be excited to praise the Lord, and to be joyful in their King.
 
@@ -180,7 +180,7 @@ Many are made converts by the godly ends of good men; as the centurion himself, 
 
 **Verse 2.** A peculiar people, their peculiar God, and their peculiar joy in him.
 
-**Verse 2.** ( *second clause* ). Christ's people may well rejoice:
+**Verse 2.** (*second clause* ). Christ's people may well rejoice:
 
 1\.In the majesty of his person.
 
@@ -236,7 +236,7 @@ b) Men will be attracted.
 
 c) Heaven will be anticipated.
 
-**Verse 4.** ( *first clause* ). The Lord's taking pleasure in his people is,
+**Verse 4.** (*first clause* ). The Lord's taking pleasure in his people is,
 
 1\.A wonderful evidence of his grace.
 
@@ -252,7 +252,7 @@ c) Heaven will be anticipated.
 
 3\.The utterance of that emotion incumbent on the saints: "sing aloud."— *C.A.D.* 
 
-**Verse 5.** ( *second clause* ). Let them praise God—
+**Verse 5.** (*second clause* ). Let them praise God—
 
 1\.Upon their beds of *rest,* upon their *nightly* couch.
 

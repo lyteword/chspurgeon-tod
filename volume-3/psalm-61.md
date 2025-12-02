@@ -56,7 +56,7 @@ He who communes with God is always at home. The divine omnipresence surrounds su
 
 ## Explanatory Notes & Quaint Sayings
 
-**Title &mdash;** The word *Neginah* (the singular of *Neginoth* ) may be understood to be synonymous with the *kinnor* or harp: that is to say, the instrument of eight strings, probably played with a bow or plectrum. *John Jess.* 
+**Title &mdash;** The word *Neginah* (the singular of *Neginoth*) may be understood to be synonymous with the *kinnor* or harp: that is to say, the instrument of eight strings, probably played with a bow or plectrum. *John Jess.* 
 
 **Verse 1.** *Hear my cry, O God; attend unto my prayer.* Aquinas saith that some read the words thus, *Intende ad cantica mea,* attend unto my songs—and so the words may be safely read, from the Hebrew word hgr *ranah,* which signifies to shout or shrill out for joy—to note that the prayers of the saints are like pleasant songs and delightful ditties in the ears of God. No mirth, no music, can be so pleasing to us as the prayers of the saints are pleasing to God. So 2:14 Ps 141:2. *Thomas Brooks.* 
 
@@ -94,7 +94,7 @@ He who communes with God is always at home. The divine omnipresence surrounds su
 
 **Verse 4.** *Covert of thy wings.* To a person who should penetrate the Holy of Holies in the tabernacle, the most conspicuous object would be the outspread wings above the mercyseat: under their shelter and upon the mercyseat David would abide in quiet confidence. *C. H. S.* 
 
-**Verse 5.** ( *first clause* ). About this time I began to know that there is a God who hears and answers prayer. *John Newton, in his Journal.* 
+**Verse 5.** (*first clause* ). About this time I began to know that there is a God who hears and answers prayer. *John Newton, in his Journal.* 
 
 **Verse 5.** *Thou, O God, hast heard my vows:* that is, his prayers, which are always to be put up with vows. Indeed, that prayer is a blank which hath not a vow in it. Is it a mercy thou prayest him to give? If sincere, thou wilt vow to praise him for it, and serve him with it. Is it a sin thou prayest against? Except you juggle with God, thou wilt vow as well as pray against it. *William Gurnall.* 
 
@@ -164,7 +164,7 @@ Whole Psalm. The progressive *I wills.*
 
 **Verse 3.** *A shelter* from the rain of trouble, the storm of persecution, the floods of Satanic temptation, the heat of divine wrath, the blast of death. The ark, Lot's mountain, the blood stained door in Egypt, the city of refuge, the cave Adullam. *A strong tower:* lasting in itself, impregnable against foes, secure for the occupant.
 
-**Verse 5.** ( *second clause* ). Enquire whether or no it fares with us as with the saints.
+**Verse 5.** (*second clause* ). Enquire whether or no it fares with us as with the saints.
 
 **Verses 5, 8.** 
 
@@ -172,7 +172,7 @@ Whole Psalm. The progressive *I wills.*
 
 2\.Vows to be carefully fulfilled on earth.
 
-**Verse 5.** ( *second clause* ).
+**Verse 5.** (*second clause* ).
 
 1\.They that fear God have a "heritage."
 

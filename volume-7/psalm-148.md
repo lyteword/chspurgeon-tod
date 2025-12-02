@@ -90,7 +90,7 @@ Even of the children of Israel. The Lord knoweth them that are his. He knows the
 
 **Verse 2.** *Praise ye him, all his angels.* The angels of God were his first creatures; it has even been thought that they existed prior to the inanimate universe. They were already praising their Maker before the light of day, and they have never ceased their holy song. Angels praise God best in their holy service. They praised Christ as God when they sang their *Gloria in Excelsis* at the Incarnation, and they praised him as man when they ministered to him after his temptation and before his crucifixion. So also now angels praise the Lord by their alacrity in ministering to his saints.â€” *John Lorinus.* 
 
-**Verse 2.** *Praise ye him, all his hosts.* That is, his creatures (those above especially which are as his *cavalry* ) called his "hosts", for,
+**Verse 2.** *Praise ye him, all his hosts.* That is, his creatures (those above especially which are as his *cavalry*) called his "hosts", for,
 
 1\.Their number;
 
@@ -294,7 +294,7 @@ b) That all his perfections are engaged for their present and eternal welfare.â€
 
 4\.The Response which we will give. Let us now praise with heart, life, lip.
 
-**Verse 1.** ( *second and third clauses* ).
+**Verse 1.** (*second and third clauses* ).
 
 1\.The character of the praises of heaven.
 

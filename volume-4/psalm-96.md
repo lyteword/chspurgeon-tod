@@ -294,7 +294,7 @@ Thou wilt heed no less the wailing, yet hear through it angels singing."
 
 — *Matthew Henry.* 
 
-**Verses 3** ( *first clause* ).
+**Verses 3** (*first clause* ).
 
 1\.Declare among the heathen the glory of God's perfections, that they may acknowledge him as the true God.
 
@@ -316,7 +316,7 @@ Thou wilt heed no less the wailing, yet hear through it angels singing."
 
 3\.To whom. "Among the heathen, "all people.
 
-**Verse 3** ( *last clause* ). *His wonders among the people.* 
+**Verse 3** (*last clause* ). *His wonders among the people.* 
 
 1\.The wonders of his Being, to inspire them with awe.
 

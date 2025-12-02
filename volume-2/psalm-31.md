@@ -338,25 +338,25 @@ They say that he is a Vaudes, and worthy of punishment."
 
 **Verse 1.** Faith expressed, confusion deprecated, deliverance sought.
 
-**Verse 1.** ( *first clause* ). *Open avowal of faith*. 1. Duties which precede it, self examination, etc.
+**Verse 1.** (*first clause* ). *Open avowal of faith*. 1. Duties which precede it, self examination, etc.
 
 2\.Modes of making the confession.
 
 3\.Conduct incumbent on those who have made the profession.
 
-**Verse 1.** ( *last clause* ). How far the righteousness of God is involved in the salvation of a believer.
+**Verse 1.** (*last clause* ). How far the righteousness of God is involved in the salvation of a believer.
 
-**Verse 2.** ( *first clause* ). God's hearing prayer a great condescension.
+**Verse 2.** (*first clause* ). God's hearing prayer a great condescension.
 
-**Verse 2** ( *second clause* ). How far we may be urgent with God as to time.
+**Verse 2** (*second clause* ). How far we may be urgent with God as to time.
 
-**Verses 2-3** ( *last and first clauses* ). That which we have we may yet seek for.
+**Verses 2-3** (*last and first clauses* ). That which we have we may yet seek for.
 
-**Verses 2-3.** ( *last and first clauses* ). That which we have we may yet seek for.
+**Verses 2-3.** (*last and first clauses* ). That which we have we may yet seek for.
 
 **Verse 3.** Work out the metaphor of God as a rocky fastness of the soul.
 
-**Verse 3.** ( *last clause* ). 1. A blessing needed, *lead me*.
+**Verse 3.** (*last clause* ). 1. A blessing needed, *lead me*.
 
 2\.A blessing obtainable.
 
@@ -374,7 +374,7 @@ They say that he is a Vaudes, and worthy of punishment."
 
 5\.The rescue.
 
-**Verse 4.** ( *last clause* ). The weak one girt with omnipotence.
+**Verse 4.** (*last clause* ). The weak one girt with omnipotence.
 
 **Verse 5.** 1. Dying, in a saint's account, is a difficult work.
 
@@ -396,15 +396,15 @@ They say that he is a Vaudes, and worthy of punishment."
 
 3\.A directly personal favour from God delighted in.
 
-**Verse 7.** ( *centre clause* ). *Consider* the measure, the effects, the time, the tempering, the ending, and the recompense.
+**Verse 7.** (*centre clause* ). *Consider* the measure, the effects, the time, the tempering, the ending, and the recompense.
 
-**Verse 7.** ( *last clause* ). The Lord's familiarity with his afflicted.
+**Verse 7.** (*last clause* ). The Lord's familiarity with his afflicted.
 
 **Verse 8.** Christian liberty, a theme for gladness.
 
 **Verse 9.** The mourner's lament.
 
-**Verse 9.** ( *last clause* ). Excessive sorrow, its injurious effects on the body, the understanding, and the spiritual nature. Sin of it, cure of it.
+**Verse 9.** (*last clause* ). Excessive sorrow, its injurious effects on the body, the understanding, and the spiritual nature. Sin of it, cure of it.
 
 **Verses 9-10.** The sick man's moan, a reminder to those who enjoy good health.
 
@@ -440,7 +440,7 @@ And those who persecute my soul withstand.
 
 **Verse 15.** The believer the peculiar care of providence.
 
-**Verse 15.** ( *first clause* ). 1. The character of the earthly experience of the saints, "My times, "that is, the changes I shall pass through, etc.
+**Verse 15.** (*first clause* ). 1. The character of the earthly experience of the saints, "My times, "that is, the changes I shall pass through, etc.
 
 2\.The advantage of this variety.
 
@@ -472,7 +472,7 @@ And those who persecute my soul withstand.
 
 The heavenly servant's best reward.
 
-**Verse 16.** ( *last clause* ). A prayer for saints in all stages. Note its object, *save me;* and its plea, *Thy mercies' sake.* Suitable to the penitent, the sick, the doubting, the tried, the advanced believer, the dying saint.
+**Verse 16.** (*last clause* ). A prayer for saints in all stages. Note its object, *save me;* and its plea, *Thy mercies' sake.* Suitable to the penitent, the sick, the doubting, the tried, the advanced believer, the dying saint.
 
 **Verse 17.** The shame and silence of the wicked in eternity. The silence of the grave, its grave eloquence.
 

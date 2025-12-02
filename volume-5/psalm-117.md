@@ -70,7 +70,7 @@ Lastly, *the privilege of these servants* :that, as to the Jews, so also to the 
 
 3\.Our fears can only be so removed.
 
-**Verse 2** ( *last clause* )
+**Verse 2** (*last clause* )
 
 1\.In his attribute—he is always faithful.
 

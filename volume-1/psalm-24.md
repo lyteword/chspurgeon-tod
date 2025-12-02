@@ -169,7 +169,7 @@ The closing note is inexpressibly grand. Jehovah of hosts, Lord of men and angel
 
 **Verse 1.** *"The earth is the Lord's."* I. *Mention other claimants—idols: pope, man, devil, etc.,* II. *Try the suit.* III. *Carry out the verdict.* Use our substance, preach everywhere, claim all things for God. IV. *See how glorious the earth looks when she bears her Master's name.* 
 
-*Verse* 1 ( *last clause* ). All men belong to God. His sons or his subjects, his servants or his serfs, his sheep or his goats, etc. 
+*Verse* 1 (*last clause* ). All men belong to God. His sons or his subjects, his servants or his serfs, his sheep or his goats, etc. 
 
 **Verse 2.** Divine purposes accomplished by singular means. 
 
@@ -177,15 +177,15 @@ The closing note is inexpressibly grand. Jehovah of hosts, Lord of men and angel
 
 **Verse 3.** The all-important question. 
 
-*Verse* 4 ( *first clause* ). Connection between outward morality and inward purity. 
+*Verse* 4 (*first clause* ). Connection between outward morality and inward purity. 
 
-*Verse* 4 ( *second clause* ). Men judged by their delights. 
+*Verse* 4 (*second clause* ). Men judged by their delights. 
 
 **Verse 4.** *"Clean hands."* I. How to get them clean. II. How to keep them clean. III. How to defile them IV. How to get them clean again. 
 
 **Verses 4, 5.** Character manifested and favour received. 
 
-*Verse* 5 ( *second clause* ). The good man receiving righteousness and needing salvation, or the evangelical meaning of apparently legal passages. 
+*Verse* 5 (*second clause* ). The good man receiving righteousness and needing salvation, or the evangelical meaning of apparently legal passages. 
 
 **Verse 6.** Those who truly seek fellowship with God. 
 

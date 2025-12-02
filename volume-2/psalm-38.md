@@ -158,7 +158,7 @@ David committed himself to him that judgeth righteously, and so in patience was 
 
 **Verse 6.** Let a man see and feel himself under the bonds of guilt, in danger of hell, under the power of his lusts, enmity against God, and God a stranger to him; let but the sense of this condition lie upon his heart, and let him go on in his jollity if he can. What a woeful creature doth a man see himself now to be! He envies the happiness of the beasts that are filled, and play in their pastures. We have heard of him who when he saw a toad, stood weeping, because God had made him a *man,* so excellent a creature, and not a toad, so abominable: the goodness of God, then, it seems, as he apprehended it, made him weep; but this man meets a toad, and he weeps also, but why? because he is a *man* who thinks his estate infinitely worse than the condition of a toad, and if it were possible to attain it, would change states with the toad, that hath no guilt of sin, fears no wrath of God, is not under power of lusts or creatures; God is not enemy to it, which is his miserable state. *Giles Firmin,* 1617-1697.
 
-**Verse 7.** *For my loins are filled with a loathsome disease.* The word here used, according to Gesenius ( *Lex.* ), properly denotes the internal muscles of the loins near the kidneys, to which the fat adheres. The word rendered *loathsome* —the word *disease* being supplied by our translators—is derived from (hlq), *kalah,* a word which means to roast, to parch, as fruit, grain, etc.; and then, in the form used here, it means scorched, burned; hence, a burning or inflammation; and the whole phrase would be synonymous with *an inflammation of the kidneys.* The *word* here used does not imply that there was any eruption, or ulcer, though it would seem from verse five that this was the fact, and that the inflammation had produced this effect. *Albert Barnes.* 
+**Verse 7.** *For my loins are filled with a loathsome disease.* The word here used, according to Gesenius (*Lex.* ), properly denotes the internal muscles of the loins near the kidneys, to which the fat adheres. The word rendered *loathsome* —the word *disease* being supplied by our translators—is derived from (hlq), *kalah,* a word which means to roast, to parch, as fruit, grain, etc.; and then, in the form used here, it means scorched, burned; hence, a burning or inflammation; and the whole phrase would be synonymous with *an inflammation of the kidneys.* The *word* here used does not imply that there was any eruption, or ulcer, though it would seem from verse five that this was the fact, and that the inflammation had produced this effect. *Albert Barnes.* 
 
 **Verse 7.** *A loathsome disease.* In many things our estimates are extravagant; but we never over estimate the evil of sin. It is as corrupting as it is damning. It covers the soul with plague spots, with the leprosy. Isa 1:5-6. *William S. Plumer.* 
 
@@ -216,13 +216,13 @@ David committed himself to him that judgeth righteously, and so in patience was 
 
 **Verse 2.** God sharply chasteneth many of his children, and yet for all that he loves them never a whit the less, nor withholdeth in good time his mercy from them. *Thomas Wilcocks.* 
 
-**Verse 3.** ( *last clause* ). Sin causes *unrest.* He who cures it alone gives rest. Dwell on both facts.
+**Verse 3.** (*last clause* ). Sin causes *unrest.* He who cures it alone gives rest. Dwell on both facts.
 
-**Verse 4.** ( *first clause* ). Sin in its relations to us. To the *eye* pleasing. To the *heart* disappointing. In the *bones* vexing. Over the *head* overwhelming.
+**Verse 4.** (*first clause* ). Sin in its relations to us. To the *eye* pleasing. To the *heart* disappointing. In the *bones* vexing. Over the *head* overwhelming.
 
 **Verse 4.** The confession of an awakened sinner.
 
-**Verse 4.** ( *last clause* ). Sin.
+**Verse 4.** (*last clause* ). Sin.
 
 1\.Heavy— *a burden*.
 
@@ -270,7 +270,7 @@ David committed himself to him that judgeth righteously, and so in patience was 
 
 **Verse 18.** The twin children of grace—confession and contrition: their mutual revelation and reaction.
 
-**Verse 18.** ( *last clause* ). There is good reason for such sorrow, God is well pleased with it. It benefits the mourner.
+**Verse 18.** (*last clause* ). There is good reason for such sorrow, God is well pleased with it. It benefits the mourner.
 
 **Verse 19.** The terrible energy and industry of the powers of evil.
 

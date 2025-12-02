@@ -94,15 +94,15 @@ The Psalm closes with a sentence which is a refutation of the charge of forgetfu
 
 **Verse 1.** The apparent length of sorrow, only apparent. Contrast with days of joy, with eternal misery and eternal joy. Impatience, and other evil passions, cause the seeming length. Means of shortening, by refusing to forestall, or to repine afterwards. 
 
-*Verse* 1 ( *second clause* ). Hiding of the divine face. Why at all? Why from me? Why so long? 
+*Verse* 1 (*second clause* ). Hiding of the divine face. Why at all? Why from me? Why so long? 
 
 **Verse 2.** Advice to the dejected, or the soul directed to look out of itself for consolation. *A. Fuller.* 
 
-*Verse* 2 ( *first clause* ).— *Self-torture*, its cause, curse, crime, and cure. 
+*Verse* 2 (*first clause* ).— *Self-torture*, its cause, curse, crime, and cure. 
 
 **Verse 2.** *"Having sorrow in my heart daily."* I. The cause of daily sorrow. Great enemy, unbelief, sin, trial, loss of Jesus' presence, sympathy with others, mourning for human ruin. II. The necessity of daily sorrow. Purge corruptions, excite graces, raise desires heavenward. III. The cure of daily sorrow. Good food from God's table, old wine of promises, walks with Jesus, exercise in good works, avoidance of everything unhealthy. *B. Davies.* 
 
-*Verse* 2 ( *second clause* ).— Time anticipated when defeat shall be turned into victory. 
+*Verse* 2 (*second clause* ).— Time anticipated when defeat shall be turned into victory. 
 
 **Verse 3.** By accomodating the text to the believer. I. True character of Satan, "enemy." II. Remarkable fact that this enemy is exalted over us. III. Pressing enquiry, "How long?" *B.* Davies. 
 

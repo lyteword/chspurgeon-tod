@@ -70,13 +70,13 @@ And mine eye hath seen his desire upon mine enemies. He knew that yet he should 
 
 **Verse 1.** *Judge me by thy strength,* or power, *i.e.,* determine, decide my cause by thy mighty power. Saul, in the cause between him and David, was resolved to end it by force only, and to arbitrate in no other way than by a javelin, a sword, or his forces. The psalmist well knew that Saul, in this respect, would be too hard for him; and therefore applies for protection and justice to one whose power he knew was infinitely superior to his adversaries, and who, he was assured, could and would defend him. *Samuel Chandler (1693-1766), in "A Critical History of the Life of David."* 
 
-**Verse 2.** ( *second clause* ). Let *the words of my mouth* with which I have defended my cause, be pleasing and acceptable to thee. For in this way can *prayers* and words *of the mouth* be correctly distinguished, unless any one should wish simply to understand by them *prayers uttered by the mouth;* but, as I have said, the phrase is more emphatic. *Hermann Venema,* 1697-1787.
+**Verse 2.** (*second clause* ). Let *the words of my mouth* with which I have defended my cause, be pleasing and acceptable to thee. For in this way can *prayers* and words *of the mouth* be correctly distinguished, unless any one should wish simply to understand by them *prayers uttered by the mouth;* but, as I have said, the phrase is more emphatic. *Hermann Venema,* 1697-1787.
 
 **Verse 3.** *Strangers:* aliens to his truth, men who from unbelief have estranged themselves from all lot and portion in his covenants—oppress and persecute. *William Hill Tucker.* 
 
-**Verse 3.** ( *first clause* ). The Chaldee interpreter reads, *proud men,* instead of *strangers,* a reading which also is found in eight of Kennicott's Codices. So also Ps 86:14. *William Walford, in "The Book of Psalms. A New Translation, "* etc., 1837.
+**Verse 3.** (*first clause* ). The Chaldee interpreter reads, *proud men,* instead of *strangers,* a reading which also is found in eight of Kennicott's Codices. So also Ps 86:14. *William Walford, in "The Book of Psalms. A New Translation, "* etc., 1837.
 
-**Verse 3.** ( *first clause* ). There is a great mistake made by rendering the word oyrz ( *zarim* ) *strangers.* The Ziphites surely were Israelites, and not strangers. The fact is this, that word is taken from hrz ( *zarah* ) the primary meaning of which is "to scatter, "to "disperse, "also "to sift, "as grain. Hence it signifies, likewise figuratively, to sift a matter, to investigate, to search out, to trace out. So here, David complains of the new and dangerous enemies he had got in the Ziphites, who became Saul's spies. When he pleads, therefore, for deliverance, saying, "Save me, O God, " etc., he describes the danger he was in: *For spies have risen against me. Benjamin Weiss, in "New Translation, Exposition, and Chronological Arrangement of the Psalms,"* 1858.
+**Verse 3.** (*first clause* ). There is a great mistake made by rendering the word oyrz (*zarim*) *strangers.* The Ziphites surely were Israelites, and not strangers. The fact is this, that word is taken from hrz (*zarah*) the primary meaning of which is "to scatter, "to "disperse, "also "to sift, "as grain. Hence it signifies, likewise figuratively, to sift a matter, to investigate, to search out, to trace out. So here, David complains of the new and dangerous enemies he had got in the Ziphites, who became Saul's spies. When he pleads, therefore, for deliverance, saying, "Save me, O God, " etc., he describes the danger he was in: *For spies have risen against me. Benjamin Weiss, in "New Translation, Exposition, and Chronological Arrangement of the Psalms,"* 1858.
 
 **Verse 3.** *Oppressors seek after my soul; i.e.,* my life at least; my soul also they would destroy, if it lay in their power, as the Papists delivered up John Huss to the devil. *John Trapp,* 1611-1662.
 
@@ -84,7 +84,7 @@ And mine eye hath seen his desire upon mine enemies. He knew that yet he should 
 
 **Verse 4.** Christ sees with the utmost clearness, that God will be his *own helper,* and of them—the disciples and believers— *that uphold his soul.* In the same moment, does he foresee the destruction of his enemies. He views, in thought, the armies of Titus, the fall of the Jewish nation, and the dispersion of the remnant. He beholds the avenging hand of God, stretched in fury over the destroyers. *William Hill Tucker.* 
 
-**Verse 4.** ( *second clause* ). Such as take part with the persecuted saints, God will take part with them! *The Lord is with them that uphold my soul. David Dickson.* 
+**Verse 4.** (*second clause* ). Such as take part with the persecuted saints, God will take part with them! *The Lord is with them that uphold my soul. David Dickson.* 
 
 **Verses 4-5.** He is assured of help to himself and to his friends, and of vengeance to his enemies. Whence learn,
 
@@ -142,7 +142,7 @@ And mine eye hath seen his desire upon mine enemies. He knew that yet he should 
 
 (d) Being new praises, etc.
 
-**Verse 3.** ( *last clause* ). The root of sin: if they remembered his authority they dared not, if they tasted his love they would not, if they were conformed to his nature they could not.
+**Verse 3.** (*last clause* ). The root of sin: if they remembered his authority they dared not, if they tasted his love they would not, if they were conformed to his nature they could not.
 
 **Verse 4.** A theme for wonder.
 
@@ -156,7 +156,7 @@ And mine eye hath seen his desire upon mine enemies. He knew that yet he should 
 
 **Verse 6.** The goodness of praising the good name.
 
-**Verse 7.** ( *first clause* ). The exclamation of the newly pardoned penitent, the cry of the delivered saint, the song of the ripe Christian, the shout of the glorified believer.
+**Verse 7.** (*first clause* ). The exclamation of the newly pardoned penitent, the cry of the delivered saint, the song of the ripe Christian, the shout of the glorified believer.
 
 ## Works Upon The Fifty-Fourth Psalm
 

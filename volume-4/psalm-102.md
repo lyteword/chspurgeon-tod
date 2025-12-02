@@ -214,7 +214,7 @@ Molest her ancient solitary reign. **
 
 **Verse 8.** *Mine enemies reproach me,* etc. If I be where they are they rail at me to my face; and if I be not amongst them they revile me behind my back; and they do it not by starts and fits, that might give me some breathing time; but they are spitting their poison *all the day long;* and not single and one by one, that might leave hope of resisting; but they make combinations, and enter leagues against me; and to make their leagues the stronger, and less subject to dissolving, they bind themselves by oath, and take the sacrament upon it. And now sum up all these miseries and afflictions; begin with my fasting; then take my groaning; then add my watching; then the shame of being wondered at in company; then the discomfort of sitting disconsolate alone; and, lastly, add to these the spite and malice of my enemies; and what marvel, then, if these miseries joined all together make me altogether miserable; what marvel if I be nothing but skin and bone, when no flesh that were wise would ever stay upon a body to endure such misery. *Sir R. Baker.* 
 
-**Verse 8** ( *last clause* ). Swearing by one, means, to make his name a by-word of execration, or an example of cursing. (Isa 65:15; Je 29:22 42:18). *Carl Bernard Moll, in Lange's Commentary.* 
+**Verse 8** (*last clause* ). Swearing by one, means, to make his name a by-word of execration, or an example of cursing. (Isa 65:15; Je 29:22 42:18). *Carl Bernard Moll, in Lange's Commentary.* 
 
 **Verse 9.** *I have eaten ashes like bread.* Though the bread indeed be strange, yet not so strange as this,—that having complained before of forgetting to eat his bread, he should now on a sudden fall to *eating of ashes like bread.* For had he not been better to have forgotten it still, unless it had been more worth remembering? For there is not in nature so unfit a thing to eat as *ashes* ;it is worse than Nebuchadnezzar's grass. *Sir R. Baker.* 
 
@@ -224,9 +224,9 @@ Molest her ancient solitary reign. **
 
 **Verse 10.** *For thou hast lifted me up and cast me down.* That is that I might fall with greater poise. *Significatur gravissima collisio.* Here the prophet accuseth not God of cruelty, but bewaileth his own misery. *Miserum est fusisse felicem*, it is no small unhappiness to have been happy. *John Trapp.* 
 
-**Verse 11** ( *first clause* ). My days (my term of life) are as the lengthened shade, the lengthening shade of evening, that shows the near approach of night. The comparison, though not strictly expressed, is beautifully suggestive of the thought intended. *Thomas J. Conant.* 
+**Verse 11** (*first clause* ). My days (my term of life) are as the lengthened shade, the lengthening shade of evening, that shows the near approach of night. The comparison, though not strictly expressed, is beautifully suggestive of the thought intended. *Thomas J. Conant.* 
 
-**Verse 11** ( *last clause* ). The *and I,* in the Hebrew, stands in designed contrast to "But *thou, "* Ps 102:12. *A. R. Fausset.* 
+**Verse 11** (*last clause* ). The *and I,* in the Hebrew, stands in designed contrast to "But *thou, "* Ps 102:12. *A. R. Fausset.* 
 
 **Verse 13.** *Thou shalt arise, and have mercy,* etc. *Tu miserebere, "Thou shalt, "* as the Shunamite to the prophet, catching hold on his feet, though Gehazi thrust her away, *Vivit Dominus*, "As the Lord liveth, and as thy soul liveth, I will not let thee go; "and, as Jacob to the angel, when he had wrestled the whole night with him, *Non dimittam*, I will not let thee loose till I have a blessing from thee. *From "A Sermon at Paules Crosse on behalfe of Paules Church, March* 26, 1620. *By the B. of London" John King*.
 
@@ -260,7 +260,7 @@ Molest her ancient solitary reign. **
 
 3\.Yea, thirdly, they know their own interests are much concerned in God's glory, they never are losers by it: if in any work of God he want his praise, they will want their comfort; but if God be a gainer, they shall certainly be no losers. Whatever is poured upon the head of Christ—what ointment soever of praise or glory, it will in a due proportion fall down to the skirts of his garments; nor is there any other way to have any sweetness, comfort, praise, or glory to be derived unto themselves, but by giving all unto him to whom alone it belongeth, and then although he will never give away his glory—the glory of being the *fountain*, the *first, supreme, original giver* of all good; yet they shall have the glory of instruments, and of fellow workers with him, which is a glory and praise sufficient. *Stephen Marshall.* 
 
-**Verse 18** ( *first clause* ). Calvin translates thus,— *This shall be registered for the generations to come;* and observes,—"The Psalmist intimates, that this will be a memorable work of God, the praise of which shall be handed down to succeeding ages. Many things are worthy of praise, which are soon forgotten; but the prophet distinguishes between the salvation of the Church, for which he makes supplication, and common benefits. By the word *register* he means that the history of this would be worthy of having a place in the public records, that the remembrance of it might be transmitted to future generations."
+**Verse 18** (*first clause* ). Calvin translates thus,— *This shall be registered for the generations to come;* and observes,—"The Psalmist intimates, that this will be a memorable work of God, the praise of which shall be handed down to succeeding ages. Many things are worthy of praise, which are soon forgotten; but the prophet distinguishes between the salvation of the Church, for which he makes supplication, and common benefits. By the word *register* he means that the history of this would be worthy of having a place in the public records, that the remembrance of it might be transmitted to future generations."
 
 **Verse 18.** *This shall be written.* Nothing is more tenacious than man's, memory when he suffers an injury; nothing more lax if a benefit is conferred. For this reason God desires lest his gifts should fall out of mind, to have them committed to writing. *Le Blanc.* 
 
@@ -354,7 +354,7 @@ Or,
 
 2\.The prayer of trouble: "Hide not thy face; "not remove the trial, but be with me in it. A fiery furnace is a paradise when God is with us there. *G. R.* 
 
-**Verse 2** ( *first elause* ). He deprecates the loss of the divine countenance when under trouble.
+**Verse 2** (*first elause* ). He deprecates the loss of the divine countenance when under trouble.
 
 1\.That would intensify it a thousandfold.
 
@@ -364,7 +364,7 @@ Or,
 
 4\.That might injure the result of the trouble.
 
-**Verse 2** ( *last clause* ).
+**Verse 2** (*last clause* ).
 
 1\.We often need to be answered speedily.
 
@@ -404,7 +404,7 @@ Or,
 
 3\.The best behaviour under it: see Ps 102:9, 12-13.
 
-**Verse l0** ( *last cause* ). The prosperity of a church or an individual often followed by declension; worldly aggrandisement frequently succeeded by affliction; great joy in the Lord very generally succeeded by trial.
+**Verse l0** (*last cause* ). The prosperity of a church or an individual often followed by declension; worldly aggrandisement frequently succeeded by affliction; great joy in the Lord very generally succeeded by trial.
 
 **Verses 11-12.** *I* and *Thou*, or the notable contrast.
 

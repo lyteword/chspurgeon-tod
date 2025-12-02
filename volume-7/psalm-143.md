@@ -116,7 +116,7 @@ No sinner can endure sight of thee, O God, if he tries to be self justified.— 
 
 **Verse 4.** *Therefore is my spirit overwhelmed*, etc. David was not only a great saint, but a great soldier, and yet even he was sometimes ready to faint in the day of adversity. "Howl, fir trees, if the cedars be shaken."— *Matthew Henry.* 
 
-**Verse 4.** ( *second clause.* ) *Within* —literally, *"in the midst of me"*; implying how *deeply* the feeling had penetrated. *"Is desolate"*, or rather, "is *stupefied"*, in a similar sense to that of the Hebrew (Isa 59:16 63:5 Da 8:27). So the Chaldaic, The 70., Vulgate, Arabic, and Syriac, *"is agitated."* — *Andrew Robert Fausset.* 
+**Verse 4.** (*second clause.*) *Within* —literally, *"in the midst of me"*; implying how *deeply* the feeling had penetrated. *"Is desolate"*, or rather, "is *stupefied"*, in a similar sense to that of the Hebrew (Isa 59:16 63:5 Da 8:27). So the Chaldaic, The 70., Vulgate, Arabic, and Syriac, *"is agitated."* — *Andrew Robert Fausset.* 
 
 **Verse 4.** *Is desolate.* Or rather, "is full of amazement", literally, "astonishes itself"; seeks to comprehend the mystery of its sufferings, and is ever beaten back upon itself in its perplexity: such is the full force of the reflexive conjugation here employed.— *J. J. Stewart Perowne.* 
 
@@ -394,7 +394,7 @@ c) What renders it pleasing to God when done. Great faith. "For in thee do I tru
 
 **Verse 10.** See "Spurgeon's Sermons", No. 1519, "At School."
 
-**Verse 10.** ( *first half.* )
+**Verse 10.** (*first half.* )
 
 1\.The best instructions: "Teach me to do thy will." Not merely to know, but "to do."
 
@@ -410,7 +410,7 @@ c) What renders it pleasing to God when done. Great faith. "For in thee do I tru
 
 3\.The best lesson; for who so good a teacher as God? who so good a scholar as David? what so good a lesson as to do God's will?— *Sir Richard Baker.* 
 
-**Verse 10.** ( *latter half.* )
+**Verse 10.** (*latter half.* )
 
 1\.Utopia—"the land of uprightness." Describe it, and declare its glories.
 
@@ -418,13 +418,13 @@ c) What renders it pleasing to God when done. Great faith. "For in thee do I tru
 
 3\.The divine Guide,—"thy Spirit is good."
 
-**Verse 11.** ( *first clause.* )
+**Verse 11.** (*first clause.* )
 
 1\.What is this blessing? "Quicken me."
 
 2\.In what way will it glorify God, so that we may plead for the sake of his name?
 
-**Verse 11.** ( *second clause.* ) How is the righteousness of God concerned in our deliverance from trouble?
+**Verse 11.** (*second clause.*) How is the righteousness of God concerned in our deliverance from trouble?
 
 **Verse 12.** 
 

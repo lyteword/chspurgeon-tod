@@ -16,7 +16,7 @@ weight: 86
 
 ### Verse 2
 
-*Preserve my soul.* Let my life be safe from my enemies, and my spiritual nature be secure from their temptations. He feels himself unsafe except he be covered by the divine protection. For I am holy. I am set apart for holy uses, therefore do not let thine enemies commit a sacrilege by injuring or defiling me: I am clear of the crimes laid to my charge, and in that sense innocent; therefore, I beseech thee, do not allow me to suffer from unjust charges: and I am inoffensive, meek, and gentle towards others, therefore deal mercifully with me as I have dealt with my fellow men. Any of these renderings may explain the text, perhaps all together will expound it best. It is not self righteous in good men to plead their innocence as a reason for escaping from the results of sins wrongfully ascribed to them; penitents do not bedaub themselves with mire for the love of it, or make themselves out to be worse than they are out of compliment to heaven. No, the humblest saint is not a fool, and he is as well aware of the matters wherein he is clear as of those wherein he must cry *"peccavi."* To plead guilty to offences we have never committed is as great a lie as the denial of our real faults. O thou my God, save thy servant that trusteth in thee. Lest any man should suppose that David trusted in his own holiness he immediately declared his trust in the Lord, and begged to be saved as one who was not holy in the sense of being perfect, but was even yet in need of the very clements of salvation. How sweet is that title, "my God", when joined to the other, "thy servant"; and how sweet is the hope that on this ground we shall be saved; seeing that our God is not like the Amalekitish master who left his poor sick servant to perish. Note how David's poor *I am* (or rather the *I* repeated without the *am* ) appeals to the great *I AM* with that sacred boldness engendered by the necessity which breaks through stone walls, aided by the faith which removes mountains.
+*Preserve my soul.* Let my life be safe from my enemies, and my spiritual nature be secure from their temptations. He feels himself unsafe except he be covered by the divine protection. For I am holy. I am set apart for holy uses, therefore do not let thine enemies commit a sacrilege by injuring or defiling me: I am clear of the crimes laid to my charge, and in that sense innocent; therefore, I beseech thee, do not allow me to suffer from unjust charges: and I am inoffensive, meek, and gentle towards others, therefore deal mercifully with me as I have dealt with my fellow men. Any of these renderings may explain the text, perhaps all together will expound it best. It is not self righteous in good men to plead their innocence as a reason for escaping from the results of sins wrongfully ascribed to them; penitents do not bedaub themselves with mire for the love of it, or make themselves out to be worse than they are out of compliment to heaven. No, the humblest saint is not a fool, and he is as well aware of the matters wherein he is clear as of those wherein he must cry *"peccavi."* To plead guilty to offences we have never committed is as great a lie as the denial of our real faults. O thou my God, save thy servant that trusteth in thee. Lest any man should suppose that David trusted in his own holiness he immediately declared his trust in the Lord, and begged to be saved as one who was not holy in the sense of being perfect, but was even yet in need of the very clements of salvation. How sweet is that title, "my God", when joined to the other, "thy servant"; and how sweet is the hope that on this ground we shall be saved; seeing that our God is not like the Amalekitish master who left his poor sick servant to perish. Note how David's poor *I am* (or rather the *I* repeated without the *am*) appeals to the great *I AM* with that sacred boldness engendered by the necessity which breaks through stone walls, aided by the faith which removes mountains.
 
 ### Verse 3
 
@@ -118,7 +118,7 @@ What bodes good to me shall make them quail and blush. Disappointed and defeated
 
 **Verses 2-5.** The aspirations after holiness which are found in this Psalm, coupled with its earnest invocation of mercy from the God with whom there is forgiveness, render it peculiarly applicable to those whose daily access is to a throne of needed grace. Christians know that while their *standing* is the blameless perfection of the Lord their righteouness, they are in many things offenders still. Nor do we ever fully prove the preciousness of Jesus as our portion, except we are drawn to him by that Spirit which reveals to us a nakedness and poverty within ourselves, which his blessed fulness can alone redress. There is a consciousness of personal sanctification through faith (Ps 86:2) associated with an acutely sensitive perception of intrinsic worthlessness, such as only finds relief in the remembrance of unaltered grace (Ps 86:5), which, to the exercised spirit of one really growing in the knowledge of God, will address itself with an especial acceptance.— *Arthur Pridham.* 
 
-**Verse 3.** *Be merciful unto me.* Lest any should by the former words, ( *"I am holy",* )suspect him to be a merit monger, he beggeth mercy with instancy and constancy of request.— *John Trapp.* 
+**Verse 3.** *Be merciful unto me.* Lest any should by the former words, (*"I am holy",* )suspect him to be a merit monger, he beggeth mercy with instancy and constancy of request.— *John Trapp.* 
 
 **Verse 3.** *I cry unto thee daily.* A great difference between saints and sinners in prayer is that sinners who pray at all, pray only when they are in *trouble,* whereas saints cry daily unto God. Compare Job 27:10.— *William S. Plumer.* 
 
@@ -390,9 +390,9 @@ Fearful love and loving feare.
 
 **Verse 11**. Holiness taught, truth practised, God adored; and thus the life perfected.
 
-**Verse 11.** ( *middle clause* ). We should walk in the belief of the truth, its practice, enjoyment, and profession.— *William Jay.* 
+**Verse 11.** (*middle clause* ). We should walk in the belief of the truth, its practice, enjoyment, and profession.— *William Jay.* 
 
-**Verse 11.** ( *third clause* ). The necessity, benefit, and reasonableness of whole heartedhess in religion.
+**Verse 11.** (*third clause* ). The necessity, benefit, and reasonableness of whole heartedhess in religion.
 
 **Verse 12.** —The art of praising God by heart.
 
@@ -404,7 +404,7 @@ Fearful love and loving feare.
 
 3\.What thou art doing— *"great is thy mercy."* 
 
-**Verse 13.** ( *first clause* ).—God's mercy *great* in election, redemption, calling, pardon, upholding, etc. It is so, at this very moment, in supplying my needs, preserving from danger, consoling in sorrow, etc. Great is thy mercy *towards me* —so great a sinner, with such needs, so provoking, so full of doubts, etc.
+**Verse 13.** (*first clause* ).—God's mercy *great* in election, redemption, calling, pardon, upholding, etc. It is so, at this very moment, in supplying my needs, preserving from danger, consoling in sorrow, etc. Great is thy mercy *towards me* —so great a sinner, with such needs, so provoking, so full of doubts, etc.
 
 **Verses 13-15.** The three verses describe salvation, consequent persecution, and all sufficient consolation.
 

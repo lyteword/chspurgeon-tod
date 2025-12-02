@@ -86,7 +86,7 @@ Yet as the deep mirrors the sky, so the mercy of the Lord is to be seen reflecte
 
 **Verse 1.** It is not the imperfection or shortcoming in the fear of God, but the being destitute of it altogether, that proveth a wicked man: *There is no fear of God before his eyes. David Dickson.* 
 
-**Verse 1.** ( *last clause* ). *Not having the fear of God before his eyes,* has become inwoven into proceedings in criminal courts. When a man has no fear of God, he is prepared for any crime. Total depravity is not too strong a term to describe human wickedness. The sinner has *no fear of God.* Where that is wanting, how can there be any piety? And if there is no piety, there must be total want of right affections, and that is the very essence of depravity. *William S. Plumer.* 
+**Verse 1.** (*last clause* ). *Not having the fear of God before his eyes,* has become inwoven into proceedings in criminal courts. When a man has no fear of God, he is prepared for any crime. Total depravity is not too strong a term to describe human wickedness. The sinner has *no fear of God.* Where that is wanting, how can there be any piety? And if there is no piety, there must be total want of right affections, and that is the very essence of depravity. *William S. Plumer.* 
 
 **Verse 1.** Durst any mock God with flourishes and formalities in religion, if they feared him? Durst any provoke God to his face by real and open wickedness, if they feared him? Durst any sin with the judgments of God fresh bleeding before their eyes, if they feared the Lord and his wrath? Durst they sin with heaps of precious mercy before their eyes, if they feared the Lord and his goodness? Durst any flatter either others or themselves with hopes of impunity in their sin, if they feared the Lord and his truth? Durst any slight their own promises, professions, protestations, oaths, or design the entangling of others by them, rather than the binding of themselves, did they fear the Lord and his faithfulness, even the Lord who keepeth covenant and promise for ever? All these and many more transgressions of the wicked (all these ways of transgression are found among the wicked, it were well if none of them were found among those who have a name of godliness; I say, all these transgressions of the wicked) say, *There is no fear of God before their eyes. Joseph Caryl.* 
 
@@ -104,7 +104,7 @@ Yet as the deep mirrors the sky, so the mercy of the Lord is to be seen reflecte
 
 **Verse 3.** *He hath left off.* That little light he once had, he hath lost, and cast off such good practices as once in hypocrisy he performed; neither will he learn to do better. *John Trapp.* 
 
-**Verse 3.** ( *last clause* ). Apostasy from God is really an undoing of all the good which we have done. It is a wicked repentance quite contrary to the grace of repentance; as that is a repentance from dead works, so this is a repentance from works of a better sort: *He hath left off to be wise, and to do good.* It is a perversion to evil after a seeming conversion from it. *Timothy Cruso.* 
+**Verse 3.** (*last clause* ). Apostasy from God is really an undoing of all the good which we have done. It is a wicked repentance quite contrary to the grace of repentance; as that is a repentance from dead works, so this is a repentance from works of a better sort: *He hath left off to be wise, and to do good.* It is a perversion to evil after a seeming conversion from it. *Timothy Cruso.* 
 
 **Verses 3-4.** 
 
@@ -232,7 +232,7 @@ In a letter of Jeronius Segerson, written in the prison at Antwerp to his wife, 
 
 **Verse 3.** Bad words. Two out of many kinds.
 
-**Verse 3.** ( *second clause* ). The relation between true wisdom and practical goodness.
+**Verse 3.** (*second clause* ). The relation between true wisdom and practical goodness.
 
 **Verse 4.** Diligence in doing evil, a mark of deep depravity. *W.S. Plumer.* 
 
@@ -240,15 +240,15 @@ In a letter of Jeronius Segerson, written in the prison at Antwerp to his wife, 
 
 **Verse 4.** The sinner on his bed, in his conduct, in his heart; and to this, in his death, and in his doom.
 
-**Verse 4.** ( *second clause* ). Ways which are not good.
+**Verse 4.** (*second clause* ). Ways which are not good.
 
-**Verse 4.** ( *last clause* ). Neutrality condemned.
+**Verse 4.** (*last clause* ). Neutrality condemned.
 
 **Verses 5-6.** Four glorious similes of the mercy, faithfulness, and providence of God. The preacher has here a wealth of poetic imagery never surpassed.
 
 **Verse 6.** God's word and works mysterious. *C. Simeon.* 
 
-**Verse 6.** ( *second clause* ). God's judgments are—
+**Verse 6.** (*second clause* ). God's judgments are—
 
 1\.Often unfathomable—we cannot discover the foundation or cause, and spring of them.
 
@@ -260,19 +260,19 @@ In a letter of Jeronius Segerson, written in the prison at Antwerp to his wife, 
 
 5\.They become a highway of communion with God. The sea is today the great highway of the world.
 
-**Verse 6.** ( *last clause* ). Kindness of God to the lower animals, as well as man.
+**Verse 6.** (*last clause* ). Kindness of God to the lower animals, as well as man.
 
 **Verse 7.** The object, reasons, nature, and experience of faith.
 
 **Verses 7-8.** Admiration! Confidence! Expectation! Realisation!
 
-**Verse 8.** ( *first clause* ). *The provisions of the Lord's house.* What they are, their excellence and abundance, and for whom provided.
+**Verse 8.** (*first clause* ). *The provisions of the Lord's house.* What they are, their excellence and abundance, and for whom provided.
 
-**Verse 8.** ( *second clause* ). *The heavenly Hiddekel* —Its source, its flood, the happy drinkers, how they came to drink.
+**Verse 8.** (*second clause* ). *The heavenly Hiddekel* —Its source, its flood, the happy drinkers, how they came to drink.
 
-**Verse 9.** ( *first clause* ). LIFE, natural, mental, spiritual, proceeds from God, is sustained, restored, purified, and perfected by him. In him it dwells with permanency, from him it flows freely, with freshness, abundance, and purity; to him it should be consecrated.
+**Verse 9.** (*first clause* ). LIFE, natural, mental, spiritual, proceeds from God, is sustained, restored, purified, and perfected by him. In him it dwells with permanency, from him it flows freely, with freshness, abundance, and purity; to him it should be consecrated.
 
-**Verse 9.** ( *second clause* ). LIGHT, what it is to see it. *Divine* light, what it is; how it is the medium by which we see other light. The experience here described, and the duty here hinted at.
+**Verse 9.** (*second clause* ). LIGHT, what it is to see it. *Divine* light, what it is; how it is the medium by which we see other light. The experience here described, and the duty here hinted at.
 
 **Verse 10.** 
 

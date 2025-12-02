@@ -132,7 +132,7 @@ Observe the phrase, *"I have not sat with vain persons."* 1. Sitting is a postur
 
 **Verse 6.** *In innocency.* The very *akmt* and crown of all our preparation, the purest water we can wash in, is *innocency;* and *innocency* is a virtue of the heart as well as of the hand. "Cleanse your hands, ye sinners; and purify your hearts, ye double minded." Jas 4:8. I could wish our washing might be like Cyprian's baptising, *ad tincturam,* even till we were dyed in repentance and the blood of Christ. Let the quantity of thy sins be the measure of thy repentance. First offer thine *innocency,* then thy sacrifice. It is not enough that you come this day by order, you must come with *innocency.* God requires the duty of the second table, as well as of the first; he abhors the outward act of piety where he finds no conscience and practice of *innocency. Isaac Bargrave.* 
 
-**Verse 6.** ( *first clause* ). One morning, as Gotthold was pouring water into a basin, he recollected the words of Scripture: *I will wash my hands in innocency,* a text which shows how diligently the royal prophet had endeavoured to lead a blameless life, and walk habitually in the fear of God. Upon this he mused, and said, Henceforth, my God, every time I pour out water to wash with, I will call to mind that it is my duty to cleanse my hands from wicked actions, my mouth from wicked words, and my heart from wicked lusts and desires, that so I may be enabled to lift holy hands unto thee, and with unspotted lips and heart worship thee, to the best of my ability. What will it profit me to strive after outward purity, if my heart is filthy and abominable in thy sight? Can the food nourish me which I have earned with polluted hands, or seized with violence and injustice, or eaten with insensibility and ingratitude? Ah! no, my God; far from me be food like this. My first care shall be to maintain a blameless walk; my next, when I have thoughtlessly defiled myself, to cleanse and wash away the stain, and remove mine iniquity from thine eyes. *"Purge me, O my God, and I shall be clean: wash me, and I shall be whiter than snow."* Ps 51:7. *Christian Scriver* (1629-1693), in *"Gotthold's Emblems."* 
+**Verse 6.** (*first clause* ). One morning, as Gotthold was pouring water into a basin, he recollected the words of Scripture: *I will wash my hands in innocency,* a text which shows how diligently the royal prophet had endeavoured to lead a blameless life, and walk habitually in the fear of God. Upon this he mused, and said, Henceforth, my God, every time I pour out water to wash with, I will call to mind that it is my duty to cleanse my hands from wicked actions, my mouth from wicked words, and my heart from wicked lusts and desires, that so I may be enabled to lift holy hands unto thee, and with unspotted lips and heart worship thee, to the best of my ability. What will it profit me to strive after outward purity, if my heart is filthy and abominable in thy sight? Can the food nourish me which I have earned with polluted hands, or seized with violence and injustice, or eaten with insensibility and ingratitude? Ah! no, my God; far from me be food like this. My first care shall be to maintain a blameless walk; my next, when I have thoughtlessly defiled myself, to cleanse and wash away the stain, and remove mine iniquity from thine eyes. *"Purge me, O my God, and I shall be clean: wash me, and I shall be whiter than snow."* Ps 51:7. *Christian Scriver* (1629-1693), in *"Gotthold's Emblems."* 
 
 **Verse 6.** *I will compass thine altar, O Lord.* On the next day after this feast (the Feast of Tabernacles), the people compassed the altar seven times, with palm boughs in their hands, in the remembrance of the overthrow of Jericho...Not only the boughs, but the days of this whole Feast of Tabernacles, were termed *Hosannoth,* from the usual acclamation of the people whilst they carried the boughs up and down. *Thomas Godwyn, B.D.* (1587-1643), in *"Moses and Aaron."* 
 
@@ -166,7 +166,7 @@ Proved false again? Two hundred more.
 
 —Samuel Butler (1600-1680), *in Hudibras.* Part 3. Canto 1.
 
-**Verses 12** ( *first clause* ). The upright man's *foot,* is said to *stand in an even place;* he walks not haltingly and uncomely, as those who go in unequal ways, which are hobbling, and up and down, or those whose feet and legs are not even (as Solomon saith), "The legs of the lame are not equal, "and so cannot *stand in an even place,* because one is long and the other short; the sincere man's feet are *even,* and the legs of a length, as I may say; his care alike conscientious to the whole will of God. The hypocrite, like the badger, hath one foot shorter than another; or, like a foundered horse, he doth not stand, as we say, right of all four; one foot at least you shall perceive he favours, loath to put it down. *William Gurnall.* 
+**Verses 12** (*first clause* ). The upright man's *foot,* is said to *stand in an even place;* he walks not haltingly and uncomely, as those who go in unequal ways, which are hobbling, and up and down, or those whose feet and legs are not even (as Solomon saith), "The legs of the lame are not equal, "and so cannot *stand in an even place,* because one is long and the other short; the sincere man's feet are *even,* and the legs of a length, as I may say; his care alike conscientious to the whole will of God. The hypocrite, like the badger, hath one foot shorter than another; or, like a foundered horse, he doth not stand, as we say, right of all four; one foot at least you shall perceive he favours, loath to put it down. *William Gurnall.* 
 
 **Verse 12.** *On an even place.* As a man whose feet are firmly fixed upon even ground is apprehensive of no fall, so the pious worshippers of Jehovah feel no dread lest their adversaries should finally triumph over them. *William Walford.* 
 
@@ -180,7 +180,7 @@ Proved false again? Two hundred more.
 
 3\. *The only means of procuring them.* 
 
-**Verse 1.** ( *last sentence* ). The upholding power of trust in God.
+**Verse 1.** (*last sentence* ). The upholding power of trust in God.
 
 **Verse 2.** *Divine examinations.* Their variety, severity, searching nature, accuracy, certainty: when to be desired, and when to be dreaded.
 
@@ -216,5 +216,5 @@ Proved false again? Two hundred more.
 
 **Verse 12.** Secure standing, honoured position, grateful praise.
 
-**Verse 12** ( *last clause* ). Congregational Psalmody, and our personal share in it.
+**Verse 12** (*last clause* ). Congregational Psalmody, and our personal share in it.
 
