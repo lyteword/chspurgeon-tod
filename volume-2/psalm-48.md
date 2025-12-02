@@ -130,7 +130,7 @@ Of alabaster, topped with golden spires.
 
 **Verses 12-13.** In a spiritual sense *the towers* and *bulwarks* of Sion are those doctrines of the true faith, which are the strength and glory of the church, which are to be maintained in their soundness and stability against the assaults of heretical teachers, so that they may be transmitted unimpaired to following generations. *Origen and Theodoret, quoted by Wordsworth.* 
 
-**Verse 13.** *Mark ye well her bulwarks.* Margin as in the Hebrew, *"Set your heart to her bulwarks."* That is, pay close attention to them; make the investigation with care, not as one does whose heart is not in the thing, and who does it negligently. The word rendered *bulwarks* , (lyx), *khail* —means properly, a host or army, and then a fortification or entrenchment, especially the *ditch* or *trench,* with the low wall or breastwork which surrounds it. 2Sa 20:15 Isa 26:1. ( *Gesenius, Lex.)—Albert Barnes.* 
+**Verse 13.** *Mark ye well her bulwarks.* Margin as in the Hebrew, *"Set your heart to her bulwarks."* That is, pay close attention to them; make the investigation with care, not as one does whose heart is not in the thing, and who does it negligently. The word rendered *bulwarks*, (lyx), *khail* —means properly, a host or army, and then a fortification or entrenchment, especially the *ditch* or *trench,* with the low wall or breastwork which surrounds it. 2Sa 20:15 Isa 26:1. ( *Gesenius, Lex.)—Albert Barnes.* 
 
 **Verse 13.** *Mark ye well* : *set your heart,* mind earnestly, set your affections on. *Henry Ainsworth.* 
 

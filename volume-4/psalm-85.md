@@ -366,11 +366,11 @@ Whose pleasure is in unison with God's."
 
 2\.The wisdom of the divine dealings in *the calling* and guidance of the believer; so that mercy, truth, etc., each becomes in turn conspicuous in our experience.
 
-3\.The completeness of the divine image *in the sanctified soul* , so that the perfected saint abounds in mercy and truth, is filled with peace, and is conformed to his righteous Lord.
+3\.The completeness of the divine image *in the sanctified soul*, so that the perfected saint abounds in mercy and truth, is filled with peace, and is conformed to his righteous Lord.
 
 **Verse 12.** 
 
-1\.All spiritual good is from God: *The Lord will give* , etc.
+1\.All spiritual good is from God: *The Lord will give*, etc.
 
 (a) Is repentance a good thing? The Lord will give repentance.
 

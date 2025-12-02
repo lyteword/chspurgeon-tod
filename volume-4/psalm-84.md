@@ -392,7 +392,7 @@ Not only does their faith bring forth water out of the sand and rocks of the des
 
 1\.Trusting God in trouble brings present comfort—Who passing, etc.
 
-2\.Present comfort ensures still larger supplies— *The rain also* , etc. *G. R.* 
+2\.Present comfort ensures still larger supplies— *The rain also*, etc. *G. R.* 
 
 **Verse 8.** There is,
 
@@ -456,7 +456,7 @@ Not only does their faith bring forth water out of the sand and rocks of the des
 
 1\.A comparison of Places. *A day in thy courts,* etc. How much more a day in heaven! What, then, must an eternity in heaven be!
 
-2\.A comparison of Persons. *I would rather be a doorkeeper* , etc. Better be the least in the Church than the greatest in the world. If "better reign in hell than serve in heaven" was Satan's first thought after he fell, it was the first thought only. *G.R.* 
+2\.A comparison of Persons. *I would rather be a doorkeeper*, etc. Better be the least in the Church than the greatest in the world. If "better reign in hell than serve in heaven" was Satan's first thought after he fell, it was the first thought only. *G.R.* 
 
 **Verse 10.** 
 

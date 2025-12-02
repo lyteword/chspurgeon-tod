@@ -252,9 +252,9 @@ Why we have wept before."
 
 **Verse 2.** The sick man, the physician, the night bell, the medicine, and the cure; or, a covenant God, a sick saint, a crying heart, a healing hand.
 
-**Verse 3.** *Upbringing and preservation,* two choice mercies; made the more illustrious by two terrible evils, *grave* , and *pit* ; traced immediately to the Lord, *thou hast* .
+**Verse 3.** *Upbringing and preservation,* two choice mercies; made the more illustrious by two terrible evils, *grave*, and *pit* ; traced immediately to the Lord, *thou hast* .
 
-**Verse 4.** *Song* , a sacred service; *saints* especially called to it; *divine holiness,* a choice subject for it; *Memory,* an admirable aid in it.
+**Verse 4.** *Song*, a sacred service; *saints* especially called to it; *divine holiness,* a choice subject for it; *Memory,* an admirable aid in it.
 
 **Verse 5.** The anger of God in relation to his people.
 
@@ -282,7 +282,7 @@ Why we have wept before."
 
 **Verse 7.** ( *last clause* ). The gracious bemoanings of a soul in spiritual darkness.
 
-**Verse 8.** , in connection with verse 3 *prayer the universal remedy.* 
+**Verse 8.**, in connection with verse 3 *prayer the universal remedy.* 
 
 **Verse 9.** ( *first clause* ). Arguments with God for continued life and renewed favour.
 
@@ -298,7 +298,7 @@ Why we have wept before."
 
 **Verse 11.** The believer's change of raiment: illustrate by life of Mordecai or Joseph; mention all the garbs the believer is made to wear, as a mourner, a beggar, a criminal, &c.
 
-**Verse 12.** Our *glory* , and its relation to God's glory.
+**Verse 12.** Our *glory*, and its relation to God's glory.
 
 **Verse 12.** The end of gracious dispensations.
 

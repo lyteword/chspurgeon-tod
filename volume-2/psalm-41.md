@@ -176,9 +176,9 @@ And plants relief for coming miseries. **
 
 3\.(Which I like best), by observing all he can in me, and drawing what he can from me, and so laying all up together in his mind, as the ground of his unjust surmises and censures concerning me. *Arthur Jackson.* 
 
-**Verse 8.** *An evil disease, say they, cleaveth fast unto him. An evil* deed of Belial cleaveth fast to him. Grammarians maintain that the word *Belial* is compounded of (ylb), *beli* , and (ley), *yaal* , which signify *"not to rise"* the expression, *"thing of Belial"* (for so it is literally in the Hebrew), I understand in this place as meaning an extraordinary and hateful crime which as we commonly say can never be expiated, and from which there is no possibility of escape; unless perhaps some would rather refer it to the affliction itself under which he laboured, as if his enemies had said that he was seized by some incurable malady. *John Calvin.* 
+**Verse 8.** *An evil disease, say they, cleaveth fast unto him. An evil* deed of Belial cleaveth fast to him. Grammarians maintain that the word *Belial* is compounded of (ylb), *beli*, and (ley), *yaal*, which signify *"not to rise"* the expression, *"thing of Belial"* (for so it is literally in the Hebrew), I understand in this place as meaning an extraordinary and hateful crime which as we commonly say can never be expiated, and from which there is no possibility of escape; unless perhaps some would rather refer it to the affliction itself under which he laboured, as if his enemies had said that he was seized by some incurable malady. *John Calvin.* 
 
-**Verse 8.** *An evil disease,* etc. What is here meant by (leylb-rkd) is matter of some difficulty. The ancient interpreters generally render it a *perverse* or *mischievous* , or *wicked word;* the Chaldee, a *perverse word;* the Syriac, a *word of iniquity;* the LXX *logon paranomon;* the Latin, *iniquum verbum* , a *wicked word;* the Arabic, *words contrary to the law.* And so in all probability it is set to signify a *great slander,* or *calumny* —that as "men of Belial" are *slanderous* persons, so the *speech of Belial* shall signify a *slanderous* speech. And this is said to *"cleave"* to him on whom it is fastened, it being the nature of calumnies, when strongly affixed on any, to *cleave* fast, and leave some *evil mark* behind them. *Henry Hammond.* 
+**Verse 8.** *An evil disease,* etc. What is here meant by (leylb-rkd) is matter of some difficulty. The ancient interpreters generally render it a *perverse* or *mischievous*, or *wicked word;* the Chaldee, a *perverse word;* the Syriac, a *word of iniquity;* the LXX *logon paranomon;* the Latin, *iniquum verbum*, a *wicked word;* the Arabic, *words contrary to the law.* And so in all probability it is set to signify a *great slander,* or *calumny* —that as "men of Belial" are *slanderous* persons, so the *speech of Belial* shall signify a *slanderous* speech. And this is said to *"cleave"* to him on whom it is fastened, it being the nature of calumnies, when strongly affixed on any, to *cleave* fast, and leave some *evil mark* behind them. *Henry Hammond.* 
 
 **Verse 9.** *Yea, mine own familiar friend,* etc. The sufferings of the church, like those of her Redeemer, generally begin at home: her open enemies can do her no harm, until her pretended friends have delivered her into their hands; and, unnatural as it may seem, they who have waxed fat upon her bounty, are sometimes the first to *lift the heel* against her. *George Horne.* 
 
@@ -238,7 +238,7 @@ When the child is persuaded that his father loveth him, he is bold to ask this a
 
 7\.We enter into communion with the lowly Saviour.
 
-**Verse 1.** The support of the Small pox Hospitals recommended. *Bishop Squire* , 1760. Scores of sermons of this kind have been preached from this text.
+**Verse 1.** The support of the Small pox Hospitals recommended. *Bishop Squire*, 1760. Scores of sermons of this kind have been preached from this text.
 
 **Verse 2.** *Blessed upon the earth.* What blessings of an earthly character godly character secures, and in general what it is to be blessed with regard to this life.
 

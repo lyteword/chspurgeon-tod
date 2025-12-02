@@ -112,7 +112,7 @@ The song ends with the refrain, *Man that is in honour, and understandeth not, i
 
 **Verse 5.** *Wherefore should I fear in the days of evil, when the iniquity of my heels shall compass me about?* That is, when my sins or failings in what I have done, come to my remembrance, or are chastened upon me. Every man's heels hath some iniquity: as we shall have some dirt cleaving to our heels while we walk in a dirty world, so there is some dirt, some defilement, upon all our actions, which we may call, *the iniquity of our heel. Joseph Caryl.* 
 
-**Verse 5.** *When the iniquity of my heels shall compass me about?* With Bishop Lowth, the celebrated Michaelis, Bishop Hare, and a host of other critics, I decidedly incline to the idea, that (ybqe), rendered *"my heels"* is to be regarded as the present participle of the verb (bqe), *to supplant, to act deceitfully, to deceive, to hold one by the heel* , etc., etc. If this be correct, then the proper translation will be:—
+**Verse 5.** *When the iniquity of my heels shall compass me about?* With Bishop Lowth, the celebrated Michaelis, Bishop Hare, and a host of other critics, I decidedly incline to the idea, that (ybqe), rendered *"my heels"* is to be regarded as the present participle of the verb (bqe), *to supplant, to act deceitfully, to deceive, to hold one by the heel*, etc., etc. If this be correct, then the proper translation will be:—
 
 Wherefore should I fear in the days of adversity,
 

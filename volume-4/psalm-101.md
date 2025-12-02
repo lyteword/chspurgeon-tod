@@ -46,7 +46,7 @@ weight: 101
 
 ### Verse 8
 
-*Early.* From some incidental notices of Scripture (2Sa 15:2 Ps 101:8 Je 21:12), it has been inferred that judges ordinarily held their sessions in the morning. In a climate like that of Palestine, such a custom would be natural and convenient. It is doubtful, however, whether this passage expresses anything more than the promptness and zeal which a righteous judge exercises in the discharge of his duty.— *E.P. Barrows* , in *"Biblical Geography and Antiquities".*
+*Early.* From some incidental notices of Scripture (2Sa 15:2 Ps 101:8 Je 21:12), it has been inferred that judges ordinarily held their sessions in the morning. In a climate like that of Palestine, such a custom would be natural and convenient. It is doubtful, however, whether this passage expresses anything more than the promptness and zeal which a righteous judge exercises in the discharge of his duty.— *E.P. Barrows*, in *"Biblical Geography and Antiquities".*
 
 ### Verse 8
 
@@ -108,7 +108,7 @@ As mercy is here set in the first place; so shall the sentence of mercy and abso
 
 **Verse 4.** *A froward heart.* By which I understand *"from-wardness"* —giving way to sudden impulses of anger, or quick conception, and casting it forth in words or deeds of impetuous violence.— *Thomas Chalmers.* 
 
-**Verse 5.** *Privily slandereth* —literally, he that *tongueth* his neighbour secretly. *Will I not suffer* , is properly, "him I *cannot", i.e.,* cannot live with, cannot bear about me, as the same verb is used in Isa 1:13.— *Henry Cowles.* 
+**Verse 5.** *Privily slandereth* —literally, he that *tongueth* his neighbour secretly. *Will I not suffer*, is properly, "him I *cannot", i.e.,* cannot live with, cannot bear about me, as the same verb is used in Isa 1:13.— *Henry Cowles.* 
 
 **Verse 5.** *Him that hath an high look.* Pride will sit and show itself in the eyes as soon as anywhere. A man is seen what he is *in oculis, in poculis, in loculis* (in his eyes, his cups, and his resorts) say the Rabbins. See Pr 6:17.— *John Trapp.* 
 
@@ -228,5 +228,5 @@ As mercy is here set in the first place; so shall the sentence of mercy and abso
 
 ## Works Upon The Hundred And First Psalm
 
-In CHANDLER's *"Life of David"* , Vol. II, pp. 16-20, there is an Exposition of this Psalm. "King David's Vow for Reformation of Himselfe, his Family, his Kingdome. Delivered in twelve sermons before the Prince his Highhesse vpon Psalme 101. By GEORGE HAKEWl LL, Dr. in Diuinity. London 1622."
+In CHANDLER's *"Life of David"*, Vol. II, pp. 16-20, there is an Exposition of this Psalm. "King David's Vow for Reformation of Himselfe, his Family, his Kingdome. Delivered in twelve sermons before the Prince his Highhesse vpon Psalme 101. By GEORGE HAKEWl LL, Dr. in Diuinity. London 1622."
 

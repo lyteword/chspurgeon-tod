@@ -20,11 +20,11 @@ weight: 117
 
 **Whole Psalm.** A very short Psalm if you regard the words, but of very great compass and most excellent if you thoughtfully consider the meaning. There are here five principal points of doctrine.
 
-First, *the calling of the Gentiles* , the Apostle being the interpreter, Ro 15:11; but in vain might the Prophet invite the Gentiles to praise Jehovah, unless they were to be gathered into the unity of the faith together with the children of Abraham.
+First, *the calling of the Gentiles*, the Apostle being the interpreter, Ro 15:11; but in vain might the Prophet invite the Gentiles to praise Jehovah, unless they were to be gathered into the unity of the faith together with the children of Abraham.
 
-Second, *The Summary of the Gospel* , namely, the manifestation of grace and truth, the Holy Spirit being the interpreter, Joh 1:17.
+Second, *The Summary of the Gospel*, namely, the manifestation of grace and truth, the Holy Spirit being the interpreter, Joh 1:17.
 
-Third, *The end of so great a blessing* , namely, the worship of God in spirit and in truth, as we know that the kingdom of the Messiah is spiritual.
+Third, *The end of so great a blessing*, namely, the worship of God in spirit and in truth, as we know that the kingdom of the Messiah is spiritual.
 
 Fourth, *the employment of the subjects of the great King* is to praise and glorify Jehovah.
 
@@ -32,7 +32,7 @@ Lastly, *the privilege of these servants* :that, as to the Jews, so also to the 
 
 **Whole Psalm.** This Psalm, the shortest portion of the Book of God, is quoted and given much value to, in Ro 15:11. And upon this it has been profitably observed, "It is a small portion of Scripture, and such as we might easily overlook it. But not so the Holy Ghost. He gleans up this precious little testimony which speaks of grace to the Gentiles, and presses it on our attention." *From Bellett's Short Meditations on the Psalms, chiefly in their Prophetic character,* 1871.
 
-**Whole Psalm.** The occasion and the author of this Psalm are alike unknown. De Wette regards it as a *Temple Psalm* , and agrees with Rosenmueller in the supposition that it was sung either at the beginning or the end of the service it the temple. Knapp supposes that it was used as an intermediate service, sung during the progress of the general service, to vary the devotion, and to awaken a new interest in the service, either sung by the choir or by the whole people. *Albert Barnes.* 
+**Whole Psalm.** The occasion and the author of this Psalm are alike unknown. De Wette regards it as a *Temple Psalm*, and agrees with Rosenmueller in the supposition that it was sung either at the beginning or the end of the service it the temple. Knapp supposes that it was used as an intermediate service, sung during the progress of the general service, to vary the devotion, and to awaken a new interest in the service, either sung by the choir or by the whole people. *Albert Barnes.* 
 
 **Whole Psalm.** In God's worship it is not always necessary to be long; few words sometimes say what is sufficient, as this short Psalm giveth us to understand. *David Dickson.* 
 
@@ -48,9 +48,9 @@ Lastly, *the privilege of these servants* :that, as to the Jews, so also to the 
 
 **Verse 2.** *For his merciful kindness is great toward us.* Albeit there be matter of praise unto God in himself, though we should not be partakers of any benefit from him, yet the Lord doth give his people cause to praise him for favours to them in their own particular cases. *David Dickson.* 
 
-**Verse 2.** *For his merciful kindness is great.* rbg, *gabar* , is *strong* :it is not only great in *bulk* or *number* ;but it is *powerful* ;it prevails over sin, Satan, death, and hell. *Adam Clarke* 
+**Verse 2.** *For his merciful kindness is great.* rbg, *gabar*, is *strong* :it is not only great in *bulk* or *number* ;but it is *powerful* ;it prevails over sin, Satan, death, and hell. *Adam Clarke* 
 
-**Verse 2.** *Merciful kindness... and the truth of the LORD.* Here, and so in divers other Psalms, God's mercy and truth are joined together; to show that all passages and proceedings, both in ordinances and in providence, whereby he comes and communicates himself to his people are not only mercy, though that is very sweet, but truth also. Their blessings come to them in the way of promise from God, as bound to them by the truth of his covenant. This is soul satisfying indeed; this turns all that a man hath to cream, when every mercy is a present sent from heaven by virtue of a promise. Upon this account, God's mercy is ordinarily in the Psalms bounded by his truth; that none may either presume him more merciful than he hath declared himself in his word; nor despair of finding mercy *gratis* , according to the truth of his promise. Therefore though thy sins be great, believe the text, and know that God's mercy is greater than the sins. The high heaven covereth as well tall mountains as small mole hills, and mercy can cover all. The more desperate thy disease, the greater is the glory of thy physician, who hath perfectly cured thee. *Abraham Wright* 
+**Verse 2.** *Merciful kindness... and the truth of the LORD.* Here, and so in divers other Psalms, God's mercy and truth are joined together; to show that all passages and proceedings, both in ordinances and in providence, whereby he comes and communicates himself to his people are not only mercy, though that is very sweet, but truth also. Their blessings come to them in the way of promise from God, as bound to them by the truth of his covenant. This is soul satisfying indeed; this turns all that a man hath to cream, when every mercy is a present sent from heaven by virtue of a promise. Upon this account, God's mercy is ordinarily in the Psalms bounded by his truth; that none may either presume him more merciful than he hath declared himself in his word; nor despair of finding mercy *gratis*, according to the truth of his promise. Therefore though thy sins be great, believe the text, and know that God's mercy is greater than the sins. The high heaven covereth as well tall mountains as small mole hills, and mercy can cover all. The more desperate thy disease, the greater is the glory of thy physician, who hath perfectly cured thee. *Abraham Wright* 
 
 ## Hints to the Village Preacher
 

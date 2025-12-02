@@ -172,7 +172,7 @@ To our own lips. *William Shakespeare.*
 
 1\.An act of God; something of his doing.
 
-2\.Its effect upon men in general: *All men shall fear, and shall declare* , etc.
+2\.Its effect upon men in general: *All men shall fear, and shall declare*, etc.
 
 3\.A special duty resulting from it, incumbent on good men: *The righteous,* etc. *H. Dove.* 
 

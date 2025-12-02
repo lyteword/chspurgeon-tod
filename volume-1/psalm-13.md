@@ -98,7 +98,7 @@ The Psalm closes with a sentence which is a refutation of the charge of forgetfu
 
 **Verse 2.** Advice to the dejected, or the soul directed to look out of itself for consolation. *A. Fuller.* 
 
-*Verse* 2 ( *first clause* ).— *Self-torture* , its cause, curse, crime, and cure. 
+*Verse* 2 ( *first clause* ).— *Self-torture*, its cause, curse, crime, and cure. 
 
 **Verse 2.** *"Having sorrow in my heart daily."* I. The cause of daily sorrow. Great enemy, unbelief, sin, trial, loss of Jesus' presence, sympathy with others, mourning for human ruin. II. The necessity of daily sorrow. Purge corruptions, excite graces, raise desires heavenward. III. The cure of daily sorrow. Good food from God's table, old wine of promises, walks with Jesus, exercise in good works, avoidance of everything unhealthy. *B. Davies.* 
 
