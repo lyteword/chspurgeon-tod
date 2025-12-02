@@ -94,7 +94,7 @@ We are almost at the last Psalm, and still among the Hallelujahs. This is *"a ne
 
 **Verse 4.** *He will beautify the meek with salvation.* Meekness not only gives great peace of mind, but often adds a lustre to the countenance. We only read of three in Scripture whose faces shone remarkably—viz., Christ, Moses, and Stephen—and they were eminent for meekness.— *Matthew Henry.* 
 
-**Verse 4.** *The meek.* In the HebrewMywge, *anavim,* means *poor and afflicted ones;* but the term came afterwards to be applied to *merciful persons,* as bodily afflictions have a tendency to subdue pride, while abundance begets cruelty.— *John Calvin.* 
+**Verse 4.** *The meek.* In the Hebrew Mywge, *anavim,* means *poor and afflicted ones;* but the term came afterwards to be applied to *merciful persons,* as bodily afflictions have a tendency to subdue pride, while abundance begets cruelty.— *John Calvin.* 
 
 **Verse 5.** *Let the saints be joyful* , etc. Here begins a beautiful exegesis of the former passage. A protected people may rejoice with confidence. An anxious and fearful people could not sing aloud on their couches of repose.— *Simon de Muis.* 
 

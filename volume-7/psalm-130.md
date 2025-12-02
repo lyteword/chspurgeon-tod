@@ -524,7 +524,7 @@ In "Meditations And Disquisitions upon The Three last Psalmes of David. *By* Sir
 
  *A Practical Exposition upon Psalm 130* ; wherein the Nature of the Forgiveness of Sin is declared; the Truth and Reality of it asserted; and the case of a Soul Distressed with the Guilt of Sin, and Relieved by a Discovery of Forgiveness with God, is at large Discoursed By John Owen, D.D., 4to.], 1668, 1669, 1680. There are modern reprints of this Exposition; and it is in Vol. 6 of Owen's Works, edited by W. H. Goold, 1881.
 
-In *"The Whole Works of Robert Leighton* , D.D., Archbishop of Glasgow, 4 vols., 8yD., 1725", there are "Meditations on Psalm 130." Vol. 2. pp. 510-540.
+In *"The Whole Works of Robert Leighton* , D.D., Archbishop of Glasgow, 4 vols., 8y D., 1725", there are "Meditations on Psalm 130." Vol. 2. pp. 510-540.
 
  *Forty Five Sermons upon The 130 Psalme.* 
 

@@ -228,5 +228,5 @@ As mercy is here set in the first place; so shall the sentence of mercy and abso
 
 ## Works Upon The Hundred And First Psalm
 
-In CHANDLER's *"Life of David"* , Vol. II, pp. 16-20, there is an Exposition of this Psalm. "King David's Vow for Reformation of Himselfe, his Family, his Kingdome. Delivered in twelve sermons before the Prince his Highhesse vpon Psalme 101. By GEORGE HAKEWlLL, Dr. in Diuinity. London 1622."
+In CHANDLER's *"Life of David"* , Vol. II, pp. 16-20, there is an Exposition of this Psalm. "King David's Vow for Reformation of Himselfe, his Family, his Kingdome. Delivered in twelve sermons before the Prince his Highhesse vpon Psalme 101. By GEORGE HAKEWl LL, Dr. in Diuinity. London 1622."
 

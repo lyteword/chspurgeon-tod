@@ -420,9 +420,9 @@ Not only does their faith bring forth water out of the sand and rocks of the des
 
 1\.Prayer is not confined to the Sanctuary. David, inhis banishment, says, *Hear my prayer.* 
 
-2\.Help is not confined to the Sanctuary. The Lord ofhosts is "here, "as well as in his tabernacle. SeePs 84:1.
+2\.Help is not confined to the Sanctuary. The Lord ofhosts is "here, "as well as in his tabernacle. See Ps 84:1.
 
-3\.Grace is not confined to the Sanctuary. Here, too,in the wilderness is the covenanting God, the God ofJacob. *G. R.* 
+3\.Grace is not confined to the Sanctuary. Here, too,in the wilderness is the covenanting God, the God of Jacob. *G. R.* 
 
 **Verse 8.** Pleas for answers to prayer in the titles here used.
 

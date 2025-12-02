@@ -242,9 +242,9 @@ Perpetual benedictions.
 
 **Verse 9.** *His tender mercies are over all his works.* When the sensible sinner is seeking faith of God, he may plead the *largeness* of mercy. God's mercy is like the firmament spread over all this lower world; and every infirm creature partakes more or less of its influence, according to its exigence and capacity. True, may he say, I have made myself by sin, the vilest of all creatures; I am become worse than the beasts that perish; as vile as a worm, as loathsome as a toad, by reason of the venomous corruption that is in my heart, and my woeful contrariety to the nature of a holy God. But there is *"mercy over all"* , even over such vile and loathsome creatures as these; there may be some over me, though wrath do now abide on me. Oh, let that mercy, whose glory it is to stretch itself over all, e reach my soul also! Oh, that the blessed and powerful influence thereof would p beget faith in my heart!— *David Clarkson.* 
 
-**Verse 9.** *His tender mercies.* The nature and force of the wordMymxr,is properly the *bowels* ;that is, there are *tender mercies in God* (so we term it in the *Benedictus* ). Not of the ordinary sort, slight, and such as pierce not deep, come not far; but such as come *de profundis* , from the very *bowels* themselves, that affect that part, make the *bowels* relent. And what *bowels* ? Not the bowels of the common man (for thenMwemhad been the right word), butMmxrare the bowels of a parent (so, we said, the word signifies), and this adds much; adds to *mercy* stosgh, *natural love* ;to one strong affection another as strong or stronger than it.
+**Verse 9.** *His tender mercies.* The nature and force of the word Mymxr,is properly the *bowels* ;that is, there are *tender mercies in God* (so we term it in the *Benedictus* ). Not of the ordinary sort, slight, and such as pierce not deep, come not far; but such as come *de profundis* , from the very *bowels* themselves, that affect that part, make the *bowels* relent. And what *bowels* ? Not the bowels of the common man (for then Mwemhad been the right word), but Mmxrare the bowels of a parent (so, we said, the word signifies), and this adds much; adds to *mercy* stosgh, *natural love* ;to one strong affection another as strong or stronger than it.
 
-And what *parent* ? the more pitiful of the twain, the *mother* . ForMxr(the singular of this word) is Hebrew for the *womb* . So as this, to the two former addeth the sex; the sex holden to be the more compassionate. Of all mercies, those of the *bowels* ; and of all bowels, the bowels of a *parent* ;and of the two parents, those of the *mother* :such pity as the mother takes of the children of her womb. *Mercies* are in God; *such mercies* are in God.
+And what *parent* ? the more pitiful of the twain, the *mother* . For Mxr(the singular of this word) is Hebrew for the *womb* . So as this, to the two former addeth the sex; the sex holden to be the more compassionate. Of all mercies, those of the *bowels* ; and of all bowels, the bowels of a *parent* ;and of the two parents, those of the *mother* :such pity as the mother takes of the children of her womb. *Mercies* are in God; *such mercies* are in God.
 
  *"Over all."* It is good news for us that these mercies are in God; but, better yet, that they are in him with a *super* —"over." But, best of all, that that *super* is a *super omnia* —"over all." Much is said in few words to mercy's praise when 'tis said, *super omnia. Nihil supra* were much, none above it: but it is written *super omnia, above all* . He that saith this leaves no more to say; there is no higher degree; *super omnia* is the superlative.
 
@@ -324,7 +324,7 @@ The wants of all ill every place
 
 Who for thy presence cry.
 
-— *Thomas MacKellar,* 1883.
+— *Thomas Mac Kellar,* 1883.
 
 **Verse 16.** *Thou openest thy hand.* This seems as if depicted from a housekeeper's habit of feeding a brood of chickens and other creatures. She flings abroad with full and open hand a large supply, not measuring to a grain just what might be enough.— *Martin Geier.* 
 

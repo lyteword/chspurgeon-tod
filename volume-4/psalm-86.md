@@ -186,7 +186,7 @@ And live entirely perfect, not in part.
 
 But whilst thine heart's divided, it is dead;
 
-Dead unto me, unless it liveTo me alone,
+Dead unto me, unless it live To me alone,
 
 It is all one
 
