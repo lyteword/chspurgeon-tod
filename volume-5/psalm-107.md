@@ -172,7 +172,7 @@ it behooves us to walk before him with reverential gratitude, and so to live tha
 
 *Again they are minished and brought low through oppression, affliction, and sorrow.* As they change in character, so do their circumstances alter. Under the old dispensation, this was very clearly to be observed; Israel's ups and downs were the direct consequences of her sins and repentance. Trials are of various kinds; here we have three words for affliction, and there are numbers more: God has many rods and we have many smarts; and all because we have many sins. Nations and churches soon diminish in number when they are diminished in grace. If we are low in love to God, it is small wonder that he brings us low in other respects. God can reverse the order of our prosperity, and give us a *diminuendo* where we had a *crescendo;* therefore let us walk before him with great tenderness of spirit, conscious of our dependence upon his smile.
 
-### Verse 40-41
+### Verses 40 & 41
 
 In these two verses we see how the Lord at will turns the wheel of providence. Paying no respect to man's imaginary grandeur, he puts princes down and makes them wander in banishment as they had made their captives wander when they drove them from land to land: at the same time, having ever a tender regard for the poor and needy, the Lord delivers the distressed and sets them in a position of comfort and happiness. This is to be seen upon the roll of history again and again, and in spiritual experience we remark its counterpart: the self sufficient are made to despise themselves and search in vain for help in the wilderness of their nature, while poor convicted souls are added to the Lord's family and dwell in safety as the sheep of his fold.
 

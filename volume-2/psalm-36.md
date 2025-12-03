@@ -26,7 +26,7 @@ weight: 36
 
 *He deviseth mischief upon his bed.* His place of rest becomes the place for plotting. His bed is a hot bed for poisonous weeds. God fearing men meditate upon God and his service; but when men turn all their thoughts and inventive faculties towards evil, their godlessness is proved to a demonstration. He hath the devil for his bed fellow who lies abed and schemes how to sin. God is far from him. *He setteth himself in a way that is not good.* When he gets up he resolutely and persistently pursues the mischief which he planned. The worst of ways he prefers for his walking, for he has taught his heart to love filthiness, having accustomed himself to revel in it in imagination. *He abhorreth not evil.* So far from having a contempt and abhorrence for evil, he even rejoices in it, and patronises it. He never hates a wrong thing because it is wrong, but he meditates on it, defends it, and practises it. What a portrait of a graceless man these few verses afford us! His jauntiness of conscience, his licentiousness of speech, his intentness upon wrong doing, his deliberate and continued preference of iniquity, and withal his atheistic heart, are all photographed to the life. Lord, save us from being such.
 
-### Verse 5-9
+### Verses 5-9
 
 From the baseness of the wicked the psalmist turns his contemplation to the glory of God. Contrasts are impressive.
 

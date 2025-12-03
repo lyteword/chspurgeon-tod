@@ -10,7 +10,7 @@ weight: 49
 
 ## Exposition
 
-### Verse 1-4
+### Verses 1-4
 
 In these four verses the poet prophet calls universal humanity to listen to his didactic hymn.
 

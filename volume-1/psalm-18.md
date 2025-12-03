@@ -22,7 +22,7 @@ weight: 18
 
 In this verse the happy poet resolves to invoke the Lord in joyful song, believing that in all future conflicts his God would deal as well with him as in the past. It is well to pray to God as to one who deserves to be praised, for then we plead in a happy and confident manner. If I feel that I can and do bless the Lord for all his past goodness, I am bold to ask great things of him. That word *So* has much in it. To be saved singing is to be saved indeed. Many are saved mourning and doubting; but David had such faith that he could fight singing, and win the battle with a song still upon his lips. How happy a thing to receive fresh mercy with a heart already sensible of mercy enjoyed, and to anticipate new trials with a confidence based upon past experiences of divine love! No fearing or doubting with Christ on our side, We hope to die shouting, 'The Lord will provide.'"
 
-### Verse 4-19
+### Verses 4-19
 
 In most poetical language the Psalmist now describes his experience of Jehovah's delivering power. Poesy has in all her treasures no gem more lustrous than the sonnet of the following verses; the sorrow, the cry, the descent of the Divine One, and the rescue of the afflicted, are here set to a music worthy of the golden harps. The Messiah our Saviour is evidently, over and beyond David or any other believer, the main and chief subject of this song; and while studying it we have grown more and more sure that every line here has its deepest and profoundest fulfilment in Him; but as we are desirous not to extend our comment beyond moderate bounds, we must leave it with the devout reader to make the very easy application of the passage to our once distressed but now triumphant Lord.
 
@@ -170,7 +170,9 @@ The preservation of the saints bodes ill for their adversaries. The Amelekites t
 
 The destruction of our spiritual enemies is complete. We may exult over sin, death, and hell, as disarmed and disabled *for* us by our conquering Lord; may he graciously give them a like defeat *within* us.
 
-Verses 39 and 40. It is impossible to be too frequent in the duty of ascribing all our victories to the God of our salvation. It is true that we have to wrestle with our spiritual antagonists, but the triumph is far more the Lord's than ours. We must not boast like the ambitious votaries of vainglory, but we may exult as the willing and believing instruments in the Lord's hand of accomplishing his great designs. 
+### Verses 39 & 40
+
+It is impossible to be too frequent in the duty of ascribing all our victories to the God of our salvation. It is true that we have to wrestle with our spiritual antagonists, but the triumph is far more the Lord's than ours. We must not boast like the ambitious votaries of vainglory, but we may exult as the willing and believing instruments in the Lord's hand of accomplishing his great designs. 
 
 ### Verse 41
 

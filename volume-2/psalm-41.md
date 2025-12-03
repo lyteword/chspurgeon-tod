@@ -34,7 +34,7 @@ If temporal gains be not given him, spirituals shall be doubled to him. His litt
 
 We must not imagine that the benediction pronounced in these three verses belongs to all who casually give money to the poor, or leave it in their wills, or contribute to societies. Such do well, or act from mere custom, as the case may be, but they are not here alluded to. The blessing is for those whose habit it is to love their neighbour as themselves, and who for Christ's sake feed the hungry and clothe the naked. To imagine a man to be a saint who does not consider the poor as he has ability, is to conceive the fruitless fig tree to be acceptable; there will be sharp dealing with many professors on this point in the day when the King cometh in his glory.
 
-### Verse 4-9
+### Verses 4-9
 
 Here we have a controversy between the pleader and his God. He has been a tender friend to the poor, and yet in the hour of his need the promised assistance was not forthcoming. In our Lord's case there was a dark and dreary night in which such arguments were well befitting himself and his condition.
 

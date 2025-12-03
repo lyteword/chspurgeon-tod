@@ -106,57 +106,7 @@ Shall have his attribute to sing."
 
 Martin Luther was thus wont to praise the Lord, whom he loved so well. God's praises should be performed in the best possible manner, but their sweetness mainly lies in spiritual qualities. The concords of faith and repentance, the harmonies of obedience and love are true music in the ear of the Most High, and better please him than "heaving bellows taught to blow, "though managed by the noblest master of human minstrelsy. With the harp. A very sweet instrument of music, and capable of great expression. The repetition of the word is highly poetical, and shows that the daintiest expressions of poetry are none too rich for the praise of God. His worship should be plain, but not uncouth, if we can compass elegancies of expression there are occasions upon which they will be most appropriate; God, who accepts the unlettered ditty of a ploughman, does not reject the smooth verse of a Cowper, or the sublime strains of a Milton. All repetitions are not vain repetitions, in sacred song there should be graceful repeats, they render the sense emphatic, and help to fire the soul; even preachers do not amiss when they dwell on a word and sound it out again and again, till dull ears feel its emphasis.
 
-And the voice of a Psalm, or with a musical voice, as distinguished from common speech. Our voice has in it many modulations; there is the voice of conversation, the voice of complaint, the voice of pleading, the voice of command, and there ought to be with each of us the voice of a Psalm. Man's voice is at its best when it sings the best words in the best spirit to the best of Beings. Love and war must not monopolise the lyric muse; the love of God and the conquests of Immanuel should win to themselves man's sweetest strains. Do we sing enough unto the Lord? May not the birds of the air rebuke our sullen and ungrateful silence? in their brave struggles to achieve their country's independence, and were the repeated expression of their thanksgivings. The Lord of Psalmists and the Son of David, by the words of a Psalm proved himself to be higher than David; and sang Psalms with his apostles on the night before he suffered, when he instituted the holy supper of his love. With Psalms Paul and Silas praised God in the prison at midnight when their feet were made fast in the stocks, and sang so loud that the prisoners heard them. And after his own example the apostle exhorts the Christians at Ephesus and Colossae to teach and admonish one another with Psalms anti hymns and spiritual songs. Jerome tells us that in his day the Psalms were to be heard in the fields and vineyards of Palestine, and that they fell sweetly on the ear, mingling with the songs of birds, and the scent of flowers in spring. The ploughman as he guided his plough chanted the hallelujah, and the reaper, the vine dresser, and the shepherd sang the songs of David. "These, "he says, "are our love songs, these the instruments of our agriculture." Sidonins Apollinaris makes his boatmen, as they urge their heavily laden barge up stream, sing Psalms, till the river banks echo again with the hallelujah, and beautifully applies the custom, in a figure, to the voyage of the Christian life. *J. J. S. Perowne.* 
-
-### Verse 5
-
-*The voice of a Psalm.* In D'Israeli's "Curiosities of Literature" there is a very curious piece upon Psalm singing, in which he mentions the spread of the singing of Psalms in France, which was first started among the Romanists by the version of Clement Marot, the favoured bard of Francis the First. In Marot's dedication occur the following lines:
-
-"Thrice happy they, who may behold,
-
-And listen in that age of gold!
-
-As by the plough the labourer strays,
-
-And carman 'mid the public ways,
-
-And tradesman in his shop shall swell
-
-Their voice in Psalm or canticle,
-
-Singing to solace toil; again
-
-From woods shall come a sweeter strain!
-
-Shepherd and shepherdess shall vie
-
-In many a tender Psalmody;
-
-And the Creator's name prolong,
-
-As rock and stream return their song!
-
-Begin then, ladies fair! begin
-
-The age renew'd that knows no sin!
-
-And with light heart, that wants no wing,
-
-Sing! from this holy songbook, sing!"
-
-The singing of these Psalms became so popular that D'lsraeli suggests that "it first conveyed to the sullen fancy of the austere Calvin the project" of introducing the singing of Psalms into his Genevan discipline. "This infectious frenzy of Psalm singing, "as Warton almost blasphemously describes it, rapidly propagated itself through Germany as well as France, and passed over to England. D'Israeli says, with a sneer, that in the time of the Commonwealth, "Psalms were now sung at Lord Mayor's dinners and city feasts; soldiers sang them on their march and at parade; and few houses which had windows fronting the streets, but had their evening Psalms." We can only add, would to God it were so again. *C. H. S.* 
-
-### Verse 5-6
-
-These were, literally, the instruments most in use among the Jews, and a spiritual signification has been attached to each instrument. They seem to me to represent the cardinal virtues, the *harp* implying prudence; the *psaltery*, justice; the *trumpet*, fortitude; and the *cornet*, temperance. *Bellarmine.*
-
-### Verse 5-6
-
-It is evident that the Psalmist here expresses the vehement and ardent affection which the faithful ought to have in praising God, when he enjoins musical instruments to be employed for this purpose. He would have nothing omitted by believers which tends to animate the minds and feelings of men in singing God's praises. The name of God, no doubt, can, properly speaking, be celebrated only by the articulate voice; but it is not without reason that David adds to this those aids by which believers were wont to stimulate themselves the more to this exercise; especially considering that he was speaking to God's ancient people. There is a distinction, however, to be observed here, that we may not indiscriminately consider as applicable to ourselves everything which was formerly enjoined upon the Jews. I have no doubt that playing upon cymbals, touching the harp and the viol, and all that kind of music which is so frequently mentioned in the Psalms, was a part of the education; that is to say, the puerile instruction of the law: I speak of the stated service of the temple. For even now, if believers choose to cheer themselves with musical instruments, they should, I think, make it their object not to dissever their cheerfulness from the praises of God. But when they frequent their sacred assemblies, musical instruments in celebrating the praises of God would be no more suitable than the burning of incense, the lighting up of lamps, and the restoration of the other shadows of the law. The Papists, therefore, have foolishly borrowed this, as well as many other things from the Jews. Men who are fond of outward pomp may delight in that noise; but the simplicity which God recommends to us by the apostle is far more pleasing to him. Paul allows us to bless God in the public assembly of the saints only in a known tongue, 1Co 14:16. The voice of man, although not understood by the generality, assuredly excels all inanimate instruments of music; and yet we see what Paul determines concerning speaking in an unknown tongue. What shall we then say of chanting, which fills the ears with nothing but an empty sound? Does any one object that music is very useful for awakening the minds of men and moving their hearts?, I own it; but we should always take care that no corruption creep in, which might both defile the pure worship of God and involve men in superstition. Moreover, since the Holy Spirit expressly warns us of this danger by the mouth of Paul, to proceed beyond what we are there warranted by him, is not only, I must say, unadvised zeal, but wicked and perverse obstinacy. *John Calvin.*
-
-### Verse 5-6
-
-The song and the stringed instruments belonged to the Levites, and the trumpets to the priests alone. Kitto says the trumpets did not join in the concert, but were sounded during certain regulated pauses in the vocal and instrumental music. The harps and voices made the sweetness, while the trumpets and horns added the strength; melody and energy should combine in the worship of God. *C. H. S.*
+And the voice of a Psalm, or with a musical voice, as distinguished from common speech. Our voice has in it many modulations; there is the voice of conversation, the voice of complaint, the voice of pleading, the voice of command, and there ought to be with each of us the voice of a Psalm. Man's voice is at its best when it sings the best words in the best spirit to the best of Beings. Love and war must not monopolise the lyric muse; the love of God and the conquests of Immanuel should win to themselves man's sweetest strains. Do we sing enough unto the Lord? May not the birds of the air rebuke our sullen and ungrateful silence? 
 
 ### Verse 6
 
@@ -314,7 +264,49 @@ Or, because this Psalm is prophetical, a new song, that is, the song of the glor
 
 **Verse 5.** *The voice of a psalm.* The sound of the Zimrah, hrmz, here, as in Ps 81:2, is certainly the name of some musical instrument. But what the particular instrument might be, which went by that name, is quite uncertain. *Samuel Horsley.* 
 
-**Verse 5.** *The voice of a Psalm.* With psalms Jehoshaphat and Hezekiah celebrated their victories. Psalms made glad the heart of the exiles who returned from Babylon. Psalms gave courage and strength to the Maccabees
+**Verse 5.** *The voice of a Psalm.* With psalms Jehoshaphat and Hezekiah celebrated their victories. Psalms made glad the heart of the exiles who returned from Babylon. Psalms gave courage and strength to the Maccabees in their brave struggles to achieve their country's independence, and were the repeated expression of their thanksgivings. The Lord of Psalmists and the Son of David, by the words of a Psalm proved himself to be higher than David; and sang Psalms with his apostles on the night before he suffered, when he instituted the holy supper of his love. With Psalms Paul and Silas praised God in the prison at midnight when their feet were made fast in the stocks, and sang so loud that the prisoners heard them. And after his own example the apostle exhorts the Christians at Ephesus and Colossae to teach and admonish one another with Psalms anti hymns and spiritual songs. Jerome tells us that in his day the Psalms were to be heard in the fields and vineyards of Palestine, and that they fell sweetly on the ear, mingling with the songs of birds, and the scent of flowers in spring. The ploughman as he guided his plough chanted the hallelujah, and the reaper, the vine dresser, and the shepherd sang the songs of David. "These, "he says, "are our love songs, these the instruments of our agriculture." Sidonins Apollinaris makes his boatmen, as they urge their heavily laden barge up stream, sing Psalms, till the river banks echo again with the hallelujah, and beautifully applies the custom, in a figure, to the voyage of the Christian life. *J. J. S. Perowne.* 
+
+**Verse 5.** *The voice of a Psalm.* In D'Israeli's "Curiosities of Literature" there is a very curious piece upon Psalm singing, in which he mentions the spread of the singing of Psalms in France, which was first started among the Romanists by the version of Clement Marot, the favoured bard of Francis the First. In Marot's dedication occur the following lines:
+
+"Thrice happy they, who may behold,
+
+And listen in that age of gold!
+
+As by the plough the labourer strays,
+
+And carman 'mid the public ways,
+
+And tradesman in his shop shall swell
+
+Their voice in Psalm or canticle,
+
+Singing to solace toil; again
+
+From woods shall come a sweeter strain!
+
+Shepherd and shepherdess shall vie
+
+In many a tender Psalmody;
+
+And the Creator's name prolong,
+
+As rock and stream return their song!
+
+Begin then, ladies fair! begin
+
+The age renew'd that knows no sin!
+
+And with light heart, that wants no wing,
+
+Sing! from this holy songbook, sing!"
+
+The singing of these Psalms became so popular that D'lsraeli suggests that "it first conveyed to the sullen fancy of the austere Calvin the project" of introducing the singing of Psalms into his Genevan discipline. "This infectious frenzy of Psalm singing, "as Warton almost blasphemously describes it, rapidly propagated itself through Germany as well as France, and passed over to England. D'Israeli says, with a sneer, that in the time of the Commonwealth, "Psalms were now sung at Lord Mayor's dinners and city feasts; soldiers sang them on their march and at parade; and few houses which had windows fronting the streets, but had their evening Psalms." We can only add, would to God it were so again. *C. H. S.* 
+
+**Verse 5, 6.** These were, literally, the instruments most in use among the Jews, and a spiritual signification has been attached to each instrument. They seem to me to represent the cardinal virtues, the *harp* implying prudence; the *psaltery*, justice; the *trumpet*, fortitude; and the *cornet*, temperance. *Bellarmine.*
+
+**Verse 5, 6.** It is evident that the Psalmist here expresses the vehement and ardent affection which the faithful ought to have in praising God, when he enjoins musical instruments to be employed for this purpose. He would have nothing omitted by believers which tends to animate the minds and feelings of men in singing God's praises. The name of God, no doubt, can, properly speaking, be celebrated only by the articulate voice; but it is not without reason that David adds to this those aids by which believers were wont to stimulate themselves the more to this exercise; especially considering that he was speaking to God's ancient people. There is a distinction, however, to be observed here, that we may not indiscriminately consider as applicable to ourselves everything which was formerly enjoined upon the Jews. I have no doubt that playing upon cymbals, touching the harp and the viol, and all that kind of music which is so frequently mentioned in the Psalms, was a part of the education; that is to say, the puerile instruction of the law: I speak of the stated service of the temple. For even now, if believers choose to cheer themselves with musical instruments, they should, I think, make it their object not to dissever their cheerfulness from the praises of God. But when they frequent their sacred assemblies, musical instruments in celebrating the praises of God would be no more suitable than the burning of incense, the lighting up of lamps, and the restoration of the other shadows of the law. The Papists, therefore, have foolishly borrowed this, as well as many other things from the Jews. Men who are fond of outward pomp may delight in that noise; but the simplicity which God recommends to us by the apostle is far more pleasing to him. Paul allows us to bless God in the public assembly of the saints only in a known tongue, 1Co 14:16. The voice of man, although not understood by the generality, assuredly excels all inanimate instruments of music; and yet we see what Paul determines concerning speaking in an unknown tongue. What shall we then say of chanting, which fills the ears with nothing but an empty sound? Does any one object that music is very useful for awakening the minds of men and moving their hearts?, I own it; but we should always take care that no corruption creep in, which might both defile the pure worship of God and involve men in superstition. Moreover, since the Holy Spirit expressly warns us of this danger by the mouth of Paul, to proceed beyond what we are there warranted by him, is not only, I must say, unadvised zeal, but wicked and perverse obstinacy. *John Calvin.*
+
+**Verse 5, 6.** The song and the stringed instruments belonged to the Levites, and the trumpets to the priests alone. Kitto says the trumpets did not join in the concert, but were sounded during certain regulated pauses in the vocal and instrumental music. The harps and voices made the sweetness, while the trumpets and horns added the strength; melody and energy should combine in the worship of God. *C. H. S.*
 
 **Verse 6.** *Trumpets.* tlruux, *Chatsotseroth* :here only in the Psalter. These were the straight trumpets (such as are seen on the Arch of Titus) used by the priests for giving signals. Nu 10:2-10; 1Ch 15:24,28, etc. The *shofar*, rmwv (*cornet* ), was the ordinary curved trumpet, cornet, or horn. *William Kay.* 
 

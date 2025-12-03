@@ -70,7 +70,9 @@ This vile suggestion receives its answer in verse 14. *"Thou hast seen it; for t
 
 In this verse we hear again the burden of the psalmist's prayer: *"Break thou the arm of the wicked and the* evil man."Let the sinner lose his power to sin; stop the tyrant, arrest the oppressor, weaken the loins of the mighty, and dash in pieces the terrible. They deny thy justice: let them feel it to the full. Indeed, they shall feel it; for God shall hunt the sinner for ever: so long as there is a grain of sin in him it shall be sought out and punished. It is not a little worthy of note, that very few great persecutors have ever died in their beds: the curse has manifestly pursued them, and their fearful sufferings have made them own *that* divine justice at which they could at one time launch defiance. God permits tyrants to arise as thorn-hedges to protect his church from the intrusion of hypocrites, and that he may teach his backsliding children by them, as Gideon did the men of Succoth with the briers of the wilderness; but he soon cuts up these Herods, like the thorns, and casts them into the fire. Thales, the Milesian, one of the wise men of Greece, being asked what he thought to be the greatest rarity in the world, replied, "To see a tyrant live to be an old man." See how the Lord breaks, not only the arm, but the neck of proud oppressors! To the men who had neither justice nor mercy for the saints, there shall be rendered justice to the full, but not a grain of mercy.
 
-Verses 16, 17, 18. The Psalm ends with a song of thanksgiving to the great and everlasting King, because he has granted the desire of his humble and oppressed people, has defended the fatherless, and punished the heathen who trampled upon his poor and afflicted children. Let us learn that we are sure to speed well, if we carry our complaint to the King of kings. Rights will be vindicated, and wrongs redressed, at his throne. His government neglects not the interests of the needy, nor does it tolerate oppression in the mighty. Great God, we leave ourselves in thine hand; to thee we commit thy church afresh. Arise, O God, and let the man of the earth—the creature of a day—be broken before the majesty of thy power. Come, Lord Jesus, and glorify thy people. Amen and Amen. 
+### Verses 16-18
+
+The Psalm ends with a song of thanksgiving to the great and everlasting King, because he has granted the desire of his humble and oppressed people, has defended the fatherless, and punished the heathen who trampled upon his poor and afflicted children. Let us learn that we are sure to speed well, if we carry our complaint to the King of kings. Rights will be vindicated, and wrongs redressed, at his throne. His government neglects not the interests of the needy, nor does it tolerate oppression in the mighty. Great God, we leave ourselves in thine hand; to thee we commit thy church afresh. Arise, O God, and let the man of the earth—the creature of a day—be broken before the majesty of thy power. Come, Lord Jesus, and glorify thy people. Amen and Amen. 
 
 ## Explanatory Notes & Quaint Sayings
 
@@ -230,7 +232,7 @@ Verses 16, 17, 18. The Psalm ends with a song of thanksgiving to the great and e
 
 **Verse 13.** Future retribution: doubts concerning it. I. By whom indulged: *"the* wicked." II. Where fostered: *"in his* heart." III. For what purpose: *quieting* of conscience,etc. IV. With what practical tendency: *"contemn God."* He who disbelieves hell, distrusts heaven. 
 
-Verses 13, 14. Divine government in the world. I. Who doubt it? and why? II. Who believe it? and what does this faith cause them to do? 
+**Verses 13, 14.** Divine government in the world. I. Who doubt it? and why? II. Who believe it? and what does this faith cause them to do? 
 
 *Verse* 14 (*last clause* ). A plea for orphans. 
 
