@@ -4,7 +4,7 @@ weight: 1
 
 # Psalm 1
 
-**Title &mdash;** *This Psalm may be regarded as* The Preface Psalm *having in it a notification of the contents of the entire Book. It is the psalmists's desire to teach us the way to blessedness, and to warn us of the sure destruction of sinners. This, then, is the matter of the first Psalm, which may be looked upon, in some respects, as the text upon which the whole of the Psalms make up a divine sermon.* 
+**Title &mdash;** *This Psalm may be regarded as The Preface Psalm having in it a notification of the contents of the entire Book. It is the psalmists's desire to teach us the way to blessedness, and to warn us of the sure destruction of sinners. This, then, is the matter of the first Psalm, which may be looked upon, in some respects, as the text upon which the whole of the Psalms make up a divine sermon.* 
 
 **Division &mdash;** *This Psalm consists of two parts: in the first (from verse 1 to the end of the 3rd) David sets out wherein the felicity and blessedness of a godly man consisteth, what his exercises are, and what blessings he shall receive from the Lord. In the second part (from verse 4 to the end) he contrasts the state and character of the ungodly, reveals the future, and describes, in telling language, his ultimate doom.* 
 
