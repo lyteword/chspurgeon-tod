@@ -266,7 +266,7 @@ b) In particular. Those who are specially privileged by God should specially pra
 
 2\. He ought to be praised *by you*.
 
-3\. He ought to be praised *now* : let us remember his present favours.
+3\. He ought to be praised *now*: let us remember his present favours.
 
 4\. He ought to be praised in everything for ever.
 
@@ -340,7 +340,7 @@ b) By his operations in nature, providence, and grace (Ps 135:6-13).
 
 **Verse 6.** *Whatsoever the LORD pleased, that did he.* God's good pleasure in the work of grace. Seen, not in the death of the wicked, Eze 33:11; but in the election of his people, 1Sa 12:22; in the infliction of suffering on the substitute, Isa 53:10; in the provision of all fulness for his people in Christ, Col 1:19; in the arrangement of salvation by faith in Christ, Joh 6:39; in instituting preaching as the means of salvation, 1Co 1:21; in the adoption of believers as his children, Eph 1:5; in their sanctification, 1Th 4:3; in their ultimate triumph and reign, Lu 12:32.— *C. A. D.* 
 
-**Verse 6.** (*last words* ). The power of God in places of trouble, change, and danger— *seas* ;and in conditions of sin, weakness, despair, perplexity—in all *deep places*.
+**Verse 6.** (*last words* ). The power of God in places of trouble, change, and danger— *seas*; and in conditions of sin, weakness, despair, perplexity—in all *deep places*.
 
 **Verses 6-12.** The Resistless Pleasure of Jehovah.
 
@@ -368,7 +368,7 @@ e) Let the Lord's people fear not with so great a God, and so exhaustless an arm
 
 **Verse 13.** *Thy name, O LORD, endureth for ever.* 
 
-1\. As *the embodiment of perfection* : God's attributes and glory.
+1\. As *the embodiment of perfection*: God's attributes and glory.
 
 2\. As *the object of veneration* :"Holy and reverent is his name."
 

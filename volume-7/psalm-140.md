@@ -82,7 +82,7 @@ In the case of slanderers, they so literally sting with their tongues, which are
 
 **Verses  1, 4, 6, 8.** Good men live by prayer. He who gets to the throne of grace is covered by the cloud of glory, through which no sun can smite by day, nor moon by night.— *William Swan Plumer.* 
 
-**Verses 1, 7-11.** On the first reading of this Psalm one is inclined to think that there is somewhat of fierceness and bitterness in it, which is hardly consistent with the character of a child of God, and therefore unbecoming in David&mdash;And yet I really think that a little more examination of the language of this Psalm will lead us to believe that we are doing David wrong in affixing anything like a meaning or desire of vindictiveness to his words. Assuredly we can find no fault with one who takes his wrongs in prayer to God; who, like Hezekiah, takes the roll of his cares, and sorrows, and trials, and spreads it before the Lord. And this is what David does in the very first verse: *"Deliver me, O Lord, from the evil man; preserve me from the violent man."* I do not think a person who does this, who, when smarting under a sense of injury and wrong, goes at once to God and lays open his heart to him, is likely to go very far wrong; for even though he may have begun in somewhat of an unkindly spirit, yet prayer opens before us such a sight and sense of our own guiltiness and wrongs towards God, and thereby exercises such an abasing, as well as healing and soothing, influence over our feelings towards others, that we might almost be assured that he whose prayer might begin even with a vehement enumeration of his own wrongs, would end with something very like a determination to bless them that cursed, and to do good to them that hated him. You will observe, too, how, from first to last, David leaves his cause in God's hands; it is not "my sword and my bow that shall help me"; he counted them vain things to help a man; and therefore, as he had so often said in other Psalms; "The Lord was his shield and his defence", and as God had already shielded his head in the day of battle, so he prays for the same protection against his enemies now.— *Barton Bouchier.* 
+**Verses 1, 7-11.** On the first reading of this Psalm one is inclined to think that there is somewhat of fierceness and bitterness in it, which is hardly consistent with the character of a child of God, and therefore unbecoming in David&mdash; And yet I really think that a little more examination of the language of this Psalm will lead us to believe that we are doing David wrong in affixing anything like a meaning or desire of vindictiveness to his words. Assuredly we can find no fault with one who takes his wrongs in prayer to God; who, like Hezekiah, takes the roll of his cares, and sorrows, and trials, and spreads it before the Lord. And this is what David does in the very first verse: *"Deliver me, O Lord, from the evil man; preserve me from the violent man."* I do not think a person who does this, who, when smarting under a sense of injury and wrong, goes at once to God and lays open his heart to him, is likely to go very far wrong; for even though he may have begun in somewhat of an unkindly spirit, yet prayer opens before us such a sight and sense of our own guiltiness and wrongs towards God, and thereby exercises such an abasing, as well as healing and soothing, influence over our feelings towards others, that we might almost be assured that he whose prayer might begin even with a vehement enumeration of his own wrongs, would end with something very like a determination to bless them that cursed, and to do good to them that hated him. You will observe, too, how, from first to last, David leaves his cause in God's hands; it is not "my sword and my bow that shall help me"; he counted them vain things to help a man; and therefore, as he had so often said in other Psalms; "The Lord was his shield and his defence", and as God had already shielded his head in the day of battle, so he prays for the same protection against his enemies now.— *Barton Bouchier.* 
 
 **Verses 1, 11.** Three special forms of Satanic energy are individualized. The evil or wicked man, the violent man, and the man of tongue are severally appealed from by the suppliant speaker of the prayer of faith.— *Arthur Pridham.* 
 
@@ -156,7 +156,7 @@ The poison of the soul is only *sin*, and this is like to poison in many respect
 
 **Verse 11.** *Let not an evil speaker be established, * etc. The positions laid down in this verse will find abundant illustration in every age of the church. *"An evil speaker"*, who takes delight in wounding the reputation of others, is seldom established or prospered in the earth. Providence fights against such an unhappy wretch. *"The violent man"*, the ishmaelite whose hand is against every man, is in general overthrown by the very same weapons which he wields against others.— *John Morison.* 
 
-**Verse 11.** *An evil speaker.* By "a man of the tongue", as the original has it, the Hebrews express a *detractor* or *sycophant*; one who gives his tongue the liberty to vent what mischief lie pleases. The Chaldee here expresses it by *a delator* or vile informer with a *threefold* or *three forked tongue* ;because such a man wounds *three* at once; the receiver, the sufferer, and himself.— *Thomas Fenton.* 
+**Verse 11.** *An evil speaker.* By "a man of the tongue", as the original has it, the Hebrews express a *detractor* or *sycophant*; one who gives his tongue the liberty to vent what mischief lie pleases. The Chaldee here expresses it by *a delator* or vile informer with a *threefold* or *three forked tongue*; because such a man wounds *three* at once; the receiver, the sufferer, and himself.— *Thomas Fenton.* 
 
 **Verse 11.** *Evil shall hunt the violent man to overthrow him.* 'Tis an allusion to hounds that are of a quick scent, and pursue the game with pleasure; they do not see the deer or the hare, yet they follow upon the scent; and though they have sometimes a very cold and dead scent, yet they will follow and work it out. Thus *"evil shall hunt the violent man to overthrow him"*; and though sometimes he hath, as it were, got out of the view or sight of evil, and thinks himself under covert, yet these evils, like a company of greedy hounds, will pursue till they have overtaken and overthrown him.— *Joseph Caryl.* 
 
@@ -234,7 +234,7 @@ c) Should the mischievous ones succeed, still trust in God, who can make their m
 
 **Verses 6-7.** David comforted himself,
 
-1\. In his interest in God: "I said&mdash;thou art my God."
+1\. In his interest in God: "I said&mdash; thou art my God."
 
 2\. In his access to God: he had leave to speak to him, and might expect an answer of peace: "Hear", etc.
 
@@ -244,7 +244,7 @@ c) Should the mischievous ones succeed, still trust in God, who can make their m
 
 **Verses 6-8.** Three arguments to be pleaded in a prayer for protection.
 
-1\. The believer's covenanted property in God. "I said&mdash;thou art my God."
+1\. The believer's covenanted property in God. "I said&mdash; thou art my God."
 
 2\. The past mercies of God. "Thou hast covered", etc.
 

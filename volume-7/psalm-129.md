@@ -6,7 +6,7 @@ weight: 129
 
 **Title &mdash;** *A Song of Degrees*. I fail to see how this is a step beyond the previous Psalm; and yet it is clearly the song of an older and more tried individual, who looks back upon a life of affliction in which he suffered all along, even from his youth. Inasmuch as patience is a higher, or at least more difficult, grace than domestic love, the ascent or progress may perhaps be seen in that direction. Probably if we knew more of the stations on the road to the Temple we should see a reason for the order of these Psalms; but as that information cannot be obtained, we must take the songs as we find them, and remember that, as we do not now go on pilgrimages to Zion, it is our curiosity and not oar necessity which is a loser by our not knowing the cause of the arrangement of the songs in this Pilgrim Psalter.
 
-**Author &mdash;** It does not seem to us at all needful to ascribe this Psalm to a period subsequent to the captivity&mdash;indeed, it is more suitable to a time when as yet the enemy bad not so far prevailed as to have carried the people indo a distant land. It is a mingled hymn of sorrow and of strong resolve. Though sorely smitten, the afflicted one is heart whole, and scorns to yield in the least degree to the enemy. The poet sings the trials of Israel, Ps 129:1-3; the interposition of the Lord, Ps 129:4; and the unblessed condition of Israel's foes, Ps 129:5-8. It is a rustic song, full of allusions to husbandry. It reminds us of the books of Ruth and Amos.
+**Author &mdash;** It does not seem to us at all needful to ascribe this Psalm to a period subsequent to the captivity&mdash; indeed, it is more suitable to a time when as yet the enemy bad not so far prevailed as to have carried the people indo a distant land. It is a mingled hymn of sorrow and of strong resolve. Though sorely smitten, the afflicted one is heart whole, and scorns to yield in the least degree to the enemy. The poet sings the trials of Israel, Ps 129:1-3; the interposition of the Lord, Ps 129:4; and the unblessed condition of Israel's foes, Ps 129:5-8. It is a rustic song, full of allusions to husbandry. It reminds us of the books of Ruth and Amos.
 
 ## Exposition
 
@@ -100,7 +100,7 @@ It is, further, by affliction that the *world* is known to God's children. God's
 
 **Verse 3.** *They made long their furrows.* The apparent harshness of this figure will disappear if it be considered to refer to severe public scourgings. To those who have been so unhappy as to witness such scourgings this allusion will then appear most expressive. The long wales or wounds which the scourge leaves at each stroke may most aptly be compared either to furrows or (as the original admits) to the *ridges between the furrows*. The *furrows* made by the plough in the East are very superficial, and (although straight) are usually carried to a great length, the fields not being enclosed as in this country.— *John Kitto, in "The Pictorial Bible."* 
 
-**Verse 4.** *The LORD is righteous: he hath cut asunder the cords of the wicked;* i.e., he has put an end to their domination and tyranny over us. In the Hebrew word which is rendered *"cords"* there is a reference to the *harness* with which the oxen were fastened to the plough; and so to the *involved machinations* and *cruelties* of the enemy. The Hebrew word properly denotes thick *twisted cords* ;figuratively, intertwined wickedness; Mic 7:8. *"The cords of the wicked"*, therefore, signify their *power, dominion, tyranny, * wickedness, and violence. These cords God is said *"to have cut"*, so that he should have made an end; and, therefore *"to have cut" for ever*, so that they should never be reunited.— *Hermann Venema.* 
+**Verse 4.** *The LORD is righteous: he hath cut asunder the cords of the wicked;* i.e., he has put an end to their domination and tyranny over us. In the Hebrew word which is rendered *"cords"* there is a reference to the *harness* with which the oxen were fastened to the plough; and so to the *involved machinations* and *cruelties* of the enemy. The Hebrew word properly denotes thick *twisted cords*; figuratively, intertwined wickedness; Mic 7:8. *"The cords of the wicked"*, therefore, signify their *power, dominion, tyranny, * wickedness, and violence. These cords God is said *"to have cut"*, so that he should have made an end; and, therefore *"to have cut" for ever*, so that they should never be reunited.— *Hermann Venema.* 
 
 **Verse 4.** *He hath cut asunder the cords of the wicked.* The enemies' power has been broken; *God has cut asunder the cords of the wicked, * has cut their gears, their traces, and so spoiled their ploughing; has cut their scourges, and so spoiled their lashing; has cut the bands of union, by which they were combined together; he has cut the bands of captivity, in which they held God's people. God has many ways of disabling Wicked men to do the mischief they design against his church, and shaming their counsels.— *Matthew Henry.* 
 
@@ -112,7 +112,7 @@ It is, further, by affliction that the *world* is known to God's children. God's
 
 **Verse 5.** *And turned back;* from pursuing their designs and accomplishing them; as the Assyrian monarch was, who had a hook put into his nose, and a bridle in his lips, and was turned back by the way he came: Isa 37:29.— *John Gill.* 
 
-**Verse 5.** *All those who hate Zion.* Note that he does not say, All who hate *me* ;but *"all who hate Zion."* Thus the saints are not led to this from the desire of revenge, but from zeal for the people of God, so that they pray for the confusion and repression of the ungodly.— *Wolfgang Musculus.* 
+**Verse 5.** *All those who hate Zion.* Note that he does not say, All who hate *me*; but *"all who hate Zion."* Thus the saints are not led to this from the desire of revenge, but from zeal for the people of God, so that they pray for the confusion and repression of the ungodly.— *Wolfgang Musculus.* 
 
 **Verse 6.** *Let them be as the grass upon the housetops.* They are rightly compared to *grass on the housetops;* for more contemptuously the Holy Ghost could not speak of them. For this grass is such, that it soon withereth away before the sickle be put into it. Yea, no man thinketh it worthy to be cut down, no man regardeth it, every man suffereth it to brag for a while, and to show itself unto men from the housetops as though it were something when it is nothing. So the wicked persecutors in the world, which are taken to be mighty and terrible according to the outward show, are of all men most contemptible. For Christians do not once think of plucking them up or cutting them down; they persecute them not, they revenge not their own injuries, but suffer them to increase, to brag and glory as much as they list. For they know that they cannot abide the violence of a vehement wind. Yea, though all things be in quietness, yet as grass upon the housetops, by little and little, withereth away through the heat of the sun, so tyrannies upon small occasions do perish and soon vanish away. The faithful, therefore, in suffering do prevail, and overcome; but the wicked in doing are overthrown, and miserably perish, as all the histories of all times and ages do plainly witness.— *Martin Luther.* 
 
@@ -170,11 +170,11 @@ d) It shall cause that to which it is opposed increasingly to prevail.— *G. R.
 
 1\. Their violence: "The plowers plowed", etc.
 
-2\. Their persistency: "Many a time&mdash;from my youth."
+2\. Their persistency: "Many a time&mdash; from my youth."
 
 3\. Their failure: "Yet they have not prevailed."
 
-4\. Their great opponent: "The Lord&mdash;hath cut asunder."
+4\. Their great opponent: "The Lord&mdash; hath cut asunder."
 
 — *J. F.* 
 
