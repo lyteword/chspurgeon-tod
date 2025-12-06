@@ -190,7 +190,7 @@ As mercy is here set in the first place; so shall the sentence of mercy and abso
 
 1\. In selecting our sphere of duty.
 
-2\. In timing, :arranging, and balancing duties.
+2\. In timing, : arranging, and balancing duties.
 
 3\. In managing others according to their tempers.
 

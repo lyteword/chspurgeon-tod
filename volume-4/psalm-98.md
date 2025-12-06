@@ -308,7 +308,7 @@ The singing of these Psalms became so popular that D'lsraeli suggests that "it f
 
 **Verse 5, 6.** The song and the stringed instruments belonged to the Levites, and the trumpets to the priests alone. Kitto says the trumpets did not join in the concert, but were sounded during certain regulated pauses in the vocal and instrumental music. The harps and voices made the sweetness, while the trumpets and horns added the strength; melody and energy should combine in the worship of God. *C. H. S.*
 
-**Verse 6.** *Trumpets.* tlruux, *Chatsotseroth* :here only in the Psalter. These were the straight trumpets (such as are seen on the Arch of Titus) used by the priests for giving signals. Nu 10:2-10; 1Ch 15:24, 28, etc. The *shofar*, rmwv (*cornet* ), was the ordinary curved trumpet, cornet, or horn. *William Kay.* 
+**Verse 6.** *Trumpets.* tlruux, *Chatsotseroth* : here only in the Psalter. These were the straight trumpets (such as are seen on the Arch of Titus) used by the priests for giving signals. Nu 10:2-10; 1Ch 15:24, 28, etc. The *shofar*, rmwv (*cornet* ), was the ordinary curved trumpet, cornet, or horn. *William Kay.* 
 
 **Verse 6.** *Trumpets.* The word here used is uniformly rendered trumpets in the Scriptures, Nu 10:2, 8-10 31:6; *et al*. The trumpet was mainly employed for convening a public assembly for worship, or for assembling the hosts for battle. The original word, xruux *chatsotserah*, is supposed to have been designed to imitate "the broken pulse like sound of the trumpet, like the Latin, *taratantara.* " So the German *trarara*, and the Arabic, *hadadera*. The word here used was given to the long, straight trumpet. *Albert Barnes.* 
 

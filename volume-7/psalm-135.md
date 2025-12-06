@@ -266,7 +266,7 @@ b) In particular. Those who are specially privileged by God should specially pra
 
 2\. He ought to be praised *by you*.
 
-3\. He ought to be praised *now* :let us remember his present favours.
+3\. He ought to be praised *now* : let us remember his present favours.
 
 4\. He ought to be praised in everything for ever.
 
@@ -368,7 +368,7 @@ e) Let the Lord's people fear not with so great a God, and so exhaustless an arm
 
 **Verse 13.** *Thy name, O LORD, endureth for ever.* 
 
-1\. As *the embodiment of perfection* :God's attributes and glory.
+1\. As *the embodiment of perfection* : God's attributes and glory.
 
 2\. As *the object of veneration* :"Holy and reverent is his name."
 

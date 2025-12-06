@@ -168,7 +168,7 @@ c) Because "by one Spirit are we all baptized into one body" (1Co 12:13), wherei
 
 d) Because destined to "dwell together in unity", for ever in heaven; therefore we should aim at it here.
 
-2\. *Its peculiar excellency* :both "good and pleasant."
+2\. *Its peculiar excellency* : both "good and pleasant."
 
 a) Good, in respect of church work and influence; of mutual edification and growth in grace (2Co 13:11); of the success of prayer (Mt 18:19); of recommending the gospel to others.
 

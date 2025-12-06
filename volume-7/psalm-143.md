@@ -178,13 +178,13 @@ The morning is the season in which David desires to hear the voice of the loving
 
 1\. *Danger*: the Christian may be in danger from sin, self, foes.
 
-2\. *Fear* :his fears may be groundless, but they are often very painful.
+2\. *Fear* : his fears may be groundless, but they are often very painful.
 
 3\. *Inability* —to defend himself or overcome his opposers.
 
-4\. *Foresight* :he sees the storm in the distance, and looks out for the covert.
+4\. *Foresight* : he sees the storm in the distance, and looks out for the covert.
 
-5\. *Prudence* :he hides before the storm, ere the enemy comes upon him.
+5\. *Prudence* : he hides before the storm, ere the enemy comes upon him.
 
 6\. A laudable *concern* for safety and comfort.
 

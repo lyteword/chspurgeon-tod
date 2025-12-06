@@ -156,7 +156,7 @@ Had in remembrance always with delight.
 
 **Verse 5.** *He hath given meat, * etc. The *meat* here mentioned is supposed to respect the paschal lamb, when they were to remember the works of God.— *Thomas Manton.* 
 
-**Verse 5.** *Meat.* Literally, *booty* or *spoil* :the spoil (Ex 12:36) brought by Israel out of Egypt, as God had engaged by *covenant* to Abraham, Ge 15:14, *They shall come out with great substance* (Kimchi). Rather the *manna* and *quails*, which to the hungry people were like a booty thrown in their way. The word is used for *"meat"* in general, in Pr 31:15; Mal 3:10.— *A. R. Fausset.* 
+**Verse 5.** *Meat.* Literally, *booty* or *spoil* : the spoil (Ex 12:36) brought by Israel out of Egypt, as God had engaged by *covenant* to Abraham, Ge 15:14, *They shall come out with great substance* (Kimchi). Rather the *manna* and *quails*, which to the hungry people were like a booty thrown in their way. The word is used for *"meat"* in general, in Pr 31:15; Mal 3:10.— *A. R. Fausset.* 
 
 **Verse 5.** *He hath given meat.* I rather choose to render it *portion, * in which sense it is taken in Pr 30:8 31:15; as if he should say, that God has given his people all that was needful, and that, considered as a portion, it was large and liberal; for we know that the people of Israel were enriched, not in consequence of their own industry, but by the blessing of God, who, like the father of a family, bestows upon his household everything necessary for their subsistence. In the following clause of the verse, he assigns as the reason for his care and kindness his desire of effectually demonstrating that his covenant was not null and void.— *John Calvin.* 
 
