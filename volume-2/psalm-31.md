@@ -476,7 +476,7 @@ The heavenly servant's best reward.
 
 **Verse 17.** The shame and silence of the wicked in eternity. The silence of the grave, its grave eloquence.
 
-**Verse 19.** See "Spurgeon's Sermons, " No. 773." David's Holy Wonder at the Lord's Great Goodness."
+**Verse 19.** See "Spurgeon's Sermons, " No. 773. "David's Holy Wonder at the Lord's Great Goodness."
 
 **Verse 20.** The believer preserved from the sneers of arrogance by a sense of the divine presence, and kept from the bitterness of slander by the glory of the King whom he serves.
 

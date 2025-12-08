@@ -452,7 +452,7 @@ c) The persons are "thy priests."— *W. B. H.*
 
 2\. Vestments.
 
-3\." Hymns Ancient and Modern."
+3\. "Hymns Ancient and Modern."
 
 4\. The Real Presence: God giving the garments and the joy.
 

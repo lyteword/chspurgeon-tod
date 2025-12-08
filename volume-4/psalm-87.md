@@ -364,7 +364,7 @@ Here is a fruitful theme.
 
 **Verse 6.** 
 
-1\." The Lord" will make the Census.
+1\. "The Lord" will make the Census.
 
 2\. He will "count" whether a man be rightly there or no.
 

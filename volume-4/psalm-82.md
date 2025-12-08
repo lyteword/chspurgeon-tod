@@ -142,5 +142,5 @@ Asaph's sermon before the judges is now before us. He speaks very plainly, and h
 
 ## Works Upon The Eighty-Second Psalm
 
-"The Beauty of Magistracy. An Exposition of Psalm 82." By THOMAS HALL, B. D. 1659-60. (In SWINNOCK'S WORKS. Vol. 4. Nichol's Edition.)
+"The Beauty of Magistracy. An Exposition of Psalm 82. "By THOMAS HALL, B. D. 1659-60. (In SWINNOCK'S WORKS. Vol. 4. Nichol's Edition.)
 

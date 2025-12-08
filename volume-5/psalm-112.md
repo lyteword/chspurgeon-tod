@@ -282,11 +282,11 @@ c. Perpetual.
 
 **Verse 7.** 
 
-1\." He shall not be afraid, "etc.: peaceful.
+1\. "He shall not be afraid, "etc.: peaceful.
 
-2\." His heart is fixed": restful.
+2\. "His heart is fixed": restful.
 
-3\." Trusting in the Lord": trustful; the cause of the former.
+3\. "Trusting in the Lord": trustful; the cause of the former.
 
 **Verse 7.** 
 

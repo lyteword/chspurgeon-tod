@@ -86,7 +86,7 @@ The Lord doth reign. This is not to be passed by; it's in the present tense. Thi
 
 2\. *The Lord reigneth by his providence, * "let the earth rejoice." The providence of God is well described in our shorter catechism, "It is his most holy, wise, and powerful preserving and governing all his creatures and all their actions." "The Lord reigneth" over the kingdoms of the earth, and manages all their affairs according to his sovereign and wise pleasure, and he doth the same for his church. He can reduce confusion into order, make the wrath of man to praise him, and restrain the remainder of it.
 
-3\." The Lord reigneth" *upon a throne of grace!* "let the earth rejoice." It is the mediatorial government of the Messiah which the Psalmist had more immediately in view, and this is the principal cause of joy to the earth and its guilty inhabitants.
+3\. "The Lord reigneth" *upon a throne of grace!* "let the earth rejoice." It is the mediatorial government of the Messiah which the Psalmist had more immediately in view, and this is the principal cause of joy to the earth and its guilty inhabitants.
 
 4\. And, lastly, the Lord will reign ere long upon *a throne of universal judgment* conspicuous to the assembled universe, "let the earth therefore rejoice, and the multitude of the isles be glad."— *Condensed from a Sermon by Samuel Davies, * 1724-1761.
 

@@ -134,11 +134,11 @@ Here we have the Lord himself speaking of his own chosen one. Because he hath se
 
 **Verse 1.** *He that dwelleth*, etc.
 
-1\." He dwells", therefore he shall "abide." He shall lodge quietly, securely.
+1\. "He dwells", therefore he shall "abide." He shall lodge quietly, securely.
 
-2\." He dwells in the secret place", therefore he shall "abide under the shadow." In the cool, the favour, the cover from the heat
+2\. "He dwells in the secret place", therefore he shall "abide under the shadow." In the cool, the favour, the cover from the heat
 
-3\." He dwelleth in the secret place of the Most High, therefore he shall abide under the shadow of the Almighty; " *i.e.*, of the all powerful God, of the God of heaven; of that God whose name is Shaddai, All sufficient. *Adam Clarke.* 
+3\. "He dwelleth in the secret place of the Most High, therefore he shall abide under the shadow of the Almighty; " *i.e.*, of the all powerful God, of the God of heaven; of that God whose name is Shaddai, All sufficient. *Adam Clarke.* 
 
 **Verse 1.** *Shall abide.* The Hebrew for "shall abide" is Nkwlty, which signifies, he shall pass the night. Abiding denotes a constant and continuous dwelling of the just in the assistance and protection of God. That help and protection of God is not like a lodge in a garden of cucumbers, or in a vineyard; which is destroyed in a moment, nor is it like a tent in the way which is abandoned by the traveller. It is a strong tower, a paternal home, wherein we spend all our life with the best, wealthiest, and mightiest of parents. *Passing the night* also denotes security and rest in time of darkness, temptations and calamities. With God Abraham passed the night, when He foretold to him the affliction of his descendants in Egypt, and their deliverance, Ge 15:12-16. Then also God said to him (Ge 15:1), *Fear not Abram. I am thy shield.* And leading him forth he showed him the glittering stars, and said, Tell the number of the stars, if thou bc able; so shall thy seed be. *Le Blanc.* 
 

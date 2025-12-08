@@ -226,7 +226,7 @@ For, as the gold sanctifieth not the altar, but the altar the gold; so it may be
 
 First, That he was a mere man, and no more; for,
 
-1\." Every high priest" was to be "taken from among men, " Heb 5:1;—so that the Son of God himself could not have been a priest had he not assumed our nature:
+1\. "Every high priest" was to be "taken from among men, " Heb 5:1;—so that the Son of God himself could not have been a priest had he not assumed our nature:
 
 2\. That if he were more than a man, there would be no mystery in his being introduced in Scripture as, " without father, without mother, without pedigree, " for none but men have such:
 
