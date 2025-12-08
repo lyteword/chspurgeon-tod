@@ -604,13 +604,13 @@ Luther closes his Exposition of the Psalm with the words, Oh, shame on our faith
 
 **Verse 3.** (*last clause* ). Read it in four ways.
 
-1\."Certainly fed, "or the certainty of supply.
+1\." Certainly fed, "or the certainty of supply.
 
-2\."Fed in verity, "or the sufficiency of the provision for soul and body.
+2\." Fed in verity, "or the sufficiency of the provision for soul and body.
 
-3\."Fed on truth, "or the spirituality of the provision.
+3\." Fed on truth, "or the spirituality of the provision.
 
-4\."Feed on truth, "or the duty of choosing such provision.
+4\." Feed on truth, "or the duty of choosing such provision.
 
 **Verse 4.** Explain the delight and the desire of the believer, and show the connection between them.
 

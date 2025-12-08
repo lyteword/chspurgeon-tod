@@ -176,7 +176,7 @@ As yet the interior fortresses of Edom had not been subdued. Their invading band
 
 **Verse 12.** *Through God we shall do, * etc. In war these two must be joined, and indeed in all actions: HE, *we; God* and *man.* 
 
-1\."We shall do valiantly, "for God helps not remiss, or cowardly, or negligent men.
+1\." We shall do valiantly, "for God helps not remiss, or cowardly, or negligent men.
 
 2\. And yet, that being done, the work is *his:* "He shall tread down; "the blow and the overthrow are not to be attributed to *us, * but to *him. Adam Clarke.* 
 

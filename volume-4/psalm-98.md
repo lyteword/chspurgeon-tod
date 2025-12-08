@@ -438,13 +438,13 @@ And joyful ages, from behind, in crowding ranks appear.
 
 **Verse 4.** The right use of noise.
 
-1\."Make a noise." Awake, O sleeper. Speak, O dumb.
+1\." Make a noise." Awake, O sleeper. Speak, O dumb.
 
-2\."Make a joyful noise." The shout of deliverance, of gratitude, of gladness.
+2\." Make a joyful noise." The shout of deliverance, of gratitude, of gladness.
 
-3\."Make a loud noise, all the earth." Nature with her ten thousand voices. The church with myriad saints.
+3\." Make a loud noise, all the earth." Nature with her ten thousand voices. The church with myriad saints.
 
-4\."Make a joyful noise unto God." Praise him alone. Praise him for ever. *E. G. G.* 
+4\." Make a joyful noise unto God." Praise him alone. Praise him for ever. *E. G. G.* 
 
 **Verse 6.** Joy a needful ingredient of praise. The Lord as King, an essential idea in adoration. Expression in various ways incumbent upon us, when praising joyfully such a King.
 

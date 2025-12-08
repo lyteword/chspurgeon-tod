@@ -226,11 +226,11 @@ fifthly, if their bodies only were dissolved, and their intentions and actions m
 
 **Verse 2.** Work for here and hereafter.
 
-1\."While I live"; or a period of uncertainty and mystery.
+1\." While I live"; or a period of uncertainty and mystery.
 
-2\."I will praise the Lord"; or a service definite, determined, due, and delightful. Certainty amid uncertainty.
+2\." I will praise the Lord"; or a service definite, determined, due, and delightful. Certainty amid uncertainty.
 
-3\."While I have any being"; or an enthusiastic pre-engagement of eternity.— *W. B. H.* 
+3\." While I have any being"; or an enthusiastic pre-engagement of eternity.— *W. B. H.* 
 
 **Verse 3.** 
 

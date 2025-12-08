@@ -240,7 +240,7 @@ Or—
 
 **Verse 10.** 
 
-1\."I will praise God *for* his word."
+1\." I will praise God *for* his word."
 
 2\. *In* his word, as he is there revealed.
 

@@ -170,7 +170,7 @@ Good resolutions commendable, how they should be made, strengthened, and perform
 
 **Verse 8.** (*last clause* ).
 
-1\."The dregs" of the cup: the wrath of wrath, the gall of bitterness.
+1\." The dregs" of the cup: the wrath of wrath, the gall of bitterness.
 
 2\. The dregs of the people: "all wicked."
 
