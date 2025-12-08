@@ -12,25 +12,37 @@ weight: 25
 
 ### Verse 1
 
+> Unto thee, O LORD, do I lift up my soul.
+
 *Unto thee, O Lord.* See how the holy soul flies to its God like a dove to its cote. When the storm winds are out, the Lord's vessels put about and make for their well remembered harbour of refuge. What a mercy that the Lord will condescend to hear our cries in time of trouble, although we may have almost forgotten him in our hours of fancied prosperity. *Unto thee, O Jehovah, do I lift up my soul.* It is but a mockery to uplift the hands and the eyes unless we also bring our souls into our devotions. True prayer may be described as the soul rising from earth to have fellowship with heaven; it is taking a journey upon Jacob's ladder, leaving our cares and fears at the foot, and meeting with a covenant God at the top. Very often the soul cannot rise, she has lost her wings, and is heavy and earth bound; more like a burrowing mole than a soaring eagle. At such dull seasons we must not give over prayer, but must, by God's assistance, exert all our powers to lift up our hearts. Let faith be the lever and grace be the arm, and the dead lump will yet be stirred. But what a lift it has sometimes proved! With all our tugging and straining we have been utterly defeated, until the heavenly loadstone of our Saviour's love has displayed its omnipotent attractions, and then our hearts have gone up to our Beloved like mounting flames of fire.
 
 ### Verse 2
+
+> O my God, I trust in thee: let me not be ashamed, let not mine enemies triumph over me.
 
 *O my God.* This title is more dear than the name Jehovah, which is used in the first sentence. Already the sweet singer has drawn nearer to his heavenly helper, for he makes bold to grasp him with the hand of assured possession, calling him, my God. Oh the more than celestial music of that word— *"My God!"* It is to be observed that the psalmist does not deny expression to those gracious feelings with which God had favoured him; he does not fall into loathsome mock modesty, but finding in his soul a desire to seek the Lord he avows it; believing that he had a rightful interest in Jehovah he declares it, and knowing that he had confidence in his God he professes it; *O my God, I trust in thee.* Faith is the cable which binds our boat to the shore, and by pulling at it we draw ourselves to the land; faith unites us to God, and then draws us near to him. As long as the anchor of faith holds there is no fear in the worst tempest; if that should fail us there would be no hope left. We must see to it that our faith is sound and strong, for otherwise prayer cannot prevail with God. Woe to the warrior who throws away his shield; what defence can be found for him who finds no defence in his God? *Let me not be ashamed.* Let no my disappointed hopes make me feel ashamed of my former testimonies of thy faithfulness. Many were on the watch for this. The best of men have their enemies, and should pray against them that they may not see their wicked desires accomplished. *Let not mine enemies triumph over me.* Suffer no wicked mouth to make blasphemous mirth out of my distresses by asking, "Where is thy God?" There is a great jealousy in believers for the honour of God, and they cannot endure that unbelievers should taunt them with the failure of their expectations from the God of their salvation. All other trusts will end in disappointment and eternal shame, but our confidence shall never be confounded.
 
 ### Verse 3
 
+> Yea, let none that wait on thee be ashamed: let them be ashamed which transgress without cause.
+
 *Yea, let none that wait on thee be ashamed.* Suffering enlarges the heart by creating the power to sympathize. If we pray eagerly for ourselves, we shall not long be able to forget our fellow sufferers. None pity the poor like those who have been or are still poor, none have such tenderness for the sick as those who have been long in ill health themselves. We ought to be grateful for occasional griefs if they preserve us from chronic hardheartedness; for of all afflictions, an unkind heart is the worst, it is a plague to its possessor, and a torment to those around him. Prayer when it is of the Holy Ghost's teaching is never selfish; the believer does not sue for monopolies for himself, but would have all in like case to partake of divine mercy with him. The prayer may be viewed as a promise; our Heavenly Father will never let his trustful children find him untrue or unkind. He will ever be mindful of his covenant. *Let them be ashamed which transgress without cause.* David had given his enemies no provocation; their hatred was wanton. Sinners have no justifiable reason or valid excuse for transgressing; they benefit no one, not even themselves by their sins; the law against which they transgress is not harsh or unjust; God is not a tyrannical ruler, providence is not a bondage: men sin because they will sin, not because it is either profitable or reasonable to do so. Hence shame is their fitting reward. May they blush with penitential shame now, or else they will not be able to escape the everlasting contempt and the bitter shame which is the portion of fools in the world to come.
 
 ### Verse 4
+
+> Shew me thy ways, O LORD; teach me thy paths.
 
 *Shew me thy ways, O Lord.* Unsanctified natures clamour for their own way, but gracious spirits cry, "Not my will, but thine be done. " We cannot at all times discern the path of duty, and at such times it is our wisdom to apply to the Lord himself. Frequently the dealings of God with us are mysterious, and then also we may appeal to him as his own interpreter, and in due time he will make all things plain. Moral, providential and mental forms of guidance are all precious gifts of a gracious God to a teachable people. The second petition, *teach me thy paths, * appears to mean more than the first, and may be illustrated by the case of a little child who should say to his father, "Father, first tell me which is the way, and then teach my little trembling feet to walk in it. " What weak dependent creatures we are! How constantly should we cry to the Strong for strength!
 
 ### Verse 5
 
+> Lead me in thy truth, and teach me: for thou *art* the God of my salvation; on thee do I wait all the day.
+
 *Lead me in thy truth, and teach me.* The same request as in the last verse. The little child having begun to walk, asks to be still led onward by its parent's helping hand, and to be further instructed in the alphabet of truth. Experimental teaching is the burden of this prayer. Lead me according to thy truth, and prove thyself faithful; lead me into truth that I may know its preciousness, lead me by the way of truth that I may manifest its spirit. David knew much, but he felt his ignorance and desired to be still in the Lord's school; four times over in these two verses he applies for a scholarship in the college of grace. It were well for many professors if instead of following their own devices, and cutting out new paths of thought for themselves, they would enquire for the good old ways of God's own truth, and beseech the Holy Ghost to give them sanctified understandings and teachable spirits. *For thou art the God of my salvation.* The Three One Jehovah is the Author and Perfector of salvation to his people. Reader, is he the God of *your* salvation? Do you find in the Father's election, in the Son's atonement, and in the Spirit's quickening all the grounds of your eternal hopes? If so, you may use this as an argument for obtaining further blessings; if the Lord has ordained to save you, surely he will not refuse to instruct you in his ways. It is a happy thing when we can address the Lord with the confidence which David here manifests, it gives us great power in prayer, and comfort in trial. *On thee do I wait all the day.* Patience is the fair handmaid and daughter of faith; we cheerfully wait when we are certain that we shall not wait in vain. It is our duty and our privilege to wait upon the Lord in service, in worship, in expectancy, in trust all the days of our life. Our faith will be tried faith, and if it be of the true kind, it will bear continued trial without yielding. We shall not grow weary of waiting upon God if we remember how long and how graciously he once waited for us.
 
 ### Verse 6
+
+> Remember, O LORD, thy tender mercies and thy lovingkindnesses; for they *have been* ever of old.
 
 *Remember, O Lord, thy tender mercies and thy lovingkindnesses.* We are usually tempted in seasons of affliction to fear that our God has forgotten us, or forgotten his usual kindness towards us; hence the soul doth as it were put the Lord in remembrance, and beseech him to recollect those deeds of love which once he wrought towards it. There is a holy boldness which ventures thus to deal with the Most High, let us cultivate it; but there is also an unholy unbelief which suggests our fears, let us strive against it with all our might. What gems are those two expressions, *"tender mercies and lovingkindnesses!"* They are the virgin honey of language; for sweetness no words can excel them; but as for the gracious favours which are intended by them, language fails to describe them.
 
@@ -43,6 +55,8 @@ If the Lord will only do unto us in the future as in the past, we shall be well 
 
 ### Verse 7
 
+> Remember not the sins of my youth, nor my transgressions: according to thy mercy remember thou me for thy goodness’ sake, O LORD.
+
 *Remember not the sins of my youth.* Sin is *the* stumbling block. This is the thing to be removed. Lord, pass an act of oblivion for all my sins, and especially for the hot blooded wanton follies of my younger years. Those offences which we remember with repentance God forgets, but if we forget them, justice will bring them forth to punishment. The world winks at the sins of younger men, and yet they are none so little after all; the bones of our youthful feastings at Satan's table will stick painfully in our throats when we are old men. He who presumes upon his youth is poisoning his old age. How large a tear may wet this page as some of us reflect upon the past! *Nor my transgressions.* Another word for the same evils. Sincere penitents cannot get through their confessions at a gallop; they are constrained to use many bemoanings, for their swarming sins smite them with so innumerable griefs. A painful sense of any one sin provokes the believer to repentance for the whole mass of his iniquities. Nothing but the fullest and clearest pardon will satisfy a thoroughly awakened conscience. David would have his sins not only forgiven, but forgotten. *According to thy mercy remember thou me for thy goodness' sake, O Lord.* David and the dying thief breathe the same prayer, and doubtless they grounded it upon the same plea, viz., the free grace and unmerited goodness of Jehovah. We dare not ask to have our portion measured from the balances of justice, but we pray to be dealt with by the hand of mercy.
 
 ### Verses 8-10
@@ -51,37 +65,55 @@ These three verses are a meditation upon the attributes and acts of the Lord. He
 
 ### Verse 8
 
+> Good and upright *is* the LORD: therefore will he teach sinners in the way.
+
 *Good and upright is the Lord: therefore will he teach sinners in the way.* Here the goodness and rectitude of the divine character are beheld in friendly union; he who would see them thus united in bonds of perfect amity must stand at the foot of the cross and view them blended in the sacrifice of the Lord Jesus. It is no less true than wonderful that through the atonement the justice of God pleads as strongly as his grace for the salvation of the sinners whom Jesus died to save. Moreover, as a good man naturally endeavours to make others like himself, so will the Lord our God in his compassion bring sinners into the way of holiness and conform them to his own image; thus the goodness of our God leads us to expect the reclaiming of sinful men. We may not conclude from God's goodness that he will save those sinners who continue to wander in their own ways, but we may be assured that he will renew transgressors' hearts and guide them into the way of holiness. Let those who desire to be delivered from sin take comfort from this. God himself will condescend to be the teacher of sinners. What a ragged school is this for God to teach in! God's teaching is practical; he teaches sinners not only the doctrine but *the way.*
 
 ### Verse 9
+
+> The meek will he guide in judgment: and the meek will he teach his way.
 
 *The meek will he guide in judgment.* Meek spirits are in high favour with the Father of the meek and lowly Jesus, for he sees in them the image of his only begotten Son. They know their need of guidance, and are willing to submit their own understandings to the divine will, and therefore the Lord condescends to be their guide. Humble spirits are in this verse endowed with a rich inheritance; let them be of good cheer. Trouble puts gentle spirits to their wit's ends, and drives them to act without discretion, but grace comes to the rescue, enlightens their minds to follow that which is just, and helps them to discern the way in which the Lord would have them to go. Proud of their own wisdom fools will not learn, and therefore miss their road to heaven, but lowly hearts sit at Jesu's feet, and find the gate of glory, for *the meek will he teach his way.* Blessed teacher! Favoured scholar! Divine lesson! My soul, be thou familiar with the whole.
 
 ### Verse 10
 
+> All the paths of the LORD *are* mercy and truth unto such as keep his covenant and his testimonies.
+
 This is a rule without exception. God is good to those that be good. Mercy and faithfulness shall abound towards those who through mercy are made faithful. Whatever outward appearances may threaten we should settle it steadfastly in our minds that while grace enables us to obey the Lord's will we need not fear that Providence will cause us any real loss. There shall be mercy in every unsavoury morsel, and faithfulness in every bitter drop; let not our hearts be troubled, but let us rest by faith in the immutable covenant of Jehovah, which is ordered in all things and sure. Yet this is not a general truth to be trampled upon by swine, it is a pearl for a child's neck. Gracious souls, by faith resting upon the finished work of the Lord Jesus, *keep* the *covenant* of the Lord, and, being sanctified by the Holy Spirit, they walk in *his testimonies;* these will find all things working together for their good, but to the sinner there is no such promise. Keepers of the covenant shall be kept by the covenant; those who follow the Lord's commandments shall find the Lord's mercy following them.
 
 ### Verse 11
+
+> For thy name’s sake, O LORD, pardon mine iniquity; for it *is* great.
 
 This sentence of prayer would seem out of place were it not that prayer is always in its place, whether in season or out of season. Meditation having refreshed the Psalmist, he falls to his weighty work again, and wrestles with God for the remission of his sin. *For thy name's sake, O Lord.* Here is a blessed, never failing plea. Not for our sakes or our merit's sake, but to glorify thy mercy, and to show forth the glory of thy divine attributes. *Pardon mine iniquity.* It is confessed, it is abhorred, it is consuming my heart with grief; Lord forgive it; let thine own lips pronounce my absolution. *For it is great.* It weighs so heavily upon me that I pray thee remove it. Its greatness is no difficulty with thee, for thou art a great God, but the misery which it causes to me is my argument with thee for speedy pardon. Lord, the patient is sore sick, therefore heal him. To pardon a great sinner will bring thee great glory, therefore for thy name's sake pardon me. Observe how this verse illustrates the logic of faith, which is clean contrary to that of a legal spirit; faith looks not for merit in the creature, but hath regard to the goodness of the Creator; and instead of being staggered by the demerits of sin it looks to the precious blood, and pleads all the more vigorously because of the urgency of the case.
 
 ### Verse 12
 
+> What man *is* he that feareth the LORD? him shall he teach in the way *that* he shall choose.
+
 *What man is he that feareth the Lord?* Let the question provoke self examination. Gospel privileges are not for every pretender. Art thou of the seed royal or no? *Him shall he teach in the way that he shall choose.* Those whose hearts are right shall not err for want of heavenly direction. Where God sanctifies the heart he enlightens the head. We all wish to choose our way; but what a mercy is it when the Lord directs that choice, and makes free will to be goodwill! If we make our will God's will, God will let is have our will. God does not violate our will, but leaves much to our choice; nevertheless, he instructs our wills, and so we choose that which is well pleasing in his sight. The will should be subject to law; there is a way which we should choose, but so ignorant are we that we need to be taught, and so wilful that none but God himself can teach us effectually.
 
 ### Verse 13
+
+> His soul shall dwell at ease; and his seed shall inherit the earth.
 
 He who fears God has nothing else to fear. *His soul shall dwell at ease.* He shall lodge in the chamber of content. One may sleep as soundly in the little bed in the corner as in the Great Bed of Ware; it is not abundance but content that gives true ease. Even here, having learned by grace both to abound and be empty, the believer dwells at ease; but how profound will be the ease of his soul for ever! There he will enjoy the *otium cum dignitate;* ease and glory shall go together. Like a warrior whose battles are over, or a husbandman whose barns are full, his soul shall take its ease, and be merry for ever. *His seed shall inherit the earth.* God remembers Isaac for the sake of Abraham, and Jacob for the sake of Isaac. Good men's sons have a goodly portion to begin the world with, but many of them, alas! turn a father's blessing into a curse. The promise is not broken because in some instances men wilfully refuse to receive it; moreover, it is in its spiritual meaning that it now holds good; our spiritual seed do inherit all that was meant by *"the earth, "* or Canaan; they receive the blessing of the new covenant. May the Lord make us the joyful parents of many spiritual children, and we shall have no fears about their maintenance, for the Lord will make each one of them princes in all the earth.
 
 ### Verse 14
 
+> The secret of the LORD *is* with them that fear him; and he will shew them his covenant.
+
 *The secret of the Lord is with them that fear him.* Some read it "the friendship:" it signifies familiar intercourse, confidential intimacy, and select fellowship. This is a great secret. Carnal minds cannot guess what is intended by it, and even believers cannot explain it in words, for it must be felt to be known. The higher spiritual life is necessarily a path which the eagle's eye hath not known, and which the lion's whelp has not travelled; neither natural wisdom nor strength can force a door into this inner chamber. Saints have the key of heaven's hieroglyphics; they can unriddle celestial enigmas. They are initiated into the fellowship of the skies; they have heard words which it is not possible for them to repeat to their fellows. *And he will shew them his covenant.* Its antiquity, security, righteousness, fulness, graciousness and excellence, shall be revealed to their hearts and understandings, and above all, their own part in it shall be sealed to their souls by the witness of the Holy Spirit. The designs of love which the Lord has to his people in the covenant of grace, he has been pleased to show to believers in the Book of Inspiration, and by his Spirit he leads us into the mystery, even the hidden mystery of redemption. He who does not know the meaning of this verse, will never learn it from a commentary; let him look to the cross, for the secret lies there.
 
 ### Verse 15
 
+> Mine eyes *are* ever toward the LORD; for he shall pluck my feet out of the net.
+
 *Mine eyes are ever toward the Lord.* The writer claims to be fixed in his trust, and constant in his expectation; he looks in confidence, and waits in hope. We may add to this look of faith and hope the obedient look of service, the humble look of reverence, the admiring look of wonder, the studious look of meditation, and the tender look of affection. Happy are those whose eyes are never removed from their God. "The eye, "says Solomon, "is never satisfied with seeing, "but this sight is the most satisfying in the world. *For he shall pluck my feet out of the net.* Observe the conflicting condition in which a gracious soul may be placed, his eyes are in heaven and yet his feet are sometimes in a net; his nobler nature ceases not to behold the glories of God, while his baser parts are enduring the miseries of the world. A net is the common metaphor for temptation. The Lord often keeps his people from falling into it, and if they have fallen he rescues them. The word *"pluck"* is a rough word, and saints who have fallen into sin find that the means of their restoration are not always easy to the flesh; the Lord plucks at us sharply to let us feel that sin is an exceeding bitter thing. But what a mercy is here: Believer, be very grateful for it. The Lord will deliver us from the cunning devices of our cruel enemy, and even if through infirmity we have fallen into sin, he will not leave us to be utterly destroyed but will pluck us out of our dangerous state; though our feet are in the net, if our eyes are up unto God, mercy certainly will interpose.
 
 ### Verse 16
+
+> Turn thee unto me, and have mercy upon me; for I *am* desolate and afflicted.
 
 His own eyes were fixed upon God, but he feared that the Lord had averted his face from him in anger. Oftentimes unbelief suggests that God has turned his back upon us. If we know that we turn to God we need not fear that he will turn from us, but may boldly cry, *Turn thee unto me.* The ground of quarrel is always in ourselves, and when that is removed there is nothing to prevent our full enjoyment of communion with God. *Have mercy upon me.* Saints still must stand upon the footing of mercy; notwithstanding all their experience they cannot get beyond the publican's prayer, "Have mercy upon me. " *For I am desolate and afflicted.* He was lonely and bowed down. Jesus was in the days of his flesh in just such a condition; none could enter into the secret depths of his sorrows, he trod the winepress alone, and hence he is able to succour in the fullest sense those who tread the solitary path.
 
@@ -92,25 +124,37 @@ His own eyes were fixed upon God, but he feared that the Lord had averted his fa
 
 ### Verse 17
 
+> The troubles of my heart are enlarged: *O* bring thou me out of my distresses.
+
 *The troubles of my heart are enlarged.* When trouble penetrates the heart it is trouble indeed. In the case before us, the heart was swollen with grief like a lake surcharged with water by enormous floods; this is used as an argument for deliverance, and it is a potent one. When the darkest hour of the night arrives we may expect the dawn; when the sea is at its lowest ebb the tide must surely turn; and when our troubles are enlarged to the greatest degree, then we may hopefully pray, *O bring thou me out of my distresses.*
 
 ### Verse 18
+
+> Look upon mine affliction and my pain; and forgive all my sins.
 
 *Look upon mine affliction and my pain.* Note the many trials of the saints; here we have no less than six words all descriptive of woe. "Desolate, and afflicted, troubles enlarged, distresses, affliction, and pain. " But note yet more the submissive and believing spirit of a true saint; all he asks for is, "Lord, look upon my evil plight; "he does not dictate, or even express a complaint; a look from God will content him, and that being granted he asks no more. Even more noteworthy is the way in which the believer under affliction discovers the true source of all the mischief, and lays the axe at the root of it. *Forgive all my sins, * is the cry of a soul that is more sick of sin than of pain, and would sooner be forgiven than healed. Blessed is the man to whom sin is more unbearable than disease, he shall not be long before the Lord shall both forgive his iniquity and heal his diseases. Men are slow to see the intimate connection between sin and sorrow, a grace taught heart alone feels it.
 
 ### Verse 19
 
+> Consider mine enemies; for they are many; and they hate me with cruel hatred.
+
 *Consider mine enemies*. Watch them, weigh them, check them, defeat them. *For they are many*. They need the eyes of Argus to watch them, and the arms of Hercules to match them, but the Lord is more than sufficient to defeat them. The devils of hell and the evils of earth are all vanquished when the Lord makes bare his arm. *They hate me with cruel hatred*. It is the breath of the serpent's seed to hate; their progenitor was a hater, and they themselves must needs imitate him. No hate so cruel as that which is unreasonable and unjust. A man can forgive one who had injured him, but one whom he has injured he hates implacably. "Behold, I send you forth as sheep in the midst of wolves, "is still our Master's word to us.
 
 ### Verse 20
+
+> O keep my soul, and deliver me: let me not be ashamed; for I put my trust in thee.
 
 *O keep my soul* out of evil, *and deliver me* when I fall into it. This is another version of the prayer, "Lead us not into temptation, but deliver us from evil. " *Let me not be ashamed.* This is the one fear which like a ghost haunted the psalmist's mind. He trembled lest his faith should become the subject of ridicule through the extremity of his affliction. Noble hearts can brook anything but shame. David was of such a chivalrous spirit, that he could endure any torment rather than be put to dishonour. *For I put my trust in thee.* And therefore the name of God would be compromised if his servants were deserted; this the believing heart can by no means endure.
 
 ### Verse 21
 
+> Let integrity and uprightness preserve me; for I wait on thee.
+
 *Let integrity and uprightness preserve me.* What better practical safeguards can a man require? If we do not prosper with these as our guides, it is better for us to suffer adversity. Even the ungodly world admits that "honesty is the best policy. " The heir of heaven makes assurance doubly sure, for apart from the rectitude of his public life, he enlists the guardian care of heaven in secret prayer: *for I wait on thee.* To pretend to wait on God without holiness of life is religious hypocrisy, and to trust to out own integrity without calling upon God is presumptuous atheism. Perhaps the integrity and uprightness referred to are those righteous attributes of God, which faith rests upon as a guarantee that the Lord will not forfeit his word.
 
 ### Verse 22
+
+> Redeem Israel, O God, out of all his troubles.
 
 *Redeem Israel, O God, out of all his troubles.* This is a very comprehensive prayer, including all the faithful and all their trials. Sorrow had taught the psalmist sympathy, and given him communion with the tried people of God; he therefore remembers them in his prayers. *Israel, * the tried, the wrestling, the conquering hero, fit representative of all the saints. Israel in Egypt, in the wilderness, in wars with Canaanites, in captivity, fit type of the church militant on earth. Jesus is the Redeemer from trouble as well as sin, he is a complete Redeemer, and from every evil he will rescue every saint. Redemption by blood is finished: O God, send us redemption by power. Amen and Amen.
 
