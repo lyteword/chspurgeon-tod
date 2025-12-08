@@ -116,7 +116,7 @@ May the Lord cleanse our hearts and our ways, that we may escape the doom of the
 
 **Verse 3 &mdash;** *"And whatsoever he doeth, * [or, *maketh or taketh in* hand] *shall prosper."* And with regard to this "prospering, " take heed that thou understandest not a carnal prosperity. This prosperity is hidden prosperity, and lies entirely secret in spirit; and therefore if thou hast not this prosperity that is by faith, thou shouldest rather judge thy prosperity to be the greatest adversity. For as the devil bitterly hates this leaf and the word of God, so does he also those who teach and hear it, and he persecutes such, aided by all the powers of the world. Therefore thou hearest of a miracle the greatest of all miracles, when thou hearest that all things prosper which a blessed man doeth. &mdash; *Martin Luther.* 
 
-**Verse 3 &mdash;** A critical journal has shown that instead of *"Whatsoever it* doeth shall prosper, "the rendering might be, *"Whatsoever it produceth* shall come to maturity."This makes the figure entire, and is sanctioned by some MSS. and ancient versions. 
+**Verse 3 &mdash;** A critical journal has shown that instead of *"Whatsoever it* doeth shall prosper, "the rendering might be, *"Whatsoever it produceth* shall come to maturity." This makes the figure entire, and is sanctioned by some MSS. and ancient versions. 
 
 **Verse 3 &mdash;** (*last clause*). Outward prosperity, if it follow close walking with God, is very sweet; as the cipher, when it follows a figure, adds to the number, though it be nothing in itself. &mdash; *John Trapp.* 
 
