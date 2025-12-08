@@ -14,81 +14,121 @@ weight: 9
 
 ### Verse 1
 
+> I will praise *thee*, O LORD, with my whole heart; I will shew forth all thy marvellous works.
+
 With a holy resolution the songster begins his hymn; *I* will praise thee, O Lord. It sometimes needs all our determination to face the foe, and bless the Lord in the teeth of his enemies; vowing that whoever else may be silent *we* will bless his name; here, however, the overthrow of the foe is viewed as complete, and the song flows with sacred fulness of delight. It is our duty to praise the Lord; let us perform it as a privilege. Observe that David's praise is all given to the Lord. Praise is to be offered to God alone; we may be grateful to the intermediate agent, but our thanks must have long wings and mount aloft to heaven. *With my whole heart.* Half heart is no heart. *I will show* forth. There is true praise to the thankful telling forth to others of our heavenly Father's dealings with us; this is one of the themes upon which the godly should speak often to one another, and it will not be casting pearls before swine if we make even the ungodly hear of the loving-kindness of the Lord to us. *All thy marvellous* works. Gratitude for one mercy refreshes the memory as to thousands of others. One silver link in the chain draws up a long series of tender remembrances. Here is eternal work for us, for there can be no end to the showing forth of *all* his deeds of love. If we consider our own sinfulness and nothingness, we must feel that every work of preservation, forgiveness, conversion, deliverance, sanctification, etc., which the Lord has wrought for us, or in us is a *marvellous* work. Even in heaven, divine loving-kindness will doubtless be as much a theme of surprise as of rapture.
 
 ### Verse 2
+
+> I will be glad and rejoice in thee: I will sing praise to thy name, O thou most High.
 
 Gladness and joy are the appropriate spirit in which to praise the goodness of the Lord. Birds extol the Creator in notes of overflowing joy, the cattle low forth his praise with tumult of happiness, and the fish leap up in his worship with excess of delight. Moloch may be worshipped with shrieks of pain, and Juggernaut may be honoured by dying groans and inhuman yells, but he whose name is Love is best pleased with the holy mirth, and sanctified gladness of his people. Daily rejoicing is an ornament to the Christian character, and a suitable robe for God's choristers to wear. God loveth a *cheerful* giver, whether it be the gold of his purse or the gold of his mouth which he presents upon his altar. *I will sing praise to thy name, O thou most High.* Songs are the fitting expression of inward thankfulness, and it were well if we indulge ourselves and honoured our Lord with more of them. Mr. B. P. Power has well said, "The sailors give a cheery cry as they weigh anchor, the ploughman whistles in the morning as he drives his team; the milkmaid sings her rustic song as she sets about her early task; when soldiers are leaving friends behind them, they do not march out to the tune of the 'Dead March in Saul, ' but to the quick notes of some lively air. A praising spirit would do for us all that their songs and music do for them; and if only we could determine to praise the Lord, we should surmount many a difficulty which our low spirits never would have been equal to, and we should do double the work which can be done if the heart be languid in its beating, if we be crushed and trodden down in soul. As the evil spirit in Saul yielded in olden time to the influence of the harp of the son of Jesse, so would the spirit of melancholy often take flight from us, if only we would take up the song of praise.
 
 ### Verse 3
 
+> When mine enemies are turned back, they shall fall and perish at thy presence.
+
 God's presence is evermore sufficient to work the defeat of our most furious foes, and their ruin is so complete when the Lord takes them in hand, that even flight cannot save them, they fall to rise no more when he pursues them. We must be careful, like David, to give all the glory to him whose presence gives the victory. If we have here the exultings of our conquering Captain, let us make the triumphs of the Redeemer the triumphs of the redeemed, and rejoice with him at the total discomfiture of all his foes.
 
 ### Verse 4
+
+> For thou hast maintained my right and my cause; thou satest in the throne judging right.
 
 One of our nobility has for his motto, "I will maintain it;" but the Christian has a better and more humble one, "Thou hast maintained it." "God and my right, " are united by my faith: while God lives my right shall never be taken from me. If we seek to maintain the cause and honour of our Lord we may suffer reproach and misrepresentation, but it is a rich comfort to remember that he who sits on the throne knows our hearts, and will not leave us to the ignorant and ungenerous judgment of erring man.
 
 ### Verse 5
 
+> Thou hast rebuked the heathen, thou hast destroyed the wicked, thou hast put out their name for ever and ever.
+
 God rebukes before he destroys, but when he once comes to blows with the wicked he ceases not until he has dashed them in pieces so small that their very name is forgotten, and like a noisome snuff their remembrance is put out for ever and ever. How often the word "thou" occurs in this and the former verse, to show us that the grateful strain mounts up directly to the Lord as doth the smoke from the altar when the air is still. My soul send up all the music of all thy powers to him who has been and is thy sure deliverance.
 
 ### Verse 6
+
+> O thou enemy, destructions are come to a perpetual end: and thou hast destroyed cities; their memorial is perished with them.
 
 Here the Psalmist exults over the fallen foe. He bends as it were, over his prostrate form, and insults his once vaunted strength. He plucks the boaster's song out of his mouth, and sings it for him in derision. After this fashion doth our Glorious Redeemer ask of death, "Where is thy sting?" and of the grave, "Where is thy victory?" The spoiler is spoiled, and he who made captive is led into captivity himself. Let the daughters of Jerusalem go forth to meet their King, and praise him with timbrel and harp. In the light of the past the future is not doubtful. Since the same Almighty God fills the throne of power, we can with unhesitating confidence, exult in our security for all time to come.
 
 ### Verse 7
 
+> But the LORD shall endure for ever: he hath prepared his throne for judgment.
+
 The enduring existence and unchanging dominion of our Jehovah, are the firm foundations of our joy. The enemy and his destructions shall come to a perpetual end, but God and his throne shall *endure for ever.* The eternity of divine sovereignty yields unfailing consolation. By the throne being *prepared for* judgment, are we not to understand the swiftness of divine justice. In heaven's court suitors are not worn out with long delays. Term-time lasts all the year round in the court of King's Bench above. Thousands may come at once to the throne of the Judge of all the earth, but neither plaintiff nor defendant shall have to complain that he is not prepared to give their cause a fair hearing.
 
 ### Verse 8
+
+> And he shall judge the world in righteousness, he shall minister judgment to the people in uprightness.
 
 Whatever earthly courts may do, heaven's throne ministers judgment in uprightness. Partiality and respect of persons are things unknown in the dealings of the Holy One of Israel. How the prospect of appearing before the impartial tribunal of the Great King should act as a check to us when tempted to sin, and as a comfort when we are slandered or oppressed.
 
 ### Verse 9
 
+> The LORD also will be a refuge for the oppressed, a refuge in times of trouble.
+
 He who gives no quarter to the wicked in the day of judgment, is the defence and refuge of his saints in the day of trouble. There are many forms of oppression; both from man and from Satan oppression comes to us; and for all its forms, a refuge is provided in the Lord Jehovah. There were cities of refuge under the law, God is our refuge-city under the gospel. As the ships when vexed with tempest make for harbour, so do the oppressed hasten to the wings of a just and gracious God. He is a high tower so impregnable, that the hosts of hell cannot carry it by storm, and from its lofty heights faith looks down with scorn upon her enemies.
 
 ### Verse 10
+
+> And they that know thy name will put their trust in thee: for thou, LORD, hast not forsaken them that seek thee.
 
 Ignorance is worst when it amounts to ignorance of God, and knowledge is best when it exercises itself upon *the name* of God. This most excellent knowledge leads to the most excellent grace of faith. O, to learn more of the attributes and character of God. Unbelief, that hooting nightbird, cannot live in the light of divine knowledge, it flies before the sun of God's great and gracious name. If we read this verse literally, there is, no doubt, a glorious fulness of assurance in the names of God. We have recounted them in the "Hints for Preachers, " and would direct the reader's attention to them. By knowing his name is also meant an experimental acquaintance with the attributes of God, which are every one of them anchors to hold the soul from drifting in seasons of peril. The Lord may hide his face for a season from his people, but he never has utterly, finally, really, or angrily *forsaken them that seek him.* Let the poor seekers draw comfort from this fact, and let the finders rejoice yet more exceedingly, for what must be the Lord's faithfulness to those who find if he is so gracious to those who seek. O hope of every contrite heart, O joy of all the meek, To those who fall how kind thou art, How good to those who seek. "But what to those who find, ah, this Nor tongue nor pen can show The love of Jesus what it is, None but his loved ones know."
 
 ### Verse 11
 
+> Sing praises to the LORD, which dwelleth in Zion: declare among the people his doings.
+
 Being full of gratitude himself, our inspired author is eager to excite others to join the strain, and praise God in the same manner as he himself vowed to do in the first and second verses. The heavenly spirit of praise is gloriously contagious, and he that hath it is never content unless he can excite all who surround him to unite in his sweet employ. Singing and preaching, as means of glorifying God, are here joined together, and it is remarkable that, connected with all revivals of gospel ministry, there has been a sudden outburst of the spirit of song. Luther's Psalms and Hymns were in all men's mouths, and in the modern revival under Wesley and Whitefield, the strains of Charles Wesley, Cennick, Berridge, Toplady, Hart, Newton, and many others, were the outgrowth of restored piety. The singing of the birds of praise fitly accompanies the return of the gracious spring of divine visitation through the proclamation of the truth. Sing on brethren, and preach on, and these shall both be a token that the Lord still dwelleth in Zion. It will be well for us when coming up to Zion, to remember that the Lord dwells among his saints, and is to be had in peculiar reverence of all those that are about him.
 
 ### Verse 12
+
+> When he maketh inquisition for blood, he remembereth them: he forgetteth not the cry of the humble.
 
 When an inquest is held concerning the blood of the oppressed, the martyred saints will have the first remembrance; he will avenge his own elect. Those saints who are living shall also be heard; they shall be exonerated from blame, and kept from destruction, even when the Lord's most terrible work is going on; the man with the inkhorn by his side shall mark them all for safety, before the slaughtermen are permitted to smite the Lord's enemies. The humble cry of the poorest saints shall neither be drowned by the voice of the thundering justice nor by the shrieks of the condemned.
 
 ### Verse 13
 
+> Have mercy upon me, O LORD; consider my trouble *which I suffer* of them that hate me, thou that liftest me up from the gates of death:
+
 Memories of the past and confidences concerning the future conducted the man of God to the mercy seat to plead for the needs of the present. Between praising and praying he divided all his time. How could he have spent it more profitably? His first prayer is one suitable for all persons and occasions, it breathes a humble spirit, indicates self-knowledge, appeals to the proper attributes, and to the fitting person. *Have mercy upon me, O Lord.* Just as Luther used to call some texts little bibles, so we may call this sentence a little prayer-book; for it has in it the soul and marrow of prayer. It is multum in parvo, and like the angelic sword turns every way. The ladder looks to be short, but it reaches from earth to heaven. What a noble title is here given to the Most High. *Thou that liftest me up from the gates of death!* What a glorious lift! In sickness, in sin, in despair, in temptation, we have been brought very low, and the gloomy portal has seemed as if it would open to imprison us, but, underneath us were the everlasting arms, and, therefore, we have been uplifted even to the gates of heaven. Trapp quaintly says, "He commonly reserveth his hand for a dead lift, and rescueth those who were even talking of their graves."
 
 ### Verse 14
+
+> That I may shew forth all thy praise in the gates of the daughter of Zion: I will rejoice in thy salvation.
 
 We must not overlook David's object in desiring mercy, it is God's glory: *"that I may show forth all thy praise."* Saints are not so selfish as to look only to self; they desire mercy's diamond that they may let others see it flash and sparkle, and may admire Him who gives such priceless gems to his beloved. The contrast between the gates of death and the gates of the New Jerusalem is very striking; let our songs be excited to the highest and most rapturous pitch by the double consideration of whence we are taken, and to what we have been advanced, and let our prayers for mercy be made more energetic and agonizing by a sense of the grace which such a salvation implies. When David speaks of his showing forth *all* God's praise, he means that, in his deliverance grace in all its heights and depths would be magnified. Just as our hymn puts it:— O the length and breadth of love! Jesus, Saviour, can it be? All thy mercy's height I prove, All the depth is seen in me. Here ends the first part of this instructive Psalm, and in pausing awhile we feel bound to confess that our exposition has only flitted over its surface and has not digged into the depths. The verses are singularly full of teaching, and if the Holy Spirit shall bless the reader, he may go over this Psalm, as the writer has done scores of times, and see on each occasion fresh beauties.
 
 ### Verse 15
 
+> The heathen are sunk down in the pit *that* they made: in the net which they hid is their own foot taken.
+
 In considering this terrible picture of the Lord's overwhelming judgments of his enemies, we are called upon to ponder and meditate upon it with deep seriousness by the two untranslated words, Higgaion, Selah. Meditate, pause. Consider, and tune your instrument. Bethink yourselves and solemnly adjust your hearts to the solemnity which is so well becoming the subject. Let us in a humble spirit approach these verses, and notice, first, that the character of God requires the punishment of sin.
 
 ### Verse 16
+
+> The LORD is known *by* the judgment *which* he executeth: the wicked is snared in the work of his own hands. Higgaion. Selah.
 
 *Jehovah is known by the judgment which he executeth;* his holiness and abhorrence of sin is thus displayed. A ruler who winked at evil would soon be known by all his subjects to be evil himself, and he, on the other hand, who is severely just in judgment reveals his own nature thereby. So long as our God is God, he will not, he cannot spare the guilty; except through that one glorious way in which he is just, and yet the justifier of him that believeth in Jesus. We must notice, secondly, that the manner of his judgment is singularly wise, and indisputably just. He makes the wicked become their own executioners. "The heathen are sunk down in the pit that they made, " etc. Like cunning hunters they prepared a pitfall for the godly and fell into it themselves: the foot of the victim escaped their crafty snares, but the toils surrounded themselves: the cruel snare was laboriously manufactured, and it proved its efficacy by snaring its own maker. Persecutors and oppressors are often ruined by their own malicious projects. "Drunkards kill themselves; prodigals beggar themselves;" the contentious are involved in ruinous costs; the vicious are devoured with fierce diseases; the envious eat their own hearts; and blasphemers curse their own souls. Thus, men may read their sin in their punishment. They sowed the seed of sin, and the ripe fruit of damnation is the natural result.
 
 ### Verse 17
 
+> The wicked shall be turned into hell, *and* all the nations that forget God.
+
 The justice which has punished the wicked, and preserved the righteous, remains the same, and therefore in days to come, retribution will surely be meted out. How solemn is the seventeenth verse, especially in its warning to forgetters of God. The moral who are not devout, the honest who are not prayerful, the benevolent who are not believing, the amiable who are not converted, these must all have their own portion with the openly wicked in the hell which is prepared for the devil and his angels. There are whole nations of such; the forgetters of God are far more numerous than the profane or profligate, and according to the very forceful expression of the Hebrew, the nethermost hell will be the place into which all of them shall be hurled headlong. Forgetfulness seems a small sin, but it brings eternal wrath upon the man who lives and dies in it.
 
 ### Verse 18
+
+> For the needy shall not alway be forgotten: the expectation of the poor shall *not* perish for ever.
 
 Mercy is as ready to her work as ever justice can be. Needy souls fear that they are forgotten; well, if it be so, let them rejoice that they *shall not alway* be so. Satan tells poor tremblers that their hope shall perish, but they have here the divine assurance that *their expectation shall not perish for ever.* "The Lord's people are a humbled people, afflicted, emptied, sensible of need, driven to a daily attendance on God, daily begging of him, and living upon the hope of what is promised;" such persons may have to wait, but they shall find that they do not wait in vain.
 
 ### Verse 19
 
+> Arise, O LORD; let not man prevail: let the heathen be judged in thy sight.
+
 Prayers are the believer's weapons of war. When the battle is too hard for us, we call in our great ally, who, as it were, lies in ambush until faith gives the signal by crying out, "Arise, O Lord." Although our cause be all but lost, it shall be soon won again, if the Almighty doth but bestir himself. He will not suffer man to prevail over God, but with swift judgments will confound their gloryings. In the very sight of God the wicked will be punished, and he who is now all tenderness will have no bowels of compassion for them, since they had no tears of repentance while their day of grace endured.
 
 ### Verse 20
+
+> Put them in fear, O LORD: *that* the nations may know themselves *to be but* men. Selah.
 
 One would think that men would not grow so vain as to deny themselves to be but men, but it appears to be a lesson which only a divine schoolmaster can teach to some proud spirits. Crowns leave their wearers *but men, * degrees of eminent learning make their owners not more than *men, * valour and conquest cannot elevate beyond the dead level of *"but men;"* and all the wealth of Croesus, the wisdom of Solon, the power of Alexander, the eloquence of Demosthenes, if added together, would leave the possessor but a man. May we ever remember this lest like those in the text, we should be *put in fear.* Before leaving this Psalm, it will be very profitable if the student will peruse it again as the triumphal hymn of the Redeemer, as he devoutly brings the glory of his victories and lays it down at his Father's feet. Let us joy in his joy, and our joy shall be full.
 

@@ -10,9 +10,9 @@ weight: 2
 
 ## Exposition
 
-### Verse 1-3
+### Verses 1-3
 
-> Why do the heathen rage, and the people imagine a vain thing? 
+> Why do the heathen rage, and the people imagine a vain thing?
 
 > The kings of the earth set themselves, and the rulers take counsel together, against the LORD, and against his anointed, *saying*, 
 
@@ -22,21 +22,39 @@ We have, in these first three verses, a description of the hatred of human natur
 
 ### Verse 4
 
+> He that sitteth in the heavens shall laugh: the Lord shall have them in derision.
+
 Let us now turn our eyes from the wicked counsel-chamber and raging tumult of man, to the secret place of the majesty of the Most High. What doth God say? What will the King do unto the men who reject his only-begotten Son, the Heir of all things? Mark the quiet dignity of the Omnipotent One, and the contempt which he pours upon the princes and their raging people. He has not taken the trouble to rise up and do battle with them—he despises them, he knows how absurd, how irrational, how futile are their attempts against him—he therefore *laughs* at them.
 
-### Verse 5
+### Verses 5 & 6
+
+> Then shall he speak unto them in his wrath, and vex them in his sore displeasure.
+
+> Yet have I set my king upon my holy hill of Zion.
 
 After he has laughed he shall *speak;* he needs not smite; the breath of his lips is enough. At the moment when their power is at its height, and their fury most violent, *then* shall his Word go forth against them. And what is it that he says?—it is a very galling sentence— *"Yet, "* says he, "despite your malice, despite your tumultuous gatherings, despite the wisdom of your counsels, despite the craft of your lawgivers, *'yet have I set my king upon my holy hill of Zion'."* Is not that a grand exclamation! He has already done that which the enemy seeks to prevent. While they are proposing, he has disposed the matter. Jehovah's will is done, and man's will frets and raves in vain. God's Anointed is appointed, and shall not be disappointed. Look back through all the ages of infidelity, hearken to the high and hard things which men have spoken against the Most High, listen to the rolling thunder of earth's volleys against the Majesty of heaven, and then think that God is saying all the while, "Yet have I set my kimg upon my holy hill of Zion." Yet Jesus reigns, yet he sees the travail of his soul, and "his unsuffering kingdom yet shall come" when he shall take unto himself his great power, and reign from the river unto the ends of the earth. Even now he reigns in Zion, and our glad lips sound forth the praises of the Prince of Peace. Greater conflicts may here be foretold, but we may be confident that victory will be given to our Lord and King. Glorious triumphs are yet to come; hasten them, we pray thee, O Lord! It is Zion's glory and joy that her King is in her, guarding her from foes, and filling her with good things. Jesus sits upon the throne of grace, and the throne of power in the midst of his church. In him is Zion's best safeguard; let her citizens be glad in him. "Thy walls are strength, and at thy gates A guard of heavenly warriors waits; Nor shall thy deep foundations move, Fixed on his counsels and his love. Thy foes in vain designs engage; Against his throne in vain they rage, Like rising waves, with angry roar, That dash and die upon the shore."
 
 ### Verse 7
 
+> I will declare the decree: the LORD hath said unto me, Thou *art* my Son; this day have I begotten thee.
+
 This Psalm wears something of a dramatic form, for now another person is introduced as speaking. We have looked into the council-chamber of the wicked, and to the throne of God, and now we behold the Anointed declaring his rights of sovereignty, and warning the traitors of their doom. God has laughed at the counsel and ravings of the wicked, and now Christ the Anointed himself comes forward, as the Risen Redeemer, "declared to be the Son of God with power, according to the spirit of holiness, by the resurrection from the dead." Romans 1:4. Looking into the angry faces of the rebellious kings, the Anointed One seems to say, "If this sufficeth not to make you silent, *'I will declare the decree'*." Now this decree is directly in conflict with the device of man, for its tenour is the establishment of the very dominion against which the nations are raving. *"Thou art my Son."* Here is a noble proof of the glorious Divinity of our Immanuel. "For unto which of the angels said he at any time, Thou art my Son, this day have I begotten thee?" What a mercy to have a Divine Redeemer in whom to rest our confidence! *"This day have I begotten thee."* If this refers to the Godhead of our Lord, let us not attempt to fathom it, for it is a great truth, a truth reverently to be received, but not irreverently to be scanned. It may be added, that if this relates to the Begotten One in his human nature, we must here also rejoice in the mystery, but not attempt to violate its sanctity by intrusive prying into the secrets of the Eternal God. The things which are revealed are enough, without venturing into vain speculations. In attempting to define the Trinity, or unveil the essence of Divinity, many men have lost themselves: here great ships have foundered. What have we to do in such a sea with our frail skiffs?
 
-### Verse 8
+### Verses 8 & 9
+
+> Ask of me, and I shall give *thee* the heathen *for* thine inheritance, and the uttermost parts of the earth *for* thy possession.
+
+> Thou shalt break them with a rod of iron; thou shalt dash them in pieces like a potter’s vessel.
 
 *"Ask of me."* It was a custom among great kings, to give to favoured ones whatever they might ask. (See Esther 5:6; Matthew 14:7.) So Jesus hath but to ask and have. Here he declares that his very enemies are his inheritance. To their face he declares this decree, and "Lo! here, " cries the Anointed One, as he holds aloft in that once pierced hand the sceptre of his power, "He hath given me this, not only the right to be a king, but the power to conquer." Yes! Jehovah hath given to his Anointed a rod of iron with which he shall break rebellious nations in pieces, and, despite their imperial strength, they shall be but as potters' vessels, easily dashed into shivers, when the rod of iron is in the hand of the omnipotent Son of God. Those who will not bend must break. Potters' vessels are not to be restored if dashed in pieces, and the ruin of sinners will be hopeless if Jesus shall smite them. Ye sinners seek his grace, Whose wrath ye cannot bear; Fly to the shelter of his cross, And find salvation there."
 
-### Verse 10
+### Verses 10-12
+
+> Be wise now therefore, O ye kings: be instructed, ye judges of the earth.
+
+> Serve the LORD with fear, and rejoice with trembling.
+
+> Kiss the Son, lest he be angry, and ye perish *from* the way, when his wrath is kindled but a little. Blessed *are* all they that put their trust in him.
 
 The scene again changes, and counsel is given to those who have taken counsel to rebel. They are exhorted to obey, and give the kiss of homage and affection to him whom they have hated. *"Be wise."* —It is always wise to be willing to be instructed, especially when such instruction tends to the salvation of the soul. "Be wise *now, therefore;"* delay no longer, but let good reason weigh with you. Your warfare cannot succeed, therefore desist and yield cheerfully to him who will make you bow if you refuse his yoke. O how wise, how infinitely wise is obedience to Jesus, and how dreadful is the folly of those who continue to be his enemies! *"Serve the Lord with fear;"* let reverence and humility be mingled with your service. He is a great God, and ye are but puny creatures; bend ye, therefore, in lowly worship, and let a filial fear mingle with all your obedience to the great Father of the Ages. *"Rejoice* with trembling, "—There must ever be a holy fear mixed with the Christian's joy. This is a sacred compound, yielding a sweet smell, and we must see to it that we burn no other upon the altar. Fear, without joy, is torment; and joy, without holy fear, would be presumption. Mark the solemn argument for reconciliation and obedience. It is an awful thing to *perish* in the midst of sin, in the very *way* of rebellion; and yet how easily could *his wrath* destroy us suddenly. It needs not that his anger should be heated seven times hotter; let the fuel kindle *but a little*, and we are consumed. O sinner! Take heed of the terrors of the Lord; for "our God is a consuming fire." Note the benediction with which the Psalm closes:— *"Blessed are all they that put* their trust in him."Have we a share in this blessedness? Do we trust in *him?* Our faith may be slender as a spider's thread; but if it be real, we are in our measure blessed. The more we trust, the more fully shall we know this blessedness. We may therefore close the Psalm with the prayer of the apostles:—"Lord, increase our faith." The first Psalm was a contrast between the righteous man and the sinner; the second Psalm is a contrast between the tumultuous disobedience of the ungodly world and the sure exaltation of the righteous Son of God. In the first Psalm, we saw the wicked driven away like chaff; in the second Psalm we see them broken in pieces like a potter's vessel. In the first Psalm, we beheld the righteous like a tree planted by the rivers of water; and here, we contemplate Christ the Covenant Head of the righteous, made better than a tree planted by the rivers of water, for *he* is made king of all the islands, and all the heathen bow before him and kiss the dust; while he himself gives a blessing to all those who put their trust in him. The two Psalms are worthy of the very deepest attention; they are, in fact, the preface to the entire Book of Psalms, and were by some of the ancients, joined into one. They are, however, two Psalms; for Paul speaks of this as the second Psalm. (Acts 13:33.) The first shows us the character and lot of the righteous; and the next teaches us that the Psalms are Messianic, and speak of Christ the Messiah—the Prince who shall reign from the river even unto the ends of the earth. That they have both a far-reaching prophetic outlook we are well assured, but we do not feel competent to open up that matter, and must leave it to abler hands.
 
