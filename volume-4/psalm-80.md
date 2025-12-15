@@ -12,77 +12,115 @@ weight: 80
 
 ### Verse 1
 
+> Give ear, O Shepherd of Israel, thou that leadest Joseph like a flock; thou that dwellest *between* the cherubims, shine forth.
+
 *"Give ear, O Shepherd of Israel."* Hear thou the bleatings of thy suffering flock. The name is full of tenderness, and hence is selected by the troubled psalmist: broken hearts delight in names of grace. Good old Jacob delighted to think of God as the Shepherd of Israel, and this verse may refer to his dying expression: "From thence is the Shepherd, the stone of Israel." We may be quite sure that he who deigns to be a shepherd to his people will not turn a deaf ear to their complaints. *"Thou that leadest Joseph like a flock."* The people are called here by the name of that renowned son who became a second father to the tribes, and kept them alive in Egypt; possibly they were known to the Egyptians under the name of "the family of Joseph, "and if so, it seems most natural to call them by that name in this place. The term may, however, refer to the ten tribes of which Manasseh was the acknowledged head. The Lord had of old in the wilderness led, guided, shepherded all the tribes; and, therefore, the appeal is made to him. The Lord's doings in the past are strong grounds for appeal and expectation as to the present and the future. *"Thou that dwellest between the cherubims, shine forth."* The Lord's especial presence was revealed upon the mercyseat between the cherubim, and in all our pleadings we should come to the Lord by this way: only upon the mercyseat will God reveal his grace, and only there can we hope to commune with him. Let us ever plead the name of Jesus, who is our true mercyseat, to whom we may come boldly, and through whom we may look for a display of the glory of the Lord on our behalf. Our greatest dread is the withdrawal of the Lord's presence, and our brightest hope is the prospect of his return. In the darkest times of Israel, the light of her Shepherd's countenance is all she needs.
 
 ### Verse 2
+
+> Before Ephraim and Benjamin and Manasseh stir up thy strength, and come *and* save us.
 
 *"Before Ephraim and Benjamin and Manasseh stir up thy strength, and come and save us."* It is wise to mention the names of the Lord's people in prayer, for they are precious to him. Jesus bears the names of his people on his breastplate. Just as the mention of the names of his children has power with a father, so it is with the Lord. The three names were near of kin; Ephraim and Manasseh represent Joseph, and it was meet that Benjamin, the other son of the beloved Rachel, should be mentioned in the same breath: these three tribes were wont to march together in the wilderness, following immediately behind the ark. The prayer is that the God of Israel would be mighty on behalf of his people, chasing away their foes, and saving his people. O that in these days the Lord may be pleased to remember every part of his church, and make all her tribes to see his salvation. We would not mention our own denomination only, but lift up prayer for all the sections of the one church.
 
 ### Verse 3
 
+> Turn us again, O God, and cause thy face to shine; and we shall be saved.
+
 *"Turn us again, O God."* It is not so much said, "turn our captivity, "but "turn us." All will come right if we are right. The best turn is not that of circumstances but of character. When the Lord turns his people he will soon turn their condition. It needs the Lord himself to do this, for conversion is as divine a work as creation; and those who have been once turned unto God, if they at any time backslide, as much need the Lord to turn them again as to turn them at the first. The word may be read, "restore us; "verily, it is a choice mercy that "he restoreth my soul." "And cause thy face to shine." Be favourable to us, smile upon us. This was the high priest's blessing upon Israel: what the Lord has already given us by our High Priest and Mediator we may right confidently ask of him. "And we shall be saved." All that is wanted for salvation is the Lord's favour. One glance of his gracious eye would transform Tophet into Paradise. No matter how fierce the foe, or dire the captivity, the shining face of God ensures both victory and liberty. This verse is a very useful prayer. Since we too often turn aside, let us often with our lips and heart cry, "Turn us again, O God, and cause thy face to shine, and we shall be saved."
 
 ### Verse 4
+
+> O LORD God of hosts, how long wilt thou be angry against the prayer of thy people?
 
 *"O Lord God of Hosts, how long wilt thou be angry against the prayer of thy people?"* How long shall the smoke of thy wrath drown the smoking incense of our prayers? Prayer would fain enter thy holy place, but thy wrath battles with it, and prevents its entrance. That God should be angry with us when sinning seems natural enough, but that he should be angry even with our prayers is a bitter grief. With many a pang may the pleader ask, "How long?" Commander of all the hosts of thy creatures, able to save thy saints in their extremity, shall they for ever cry to thee in vain?
 
 ### Verse 5
 
+> Thou feedest them with the bread of tears; and givest them tears to drink in great measure.
+
 *"Thou feedest them with the bread of tears."* Their meat is seasoned with brine distilled from weeping eyes. Their meals, which were once such pleasant seasons of social merriment, are now like funeral feasts to which each man contributes his bitter morsel. Thy people ate bread of wheat before, but now they receive from thine own hand no better diet than bread of tears. "And givest them tears to drink in great measure." Tears are both their food and their drink, and that without stint. They swallow tierces of tears, and swim in gulfs of grief, and all this by God's own appointment; not because their enemies have them in their power by force of arms, but because their God refuses to interpose. Tear bread is even more the fruit of the curse than to eat bread in the sweat of one's face, but it shall by divine love be turned into a greater blessing by ministering to our spiritual health.
 
 ### Verse 6
+
+> Thou makest us a strife unto our neighbours: and our enemies laugh among themselves.
 
 *"Thou makest us a strife unto our neighbours."* Always jealous and malicious, Edom and Moab exulted over Israel's troubles, and then fell to disputing about their share of the spoil. A neighbour's jeer is ever most cutting, especially if a man has been superior to them, and claimed to possess more grace. None are unneighbourly as envious neighbours. "And our enemies laugh among themselves." They find mirth in our misery, comedy in our tragedy, salt for their wit in the brine of our tears, amusement in our amazement. It is devilish to sport with another's griefs; but it is the constant habit of the world which lieth in the wicked one to make merry with the saints' tribulations; the seed of the serpent follow their progenitor and rejoice in evil.
 
 ### Verse 7
 
+> Turn us again, O God of hosts, and cause thy face to shine; and we shall be saved.
+
 *"Turn us again, O God of hosts."* The prayer rises in the form of its address to God. He is here the God of Hosts. The more we approach the Lord in prayer and contemplation the higher will our ideas of him become.
 
 ### Verse 8
+
+> Thou hast brought a vine out of Egypt: thou hast cast out the heathen, and planted it.
 
 *"Thou hast brought a vine out of Egypt."* There it was in unfriendly soil: the waters of the Nile watered it not, but were as death to its shoots, while the inhabitants of the land despised it and trampled it down. Glorious was the right hand of the Lord when with power and great wonders he removed his pleasant plant in the teeth of those who sought its destruction. "Thou hast cast out the heathen, and planted it." Seven nations were digged out to make space for the vine of the Lord; the old trees, which long had engrossed the soil, were torn up root and branch; oaks of Bashan, and palm trees of Jericho were displaced for the chosen vine. It was securely placed in its appointed position with divine prudence and wisdom. Small in appearance, very dependent, exceeding weak, and apt to trail on the ground, yet the vine of Israel was chosen of the Lord, because he knew that by incessant care, and abounding skill, he could make of it a goodly fruit bearing plant.
 
 ### Verse 9
 
+> Thou preparedst *room* before it, and didst cause it to take deep root, and it filled the land.
+
 *"Thou preparedst room before it."* The weeds, brambles, and huge stones were cleared; the Amorites, and their brethren in iniquity, were made to quit the scene, their forces were routed, their kings slain, their cities captures, and Canaan became like a plot of land, made ready for a vineyard. "And didst cause it to take deep root, and it filled the land." Israel became settled and established as a vine well rooted, and then it began to flourish and to spread to every side. This analogy might be applied to the experience of every believer in Jesus. The Lord has planted us, we are growing downward, "rooting roots, "and by his grace we are also advancing in manifest enlargement. The same is true of the church in a yet closer degree, for at this moment through the goodwill of the dresser of the vineyard her branches spread far and wide.
 
 ### Verse 10
+
+> The hills were covered with the shadow of it, and the boughs thereof *were like* the goodly cedars.
 
 *"The hills were covered with the shadow of it."* Israel dwelt up the mountains' summits, cultivating every foot of soil. The nation multiplied and became so great that other lands felt its influence, or were shadowed by it. "And the boughs thereof were like the goodly cedars." The nation itself was so great that even its tribes were powerful and worthy to take rank among the mighty. A more correct rendering describes the cedars as covered with the vine, and we know that in many lands vines climb the trees, and cover them. What a vine must that be which ascends the cedars of God, and even overtops them! It is a noble picture of the prosperity of the Israelitish people in their best days. In Solomon's time the little land of Israel occupied a high place among the nations. There have been times when the church of God also has been eminently conspicuous, and her power has been felt far and near.
 
 ### Verse 11
 
+> She sent out her boughs unto the sea, and her branches unto the river.
+
 *"She sent out her boughs unto the sea."* Along the Mediterranean and, perhaps, across its waters, Israel's power was felt. "And her branches unto the river." On her Eastern side she pushed her commerce even to the Euphrates. Those were brave days for Israel, and would have continued, had not sin cut them short. When the church pleases the Lord, her influence becomes immense, far beyond the proportion which her numbers or her power would lead us to expect; but, alas! when the Lord leaves her she becomes as worthless, useless, and despised as an untended vine, which is of all plants the most valueless.
 
 ### Verse 12
+
+> Why hast thou *then* broken down her hedges, so that all they which pass by the way do pluck her?
 
 *"Why hast thou then broken down her hedges?"* Thou hast withdrawn protection from her after caring for her with all this care; wherefore is this, O Lord? A vine unprotected is exposed to every form of injury; none regard it, all prey upon it: such was Israel when given over to her enemies; such has the church full often been. "So that all they which pass by the way do pluck her." Her cruel neighbours have a pluck at her, and marauding bands, like roaming beasts, must needs pick at her. With God no enemy can harm us, without him none are so weak as to be unable to do us damage.
 
 ### Verse 13
 
+> The boar out of the wood doth waste it, and the wild beast of the field doth devour it.
+
 *The boar out of the wood doth waste it.* Such creatures are famous for rending and devouring vines. Babylon, like a beast from the marshes of the Euphrates, came up and wasted Judah and Israel. Fierce peoples, comparable to wild swine of the forest, warred with the Jewish nation, until it was gored and torn like a vine destroyed by greedy hogs. And the wild beast of the field doth devour it. First one foe and then another wreaked vengeance on the nation, neither did God interpose to chase them away. Ruin followed ruin; the fox devoured the young shoots which had been saved from the damage wrought by the boar. Alas, poor land. How low wast thou brought! An oak or cedar might have been crushed by such ravages, but how canst thou endure it, O weak and tender vine? See what evils follow in the train of sin, and how terrible a thing it is for a people to be forsaken of their God.
 
 ### Verse 14
+
+> Return, we beseech thee, O God of hosts: look down from heaven, and behold, and visit this vine;
 
 *Return, we beseech thee, O God of hosts.* Turn thyself to us as well as us to thee. Thou hast gone from us because of our sins, come back to us, for we sigh and cry after thee. Or, if it be too much to ask thee to come then do at least give us some consideration and cast an eye upon our griefs. Look down from heaven, and behold, and visit this vine. Do not close thine eyes; it is thy vine, do not utterly turn away from it as though it were quite gone from thy mind. Great Husbandman, at least note the mischief which the beasts have done, for then it may be thy heart will pity, and thy hand will be outstretched to deliver.
 
 ### Verse 15
 
+> And the vineyard which thy right hand hath planted, and the branch *that* thou madest strong for thyself.
+
 *And the vineyard which thy right hand hath planted.* Shall all thy care be lost? Thou has done so much, wilt thou lose thy labour? With thy power and wisdom thou didst great things for thy people, wilt thou now utterly give them up, and suffer thine enemies to exult in the evil which they delight in? And the branch that thou madest strong for thyself. A prayer for the leader whom the Lord had raised up, or for the Messiah whom they expected. Though the vine had been left, yet one branch had been regarded of the Lord, as if to furnish a scion for another vine; therefore, is the prayer made in this form. Let us pray the Lord, if he will not in the first place look upon his church, to look upon the Lord Jesus, and then behold her in mercy for his sake. This is the true art of prayer, to put Christ forward and cry, "Him and then the sinner see, Look through Jesus' wounds on me."
 
 ### Verse 16
+
+> *It is* burned with fire, *it is* cut down: they perish at the rebuke of thy countenance.
 
 *It is burned with fire.* In broken utterances the sorrowful singer utters his distress. The vineyard was like a forest which has been set on fire; the choice vines were charred and dead. It is cut down. The cruel axe had hacked after its murderous fashion, the branches were lopped, the trunk was wounded, desolation reigned supreme. They perish at the rebuke of thy countenance. God's rebuke was to Israel what fire and axe would be to a vine. His favour is life, and his wrath is as messengers of death. One angry glance from Jehovah's eye is sufficient to lay all the vineyards of Ephraim desolate. O Lord, look not thus upon our churches. Rebuke us, but not in anger.
 
 ### Verse 17
 
+> Let thy hand be upon the man of thy right hand, upon the son of man *whom* thou madest strong for thyself.
+
 *Let thy hand be upon the man of thy right hand.* Let thy power rest on thy true Benjamin, son of thy right hand; give a commission to some chosen man by whom thou wilt deliver. Honour him, save us, and glorify thyself. There is no doubt here an outlook to the Messiah, for whom believing Jews had learned to look as the Saviour in time of trouble. Upon the son of man whom thou madest strong for thyself. Send forth thy power with him whom thou shalt strengthen to accomplish thy purposes of grace. It pleases God to work for the sons of men by sons of men. "By man came death, by man came also the resurrection from the dead." Nations rise or fall largely through the instrumentality of individuals: by a Napoleon the kingdoms are scourged, and by a Wellington nations are saved from the tyrant. It is by the man Christ Jesus that fallen Israel is yet to rise, and indeed through him, who deigns to call himself the Son of Man, the world is to be delivered from the dominion of Satan and the curse of sin. O Lord, fulfil thy promise to the man of thy right hand, who participates in thy glory, and give him to see the pleasure of the Lord prospering in his hand.
 
 ### Verse 18
 
+> So will not we go back from thee: quicken us, and we will call upon thy name.
+
 So will not we go back from thee. Under the leadership of one whom God had chosen the nation would be kept faithful, grace would work gratitude, and so cement them to their allegiance. It is in Christ that we abide faithful; because he lives we live also. There is no hope of our perseverance apart from him. Quicken us, and we will call upon thy name. If the Lord gives life out of death, his praise is sure to follow. The Lord Jesus is such a leader, that in him is life, and the life is the light of men. He is our life. When he visits our souls anew we shall be revived, and our praise shall ascend unto the name of the Triune God.
 
 ### Verse 19
+
+> Turn us again, O LORD God of hosts, cause thy face to shine; and we shall be saved.
 
 *Turn us again, O Lord God of Hosts.* Here we have another advance in the title and the incommunicable name of Jehovah, the I AM is introduced. Faith's day grows brighter as the hours roll on; and her prayers grow more full and mighty. Cause thy face to shine; and we shall be saved. Even we who were so destroyed. No extremity is too great for the power of God. He is able to save at the last point, and that too by simply turning his smiling face upon his afflicted. Men can do little with their arm, but God can do all things with a glance. Oh, to live for ever in the light of Jehovah's countenance.
 

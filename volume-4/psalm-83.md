@@ -12,73 +12,109 @@ weight: 83
 
 ### Verse 1
 
+> Keep not thou silence, O God: hold not thy peace, and be not still, O God.
+
 *Keep not thou silence, O God.* Man is clamorous, be not thou speechless. He rails and reviles, wilt not thou reply? On word of thine can deliver thy people; therefore, O Lord, break thy quiet and let thy voice be heard. *Hold not thy peace, and be not still, O God.* Here the appeal is to EL., the Mighty One. He is entreated to act and speak, because his nation suffers and is in great jeopardy. How entirely the psalmist looks to God; he asks not for "a leader bold and brave, "or for any form of human force, but casts his burden upon the Lord, being well assured that his eternal power and Godhead could meet every difficulty of the case.
 
 ### Verse 2
+
+> For, lo, thine enemies make a tumult: and they that hate thee have lifted up the head.
 
 *For, lo, thine enemies make a tumult.* They are by no means sparing of their words, they are like a hungry pack of dogs, all giving tongue at once. So sure are they of devouring thy people that they already shout over the feast. *And they that hate thee have lifted up the head.* Confident of conquest, they carry themselves proudly and exalt themselves as if their anticipated victories were already obtained. These enemies of Israel were also God's enemies, and are here described as such by way of adding intensity to the argument of the intercession. The adversaries of the church are usually a noisy and a boastful crew. Their pride is a brass which always sounds, a cymbal which is ever tinkling.
 
 ### Verse 3
 
+> They have taken crafty counsel against thy people, and consulted against thy hidden ones.
+
 *They have taken crafty counsel against thy people.* Whatever we may do, our enemies use their wits and lay their heads together; in united conclave they discourse upon the demands and plans of the campaign, using much treachery and serpentine cunning in arranging their schemes. Malice is cold blooded enough to plot with deliberation; and pride, though it be never wise, is often allied with craft. *And consulted against thy hidden ones.* Hidden away from all harm are the Lord's chosen; their enemies think not so, but hope to smite them; they might as well attempt to destroy the angels before the throne of God.
 
 ### Verse 4
+
+> They have said, Come, and let us cut them off from *being* a nation; that the name of Israel may be no more in remembrance.
 
 *They have said, Come, and let us cut them off from being a nation.* Easier said than done. Yet it shows how thorough going are the foes of the church. Theirs was the policy of extermination. They laid the axe at the root of the matter. Rome has always loved this method of warfare, and hence she has gloated over the massacre of Bartholomew, and the murders of the Inquisition. *That the name of Israel may be no more in remembrance.* They would blot them out of history as well as out of existence. Evil is intolerant of good. If Israel would let Edom alone yet Edom cannot be quiet, but seeks like its ancestor to kill the chosen of the Lord. Men would be glad to cast the church out of the world because it rebukes them, and is thus a standing menace to their sinful peace.
 
 ### Verse 5
 
+> For they have consulted together with one consent: they are confederate against thee:
+
 *For they have consulted together with one consent.* They are hearty and unanimous in their designs. They seem to have but one heart, and that a fierce one, against the chosen people and their God. *They are confederate against thee.* At the Lord himself they aim through the sides of his saints. They make a covenant, and ratify it with blood, resolutely banding themselves together to war with the Mighty God.
 
 ### Verse 6
+
+> The tabernacles of Edom, and the Ishmaelites; of Moab, and the Hagarenes;
 
 *The tabernacles of Edom.* Nearest of kin, yet first in enmity. Their sire despised the birthright, and they despise the possessors of it. Leaving their rock built mansions for the tents of war, the Edomites invaded the land of Israel. *And the Ishmaelites.* A persecuting spirit ran in their blood, they perpetuated the old grudge between the child of the bondwoman and the son of the freewoman. *Of Moab.* Born of incest, but yet a near kinsman, the feud of Moab against Israel was very bitter. Little could righteous Lot have dreamed that his unhallowed seed would be such unrelenting enemies of his uncle Abraham's posterity. *And the Hagarenes* —perhaps descendants of Hagar by a second husband. Whoever they may have been, they cast their power into the wrong scale, and with all their might sought the ruin of Israel. Children of Hagar, and all others who dwell around Mount Sinai, which is in Arabia, are of the seed which gendereth to bondage, and hence they hate the seed according to promise.
 
 ### Verse 7
 
+> Gebal, and Ammon, and Amalek; the Philistines with the inhabitants of Tyre;
+
 *Gebal* was probably a near neighbour of Edom, though there was a Gebal in the region of Tyre and Sidon. *And Ammon, and Amalek.* Two other hereditary foes of Israel, fierce and remorseless as ravening wolves. In the roll of infamy let these names remain detestably immortalised. How thick they stand. Their name is legion, for they are many. Alas, poor Israel, how art thou to stand against such a Bloody League? Nor is this all. Here comes another tribe of ancient foemen, *the Philistines;* who once blinded Samson, and captured the ark of the Lord; and here are old allies become new enemies; the builders of the temple conspiring to pull it down, even *the inhabitants of Tyre.* These last were mercenaries who cared not at whose bidding they drew sword, so long as they carved something for their own advantage. True religion has had its quarrel with merchants and craftsmen, and because it has interfered with their gains, they have conspired against it.
 
 ### Verse 8
+
+> Assur also is joined with them: they have holpen the children of Lot. Selah.
 
 *Assur is also joined with them.* It was then a rising power, anxious for growth, and it thus early distinguished itself for evil. What a motley group they were; a league against Israel is always attractive, and gathers whole nations within its bonds. Herod and Pilate are friends, if Jesus is to be crucified. Romanism and Ritualism make common cause against the gospel. *They have holpen the children of Lot.* All these have come to the aid of Moab and Ammon, which two nations were among the fiercest in the conspiracy. There were ten to one against Israel, and yet she overcame all her enemies. Her name is not blotted out; but many, nay, most of her adversaries are now a name only, their power and their excellence are alike gone. *Selah.* There was good reason for a pause when the nation was in such jeopardy: and yet it needs faith to make a pause, for unbelief is always in a hurry.
 
 ### Verse 9
 
+> Do unto them as *unto* the Midianites; as *to* Sisera, as *to* Jabin, at the brook of Kison:
+
 *Do unto them as unto the Midianites.* Faith delights to light upon precedents, and quote them before the Lord; in the present instance, Asaph found a very appropriate one, for the nations in both cases were very much the same, and the plight of the Israelites very similar. Yet Midian perished, and the psalmist trusted that Israel's present foes would meet with the like overthrow from the hand of the Lord. *As to Sisera, as to Jabin, at the brook of Kison.* The hosts were swept away by the suddenly swollen torrent, and utterly perished; which was a second instance of divine vengeance upon confederated enemies of Israel. When God wills it, a brook can be as deadly as a sea. Kishon was as terrible to Jabin as was the Red Sea to Pharaoh. How easily can the Lord smite the enemies of his people. God of Gideon and of Barak, wilt thou not again avenge thine heritage of their bloodthirsty foes?
 
 ### Verse 10
+
+> *Which* perished at Endor: they became *as* dung for the earth.
 
 *Which perished at Endor.* There was the centre of the carnage, where the heaps of the slain lay thickest. *They became as dung for the earth, * manuring it with man; making the earth, like Saturn, feed on its own children. War is cruel, butt in this case it avengements were most just, —those who would not give Israel a place above ground are themselves denied a hiding place under the ground; they counted God's people to be as dung, and they became dung themselves. Asaph would have the same fate befell other enemies of Israel; and his prayer was a prophecy, for so it happened to them.
 
 ### Verse 11
 
+> Make their nobles like Oreb, and like Zeeb: yea, all their princes as Zebah, and as Zalmunna:
+
 *Make their nobles like Oreb, and like Zeeb.* Smite the great ones as well as the common ruck. Suffer not the ringleaders to escape. As Oreb fell at the rock and Zeeb at the winepress, so do thou mete out vengeance to Zion's foes wherever thou mayest overtake them. They boastfully compare themselves to ravens and wolves; let them receive the fate which is due to such wild beasts. *Yea, all their princes as Zebah, and as Zalmunnua.* These were captured and slain by Gideon, despite their claiming to have been anointed to the kingdom. Zebah became a sacrifice, and Zalmunna was sent to those shadowy images from which his name is derived. The psalmist seeing these four culprits hanging in history upon a lofty gallows, earnestly asks that others of a like character may, for truth and righteousness' sake, share their fate.
 
 ### Verse 12
+
+> Who said, Let us take to ourselves the houses of God in possession.
 
 *Who said, Let us take to ourselves the houses of God in possession.* Viewing the temple, and also the dwellings of the tribes, as all belonging to God, these greedy plunderers determined to push out the inhabitants, slay them, and become themselves landlords and tenants of the whole. These were large words and dark designs, but God could bring them all to nothing. It is in vain for men to say "Let us take, "if God does not give. He who robs God's house will find that he has a property reeking with a curse; it will plague him and his seed for ever. "Will a man rob God?" Let him try it, and he will find it hot and heavy work.
 
 ### Verse 13
 
+> O my God, make them like a wheel; as the stubble before the wind.
+
 *O my God, make them like a wheel;* like a rolling thing which cannot rest, but is made to move with every breath. Let them have no quiet. May their minds eternally revolve and never come to peace. Blow them away like thistle down, *as the stubble before the wind.* Scatter them, chase them, drive them to destruction. Every patriot prays thus against the enemies of his country, he would be no better than a traitor if he did not.
 
 ### Verse 14
+
+> As the fire burneth a wood, and as the flame setteth the mountains on fire;
 
 *As the fire burneth a wood.* Long years have strewn the ground with deep deposits of leaves; these being dried in the sun are very apt to take fire, and when they do so the burning in terrific. The underwood and the ferns blaze, the bushes crackle, the great trees kindle and to their very tops are wrapped in fire, while the ground is all red as a furnace. In this way, O Lord, mete out destruction to thy foes, and bring all of them to an end. *The flame setteth the mountains on fire.* Up the hill sides the hanging woods glow like a great sacrifice, and the forests on the mountain's crown smoke towards heaven. Even thus, O Lord, do thou conspicuously and terribly overthrow the enemies of thine Israel.
 
 ### Verse 15
 
+> So persecute them with thy tempest, and make them afraid with thy storm.
+
 *So persecute them with thy tempest, and make them afraid with thy storm.* The Lord will follow up his enemies, alarm them, and chase them till they are put to a hopeless rout. He did this, according to the prayer of the present Psalm, for his servant Jehoshaphat; and in like manner will he come to the rescue of any or all of his chosen.
 
 ### Verse 16
+
+> Fill their faces with shame; that they may seek thy name, O LORD.
 
 *Fill their faces with shame; that they may seek thy name, O Lord.* Shame has often weaned men from their idols, and set them upon seeking the Lord. If this was not the happy result, in the present instance, with the Lord's enemies, yet it would be so with his people who were so prone to err. They would be humbled by his mercy, and ashamed of themselves because of his grace; and then they would with sincerity return to the earnest worship of Jehovah their God, who had delivered them.
 
 ### Verse 17
 
+> Let them be confounded and troubled for ever; yea, let them be put to shame, and perish:
+
 Where no good result followed, and the men remained as fierce and obstinate as ever, justice was invoked to carry out the capital sentence. *Let them be confounded and troubled for ever; yea, let them be put to shame, and perish.* What else could be done with them? It was better that they perished than that Israel should be rooted up. What a terrible doom it will be to the enemies of God to be "confounded, and troubled for ever, "to see all their schemes and hopes defeated, and their bodies and souls full of anguish without end: from such a shameful perishing may our souls be delivered.
 
 ### Verse 18
+
+> That *men* may know that thou, whose name alone *is* JEHOVAH, *art* the most high over all the earth.
 
 *That men may know that thou, whose name alone is JEHOVAH, art the most high over all the earth.* Hearing of the Lord's marvellous deeds in defeating such a numerous confederacy, the very heathen would be compelled to acknowledge the greatness of Jehovah. We read in 2Ch 20:30, that the fear of God was on all the neighbouring kingdoms when they heard that Jehovah fought against the enemies of Israel. Jehovah is essentially the Most High. He who is self existent is infinitely above all creatures, all the earth is but his footstool. The godless race of man disregards this, and yet at times the wonderful works of the Lord compel the most unwilling to adore his majesty. Thus has this soul stirring lyric risen from the words of complaint to those of adoration; let us in our worship always seek to do the same. National trouble called out the nation's poet laureate, and well did he discourse at once of her sorrows, and prayers, and hopes. Sacred literature thus owes much to sorrow and distress. How enriching is the hand of adversity! The following attempt to verify the Psalm, and tune it to gospel purposes, is submitted with great diffidence.
 

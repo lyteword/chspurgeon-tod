@@ -12,6 +12,8 @@ weight: 98
 
 ### Verse 1
 
+> O sing unto the LORD a new song; for he hath done marvellous things: his right hand, and his holy arm, hath gotten him the victory.
+
 *O sing unto the LORD a new song; for he hath done marvellous things.* We had a new song before (Ps 96:1-13) because the Lord was coming, but now we have another new song because he has come, and seen and conquered. Jesus, our King, has lived a marvellous life, died a marvellous death, risen by a marvellous resurrection, and ascended marvellously into heaven. By his divine power he has sent forth the Holy Spirit doing marvels, and by that sacred energy his disciples have also wrought marvellous things and astonished all the earth. Idols have fallen, superstitions have withered, systems of error have fled, and empires of cruelty have perished. For all this he deserves the highest praise. His acts have proved his Deity, Jesus is Jehovah, and therefore we sing unto him as the LORD. His right hand, and his holy arm, hath gotten him the victory; not by the aid of others, but by his own unweaponed hand his marvellous conquests have been achieved. Sin, death, and hell fell beneath his solitary prowess, and the idols and the errors of mankind have been overthrown and smitten by his hand alone. The victories of Jesus among men are all the more wonderful because they are accomplished by means to all appearance most inadequate; they are due not to physical but to moral power—the energy of goodness, justice, truth; in a word, to the power of his *holy* arm. His holy influence has been the sole cause of success. Jesus never stoops to use policy, or brute force; his unsullied perfections secure to him a real and lasting victory over all the powers of evil, and that victory will lie gained as dexterously and easily as when a warrior strikes his adversary with his *right hand* and stretches him prone upon the earth. Glory be unto the Conqueror, let new songs be chanted to his praise. Stirred by contemplating his triumphs, our pen could not forbear to praise him in the following hymn:
 
 Forth to the battle rides our King;
@@ -74,13 +76,19 @@ The salvation which Jesus has accomplished is wrought out with wonderful wisdom,
 
 ### Verse 2
 
+> The LORD hath made known his salvation: his righteousness hath he openly shewed in the sight of the heathen.
+
 *The LORD hath made known his salvation, * —by the coming of Jesus and by the outpouring of the Holy Ghost, by whose power the gospel was preached among the Gentiles. The Lord is to be praised not only for effecting human salvation, but also for making it known, for man would never have discovered it for himself; nay, not so much as one single soul would ever have found out for himself the way of mercy through a Mediator; in every case it is a divine revelation to the mind and heart. In God's own light his light is seen. He must reveal his Son in us, or we shall be unable to discern him. His righteousness hath he openly shewed in the sight of the *heathen.* This word "righteousness" is the favourite word of the apostle of the Gentiles; he loves to dwell on the Lord's method of making man righteous, and vindicating divine justice by the atoning blood. What songs ought we to render who belong to a once heathen race, for that blessed gospel which is the power of God unto salvation, "for therein is the righteousness of God revealed from faith to faith." This is no close secret; it is clearly taught in Scripture, and has been plainly preached among the nations. What was hidden in the types is "openly shewed" in the gospel.
 
 ### Verse 3
 
+> He hath remembered his mercy and his truth toward the house of Israel: all the ends of the earth have seen the salvation of our God.
+
 *He hath remembered his mercy and his truth toward the house of Israel.* To them Jesus came in the flesh, and to them was the gospel first preached; and though they counted themselves unworthy of eternal life, yet the covenant was not broken, for the true Israel were called into fellowship and still remain so. The mercy which endureth for ever, and the fidelity which cannot forget a promise, secure to the chosen seed the salvation long ago guaranteed by the covenant of grace. All the ends of the earth have seen the salvation of our God. Not to Abraham's seed alone after the flesh, but to the elect among all nations, has grace been given; therefore, let the whole church of God sing unto him a new song. It was no small blessing, or little miracle, that throughout all lands the gospel should be published in so short a time, with such singular success and such abiding results. Pentecost deserves a new song as well as the Passion and the Resurrection; let out hearts exult as we remember it. *Our God*, our own for ever blessed God, has been honoured by those who once bowed down before dumb idols; his salvation has not only been heard of but seen among all people, it has been experienced as well as explained; his Son is the actual Redeemer of a multitude out of all nations. In these three verses we are taught how to praise the Lord.
 
 ### Verse 4
+
+> Make a joyful noise unto the LORD, all the earth: make a loud noise, and rejoice, and sing praise.
 
 *Make a joyful noise unto the LORD, all the earth.* Every tongue must applaud, and that with the rigour which joy of heart alone can arouse to action. As men shout when they welcome a king, so must we. Loud hosannas, full of happiness, must be lifted up. If ever men shout for joy it should be when the Lord comes among them in the proclamation of his gospel reign. John Wesley said to his people, "Sing lustily, and with a good courage. Beware of singing as if you were half dead or half asleep; but lift up your voice with strength. Be no more afraid of your voice now, nor more ashamed of its being heard, than when you sung the songs of Satan." Make a loud noise, and rejoice, and sing praise; or *Burst forth, and sing, and play.* Let every form of exultation be used, every kind of music pressed into the service till the accumulated praise causes the skies to echo the joyful tumult. There is no fear of our being too hearty in magnifying the God of our salvation, only we must take care the song comes from the heart, otherwise the music is nothing but a noise in his ears, whether it be caused by human throats, or organ pipes, or far resounding trumpets. Loud let our hearts ring out the honours of our conquering Saviour; with all our might let us extol the Lord who has vanquished all our enemies, and led our captivity captive: He will do this best who is most in love with Jesus:
 
@@ -93,6 +101,8 @@ And sing I must, a Christ I have.
 Oh, what a Christ have I!"
 
 ### Verse 5
+
+> Sing unto the LORD with the harp; with the harp, and the voice of a psalm.
 
 *Sing unto the LORD with the harp.* Skill in music should not be desecrated to the world's evil mirth, it should aid the private devotions of the saint, and then, like George Herbert, he will sing,
 
@@ -109,6 +119,8 @@ Martin Luther was thus wont to praise the Lord, whom he loved so well. God's pra
 And the voice of a Psalm, or with a musical voice, as distinguished from common speech. Our voice has in it many modulations; there is the voice of conversation, the voice of complaint, the voice of pleading, the voice of command, and there ought to be with each of us the voice of a Psalm. Man's voice is at its best when it sings the best words in the best spirit to the best of Beings. Love and war must not monopolise the lyric muse; the love of God and the conquests of Immanuel should win to themselves man's sweetest strains. Do we sing enough unto the Lord? May not the birds of the air rebuke our sullen and ungrateful silence? 
 
 ### Verse 6
+
+> With trumpets and sound of cornet make a joyful noise before the LORD, the King.
 
 *With trumpets and sound of cornet make a joyful noise.* God's worship should be heartily loud. The far resounding trump and horn well symbolise the power which should be put forth in praise.
 
@@ -132,9 +144,13 @@ Melody with our voices.
 
 ### Verse 7
 
+> Let the sea roar, and the fulness thereof; the world, and they that dwell therein.
+
 *Let the sea roar, and the fulness thereof.* Even its thunders will not be too grand for such a theme. Handel, in some of his sublime choruses, would have been glad of its aid to express his lofty conceptions, and assuredly the inspired psalmist did well to call in such infinite uproar. The sea is his, let it praise its Maker. Within and upon its bosom it bears a wealth of goodness, why should it be denied a place in the orchestra of nature? Its deep bass will excellently suit the mystery of the divine glory. The world, and they that dwell therein. The land should be in harmony with the ocean. Its mountains and plains, cities and villages, should prolong the voice of jubilee which welcomes the Lord of all. Nothing can be more sublime than this verse; the muses of Parnassus cannot rival the muse of Zion, the Castallan fount never sparkled like that "fount of every blessing" to which sacred bands are wont to ascribe their inspiration. Yet no song is equal to the majesty of the theme when Jehovah, the King, is to be extolled.
 
 ### Verse 8
+
+> Let the floods clap *their* hands: let the hills be joyful together
 
 *Let the floods clap their hands.* The rolling rivers, the tidal estuaries, the roaring cataracts, are here summoned to pay their homage, and to clap their hands, as men do when they greet their sovereigns with acclamation. Let the hills be joyful together, or in concert with the floods. Silent as are the mighty mountains, let them forget themselves, and burst forth into a sublime uproariousness of mirth, such as the poet described when he wrote those vivid lines—
 
@@ -151,6 +167,8 @@ And Jura answers, through her misty shroud,
 Back to the joyous Alps, who call to her aloud."
 
 ### Verse 9
+
+> Before the LORD; for he cometh to judge the earth: with righteousness shall he judge the world, and the people with equity.
 
 *Before the Lord; for he cometh to judge the earth.* Stiller music such as made the stars twinkle with their soft kind eyes suited his first coming at Bethlehem, but his second advent calls for trumpets, for he is a judge; and for all earth's acclamations, for he has put on his royal splendour. The rule of Christ is the joy of nature. All things bless his throne, yea, and the very coming of it. As the dawn sets the earth weeping for joy at the rising of the sun, till the dewdrops stand in her eyes, so should the approach of Jesus' universal reign make all creation glad. With righteousness shall he judge the world, and the people with *equity.* This is the joy of it. No tyrant and no weakling is he, to oppress the good or to indulge the vain, his law is good, his action right, his government the embodiment of justice. If ever there was a thing to rejoice in upon this poor, travailing earth, it is the coming of such a deliverer, the ascension to the universal throne of such a governor. All hail, Jesus! all hail! Our soul faints with delight at the sound of thins approaching chariots, and can only cry, "Come quickly. Even so, come quickly, Lord Jesus!" Keble's version of the last four verses is so truly beautiful that we cannot deny our readers the luxury of perusing it:
 

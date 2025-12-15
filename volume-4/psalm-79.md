@@ -12,53 +12,79 @@ weight: 79
 
 ### Verse 1
 
+> O God, the heathen are come into thine inheritance; thy holy temple have they defiled; they have laid Jerusalem on heaps.
+
 *O God, the heathen are come into thine inheritance.* It is the cry of amazement at sacrilegious intrusion; as if the poet were struck with horror. The stranger pollutes thine hallowed courts with his tread. All Canaan is thy land, but thy foes have ravaged it. *"Thy holy temple have they defiled."* Into the inmost sanctuary they have profanely forced their way, and there behaved themselves arrogantly. Thus, the holy land, the holy house, and the holy city, were all polluted by the uncircumcised. It is an awful thing when wicked men are found in the church and numbered with her ministry. Then are the tares sown with the wheat, and the poisoned gourds cast into the pot. *"They have laid Jerusalem on heaps."* After devouring and defiling, they have come to destroying, and have done their work with a cruel completeness. Jerusalem, the beloved city, the joy of the nation, the abode of her God, was totally wrecked. Alas! alas! for Israel! It is sad to see the foe in our own house, but worse to meet him in the house of God; they strike hardest who smite at our religion. The psalmist piles up the agony; he was a suppliant, and he knew how to bring out the strong points of his case. We ought to order our case before the Lord with as much care as if our success depended on our pleading. Men in earthly courts use all their powers to obtain their ends, and so also should we state our case with earnestness, and bring forth our strong arguments.
 
 ### Verse 2
+
+> The dead bodies of thy servants have they given *to be* meat unto the fowls of the heaven, the flesh of thy saints unto the beasts of the earth.
 
 *"The dead bodies of thy servants have they given to be meat unto the fowls of the heaven, the flesh of thy saints unto the beasts of the earth."* The enemy cared not to bury the dead, and there was not a sufficient number of Israel left alive to perform the funeral rites; therefore, the precious relics of the departed were left to be devoured of vultures and torn by wolves. Beasts on which man could not feed fed on him. The flesh of creation's Lord became meat for carrion crows and hungry dogs. Dire are the calamities of war, yet have they happened to God's saints and servants. This might well move the heart of the poet, and he did well to appeal to the heart of God by reciting the grievous evil. Such might have been the lamentation of an early Christian as he thought of the amphitheatre and all its deeds of blood. Note in the two verses how the plea is made to turn upon God's property in the temple and the people:—we read "thine inheritance, ""thy temple, ""thy servants, "and "thy saints." Surely the Lord will defend his own, and will not suffer rampant adversaries to despoil them.
 
 ### Verse 3
 
+> Their blood have they shed like water round about Jerusalem; and *there was* none to bury *them*.
+
 *"Their blood have they shed like water round about Jerusalem."* The invaders slew men as if their blood was of no more value than so much water; they poured it forth as lavishly as when the floods deluge the plains. The city of holy peace became a field of blood. *"And there was none to bury them."* The few who survived were afraid to engage in the task. This was a serious trial and grievous horror to the Jews, who evinced much care concerning their burials. Has it come to this, that there are none to bury the dead of thy family, O Lord? Can none be found to grant a shovelful of earth with which to cover up the poor bodies of thy murdered saints? What woe is here! How glad should we be that we live in so quiet an age, when the blast of the trumpet is no more heard in our streets.
 
 ### Verse 4
+
+> We are become a reproach to our neighbours, a scorn and derision to them that are round about us.
 
 *"We are become a reproach to our neighbours."* Those who have escaped the common foe make a mockery of us, they fling our disasters into our face, and ask us, "Where is your God?" Pity should be shown to the afflicted, but in too many cases it is not so, for a hard logic argues that those who suffer more than ordinary calamities must have been extraordinary sinners. Neighbours especially are often the reverse of neighbourly; the nearer they dwell the less they sympathize. It is most pitiable it should be so. *"A scorn and a derision to them that are round about us."* To find mirth in others' miseries, and to exult over the ills of others, is worthy only of the devil and of those whose father he is. Thus the case is stated before the Lord, and it is a very deplorable one. Asaph was an excellent advocate, for he gave a telling description of calamities which were under his own eyes, and in which he sympathized, but we have a mightier Intercessor above, who never ceases to urge our suit before the eternal throne.
 
 ### Verse 5
 
+> How long, LORD? wilt thou be angry for ever? shall thy jealousy burn like fire?
+
 *"How long, Lord?"* Will there be no end to these chastisements? They are most sharp and overwhelming; wilt thou much longer continue them? *"Wilt thou be angry for ever?"* Is thy mercy gone so that thou wilt for ever smite? *"Shall thy jealousy burn like fire?"* There was great cause for the Lord to be jealous, since idols had been set up, and Israel had gone aside from his worship, but the psalmist begs the Lord not to consume his people utterly as with fire, but to abate their woes.
 
 ### Verse 6
+
+> Pour out thy wrath upon the heathen that have not known thee, and upon the kingdoms that have not called upon thy name.
 
 *"Pour out thy wrath upon the heathen that have not known thee."* If thou must smite look further afield; spare thy children and strike thy foes. There are lands where thou art in no measure acknowledged; be pleased to visit these first with thy judgments, and let thine erring Israel have a respite. *"And upon the kingdoms that have not called upon thy name."* Hear us the prayerful, and avenge thyself upon the prayerless. Sometimes providence appears to deal much more severely with the righteous than with the wicked, and this verse is a bold appeal founded upon such an appearance. It in effect says—Lord, if thou must empty out the vials of thy wrath, begin with those who have no measure of regard for thee, but are openly up in arms against thee; and be pleased to spare thy people, who are thine notwithstanding all their sins.
 
 ### Verse 7
 
+> For they have devoured Jacob, and laid waste his dwelling place.
+
 *"For they have devoured Jacob."* The oppressor would quite eat up the saints if he could. If these lions do not swallow us, it is because the Lord has sent his angel and shut the lions' mouths. *"And laid waste his dwelling place, "* or his pasture. The invader left no food for man or beast, but devoured all as the locust. The tender mercies of the wicked are cruel.
 
 ### Verse 8
+
+> O remember not against us former iniquities: let thy tender mercies speedily prevent us: for we are brought very low.
 
 *"O remember not against us former iniquities."* Sins accumulate against nations. Generations lay up stores of transgressions to be visited upon their successors; hence this urgent prayer. In Josiah's days the most earnest repentance was not able to avert the doom which former long years of idolatry had sealed against Judah. Every man has reason to ask for an act of oblivion for his past sins, and every nation should make this a continual prayer. *"Let thy tender mercies speedily prevent us: for we are brought very low."* Hasten to our rescue, for our nation is hurrying down to destruction; our numbers are diminished and our condition is deplorable. Observe how penitent sorrow seizes upon the sweeter attributes, and draws her picas from the "tender mercies" of God; see, too, how she pleads her own distress, and not her goodness, as a motive for the display of mercy. Let souls who are brought very low find an argument in their abject condition. What can so powerfully appeal to pity as dire affliction? The quaint prayer-book version is touchingly expressive: "O remember not our old sins, but have mercy upon us, and that soon; for we are come to great misery." This supplication befits a sinner's life. We have known seasons when this would have been as good a prayer for our burdened heart as any that human mind could compose.
 
 ### Verse 9
 
+> Help us, O God of our salvation, for the glory of thy name: and deliver us, and purge away our sins, for thy name’s sake.
+
 *"Help us, O God of our salvation, for the glory of thy name."* This is masterly pleading. No argument has such force as this. God's glory was tarnished in the eyes of the heathen by the defeat of his people, and the profanation of his temple; therefore, his distressed servants implore his aid, that his great name may no more be the scorn of blaspheming enemies. *"And deliver us, and purge away our sins, for thy name's sake."* Sin, —the root of the evil—is seen and confessed; pardon of sin is sought as well as removal of chastisement, and both are asked not as matters of right, but as gifts of grace. God's name is a second time brought into the pleading. Believers will find it their wisdom to use very frequently this noble plea: it is the great gun of the battle, the mightiest weapon in the armoury of prayer.
 
 ### Verse 10
+
+> Wherefore should the heathen say, Where *is* their God? let him be known among the heathen in our sight *by* the revenging of the blood of thy servants *which is* shed.
 
 *"Wherefore should the heathen say, Where is their God?"* Why should those impious mouths be filled with food so sweet to them, but so bitter to us? When the afflictions of God's people become the derision of sinners, and cause them to ridicule religion, we have good ground for expostulation with the Lord. *"Let him be known among the heathen in our sight by the revenging of the blood of thy servants which is shed."* Justice is desired that God may be vindicated and feared. It is but meet that those who taunted the people of God because they smarted under the Lord's rod, should be made themselves also to smart by the same hand. If any complain of the spirit of this imprecation, we think they do so needlessly; for it is the common feeling of every patriot to desire to see his country's wrongs redressed, and of every Christian to wish a noble vengeance for the church by the overthrow of error. The destruction of Antichrist is the recompense of the blood of the martyrs, and by no means is it to be deprecated; far rather is it one of the most glorious hopes of the latter days.
 
 ### Verse 11
 
+> Let the sighing of the prisoner come before thee; according to the greatness of thy power preserve thou those that are appointed to die;
+
 *"Let the sighing of the prisoner come before thee."* When thy people cannot sing, and dare not shout aloud, then let their silent sigh ascend into thine ear, and secure for them deliverance. These words are suitable for the afflicted in a great variety of conditions; men of experience will know how to adapt them to their own position and to use them in reference to others. *"According to the greatness of thy power preserve thou those that are appointed to die."* Faith grows while it prays; the appeal to the Lord's tender mercy is here supplemented by another addressed to the divine power, and the petitioner rises from a request for those who are brought low, to a prayer for those who are on the verge of death, set apart as victims for the slaughter. How consoling is it to desponding believers to reflect that God can preserve even those who bear the sentence of death in themselves. Men and devils may consign us to perdition, while sickness drags us to the grave, and sorrow sinks us in the dust; but, there is One who can keep our soul alive, ay, and bring it up again from the depths of despair. A lamb shall live between the lion's jaws if the Lord wills it. Even in the charnel, life shall vanquish death if God be near.
 
 ### Verse 12
 
+> And render unto our neighbours sevenfold into their bosom their reproach, wherewith they have reproached thee, O Lord.
+
 *"And render unto our neighbours sevenfold into their bosom their reproach, wherewith they have reproached thee, O Lord."* They denied thine existence, mocked thy power, insulted thy worship, and destroyed thy house; up, therefore, O Lord, and make them feel to the full that thou art not to be mocked with impunity. Pour into their laps good store of shame because they dared insult the God of Israel. Recompense them fully, till they have received the perfect number of punishments. It will be so. The wish of the text will become matter of fact. The Lord will avenge his own elect though he bear long with them.
 
 ### Verse 13
+
+> So we thy people and sheep of thy pasture will give thee thanks for ever: we will shew forth thy praise to all generations.
 
 *"So we thy people and sheep of thy pasture will give thee thanks far ever; we will shew forth thy praise to all generations."* The gratitude of the church is lasting as well as deep. On her tablets are memorials of great deliverances, and, as long as she shall exist, her sons will rehearse them with delight. We have a history which will survive all other records, and it is bright in every line with the glory of the Lord. From the direst calamities God's glory springs, and the dark days of his people become the prelude to unusual displays of the Lord's love and power.
 

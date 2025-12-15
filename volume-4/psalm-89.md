@@ -14,51 +14,75 @@ We have now reached the majestic *Covenant Psalm*, which, according to the Jewis
 
 ### Verse 1
 
+> I will sing of the mercies of the LORD for ever: with my mouth will I make known thy faithfulness to all generations.
+
 *I will sing of the mercies of the Lord for ever.* A devout resolve, and very commendable when a man is exercised with great trouble on account of an apparent departure of the Lord from his covenant and promise. Whatever we may observe abroad or experience in our own persons, we ought still to praise God for his mercies, since they most certainly remain the same, whether we can perceive them or not. Sense sings but now and then, but faith is an eternal songster. Whether others sing or not, believers must never give over; in them should be constancy of praise, since God's love to them cannot by any possibility have changed, however providence may seem to frown. We are not only to believe the Lord's goodness, but to rejoice in it evermore; it is the source of all our joy, and as it cannot be dried up, so the stream ought never to fail to flow, or cease to flash in sparkling crystal of song. We have not one, but many *mercies* to rejoice in, and should therefore multiply the expressions of our thankfulness. It is *Jehovah* who deigns to deal out to us our daily benefits, and he is the all sufficient and immutable God; therefore our rejoicing in him must never suffer diminution. By no means let his exchequer of glory be deprived of the continual revenue which we owe to it. Even time itself must not bound our praises—they must leap into eternity; he blesses us with eternal mercies—let us sing unto him *forever*.
 
 With my mouth will I make known thy faithfulness to all *generations.* The utterances of the present will instruct future generations. What Ethan sung is now a text book for Christians, and will be so as long as this dispensation shall last. We ought to have an eye to posterity in all that we write, for we are the schoolmasters of succeeding ages. Ethan first spoke with his mouth that which he recorded with his pen—a worthy example of using both means of communication; the mouth has a warmer manner than the pen, but the pen's speech lives longest, and is heard farther and wider. While reading this Psalm, such in the freshness of the style, that one seems to hear it gushing from the poet's mouth; he makes the letters live and talk, or, rather, sing to us. Note, that in this second sentence he speaks of *faithfulness, * which is the mercy of God's mercies—the brightest jewel in the crown of goodness. The grace of an unfaithful God would be a poor subject for music, but unchangeable love and immutable promises demand everlasting songs. In times of trouble it is the divine faithfulness which the soul hangs upon; this is the bower anchor of the soul, its hold fast, and its stay. Because God is, and ever will be, faithful, we have a theme for song which will not be out of date for future generations; it will never be worn out, never be disproved, never be unnecessary, never be an idle subject, valueless to mankind. It will also be always desirable to make it known, for men are too apt to forget it, or to doubt it, when hard times press upon them. We cannot too much multiply testimonies to the Lord's faithful mercy—if our own generation should not need them others will: sceptics are so ready to repeat old doubts and invent new ones that believers should be equally prompt to bring forth evidences both old and new. Whoever may neglect this duty, those who are highly favoured, as Ethan was, should not be backward.
 
 ### Verse 2
 
+> For I have said, Mercy shall be built up for ever: thy faithfulness shalt thou establish in the very heavens.
+
 *For I have said, Mercy shall be built up for ever.* His heart was persuaded of it, and he had affirmed it as an indisputable truth. He was certain that upon a sure foundation the Lord intended to pile up a glorious palace of goodness—a house of refuge for all people, wherein the Son of David should for ever be glorified as the dispenser of heavenly grace. Thy faithfulness shalt thou establish in the very heavens. This divine edifice, he felt assured, would tower into the skies, and would be turreted with divine faithfulness even as its foundations were laid in eternal love. God's faithfulness is no thing of earth, for here nothing is firm, and all things savour of the changes of the moon and the fickleness of the sea: heaven is the birthplace of truth, and there it dwells in eternal vigour. As the blue arch above us remains unimpaired by age, so does the Lord's truth; as in the firmament he hangs his covenant bow, so in the upper heavens the faithfulness of God is enthroned in immutable glory. This Ethan said, and this we may say; come what will, mercy and faithfulness are built up by "the Eternal Builder", and his own nature is the guarantee for their perpetuity. This is to be called to mind whenever the church is in trouble, or our own spirits bowed down with grief.
 
 ### Verse 3
+
+> I have made a covenant with my chosen, I have sworn unto David my servant,
 
 *I have made a covenant with my chosen, I have sworn unto David my servant.* This was the ground of the Psalmist's confidence in God's mercy and truth, for he knew that the Lord had made a covenant of grace with David and his seed, and confirmed it by an oath. Here he quotes the very words of God, which were revealed to him by the Holy Spirit, and are a condensation of the original covenant in 2Sa 7:1-29. Well might he write in the former verse, "I have said", when he knew that Jehovah had said, "I have sworn." David was the Lord's elect, and with him a covenant was made, which ran along in the line of his seed until it received a final and never ending fulfilment in "the Son of David." David's house must be royal: as long as there was a sceptre in Judah, David's seed must be the only rightful dynasty; the great "King of the Jews" died with that title above his head in the three current languages of the then known world, and at this day he is owned as king by men of every tongue. The oath sworn to David has not been broken, though the temporal crown is no longer worn, for in the covenant itself his kingdom was spoken of as enduring for ever. In Christ Jesus there is a covenant established with all the Lord's *chosen, * and they are by grace led to be the Lord's *servants, * and then are ordained kings and priests by Christ Jesus. How sweet it is to see the Lord, not only making a covenant, but owning to it in after days, and bearing witness to his own oath; this ought to be solid ground for faith, and Ethan, the Ezrahite, evidently thought it so. Let the reader and writer both pause over such glorious lines, and sing of the mercies of the Lord, who thus avows the bonds of the covenant, and, in so doing, gives a renewed pledge of his faithfulness to it. *"I have", * says the Lord, and yet again *"I have", * as though he himself was nothing loath to dwell upon the theme. We also would lovingly linger over the *ipsissima verba* of the covenant made with David, reading them carefully and with joy. There are thus recorded in 2Sa 7:12-16: "And when thy days be fulfilled, and thou shall sleep with thy fathers, I will set up thy seed after thee, which shall proceed out of thy bowels, and I will establish his kingdom. He shall build an house for my name, and I will stablish the throne of his kingdom for ever. I will be his father, and he shall be my son. If he commit iniquity, I will chasten him with the rod of men, and with the stripes of the children of men: But my mercy shall not depart away from him, as I took it from Saul, whom I put away before thee. And thine house and thy kingdom shall be established for ever before thee: thy throne shall be established for ever." After reading this, let us remember that the Lord has said to us by his servant Isaiah, "I will make an everlasting covenant with you, even the sure mercies of David."
 
 ### Verse 4
 
+> Thy seed will I establish for ever, and build up thy throne to all generations. Selah.
+
 *Thy seed will I establish for ever.* David must always have a seed, and truly in Jesus this is fulfilled beyond his hopes. What a seed David has in the multitude which have sprung from him who was both his Son and his Lord. The Son of David is the Great Progenitor, the second Adam, the Everlasting Father, he sees his seed, and in them beholds of the travail of his soul. And build up thy throne to all generations. David's dynasty never decays, but on the contrary, is evermore consolidated by the great Architect of heaven and earth. Jesus is a king as well as a progenitor and his throne is ever being built up—his kingdom comes—his power extends. Thus runs the covenant; and when the church declines, it is ours to plead it before the ever faithful God, as the Psalmist does in the latter verses of this sacred song. Christ must reign, but why is his name blasphemed and his gospel so despised? The more gracious Christians are, the more will they be moved to jealousy by the sad estate of the Redeemer's cause, and the more will they argue the case with the great Covenant maker, crying day and night before him, "Thy kingdom come." Selah. It would not be meet to hurry on. Rest, O reader, at the bidding of this Selah, and let each syllable of the covenant ring in thine cars; and then lift up the heart and proceed with the sacred poet to tell forth the praises of the Lord.
 
 ### Verse 5
+
+> And the heavens shall praise thy wonders, O LORD: thy faithfulness also in the congregation of the saints.
 
 *And the heavens shall praise thy wonders, O Lord.* Looking down upon what God had done, and was about to do, in connection with his covenant of grace, all heaven would be filled with adoring wonder. The sun and moon, which had been made tokens of the covenant, would praise God for such an extraordinary display of mercy, and the angels and redeemed spirits would sing, "as it were, a new song." Thy faithfulness also in the congregation of the saints. By which is probably intended the holy ones on earth. So that the "whole family in heaven and earth" would join in the praise. Earth and heaven are one in admiring and adoring the covenant God. Saints above see most clearly into the heights and depths of divine love, therefore they praise its wonders; and saints below, being conscious of their many sins and multiplied provocations of the Lord, admire his faithfulness. The heavens broke forth with music at the wonders of mercy contained in the glad tidings concerning Bethlehem, and the saints who came together in the temple magnified the faithfulness of God at the birth of the Son of David. Since that auspicious day, the general assembly on high and the sacred congregation below have not ceased to sing unto Jehovah, the Lord that keepeth covenant with his elect.
 
 ### Verse 6
 
+> For who in the heaven can be compared unto the LORD? *who* among the sons of the mighty can be likened unto the LORD?
+
 *For who in the heaven can be compared unto the Lord* —therefore all heaven worships him, seeing none can equal him. Who among the sons of the mighty can be likened unto the Lord?—therefore the assemblies of the saints on earth adore him, seeing none can rival him. Until we can find one equally worthy to be praised, we will give unto the Lord alone all the homage of our praise. Neither among the sons of the morning nor the sons of the mighty can any peer be found for Jehovah, yea none that can be mentioned in the same day; therefore he is rightly praised. Since the Lord Jesus, both as God and as man, is far above all creatures, he also is to be devoutly worshipped. How full of poetic fire is this verse! How bold is the challenge! How triumphant the holy boasting! The sweet singer dwells upon the name of Jehovah with evident exultation; to him the God of Israel is God indeed and God alone. He closely follows the language long before rehearsed by Miriam, when she sang, "Who is like unto thee, O Jehovah, among the gods? Who is like thee?" His thoughts are evidently flying back to the days of Moses and the marvels of the Red Sea, when God was gloriously known by his incommunicable name; there is a ring of timbrels in the double question, and a sound as of the twinkling feet of rejoicing maidens. Have we no poets now? Is there not a man among us who can compose hymns flaming with this spirit? O, Spirit of the living God, be thou the inspirer of some master minds among us!
 
 ### Verse 7
+
+> God is greatly to be feared in the assembly of the saints, and to be had in reverence of all *them that are* about him.
 
 *God is greatly to be feared in the assembly of the saints.* The holiest tremble in the presence of the thrice Holy One: their familiarity is seasoned with the profoundest awe. Perfect love casts out the fear which hath torment, and works in lieu thereof that other fear which is akin to joy unutterable. How reverent should our worship be! Where angels veil their faces, men should surely bow in lowliest fashion. Sin is akin to presumptuous boldness, but holiness is sister to holy fear. "And to be had in reverence of all them that are about him." The nearer they are the more they adore. If mere creatures are struck with awe, the courtiers and favourites of heaven must be yet more reverent in the presence of the Great King. God's children are those who most earnestly pray "hallowed be thy name." Irreverence is rebellion. Thoughts of the covenant of grace tend to create a deeper awe of God, they draw us closer to him, and the more his glories are seen by us in that nearer access, the more humbly we prostrate ourselves before his Majesty.
 
 ### Verse 8
 
+> O LORD God of hosts, who *is* a strong LORD like unto thee? or to thy faithfulness round about thee?
+
 *O Lord God of hosts, who is a strong Lord like unto thee?* Or *Jehovah, God of Hosts, who is like thee, Mighty Jah.* Alexander remarks, that the infinite superiority of God to men and angels is here expressed, or rather indicated, by an accumulation of descriptive titles. Here we have the name which displays his self existence, the title which denotes his dominion over all his creatures, and an adjective which sets forth the power with which he exercises his sovereignty. Yet this great and terrible God has entered into covenant with men! Who would not reverence him with deepest love? Or to thy faithfulness round about thee. He dwells in faithfulness; it is said to be the girdle of the loins of his only begotten Son, who is the express image of his person. None in all creation is faithful as he is; even his angels might prove faithless if he left them to themselves, but he cannot "lie unto David", or forget to keep his oath. Men often fail in truth because their power is limited, and then they find it easier to break their word than to keep it; but the strong Jehovah is equal to all his engagements, and will assuredly keep them. Unrivalled might and unparalleled truth are wedded in the character of Jehovah. Blessed be his name that it is so.
 
 ### Verse 9
+
+> Thou rulest the raging of the sea: when the waves thereof arise, thou stillest them.
 
 *Thou rulest the raging of the sea.* Always, even in the hour of ocean's maddest fury, the Lord controls it. At the Red Sea the foaming billows saw their God and stood upright in awe. When the waves thereof arise, thou stillest them. None else can do this; to attempt it would be madness, but the Lord's "hush" silences the boisterous storm. So did the Lord's Anointed calm the storms of Galilee, for he is Lord of all; so also does the great Ruler of Providence evermore govern the fickle wills of men, and quiet the tumults of the people. As a mother stills her babe to sleep, so the Lord calms the fury of the sea, the anger of men, the tempest of adversity, the despair of the soul, and the rage of hell. "The Lord sitteth upon the floods; yea, the Lord sitteth King for ever", and in all his ruling and over ruling he has respect unto his covenant; therefore, although our house be not so with God as our hearts would wish, yet we will rejoice in his covenant ordered in all things and sure, and delight in him as all our salvation and all our desire.
 
 ### Verse 10
 
+> Thou hast broken Rahab in pieces, as one that is slain; thou hast scattered thine enemies with thy strong arm.
+
 *Thou hast broken Rahab in pieces as one that is slain.* Egypt was crushed like a corpse beneath the chariot wheels of the destroyer: its pomp and glory were broken like the limbs of the dead in battle. Egypt was Israel's ancient foe, and its overthrow wits a theme to which devout minds constantly reverted, as to a subject fit for their most exulting songs. We, too, have seen our Rahab broken, our sins overthrown, and we cannot but unite in the ascription of praise unto the Lord. Thou hast scattered thine enemies with thy strong arm. Thy strength has strewn thy foes dead upon the plain, or compelled them to flee hither and thither in dismay. Jehovah has overthrown his enemies with his own right arm, unaided and alone. Proud Rahab, swelling in her fury like the sea, was utterly broken and scattered before the Lord of Hosts.
 
 ### Verse 11
 
+> The heavens *are* thine, the earth also *is* thine: *as for* the world and the fulness thereof, thou hast founded them.
+
 *The heavens are thine, the earth also is thine.* All things are alike God's—rebellious earth as well as adoring heaven. Let us not despair of the kingdom of truth; the Lord has not abdicated the throne of earth or handed it over to the sway of Satan. As for the world and the fulness thereof, thou hast founded them. The habitable and cultivated earth, with all its produce, owns the Lord to be both its Creator and Sustainer, builder and upholder.
 
 ### Verse 12
+
+> The north and the south thou hast created them: Tabor and Hermon shall rejoice in thy name.
 
 *The north and the south thou hast created them.* North and south, opposite poles, agree in this—that Jehovah fashioned them. Tabor and Hermon shall rejoice in thy name, that is to say, east and west are equally formed by thee, and therefore give thee praise. Turn to all points of the compass, and behold the Lord is there. The regions of snow and the gardens of the sun are his dominions: both the land of the dawning and the home of the setting sun rejoice to own his sway. Tabor was on the west of Jordan and Hermon on the east, and it seems natural to consider these two mountains as representatives of the east and west. Keble paraphrases the passage thus:
 
@@ -68,153 +92,229 @@ They wait on thee with glad acclaim."
 
 ### Verse 13
 
+> Thou hast a mighty arm: strong is thy hand, *and* high is thy right hand.
+
 *Thou hast a mighty arm*, omnipotence is thine in smiting or uplifting; strong is thy hand, thy power to create and grasp is beyond conception great; and high is thy right hand—thy skill is incomparable, thy favour ennobling, thy working glorious. The power of God so impressed the Psalmist that in many ways he repeated the same thought: and indeed the truth of God's omnipotence is so full of refreshment to gracious hearts that it cannot be too much dwelt upon, especially when viewed in connection with his mercy and truth, as in the following verse.
 
 ### Verse 14
+
+> Justice and judgment *are* the habitation of thy throne: mercy and truth shall go before thy face.
 
 *Justice and judgment are the habitation of thy throne.* They are the basis of the divine government, the sphere within which his sovereignty moves. God as a sovereign is never unjust or unwise. He is too holy to be unrighteous, too wise to be mistaken; this is constant matter for joy to the upright in heart. Mercy and truth shall go before thy face. They are the harbingers and heralds of the Lord; he calls these to the front to deal with guilty and changeful man; he makes them, in the person of the Lord Jesus, to be his ambassadors, and so poor, guilty man is enabled to endure the presence of his righteous Lord. If mercy had not paved the way, the coming of God to any man must have been swift destruction. Thus has the poet sung the glories of the covenant God. It was meet that before he poured forth his lament he should record his praise, lest his sorrow should seem to have withered his faith. Before we argue our case before the Lord it is most becoming to acknowledge that we know him to be supremely great and good, whatever may be the appearance of his providence; this is such a course as every wise man will take who desires to have an answer of peace in the day of trouble.
 
 ### Verse 15
 
+> Blessed *is* the people that know the joyful sound: they shall walk, O LORD, in the light of thy countenance.
+
 *Blessed is the people that know the joyful sound.* It is a blessed God of whom the Psalmist has been singing, and therefore they are a blessed people who partake of his bounty, and know how to exult in his favour. Praise is a peculiarly joyful sound, and blessed are those who are familiar with its strains. The covenant promises have also a sound beyond measure precious, and they are highly favoured who understand their meaning and recognise their own personal interest in them. There may also be a reference here to the blowing of trumpets and other glad noises which attended the worship of Jehovah, who, unlike the gods of the heathen was not adored by the shrieks of wretched victims, or the yells and outcries of terror stricken crowds, but by the joyful shouts of his happy people. They shall walk, O LORD, in the light of thy countenance. For them it is joy enough that Jehovah is favourable to them; all day long this contents them and enables them with rigour to pursue their pilgrimage. Only a covenant God could look with favour upon men, and those who have known him in that relationship learn to rejoice in him, yea, to walk with him in fellowship, and to continue in communion with him. If we give God our ear and hear the joyful sound, he will shew us his face and make us glad. While the sun shines, men walk without stumbling as to their feet, and when the Lord smiles on us we live without grief as to our souls.
 
 ### Verse 16
+
+> In thy name shall they rejoice all the day: and in thy righteousness shall they be exalted.
 
 *In thy name shall they rejoice all the day.* And good cause they have for so doing, for to the soul which, in Christ Jesus, has entered into covenant with God, every attribute is a fountain of delight. There is no hour in the day, and no day in our life, in which we may not rejoice in the name, person, and character of the Lord. We need no other reason for rejoicing. As philosophers could make merry without music, so can we rejoice without carnal comforts; the Lord All sufficient is an all sufficient source of joy. And in thy righteousness shall they be exalted. By the Lord's righteous dealings the saints are uplifted in due time, however great may have been the oppression and the depression from which they may have suffered. In the righteousness which the covenant supplies, which is entirely of the Lord, believers are set on high in a secure and blessed position, so that they are full of sacred happiness. If God were unjust, or if he regarded us as being without righteousness, we must be filled with misery, but as neither of these things are so, we are exalted indeed, and would extol the name of the Lord.
 
 ### Verse 17
 
+> For thou *art* the glory of their strength: and in thy favour our horn shall be exalted.
+
 *For thou art the glory of their strength.* Surely in the Lord Jehovah have we both righteousness and strength. He is our beauty and glory when we are strong in him, as well as our comfort and sustenance when we tremble because of conscious weakness in ourselves. No man whom the Lord makes strong may dare to glory in himself, he must ascribe all honour to the Lord alone; we have neither strength nor beauty apart from him. And in thy favour our horn shall be exalted. By the use of the word our the Psalmist identifies himself with the blessed people, and this indicates how much sweeter it is to sing in the first person than concerning others. May we have grace to claim a place among those in covenant with God, in Christ Jesus, for then a sense of divine favour will make us also bold and joyous. A creature full of strength and courage lifts up its horn, and so also does a believer become potent, valiant, and daring. The horn was an eastern ornament, worn by men and women, or at least is so at this day, and by the uplifting of this the wearer showed himself to be in good spirits, and in a confident frame of mind: we wear no such outward vanities, but our inward soul is adorned and made bravely triumphant when the favour of God is felt by us. Worldly men need outward prosperity to make them lift up their heads, but the saints find more than enough encouragement in the secret love of God.
 
 ### Verse 18
+
+> For the LORD *is* our defence; and the Holy One of Israel *is* our king.
 
 *For the Lord is our defence.* Whoever else may defend us, he is our ultimate Defender and Shield. And the Holy one of Israel is our king. He who protects should govern, our defender should be acknowledged as our king. Kings are called the shields of nations, and the God of Israel is both our Ruler and our Defence. Another sense may be that Israel's defender and king was of the Lord, belonging to him and sent by him; even the protectors of the land being themselves protected by the Lord. The title "the Holy One of Israel" is peculiarly delightful to the renewed heart. God is one, we worship none beside. He is holiness itself, the only being who can be called "the Holy One", and in his perfection of character we see the most excellent reason for our faith. He who is holy cannot break his promises, or act unjustly concerning his oath and covenant. Moreover, he is the Holy One *of Israel, * being specially the God of his own elect, ours by peculiar ties, ours for ever and ever. Who among the saints will not rejoice in the God of election? Are they not indeed a people greatly blessed who can call this God their God for ever and ever?
 
 ### Verse 19
 
+> Then thou spakest in vision to thy holy one, and saidst, I have laid help upon *one that is* mighty; I have exalted *one* chosen out of the people.
+
 *Then thou spakest in vision to thy holy one.* The Psalmist returns to a consideration of the covenant made with David. The holy one here meant may be either David or Nathan the prophet, but most probably the latter, for it was to him that the word of the Lord came by night. 2Sa 7:4-5. God condescends to employ his gracious ministers to be the means of communication between himself and his favoured ones, —even to King David the covenant was revealed by Nathan the prophet; thus the Lord puts honour upon his ministers. I have laid help upon one that is mighty. The Lord had made David a mighty man of valour, and now he covenants to make him the helper and defender of the Jewish state. In a far fuller sense the Lord Jesus is essentially and immeasurably mighty, and on him the salvation of his people rests by divine appointment, while his success is secured by divine strength being engaged to be with him. Let us lay our faith where God has laid our help. I have exalted one chosen out of the people. David was God's elect, elect out of the people, as one of themselves, and elect to the highest position in the state. In his extraction, election, and exaltation, he was an eminent type of the Lord Jesus, who is the man of the people, the chosen of God, and the king of his church. Whom God exalts let us exalt. Woe unto those who despise him, they are guilty of contempt of court before the Lord of Hosts, as well as of rejecting the Son of God.
 
 ### Verse 20
+
+> I have found David my servant; with my holy oil have I anointed him:
 
 *I have found David my servant.* David was discovered by the Lord among the sheepfolds and recognised as a man of gracious spirit, full of faith and courage, and therefore fit to be leader in Israel. With my holy oil have I anointed him. By the hand of Samuel, David was anointed to be king long before he ascended the throne. The verse must also be expounded of the Prince Emmanuel; he became the servant of the Lord for our sakes, the Father having found for us in his person a mighty deliverer, therefore upon him rested the Spirit without measure, to qualify him for all the offices of love to which he was set apart. We have not a Saviour self appointed and unqualified, but one sent of God and divinely endowed for his work. Our Saviour Jesus is also the Lord's Christ, or anointed. The oil with which he is anointed is God's own oil, and holy oil; he is divinely endowed with the Spirit of holiness.
 
 ### Verse 21
 
+> With whom my hand shall be established: mine arm also shall strengthen him.
+
 *With whom my hand shall be established*, or, "with whom my hand shall ever be present." The almightiness of God abides permanently with Jesus in his work as Redeemer and Ruler of his people. Mine arm also shall strengthen him. The fulness of divine power shall attend him. This covenant promise ought to be urged in prayer before the Lord, for the great lack of the church at this time is power. We have everything except the divine energy, and we must never rest content until we see it in full operation among us. Jesus must be among us, and then there will be no lack of force in any of our church agencies.
 
 ### Verse 22
+
+> The enemy shall not exact upon him; nor the son of wickedness afflict him.
 
 *The enemy shall not exact upon him;* he shall not be vexed and persecuted as a helpless debtor by an extortionate creditor. Nor the son of wickedness afflict him. Graceless men shall no longer make his life a burden. David had in his earlier history been hunted by Saul like a partridge on the mountains, and though he had striven in all things to act justly towards Saul, because he was the Lord's anointed, yet Saul was never content with his displays of loyalty, but persecuted him relentlessly. The covenant, therefore, engaged that his life of hardship and oppression should come to an end for ever; it did so in David's own person, and more remarkably still in the life of Solomon his son. Who does not in all this see a type of the Lord Jesus, who though he was once seized for our debts, and also evil entreated by the ungodly, is now so exalted that he can never be exacted upon any more, neither can the fiercest of his enemies vex him again. No Judas can now betray him to death, no Pilate can deliver him to be crucified. Satan cannot tempt him, and our sins cannot burden him.
 
 ### Verse 23
 
+> And I will beat down his foes before his face, and plague them that hate him.
+
 *And I will beat down his foes before his face* —crushing them and their plans. God himself thus fights the battles of his Son, and effectually overturns his foes. And plague them that hate him, or *smite his haters.* May none of us learn the terror of this threatening, which is surely being fulfilled upon all those unbelievers who have rejected the Son of God, and died in the hardness of their hearts. The prophecy is also having another fulfilment in the overthrow of systems of error, and the vexation caused to their promoters. There is no such plague to bad men as the prosperity of the cause of Jesus.
 
 ### Verse 24
+
+> But my faithfulness and my mercy *shall be* with him: and in my name shall his horn be exalted.
 
 *But my faithfulness and my mercy shall be with him.* These were the two attributes of which the Psalmist began to sing in Ps 89:1, doubtless because he saw them to be most prominent in the covenant which he was about to plead with God. To David and his seed, God was gracious and faithful, and though through their sin the literal kingdom lost all its glory and the dynasty became obscure, yet the line remained unbroken and more than all its former glory was restored by the enthronisation of Him who is Prince of the kings of the earth, with whom the Lord's mercy and faithfulness remain for ever. All who are in Jesus should rejoice, for they shall prove in their own experience the faithful mercy of the Lord. And in my name shall his horn be exalted. Gloriously does the Lord Jesus lift up his head, raised to the highest place of honour by the mandate of the Father. David and Solomon in their dignity were but faint types of the Lord Jesus, who is far above all principalities and powers. The fullest exaltation of the horn of Jesus is yet to come in that millennial period which is hastening on.
 
 ### Verse 25
 
+> I will set his hand also in the sea, and his right hand in the rivers.
+
 *I will set his hand also in the sea, and his right hand in the rivers.* He shall reach far beyond the little rivers which stand for boundaries in Palestine; he shall by his power embrace all lands from sea to sea. He shall have his hand in the ocean and his right hand in earth's mightiest streams. As monarchs hold in their hands a globe to set forth their dominion over the earth, he shall grasp the far more unconquerable sea, and be Lord of all. This power is to be given him of the Lord, and is to be abiding; so we understand the words *"I will set."* The verse has in it a voice of good cheer concerning sailors, and all dwellers on the waters; the hand of Jesus is over them, and as he found his first apostles by the sea, so we trust he still finds earnest disciples there.
 
 ### Verse 27
+
+> Also I will make him *my* firstborn, higher than the kings of the earth.
 
 *Also I will make him my firstborn.* Among the kings the seed of David were to be most favoured and indulged with most love and paternal regard from God: but in Jesus we see this in the highest degree verified, for he has preeminence in all things, inasmuch as by inheritance he has a more glorious name than any other, and is higher than the kings of the earth. Who can rival heaven's Firstborn? The double portion and the government belong to him. Kings are honoured when they honour him, and those who honour him are kings! In the millennial glory it shall be seen what the covenant stores up for the once despised Son of David, but even now faith sees him exalted as King of kings and Lord of lords. Lo, we bow before thee, thou Heir of all things! Our sheaves do obeisance to thy sheaf. All thy mother's children call thee blessed. Thou art he whom thy brethren shall praise. Jesus is no servant of princes, nor would he have his bride, the church, degrade herself by bowing before kings and eating the bread of a pensioner at their hands. He and his kingdom are higher than the kings of the earth. Let the great ones of the earth be wise and submit to him, for he is Lord, and he is the governor among the nations.
 
 ### Verse 28
 
+> My mercy will I keep for him for evermore, and my covenant shall stand fast with him.
+
 *My mercy will I keep for him for evermore.* The kings of David's line needed mercy, and mercy prevented their house from utterly perishing until the Son of Mary came. He needs no mercy for himself, but he is a representative man, and the mercy of God is required for those who are in him: for such mercy is kept for ever. And my covenant shall stand fast with him. With Jesus the covenant is ratified both by blood of sacrifice and by oath of God, it cannot be cancelled or altered, but is an eternal verity, resting upon the veracity of one who cannot lie. What exultation fills our hearts as we see that the covenant of grace is *sure* to all the seed, because it stands fast with him with whom we are indissolubly united.
 
 ### Verse 29
+
+> His seed also will I make *to endure* for ever, and his throne as the days of heaven.
 
 *His seed also will I make to endure for ever.* David's seed lives on in the person of the Lord Jesus, and the seed of Jesus in the persons of believers. Saints are a race that neither death nor life can kill. Rome and its priests, with their inquisition and other infernal cruelties, have laboured to exterminate the covenant seed, but "vain is their rage, their efforts vain." As long as God lives, his people must live. And his throne, as the days of heaven. Jesus reigns on, and will reign till the skies shall fall, yea, and when the heavens shall pass away with a great noise, and the elements shall melt with fervent heat, his throne shall stand. What a blessed covenant is this! Some commentators talk of conditions, but we fail to see any; the promises are as absolute as they can possibly be, and if any conditions as to the conduct of the favoured individuals can be conceived, they are disposed of in the succeeding verses.
 
 ### Verse 30
 
+> If his children forsake my law, and walk not in my judgments;
+
 *If his children forsake my law, and walk not in my judgments.* It was possible, terribly possible, that David's posterity might wander from the Lord; indeed they did so, but what then? Was the mercy of God to pass away from David's seed?—far from it. So, too, the seed of the Son of David are apt to start aside, but are they therefore cast away? Not a single word gives liberty for such an idea, but the very reverse. Expositors in their fear of Calvinistic doctrine shake off the fear of adding to the word of God, or else they would not have spent their time in talking about "the conditions" of this absolutely unconditional covenant.
 
 ### Verse 31
+
+> If they break my statutes, and keep not my commandments;
 
 *If they break my statutes, and keep not my commandments.* The dreadful "if" is suggested again, and the sad case is stated in other forms. But if it should be so, what then? Death and rejection? Ah, no; Blessed be God, No! If their sin be negative or positive, if it be forsaking or profanation; if either judgments or commandments or both be violated, yet there is not a word as to final destruction, but the very reverse. Legalism will import its ifs, but the Lord slays the ifs as fast as they rise. Eternal shalls and wills make glorious havoc among the ifs and buts.
 
 ### Verse 32
 
+> Then will I visit their transgression with the rod, and their iniquity with stripes.
+
 *Then will I visit their transgressions with the rod.* Not with the sword, not with death and destruction; but still with a smarting, tingling, painful rod. Saints must smart if they sin: God will see to that. He hates sin too much not to visit it, and he loves his saints too well not to chasten them. God never plays with his rod, he lays it well home to his children, he *visits* them with it in their houses, bodies, and hearts, and makes them know that he is grieved with their ways. He smites home and chastens their iniquity with stripes, which are either many or few in proportion as the heart is properly affected by them. The rod is a covenant blessing, and is meant to be used. As sin is so frequent, the rod never rests long together; in God's family the rod is not spared, or the children would be spoiled.
 
 ### Verse 33
+
+> Nevertheless my lovingkindness will I not utterly take from him, nor suffer my faithfulness to fail.
 
 *Nevertheless.* And a glorious nevertheless too! *Nevertheless my lovingkindness will I not utterly take from him.* O glorious fear killing sentence! This crowns the covenant with exceeding glory. Mercy may seem to depart from the Lord's chosen, but it shall never altogether do so. Jesus still enjoys the divine favour, and we are in him, and therefore under the most trying circumstances the Lord's lovingkindness to each one of his chosen will endure the strain. If the covenant could be made void by our sins it would have been void long ere this; and if renewed its tenure would not be worth an hour's purchase if it had remained dependent upon us. God may leave his people, and they may thereby suffer much and fall very low, but utterly and altogether he never can remove his love from them; for that would be to cast a reflection upon his own truth, and this he will never allow, for he adds, nor suffer my faithfulness to fail. Man fails in all points, but God in none. To be faithful is one of the eternal characteristics of God, in which he always places a great part of his glory: his truth is one of his peculiar treasures and crown jewels, and he will never endure that it should be tarnished in any degree. This passage sweetly assures us that the heirs of glory shall not be utterly cast off. Let those deny the safety of the saints who choose to do so, we have not so learned Christ. We believe in the gospel rod, but not in the penal sword for the adopted sons.
 
 ### Verse 34
 
+> My covenant will I not break, nor alter the thing that is gone out of my lips.
+
 *My covenant will I not break.* It is his own covenant. He devised it, drew up the draft of it, and voluntarily entered into it: he therefore thinks much of it. It is not a man's covenant, but the Lord claims it as his own. It is an evil thing among men for one to be a "covenant breaker", and such an opprobrious epithet shall never be applicable to the Most High. Nor alter the thing that is gone out of my lips. Alterations and afterthoughts belong to short sighted beings who meet with unexpected events which operate upon them to change their minds, but the Lord who sees everything from the beginning has no such reason for shifting his ground. He is besides immutable in his nature and designs, and cannot change in heart, and therefore not in promise. A word once given is sacred; once let a promise pass our lips and honesty forbids that we should recall it, —unless indeed the thing promised be impossible, or wicked, neither of which can happen with the promises of God. How consoling it is to see the Lord thus resolute. He, in the words before us, virtually reasserts his covenant and rehearses his engagements. This he does at such length, and with such reiteration, that it is evident he takes pleasure in that most ancient and solemn contract. If it were conceivable that he had repented of it, he would not be found dwelling upon it, and repeating it with renewed emphasis.
 
 ### Verse 35
+
+> Once have I sworn by my holiness that I will not lie unto David.
 
 *Once have I sworn by my holiness that I will not lie unto David.* Because he could swear by no greater he swore by himself, and by that peculiar attribute which is his highest glory, being the subject of threefold adoration by all the hosts of heaven. God here pledges the crown of his kingdom, the excellent beauty of his person, the essence of his nature. He does as good as say that if he ceases to be true to his covenant he will have forfeited his holy character. What more can he say? In what stronger language can he express his unalterable adherence to the truth of his promise? An oath is the end of all strife; it ought to be the end of all doubt on our part. We cannot imagine that God could lie, yet he puts it so—that if the covenant were not kept by him, he would regard it as a lie. Here is ground for strong confidence; may our faith be of such a nature as these assurances will warrant.
 
 ### Verse 36
 
+> His seed shall endure for ever, and his throne as the sun before me.
+
 *His seed shall endure for ever.* David's line in the person of Jesus is an endless one, and the race of Jesus, as represented in successive generations of believers, shows no sign of failure. No power, human or Satanic, can break the Christian succession; as saints die others shall rise up to fill their places, so that till the last day, the day of doom, Jesus shall have a seed to serve him. And his throne as the sun before me. In our Lord Jesus the dynasty of David remains upon the throne. Jesus has never abdicated, nor gone into banishment. He reigns, and must reign so long as the sun continues to shine upon the earth. A seed and a throne are the two great promises of the covenant, and they are as important to us as to our Lord Jesus himself; for we are the seed who must endure for ever, and we are protected and ennobled by that King whose royalties are to last for ever.
 
 ### Verse 37
+
+> It shall be established for ever as the moon, and *as* a faithful witness in heaven. Selah.
 
 *It shall be established for ever as the moon.* The kingdom may wax and wane to mortal eyes, but it shall still abide as long as the moon walks in her silver beauty. And as a faithful witness in heavens. The most stable part of the universe is selected as a type of Messiah's kingdom, and both sun and moon are made to be symbols of its long endurance. Whatever else there is in the sky which faithfully witnesses to the unbending course of nature is also called upon to be a sign of the Lord's truth. When heaven and earth witness, and the Lord himself swears, there remains no excuse for doubting, and faith joyfully reposes in confident expectation.
 
 ### Verse 38
 
+> But thou hast cast off and abhorred, thou hast been wroth with thine anointed.
+
 *But thou hast cast off and abhorred.* The Lord had promised not to cast off the seed of David, and yet it looked as if he had done so, and that too in the most angry manner, as if he loathed the person of the king. God's actions may appear to us to be the reverse of his promises, and then our best course is to come before him in prayer and put the matter before him just as it strikes our apprehension. We are allowed to do this, for this holy and inspired man did so unrebuked, but we must do it humbly and in faith. Thou hast been wroth with thine anointed. He deserved the wrath, doubtless, but the Psalmist's point is, that this appeared to him to conflict with the gracious covenant. He puts the matter plainly, and makes bold with the Lord, and the Lord loves to have his servants so do; it shows that they believe his engagements to be matters of fact.
 
 ### Verse 39
+
+> Thou hast made void the covenant of thy servant: thou hast profaned his crown *by casting it* to the ground.
 
 *Thou hast made void the covenant of thy servant.* The dispensations of providence looked as if there had been a disannulling of the sacred compact, though indeed it was not so. Thou hast profaned his crown by casting it to the ground. The king had been subject to such sorrow and shame that his diadem had been as it were taken from his head, dashed on the earth, and rolled in the mire. He was a theocratic monarch, and the Lord, who gave him his crown, took it from him and treated it with contempt, —at least so it seemed. In these sad days also we may utter the same complaint, for Jesus is not acknowledged in many of the churches, and usurpers have profaned his crown. When we hear of kings and queens set up as "heads of the church", and a priest styled "The Vicar of Christ", while parliaments and courts take upon themselves to legislate for the church of God, we may bitterly lament that things should come to so wretched a pass. Few are there who will acknowledge the crown rights of King Jesus, the very subject is considered to be out of date. O Lord how long!
 
 ### Verse 40
 
+> Thou hast broken down all his hedges; thou hast brought his strong holds to ruin.
+
 *Thou hast broken down all his hedges.* He was no longer sheltered from the slanderous assaults of contemptuous tongues; the awe which should guard the royal name had ceased to separate him from his fellows. The "divinity which doth hedge a king" had departed. Hitherto, the royal family had been like a vine within an enclosure, but the wall was now laid low, and the vine was unprotected. It is sorrowfully true that in many places the enclosures of the church have been destroyed, the line of demarcation between the church and the world has almost vanished, and godless men fill the sacred offices. Alas, O Lord God, shall it be always so? Shall thy true vine be deserted by thee, thou great Husbandman? Set up the boundaries again, and keep thy church as a vineyard reserved for thyself. Thou hast brought his strong holds to ruin. The forts of the land were in the possession of the enemy and were dismantled, the defences of the kingdom were overthrown. Thus has it happened that precious truths, which were the bulwarks of the church, have been assailed by heresy, and the citadels of sound doctrine have been abandoned to the foe. O God, how canst thou suffer this? As the God of truth, wilt thou not arise and tread down falsehood?
 
 ### Verse 41
+
+> All that pass by the way spoil him: he is a reproach to his neighbours.
 
 *All that pass by the way spoil him.* Idle passers by, who have nothing else to do, must needs have a pluck at this vine, and they do it without difficulty, since the hedges are gone. Woe is the day when every petty reasoner has an argument against religion, and men in their cups are fluent with objections against the gospel of Jesus. Although Jesus on the cross is nothing to them, and they pass him by without inquiring into what he has done for them, yet they can loiter as long as you will, if there be but the hope of driving another nail into his hands and helping to crucify the Lord afresh. They will not touch him with the finger of faith, but they pluck at him with the hand of malice. He is a reproach to his neighbours. David's successors had unneighbourly neighbours, who were a reproach to good fellowship, because they were so ready to reproach their neighbour. The Jews were much taunted by the surrounding Gentiles when at any time they fell into trouble. At this time the people of God, who follow the Lord fully, are subject to a thousand reproaches, and some of them of the most bitter kind. These reproaches are really the reproach of Christ, and, at bottom, are meant for him. Shall it always be so? Shall he, who deserves to be universally adored, be subject to general scorn? Where, then, O God, is thy faithfulness to thy covenant?
 
 ### Verse 42
 
+> Thou hast set up the right hand of his adversaries; thou hast made all his enemies to rejoice.
+
 *Thou hast set up the right hand of thy adversaries.* Thou hast done it, *thou, * who hast sworn to give him help and victory, thou hast, instead thereof, sided with his enemies, and lent them thy strength, so that they have gained the supremacy. Thou hast made all his enemies to rejoice. They are boasting over him, and are glorying in his defeat, and this is done by thyself. O God, —how is this? Where is the covenant? Hast thou forgotten thine own pledges and promises?
 
 ### Verse 43
+
+> Thou hast also turned the edge of his sword, and hast not made him to stand in the battle.
 
 *Also turned the edge of his sword.* When he goes to war he is as unsuccessful as though his sword refused to cut, and gave way like a sword of lead. His weapons fail him. And hast not made him to stand in the battle. His heart fails him as well as his sword—he wavers, he falls. This has happened even to naturally brave men—a terrible dread has unmanned them. At this present the church has few swords of true Jerusalem metal; her sons are pliable, her ministers yield to pressure. We need men whose edge cannot be turned, firm for truth, keen against error, sharp towards sin, cutting their way into men's hearts. Courage and decision are more needed now than ever, for charity towards heresy is the fashionable vice, and indifference to all truth, under the name of liberal mindedness, is the crowning virtue of the age. The Lord send us men of the school of Elias, or, at least, of Luther and Knox.
 
 ### Verse 44
 
+> Thou hast made his glory to cease, and cast his throne down to the ground.
+
 *Thou hast made his glory to cease.* The brightness of his reign and the prosperity of his house are gone, his fame is tarnished, his honour disgraced. And cast his throne down to the ground. He has lost his power to govern at home or to conquer abroad. This happened to kings of David's line, and, more grievous to tell, it is happening in these days to the visible kingdom of the Lord Jesus. Where are the glories of Pentecost? Where is the majesty of the Reformation? Where does his kingdom come among the sons of men? Woe is unto us, for the glory has departed, and the gospel throne of Jesus is hidden from our eyes!
 
 ### Verse 45
+
+> The days of his youth hast thou shortened: thou hast covered him with shame. Selah.
 
 *The days of his youth hast thou shortened.* The time of the king's energy was brief, he grew feeble before his time. Thou hast covered him with shame. Shame was heaped upon him because of his premature decay and his failure in arms. This was very grievous to the writer of this Psalm, who was evidently a most loyal adherent of the house of David. In this our day we have to bemoan the lack of vigour in religion—the heroic days of Christianity are over, her raven locks are sprinkled with untimely grey. Is this according to the covenant? Can this be as the Lord has promised? Let us plead with the righteous Judge of all the earth, and beseech him to fulfil his word wherein he has promised that those who wait upon him shall renew their strength. Selah. The interceding poet takes breath amid his lament, and then turns from describing the sorrows of the kingdom to pleading with the Lord.
 
 ### Verse 46
 
+> How long, LORD? wilt thou hide thyself for ever? shall thy wrath burn like fire?
+
 *How long, Lord?* The appeal is to Jehovah, and the argument is the length of the affliction endured. Chastisement with a rod is not a lengthened matter, therefore he appeals to God to cut short the time of tribulation. Wilt thou hide thyself for ever? Hast thou not promised to appear for thor servant—wilt thou then for ever forsake him? Shall thy wrath burn like fire? Shall it go on and on evermore till it utterly consume its object? Be pleased to set a bound! How far wilt thou go? Wilt thou burn up the throne which thou hast sworn to perpetuate? Even thus we would entreat the Lord to remember the cause of Christ in these days. Can he be so angry with his church as to leave her much longer? How far will he suffer things to go? Shall truth die out, and saints exist no more? How long will he leave matters to take their course? Surely he must interpose soon, for, if he do not, true religion will be utterly consumed, as it were, with fire.
 
 ### Verse 47
+
+> Remember how short my time is: wherefore hast thou made all men in vain?
 
 *Remember how short my time is.* If so brief, do not make it altogether bitter. If thine anger burn on it will outlast this mortal life, and then there will be no time for thy mercy to restore me. Some expositors ascribe these words, and all the preceding verses, to the state of the Lord Jesus in the days of his humiliation, and this gives an instructive meaning; but we prefer to continue our reference all through to the church, which is the seed of the Lord Jesus, even as the succeeding kings were the seed of David. We, having transgressed, are made to feel the rod, but we pray the Lord not to continue his stripes lest our whole life be passed in misery. Wherefore hast thou made all men in vain? If the Lord do not shine upon his work we live for nothing—we count it no longer life if his cause does not prosper. We live if the King lives, but not else. Everything is vanity if religion be vanity. If the kingdom of heaven should fail, everything is a failure. Creation is a blot, providence an error, and our own existence a bell, if the faithfulness of God can fail and his covenant of grace can be dissolved. If the gospel system can be disproved, nothing remains for us or any other of the sons of men, which can render existence worth the having.
 
 ### Verse 48
 
+> What man *is he that* liveth, and shall not see death? shall he deliver his soul from the hand of the grave? Selah.
+
 *What man is he that liveth, and shall not see death?* All must die. None of our race can answer to the question here propounded except in the negative; there is none that can claim to elude the arrows of death. Shall he deliver his soul from the hand of the grave? Neither by strength, wisdom, nor virtue can any man escape the common doom, for to the dust return we must. Since then we must all die, do not make this life all wretchedness, by smiting us so long, O Lord. Thy Son our covenant Head died, and so also shall we; let us not be so deserted of thee in this brief span that we shall be quite unable to testify to thy faithfulness: make us not feel that we have lived in vain. Thus the brevity of life and the certainty of death are turned into pleas with the Most High. Selah. Here we rest again, and proceed to further pleadings.
 
 ### Verse 49
+
+> Lord, where *are* thy former lovingkindnesses, *which* thou swarest unto David in thy truth?
 
 *Lord, where are thy former loving kindnesses, which thou swarest unto David in thy truth?* Here he comes to grand pleading, hand to hand work with the covenant angel. We may remind the Lord of his first deeds of love, his former love to his church, his former favour to ourselves. Then may we plead his oath, and beg him to remember that he has sworn to bless his chosen: and we may wrestle hard also, by urging upon him his own character, and laying hold upon his inviolable truth. When things look black we may bring forth our strong reasons, and debate the case with our condescending God, who has himself said, "Come now, and let us reason together."
 
 ### Verse 50
 
+> Remember, Lord, the reproach of thy servants; *how* I do bear in my bosom *the reproach of* all the mighty people;
+
 *Remember, Lord, the reproach of thy servants.* By reason of their great troubles they were made a mock of by ungodly men, and hence the Lord's pity is entreated. Will a father stand by and see his children insulted? The Psalmist entreats the Lord to compassionate the wretchedness brought upon his servants by the taunts of their adversaries, who jested at them on account of their sufferings. How I do bear in my bosom the reproach of all the mighty people. The Psalmist himself laid the scorn of the great and the proud to heart. He felt as if all the reproaches which vexed his nation were centred in himself, and therefore in sacred sympathy with the people he poured out his heart. We ought to weep with those that weep; reproach brought upon the saints and their cause ought to burden us: if we can hear Christ blasphemed, and see his servants insulted, and remain unmoved, we have not the true Israelite's spirit. Our grief at the griefs of the Lord's people may be pleaded in prayer, and it will be acceptable argument. There is one interpretation of this verse which must not be passed over; the original is, Remember my bearing in my bosom all the many nations; and this may be understood as a pleading of the church that the Lord would remember her because she was yet to be the mother of many nations, according to the prophecy of Ps 77:1-20. She was as it were ready to give birth to nations, but how could they be born if she herself died in the meanwhile? The church is the hope of the world; should she expire, the nations would never come to the birth of regeneration, but must abide in death.
 
 ### Verse 51
+
+> Wherewith thine enemies have reproached, O LORD; wherewith they have reproached the footsteps of thine anointed.
 
 *Wherewith thine enemies have reproached, O Lord.* Here is another forcible point; the scoffers are the Lord's enemies as well as ours, and their reproach falls upon him as well as upon us; therefore we cry for the Lord's interposition. When Jehovah's own name is in the quarrel, surely he will arise. Wherewith they have reproached the footsteps of thine anointed. Tracking him and finding occasion to blaspheme at every turn; not only watching his words and actions, but even his harmless steps. Neither Christ nor his church can please the world, whichever way we turn scoffers will rail. Does this verse refer to the oft repeated sarcasm—"Where is the promise of his coming?" Is the reproach aimed at the delays of the Messiah, those long expected footfalls which as yet are unheard? O Lord, how long shall this threadbare taunt continue? How long? How long?
 
@@ -235,6 +335,8 @@ Scattering thy foes before thy face,
 Most Mighty Son of God."
 
 ### Verse 52
+
+> Blessed *be* the LORD for evermore. Amen, and Amen.
 
 *Blessed be the Lord for evermore.* He ends where he began; he has sailed round the world and reached port again. Let us bless God before we pray, and while we pray, and when we have done praying, for he always deserves it of us. If we cannot understand him, we will not distrust him. When his ways are beyond our judgment we will not be so foolish as to judge; yet we shall do so if we consider his dealings to be unkind or unfaithful. He is, he must be, he shall be, for ever, our blessed God. Amen, and Amen. All our hearts say so. So be it, Lord, we wish it over and over again. Be thou blessed evermore.
 
