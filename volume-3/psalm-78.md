@@ -202,6 +202,11 @@ It will be our wisdom to eat to the full of it, for God has so sent it that we a
 
 ### Verse 30-31
 
+> They were not estranged from their lust. But while their meat *was* yet in their mouths, 
+
+> The wrath of God came upon them, and slew the fattest of them, and smote down the chosen *men* of Israel. 
+
+
 They were not estranged from their lust. Lust grows upon that which it feeds on. If sick of too much flesh, yet men grow not weary of lust, they change the object, and go on lusting still. When one sin is proved to be a bitterness, men do not desist, but pursue another iniquity. If, like Jehu, they turn from Baal, they fall to worshipping the calves of Bethel. But while their meat was yet in their mouths, before they could digest their coveted meat, it turned to their destruction. The wrath of God came upon them before they could swallow their first meal of flesh. Short was the pleasure, sudden was the doom. The festival ended in a funeral. And slew the fattest of them, and smote down the chosen men of *Israel.* Perhaps these were the ringleaders in the lusting; they are first in the punishment. God's justice has no respect of persons, the strong and the valiant fall as well as the weak and the mean. What they ate on earth they digested in hell, as many have done since. How soon they died, though they felt not the edge of the sword! How terrible was the havoc, though not amid the din of battle! My soul, see here the danger of gratified passions; they are the janitors of hell. When the Lord's people hunger God loves them; Lazarus is his beloved, though he pines upon crumbs; but when he fattens the wicked he abhors them; Dives is hated of heaven when he fares sumptuously every day. We must never dare to judge men's happiness by their tables, the heart is the place to look at. The poorest starveling believer is more to be envied than the most full fleshed of the favourites of the world. Better be God's dog than the devil's darling.
 
 ### Verse 32

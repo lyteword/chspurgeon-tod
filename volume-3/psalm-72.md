@@ -146,6 +146,10 @@ God's church is no mean thing; its beginnings are small, but its increase is of 
 
 ### Verse 18-19
 
+> Blessed *be* the LORD God, the God of Israel, who only doeth wondrous things.
+
+> And blessed *be* his glorious name for ever: and let the whole earth be filled *with* his glory; Amen, and Amen.
+
 As Quesnel well observes, these verses explain themselves. They call rather for profound gratitude, and emotion of heart, than for an exercise of the understanding; they are rather to be used for adoration than for exposition. It is, and ever will be, the acme of our desires, and the climax of our prayers, to behold Jesus exalted King of kings and Lord of lords. He has done great wonders such as none else can match, leaving all others so far behind, that he remains the sole and only wonder worker; but equal marvels yet remain, for which we look with joyful expectation. He is the Blessed God, and his name shall be blessed; his name is glorious, and that glory shall fill the whole earth. For so bright a consummation our heart yearns daily, and we cry *Amen, and Amen.*
 
 ### Verse 20
