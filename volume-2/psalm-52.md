@@ -12,37 +12,55 @@ weight: 52
 
 ### Verse 1
 
+> Why boastest thou thyself in mischief, O mighty man? the goodness of God *endureth* continually.
+
 *Why boasteth thyself in mischief, O mighty man?* Doeg had small matter for boasting in having procured the slaughter of a band of defenceless priests. A mighty man indeed to kill men who never touched a sword! He ought to have been ashamed of his cowardice. He had no room for exultation! Honourable titles are but irony where the wearer is mean and cruel. If David alluded to Saul, he meant by these words pityingly to say, "How can one by nature fitted for nobler deeds, descend to so low a level as to find a theme for boasting in a slaughter so heartless and mischievous?" *The goodness of God endureth continually.* A beautiful contrast. The tyrant's fury cannot dry up the perennial stream of divine mercy. If priests be slain their Master lives. If Doeg for awhile triumphs the Lord will outlive him, and right the wrongs which he has done. This ought to modify the proud exultations of the wicked, for after all, while the Lord liveth, iniquity has little cause to exalt itself.
 
 ### Verse 2
+
+> Thy tongue deviseth mischiefs; like a sharp razor, working deceitfully.
 
 *Thy tongue deviseth mischiefs.* Thou speakest with an ulterior design. The information given was for Saul's assistance apparently, but in very deed in his heart the Edomite hated the priests of the God of Jacob. It is a mark of deep depravity, when the evil spoken is craftily intended to promote a yet greater evil. *Like a sharp razor, working deceitfully.* David represents the false tongue as being effectual for mischief, like a razor which, unawares to the person operated on, is making him bald; so softly and deftly do Oriental barbers perform their work. Or he may mean that as with a razor a man's throat may be cut very speedily, under the pretence of shaving him, even thus keenly, basely, but effectually Doeg destroyed the band of the priests. Whetted by malice, and guided by craft, he did his cruel work with accursed thoroughness.
 
 ### Verse 3
 
+> Thou lovest evil more than good; *and* lying rather than to speak righteousness. Selah.
+
 *Thou lovest evil more than good.* He loved not good at all. If both had been equally profitable and pleasant, he would have preferred evil. *And lying rather than to speak righteousness.* He was more at home at lying than at truth. He spake not the truth except by accident, but he delighted heartily in falsehood. *SELAH.* Let us pause and look at the proud blustering liar. Doeg is gone, but other dogs bark at the Lord's people. Saul's cattle master is buried, but the devil still has his drovers, who fain would hurry the saints like sheep to the slaughter.
 
 ### Verse 4
+
+> Thou lovest all devouring words, O *thou* deceitful tongue.
 
 *Thou lovest.* Thou hast a taste, a gusto for evil language. *All devouring words.* There are words that, like boa constrictors, swallow men whole, or like lions, rend men to pieces; these words evil minds are fond of. Their oratory is evermore furious and bloody. That which will most readily provoke the lowest passions they are sure to employ, and they think such pandering to the madness of the wicked to be eloquence of a high order. *O thou deceitful tongue.* Men can manage to say a great many furious things, and yet cover all over with the pretext of justice. They claim that they are jealous for the right, but the truth is they are determined to put down truth and holiness, and craftily go about it under this transparent pretence.
 
 ### Verse 5
 
+> God shall likewise destroy thee for ever, he shall take thee away, and pluck thee out of *thy* dwelling place, and root thee out of the land of the living. Selah.
+
 *God shall likewise destroy thee for ever.* Fain would the persecutor destroy the church, and therefore God shall destroy him, pull down his house, pluck up his roots, and make an end of him. *He shall take thee away.* God shall extinguish his coal and sweep him away like the ashes of the hearth; he would have quenched the truth, and God shall quench him. *And pluck thee out of thy dwelling place, * like a plant torn from the place where it grew, or a captive dragged from his home. Ahimelech and his brother priests were cut off from their abode, and so should those be who compassed and contrived their murder. *And root thee out of the land of the living.* The persecutor shall be eradicated, stubbed up by the root, cut up root and branch. He sought the death of others and death shall fall upon him. He troubled the land of the living, and he shall be banished to that land where the wicked cease from troubling. Those who will not "let live" have no right to "live." God will turn the tables on malicious men, and mete to them a portion with their own measure. "SELAH." Pause again, and behold the divine justice proving itself more than a match for human sin.
 
 ### Verse 6
+
+> The righteous also shall see, and fear, and shall laugh at him:
 
 *The righteous* —the object of the tyrant's hatred—shall outlive his enmity, and *also shall see, * before his own face, the end of the ungodly oppressor. God permits Mordecai to see Haman hanging on the gallows. David had brought to him the tokens of Saul's death on Gilboa. *And fear.* Holy awe shall sober the mind of the good man; he shall reverently adore the God of providence. *And shall laugh at him.* If not with righteous joy, yet with solemn contempt. Schemes so far reaching all baffled, plans so deep, so politic, all thwarted. Mephistopheles outwitted, the old serpent taken in his own subtlety. This is a good theme for that deep seated laughter which is more akin to solemnity than merriment.
 
 ### Verse 7
 
+> Lo, *this is* the man *that* made not God his strength; but trusted in the abundance of his riches, *and* strengthened himself in his wickedness.
+
 *Lo.* Look ye here, and read the epitaph of a mighty man, who lorded it proudly during his little hour, and set his heel upon the necks of the Lord's chosen. *This is the man that made not God his strength.* Behold the man! The great vainglorious man. He found a fortress, but not in God; he gloried in his might, but not in the Almighty. Where is he now? How has it fared with him in the hour of his need? Behold his ruin, and be instructed. *But trusted in the abundance of his riches, and strengthened himself in his wickedness.* The substance he had gathered, and the mischiefs he had wrought, were his boast and glory. Wealth and wickedness are dreadful companions; when combined they make a monster. When the devil is master of money bags, he is a devil indeed. Beelzebub and Mammon together heat the furnace seven times hotter for the child of God, but in the end that shall work out their own destruction. Wherever we see today a man great in sin and substance, we shall do well to anticipate his end, and view this verse as the divine *in memoriam.*
 
 ### Verse 8
 
+> But I *am* like a green olive tree in the house of God: I trust in the mercy of God for ever and ever.
+
 *But I, * hunted and persecuted though I am, *am like a green olive tree.* I am not plucked up or destroyed, but am like a flourishing olive, which out of the rock draws oil, and amid the drought still lives and grows. *In the house of God.* He was one of the divine family, and could not be expelled from it; his place was near his God, and there was he safe and happy, despite all the machinations of his foes. He was bearing fruit, and would continue to do so when all his proud enemies were withered like branches lopped from the tree. *I trust in the mercy of God for ever and ever.* Eternal mercy is my present confidence. David knew God's mercy to be eternal and perpetual, and in that he trusted. What a rock to build on! What a fortress to fly to!
 
 ### Verse 9
+
+> I will praise thee for ever, because thou hast done *it:* and I will wait on thy name; for *it is* good before thy saints.
 
 *I will praise thee for ever.* Like thy mercy shall my thankfulness be. While others boast in their riches I will boast in my God; and when their glorying is silenced for ever in the tomb, my song shall continue to proclaim the lovingkindness of Jehovah. *Because thou hast done it.* Thou hast vindicated the righteous, and punished the wicked. God's memorable acts of providence, both to saints and sinners, deserve, and must have our gratitude. David views his prayer as already answered, the promise of God as already fulfilled, and therefore at once lifts up the sacred Psalm. *And I will wait on thy name.* God shall still be the psalmist's hope; he will not in future look elsewhere. He whose name has been so gloriously made known in truth and righteousness, is justly chosen as our expectation for years to come. *For it is good before thy saints.* Before or among the saints David intended to wait, feeling it to be good both for him and them to look to the Lord alone, and wait for the manifestation of his character in due season. Men must not too much fluster us; our strength is to sit still. Let the mighty ones boast, we will wait on the Lord; and if their haste brings them present honour, our patience will have its turn by and by, and bring us the honour which excelleth.
 

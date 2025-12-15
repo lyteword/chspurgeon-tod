@@ -14,21 +14,31 @@ weight: 37
 
 ### Verse 1
 
+> Fret not thyself because of evildoers, neither be thou envious against the workers of iniquity.
+
 The Psalm opens with the first precept. It is alas! too common for believers in their hours of adversity to think themselves harshly dealt with when they see persons utterly destitute of religion and honesty, rejoicing in abundant prosperity. Much needed is the command, *Fret not thyself because of evildoers.* To fret is to worry, to have the heartburn, to fume, to become vexed. Nature is very apt to kindle a fire of jealousy when it sees lawbreakers riding on horses, and obedient subjects walking in the mire: it is a lesson learned only in the school of grace, when one comes to view the most paradoxical providences with the devout complacency of one who is sure that the Lord is righteous in all his acts. It seems hard to carnal judgments that the best meat should go to the dogs, while loving children pine for want of it. *Neither be thou envious against the workers of iniquity.* The same advice under another shape. When one is poor, despised, and in deep trial, our old Adam naturally becomes envious of the rich and great; and when we are conscious that we have been more righteous than they, the devil is sure to be at hand with blasphemous reasonings. Stormy weather may curdle even the cream of humanity. Evil men instead of being envied, are to be viewed with horror and aversion; yet their loaded tables, and gilded trappings, are too apt to fascinate our poor half opened eyes. Who envies the fat bullock the ribbons and garlands which decorate him as he is led to the shambles? Yet the case is a parallel one; for ungodly rich men are but as beasts fattened for the slaughter.
 
 ### Verse 2
+
+> For they shall soon be cut down like the grass, and wither as the green herb.
 
 *For they shall soon be cut down like the grass.* The scythe of death is sharpening. Green grows the grass, but quick comes the scythe. The destruction of the ungodly will be speedy, sudden, sure, overwhelming, irretrievable. The grass cannot resist or escape the mower. *And wither as the green herb.* The beauty of the herb dries up at once in the heat of the sun, and so all the glory of the wicked shall disappear at the hour of death. Death kills the ungodly man like grass, and wrath withers him like hay; he dies, and his name rots. How complete an end is made of the man whose boasts had no end! Is it worth while to waste ourselves in fretting about the insect of an hour, an ephemeral which in the same day is born and dies? Within believers there is a living and incorruptible seed which liveth and abideth for ever; why should they envy mere flesh, and the glory of it, which are but as grass, and the flower thereof?
 
 ### Verse 3
 
+> Trust in the LORD, and do good; *so* shalt thou dwell in the land, and verily thou shalt be fed.
+
 *Trust in the Lord.* Here is the second precept, and one appropriate to the occasion. Faith cures fretting. Sight is cross-eyed, and views things only as they seem, hence her envy: faith has clearer optics to behold things as they really are, hence her peace. *And do good.* True faith is actively obedient. Doing good is a fine remedy for fretting. There is a joy in holy activity which drives away the rust of discontent. *So shalt thou dwell in the land.* In "the land" which floweth with milk and honey; the Canaan of the covenant. Thou shalt not wander in the wilderness of murmuring, but abide in the promised land of content and rest. "We which have believed do enter into rest." Very much of our outward depends upon the inward: where there is heaven in the heart there will be heaven in the house. *And verily thou shalt be fed, * or *shepherded.* To integrity and faith necessaries are guaranteed. The good shepherd will exercise his pastoral care over all believers. In truth they shall be fed, and fed on truth. The promise of God shall be their perpetual banquet; they shall neither lack in spirituals nor in temporals. Some read this as an exhortation, *"Feed on truth; "* certainly this is good cheer, and banishes for ever the hungry heart burnings of envy.
 
 ### Verse 4
 
+> Delight thyself also in the LORD; and he shall give thee the desires of thine heart.
+
 There is an ascent in this third precept. He who was first bidden not to fret, was then commanded actively to trust, and now is told with holy desire to delight in God. *Delight thyself also in the Lord.* Make Jehovah the joy and rejoicing of thy spirit. Bad men delight in carnal objects; do not envy them if they are allowed to take their fill in such vain idols; look thou to thy better delight, and fill thyself to the full with thy more sublime portion. In a certain sense imitate the wicked; they delight in their portion—take care to delight in yours, and so far from envying you will pity them. There is no room for fretting if we remember that God is ours, but there is every incentive to sacred enjoyment of the most elevated and ecstatic kind. Every name, attribute, word, or deed of Jehovah, should be delightful to us, and in meditating thereon our soul should be as glad as is the epicure who feeds delicately with a profound relish for his dainties. *And he shall give thee the desires of thine heart.* A pleasant duty is here rewarded with another pleasure. Men who delight in God desire or ask for nothing but what will please God; hence it is safe to give them *carte blanche.* Their will is subdued to God's will, and now they may have what they will. Our innermost desires are here meant, not our casual wishes; there are many things which nature might desire which grace would never permit us to ask for; these deep, prayerful, *asking* desires are those to which the promise is made.
 
 ### Verse 5
+
+> Commit thy way unto the LORD; trust also in him; and he shall bring *it* to pass.
 
 *Commit thy way unto the Lord.* Roll the whole burden of life upon the Lord. Leave with Jehovah not thy present fretfulness merely, but all thy cares; in fact, submit the whole tenor of thy way to him. Cast away anxiety, resign thy will, submit thy judgment, leave all with the God of all. What a medicine is this for expelling envy! What a high attainment does this fourth precept indicate! How blessed must he be who lives every day in obedience to it! *Trust also in him; and he shall bring it to pass.* Our destiny shall be joyfully accomplished if we confidently entrust all to our Lord. We may serenely sing—
 
@@ -68,25 +78,37 @@ The ploughman sows and harrows, and then leaves the harvest to God. What can he 
 
 ### Verse 6
 
+> And he shall bring forth thy righteousness as the light, and thy judgment as the noonday.
+
 *And he shall bring forth thy righteousness as the light.* In the matter of personal reputation we may especially be content to be quiet, and leave our vindication with the Judge of all the earth. The more we fret in this case the worse for us. Our strength is to sit still. The Lord will clear the slandered. If we look to his honour, he will see to ours. It is wonderful how, when faith learns to endure calumny with composure, the filth does not defile her, but falls off like snowballs from a wall of granite. Even in the worst cases, where a good name is for awhile darkened, Providence will send a clearing like the dawning light, which shall increase until the man once censured shall be universally admired. *And thy judgment as the noonday.* No shade of reproach shall remain. The man shall be in his meridian of splendour. The darkness of his sorrow and his ill repute shall both flee away.
 
 ### Verse 7
+
+> Rest in the LORD, and wait patiently for him: fret not thyself because of him who prospereth in his way, because of the man who bringeth wicked devices to pass.
 
 *Rest in the Lord.* This fifth is a most divine precept, and requires much grace to carry it out. To hush the spirit, to be silent before the Lord, to wait in holy patience the time for clearing up the difficulties of Providence—that is what every gracious heart should aim at. "Aaron held his peace:" "I opened not my mouth, because thou didst it." A silent tongue in many cases not only shows a wise head, but a holy heart. *And wait patiently for him.* Time is nothing to him; let it be nothing to thee. God is worth waiting for. "He never is before his time, he never is too late." In a story we wait for the end to clear up the plot; we ought not to prejudge the great drama of life, but stay till the closing scene, and see to what a finis the whole arrives. *Fret not thyself because of him who prospereth in his way, because of the man who bringeth wicked devices to pass.* There is no good, but much evil, in worrying your heart about the present success of graceless plotters: be not enticed into premature judgments—they dishonour God, they weary yourself. Determine, let the wicked succeed as they may, that you will treat the matter with indifference, and never allow a question to be raised as to the righteousness and goodness of the Lord. What if wicked devices succeed and your own plans are defeated! there is more of the love of God in your defeats than in the successes of the wicked.
 
 ### Verse 8
 
+> Cease from anger, and forsake wrath: fret not thyself in any wise to do evil.
+
 *Cease from anger and forsake wrath.* Especially anger against the arrangements of Providence, and jealousies of the temporary pleasures of those who are so soon to be banished from all comfort. Anger anywhere is madness, here it is aggravate insanity. Yet since anger will try to keep us company, we must resolvedly forsake it. *Fret not thyself in any wise to do evil.* By no reasonings and under no circumstances be led into such a course. Fretfulness lies upon the verge of great sin. Many who have indulged a murmuring disposition have at last come to sin, in order to gain their fancied rights. Beware of carping at others, study to be yourself found in the right way; and as you would dread outward sin, tremble at inward repining.
 
 ### Verse 9
+
+> For evildoers shall be cut off: but those that wait upon the LORD, they shall inherit the earth.
 
 *For evil doers shall be cut off.* Their death shall be a penal judgment; not a gentle removal to a better state, but an execution in which the axe of justice will be used. *But those that wait upon the Lord* —those who in patient faith expect their portion in another life— *they shall inherit the earth.* Even in this life they have the most of real enjoyment, and in the ages to come theirs shall be the glory and the triumph. Passion, according to Bunyan's parable, has his good things first, and they are soon over; Patience has his good things last, and they last for ever.
 
 ### Verse 10
 
+> For yet a little while, and the wicked *shall* not *be:* yea, thou shalt diligently consider his place, and it *shall* not *be*.
+
 *For yet a little while, and the wicked shall not be.* When bad men reach to greatness, the judgments of God frequently sweep them away; their riches melt, their power decays, their happiness turns to wretchedness; they themselves cease any longer to be numbered with the living. The shortness of life makes us see that the glitter of the wicked great is not true gold. O wherefore, tried believer, dost thou envy one who in a little while will lie lower than the dust? *Yea, thou shalt diligently consider his place, and it shall not be.* His house shall be empty, his chair of office vacant, his estate without an owner; he shall be utterly blotted out, perhaps cut off by his own debauchery, or brought to a deathbed of penury by his own extravagance. Gone like a passing cloud—forgotten as a dream—where are his boastings and hectorings, and where the pomp which made poor mortals think the sinner blest?
 
 ### Verse 11
+
+> But the meek shall inherit the earth; and shall delight themselves in the abundance of peace.
 
 *But the meek shall inherit the earth.* Above all others they shall enjoy life. Even if they suffer, their consolations shall overtop their tribulations. By inheriting the land is meant obtaining covenant privileges and the salvation of God. Such as are truly humble shall take their lot with the rest of the heirs of grace, to whom all good things come by a sacred birthright. *And shall delight themselves in the abundance of peace.* Peace they love and peace they shall have. If they find not abundance of gold, abundance of peace will serve their turn far better. Others find joy in strife, and thence arises their misery in due time, but peace leads on to peace, and the more a man loves it the more shall it come to him. In the halcyon period of the latter days, when universal peace shall make glad the earth, the full prophetic meaning of words like these will be made plain.
 
@@ -96,61 +118,91 @@ Here is the portrait of a proud oppressor armed to the teeth.
 
 ### Verse 12
 
+> The wicked plotteth against the just, and gnasheth upon him with his teeth.
+
 *The wicked plotteth against the just.* Why can he not let the good man alone? Because there is enmity between the serpent's seed and the seed of the woman. Why not attack him fairly? Why plot and scheme? Because it is according to the serpent's nature to be very subtle. Plain sailing does not suit those who are on board of "The Apollyon." *And gnashed upon him with his teeth.* The wicked show by their gestures what they would do if they could; if they cannot gnaw they will gnash; if they may not bite they will at least bark. This is precisely what the graceless world did with "that just One, "the Prince of Peace. Yet he took no vengeance upon them, but like a silent lamb received injuries in patience.
 
 ### Verse 13
+
+> The Lord shall laugh at him: for he seeth that his day is coming.
 
 *The Lord shall laugh at him.* The godly man needs not trouble himself, but leave well deserved vengeance to be dealt out by the Lord, who will utterly deride the malice of the good man's enemies. Let the proud scorner gnash his teeth and foam at the mouth; he has one to deal with who will look down upon him and his ravings with serene contempt. *For he seeth that his day is coming.* The evil man does not see how close his destruction is upon his heels; he boasts of crushing others when the foot of justice is already uplifted to trample him as the mire of the streets. Sinners, in the hand of an angry God, and yet plotting against his children! Poor souls, thus to run upon the point of Jehovahs's spear.
 
 ### Verse 14
 
+> The wicked have drawn out the sword, and have bent their bow, to cast down the poor and needy, *and* to slay such as be of upright conversation.
+
 *The wicked have drawn out the sword.* They hold their weapon out of its sheath, and watch for a time to use it. *And have bent their bow.* One weapon is not enough, they carry another ready for action. They carry so strong a bow that they have trodden upon it to bend it—they will lose nothing for want of force or readiness. *To cast down the poor and needy.* These are their game, the objects of their accursed malice. These cowards attack not their equals, but seek out those excellent ones who, from the gentleness of their spirits and the poverty of their estates, are not able to defend themselves. Note how our meek and lowly Lord was beset by cruel foes, armed with all manner of weapons to slay him. *And to slay such as be of upright conversation.* Nothing short of the overthrow and death of the just will content the wicked. The sincere and straightforward are hated by the crafty schemers who delight in unrighteousness. See, then, the enemies of the godly doubly armed, and learn how true were our Lord's words, "If ye were of the world, the world would love its own: but because ye are not of this world, but I have chosen you our of the world, therefore the world hateth you."
 
 ### Verse 15
+
+> Their sword shall enter into their own heart, and their bows shall be broken.
 
 *Their sword shall enter into their own heart.* Like Haman they shall be hanged upon the gallows built by themselves for Mordecai. Hundreds of times has this been the case. Saul, who sought to slay David, fell on his own sword; and the bow, his favourite weapon, the use of which he taught the children of Israel, was not able to deliver him on Gilboa. *And their bows shall be broken.* Their inventions of evil shall be rendered useless. Malice outwits itself. It drinks the poisoned cup which it mixed for another, and burns itself in the fire which it kindled for its neighbour. Why need we fret at the prosperity of the wicked when they are so industriously ruining themselves while they fancy they are injuring the saints? The next nine verses mainly describe the character and blessedness of the godly, and the light is brought out with a few black touches descriptive of the wicked and their doom.
 
 ### Verse 16
 
+> A little that a righteous man hath *is* better than the riches of many wicked.
+
 *A little that a righteous man hath is better than the riches of many wicked.* This is a fine proverb. The little of one good man is contrasted with the riches of many wicked, and so the expression is rendered the more forcible. There is more happiness in the godly dinner of herbs than in the stalled ox of profane rioters. In the original there is an allusion to the noise of a multitude, as if to hint at the turmoil and hurly burly of riotous wealth, and to contrast it with the quiet of the humbler portion of the godly. We would sooner hunger with John than feast with Herod; better feed on scant fare with the prophets in Obadiah's cave than riot with the priests of Baal. A man's happiness consists not in the heaps of gold which he has in store. Content finds *multum in parvo, * while for a wicked heart the whole world is too little.
 
 ### Verse 17
+
+> For the arms of the wicked shall be broken: but the LORD upholdeth the righteous.
 
 *For the arms of the wicked shall be broken.* Their power to do mischief shall be effectually taken away, for the arms which they lifted up against God shall be crushed even to the bone. God often makes implacable men incapable men. What is a more contemptible sight than toothless malice, armless malevolence! *But the Lord upholdeth the righteous.* Their cause and course shall be safe, for they are in good keeping. The sword of two edges smites the wicked and defends the just.
 
 ### Verse 18
 
+> The LORD knoweth the days of the upright: and their inheritance shall be for ever.
+
 *The Lord knoweth the days of the upright.* His foreknowledge made him laugh at the proud, but in the case of the upright he sees a brighter future, and treats them as heirs of salvation. Ever is this our comfort, that all events are known to our God, and that nothing in our future can take him at unawares. No arrow can pierce us by accident, no danger smite us by stealth; neither in time nor eternity can any unforeseen ill occur to us. Futurity shall be but a continual development of the good things which the Lord has laid up in store for us. *And their inheritance shall be for ever.* Their inheritance fades not away. It is entailed, so that none cam deprive them of it, and preserved, so that none shall destroy it. Eternity is the peculiar attribute of the believer's portion: what they have on earth is safe enough, but what they shall have in heaven is theirs without end.
 
 ### Verse 19
+
+> They shall not be ashamed in the evil time: and in the days of famine they shall be satisfied.
 
 *They shall not be ashamed in the evil time.* Calamities will come, but deliverances will come also. As the righteous never reckoned upon immunity from trouble, they will not be disappointed when they are called to take their share of it, but the rather they will cast themselves anew upon their God, and prove again his faithfulness and love. God is not a friend in the sunshine only, he is a friend indeed and a friend in need. *And in the days of famine they shall be satisfied.* Their barrel of meal and cruse of oil shall last out the day of distress, and if ravens do not bring them bread and meat, the supply of their needs shall come in some other way, for their bread shall be given them. Our Lord stayed himself upon this when he hungered in the wilderness, and by faith he repelled the tempter; we too may be enabled not to fret ourselves in any wise to do evil by the same consideration. If God's providence is our inheritance, we need not worry about the price of wheat. Mildew, and smut, and bent, are all in the Lord's hands. Unbelief cannot save a single ear from being blasted, but faith, if it do not preserve the crop, can do what is better, namely, preserve our joy in the Lord.
 
 ### Verse 20
 
+> But the wicked shall perish, and the enemies of the LORD *shall be* as the fat of lambs: they shall consume; into smoke shall they consume away.
+
 *But the wicked shall perish.* Whatever phantom light may mock their present, their future is black with dark, substantial night. Judgment has been given against them, they are but reserved for execution. Let them flaunt their scarlet and fine linen, and fare sumptuously every day; the sword of Damocles is above their heads, and if their wits were a little more awake, their mirth would turn to misery. *The enemies of the Lord shall be as the fat of lambs.* As the sacrificial fat was all consumed upon the altar, so shall the ungodly utterly vanish from the place of their honour and pride. How can it be otherwise? If the stubble dares to contend with the flame, to what end can it hope to come? *They shall consume.* As dry wood, as heaps of leaves, as burning coals, they shall soon be gone, and gone altogether, for *into smoke shall they consume away. Sic transit gloria mundi.* A puff is the end of all their puffing. Their fuming ends in smoke. They made themselves fat, and perished in their own grease. Consumers of the good they tried to be, and consumed they shall be.
 
 ### Verse 21
+
+> The wicked borroweth, and payeth not again: but the righteous sheweth mercy, and giveth.
 
 *The wicked borroweth, and payeth not again.* Partly because he will not, but mainly because he cannot. Want follows upon waste, and debt remains undischarged. Often are the wicked thus impoverished in this life. Their wanton extravagance brings them down to the usurer's door and to the bankrupt's suit. *But the righteous sheweth mercy, and giveth, * Mercy has given to him, and therefore he gives in mercy. He is generous and prosperous. He is not a borrower, but a giver. So far as the good man can do it, he lends an ear to the requests of need, and instead of being impoverished by what he imparts, he grows richer, and is able to do more. He does not give to encourage idleness, but in real mercy, which supposes real need. The text suggests to us how much better it generally is to give than to lend. Generally, lending comes to giving in the end, and it is as well to anticipate the fact, and by a little liberality forestall the inevitable. If these two sentences describe the wicked and the righteous, the writer of these lines has reason to know that in and about the city of London the wicked are very numerous.
 
 ### Verse 22
 
+> For *such as be* blessed of him shall inherit the earth; and *they that be* cursed of him shall be cut off.
+
 *For such as be blessed of him shall inherit the earth.* God's benediction is true wealth after all. True happiness, such as the covenant secures to all the chosen of heaven, lies wrapped up in the divine favour. *And they that be cursed of him shall be cut off.* His frown is death; nay, more, It is hell.
 
 ### Verse 23
+
+> The steps of a *good* man are ordered by the LORD: and he delighteth in his way.
 
 *The steps of a good man are ordered by the Lord.* All his course of life is graciously ordained, and in lovingkindness all is fixed, settled, and maintained. No reckless fate, no fickle chance rules us; our every step is the subject of divine decree. *He delighteth in his way.* As parents are pleased with the tottering footsteps of their babes. All that concerns a saint is interesting to his heavenly Father. God loves to view the holy strivings of a soul pressing forward to the skies. In the trials and the joys of the faithful, Jesus has fellowship with them, and delights to be their sympathising companion.
 
 ### Verse 24
 
+> Though he fall, he shall not be utterly cast down: for the LORD upholdeth *him with* his hand.
+
 *Though he fall.* Disasters and reverses may lay him low; he may, like Job, be stripped of everything; like Joseph, be put in prison; like Jonah, be cast into the deep. *He shall not be utterly cast down.* He shall not be altogether prostrate. He shall be brought on his knees, but not on his face; or, if laid prone for a moment, he shall be up again ere long. No saint shall fall finally or fatally. Sorrow may bring us to the earth, and death may bring us to the grave, but lower we cannot sink, and out of the lowest of all we shall arise to the highest of all. *For the Lord upholdeth him with his hand.* Condescendingly, with his own hand, God upholds his saints; he does not leave them to mere delegated agency, he affords personal assistance. Even in our falls the Lord gives a measure of sustaining. Where grace does not keep from going down, it shall save from keeping down. Job had double wealth at last, Joseph reigned over Egypt, Jonah was safely landed. It is not that the saints are strong, or wise, or meritorious, that therefore they rise after every fall, but because God is their helper, and therefore none can prevail against them.
 
 ### Verse 25
 
+> I have been young, and *now* am old; yet have I not seen the righteous forsaken, nor his seed begging bread.
+
 This was David's observation, *I have been young, and now am old; yet have I not seen the righteous forsaken, nor his seed begging bread.* It is not *my* observation just as it stands, for I have relieved the children of undoubtedly good men, who have appealed to me as common mendicants. But this does not cast a doubt upon the observation of David. He lived under a dispensation more outward, and more of this world than the present rule of personal faith. Never are the righteous forsaken; that is a rule without exception. Seldom indeed do their seed beg bread; and although it does occasionally occur, through dissipation, idleness, or some other causes on the part of their sons, yet doubtless it is so rare a thing that there are many alive who never saw it. Go into the union house and see how few are the children of godly parents; enter the gaol and see how much rarer still is the case. Poor minster's sons often become rich. I am not old, but I have seen families of the poor godly become rich, and have seen the Lord reward the faithfulness of the father in the success of the son, so that I have often thought that the best way to endow one's seed with wealth is to become poor for Christ's sake. In the Indian mission of the "Baptist Missionary Society, "this is abundantly illustrated.
 
 ### Verse 26
+
+> *He is* ever merciful, and lendeth; and his seed *is* blessed.
 
 *He is ever merciful, and lendeth.* The righteous are constantly under generous impulses; they do not prosper through parsimony, but through bounty. Like the bounteous giver of all good, of whom they are the beloved sons, they delight in doing good. How stingy covetous professors can hope for salvation is a marvel to those who read such verses as this in the Bible. *And his seed is blessed.* God pays back with interest in the next generation. Where the children of the righteous are not godly, there must be some reason for it in parental neglect, or *some* other guilty cause. The friend of the father is the friend of the family. The God of Abraham is the God of Isaac and of Jacob.
 
@@ -160,57 +212,85 @@ Here we have the seventh precept, which takes a negative and positive form, and 
 
 ### Verse 27
 
+> Depart from evil, and do good; and dwell for evermore.
+
 *Depart from evil, and do good.* We must not envy the doers of evil, but depart altogether from their spirit and example. As Lot left Sodom without casting a look behind, so must we leave sin. No truce or parley is to be held with sin, we must turn away from it without hesitation, and set ourselves practically to work in the opposite direction. He who neglects to do good will soon fall into evil. *And dwell for evermore.* Obtain an abiding and quiet inheritance. Short lived are the gains and pleasures of evil, but eternal are the rewards of grace.
 
 ### Verse 28
+
+> For the LORD loveth judgment, and forsaketh not his saints; they are preserved for ever: but the seed of the wicked shall be cut off.
 
 *For the Lord loveth judgment.* The awarding of honour to whom honour is due is God's delight, especially when the upright man has been traduced by his fellow men. It must be a divine pleasure to right wrongs, and to defeat the machinations of the unjust. The great Arbiter of human destinies is sure to deal out righteous measure both to rich and poor, to good and evil, for such judgment is his delight. *And forsaketh not his saints.* This would not be right, and, therefore, shall never be done. God is as faithful to the objects of his love as he is just towards all mankind. *They are preserved for ever.* By covenant engagements their security is fixed, and by suretyship fulfilments that safety is accomplished; come what may, the saints are preserved in Christ Jesus, and because he lives, they shall live also. A king will not lose his jewels, nor will Jehovah lose his people. As the manna in the golden pot, which else had melted, was preserved in the ark of the covenant beneath the mercyseat, so shall the faithful be preserved in the covenant by the power of Jesus their propitiation. *But the seed of the wicked shall be cut off.* Like the house of Jeroboam and Ahab, of which not a dog was left. Honour and wealth ill gotten seldom reach the third generation; the curse grows ripe before many years have passed, and falls upon the evil house. Among the legacies of wicked men the surest entail is a judgment on their family.
 
 ### Verse 29
 
+> The righteous shall inherit the land, and dwell therein for ever.
+
 *The righteous shall inherit the land.* As heirs with Jesus Christ, the Canaan above, which is the antitype of "the land, " shall be theirs with all covenant blessing. *And dwell therein for ever.* Tenures differ, but none can match the holding which believers have of heaven. Paradise is theirs for ever by inheritance, and they shall live for ever to enjoy it. Who would not be a saint on such terms? Who would fret concerning the fleeting treasures of the godless?
 
 ### Verse 30
+
+> The mouth of the righteous speaketh wisdom, and his tongue talketh of judgment.
 
 *The mouth of the righteous speaketh wisdom.* Where the whole Psalm is dedicated to a description of the different fates of the just and the wicked, it was meet to give a test by which they could be known. A man's tongue is no ill index of his character. The mouth betrays the heart. Good men, as a rule, speak that which is to edifying, sound speech, religious conversation, consistent with the divine illumination which they have received. Righteousness is wisdom in action, hence all good men are practically wise men, and well may the speech be wise. *His tongue talketh of judgment.* He advocates justice, gives an honest verdict on things and men, and he foretells that God's judgments will come upon the wicked, as in the former days. His talk is neither foolish nor ribald, neither vapid nor profane. Our conversation is of far more consequence than some men imagine.
 
 ### Verse 31
 
+> The law of his God *is* in his heart; none of his steps shall slide.
+
 *The law of his God is in his heart; none of his steps shall slide.* The best thing in the best place, producing the best results. Well might the man's talk be so admirable when his heart was so well stored. To love holiness, to have the motives and desires sanctified, to be in one's inmost nature obedient to the Lord—this is the surest method of making the whole run of our life efficient for its great ends, and even for securing the details of it, our *steps* from any serious mistake. To keep the even tenor of one's way, in such times as these, is given only to those whose hearts are sound towards God, who can, as in the text, call God their God. Policy slips and trips, it twists and tacks, and after all is worsted in the long run, but sincerity plods on its plain pathway and reaches the goal.
 
 ### Verse 32
+
+> The wicked watcheth the righteous, and seeketh to slay him.
 
 *The wicked watcheth the righteous, and seeketh to slay him.* If it were not for the laws of the land, we should soon see a massacre of the righteous. Jesus was watched by his enemies, who were thirsting for his blood: his disciples must not look for favour where their Master found hatred and death.
 
 ### Verse 33
 
+> The LORD will not leave him in his hand, nor condemn him when he is judged.
+
 *The Lord will not leave him in his hand.* God often appears to deliver his servants, and when he does not do so in this life as to their bodies, he gives their souls such joy and peace that they triumphantly rise beyond their tormentors' power. We may be in the enemy's hand for awhile, as Job was, but we cannot be left there. *Nor condemn him when he is judged.* Time shall reverse the verdict of haste, or else eternity shall clear away the condemnation of time. In due season just men will be justified. Temporary injustices are tolerated, in the order of Providence, for purposes most wise; but the bitter shall not always be called sweet, nor light for ever be traduced as darkness; the right shall appear in due season; the fictitious and pretentious shall be unmasked, and the real and true shall be revealed. If we have done faithfully, we may appeal from the petty sessions of society to the solemn assize of the great day.
 
 ### Verse 34
+
+> Wait on the LORD, and keep his way, and he shall exalt thee to inherit the land: when the wicked are cut off, thou shalt see *it*.
 
 *Wait on the Lord.* We have here the eighth precept, and it is a lofty eminence to attain to. Tarry the Lord's leisure. Wait in obedience as a servant, in hope as an heir, in expectation as a believer. This little word "wait" is easy to say, but hard to carry out, yet faith must do it. *And keep his way.* Continue in the narrow path; let no haste for riches or ease cause unholy action. Let your motto be, "On, on, on." Never flag, or dream of turning aside. "He that endureth to the end, the same shall be saved." *And he shall exalt thee to inherit the land.* Thou shalt have all of earthly good which is really good, and of heavenly good there shall be no stint. Exaltation shall be the lot of the excellent. *When the wicked are cut off, thou shalt see it.* A sight how terrible and how instructive! What a rebuke for fretfulness! what an incentive to gratitude! My soul, be still, as you foresee the end, the awful end of the Lord's enemies.
 
 ### Verse 35
 
+> I have seen the wicked in great power, and spreading himself like a green bay tree.
+
 A second time David turns to his diary, and this time in poetic imagery tells us of what he had observed. It were well if we too took notes of divine providences. *I have seen the wicked in great power.* The man was terrible to others, ruling with much authority, and carrying things with a high hand, a Caesar in might, a Croesus in wealth. *And spreading himself like a green bay tree.* Adding house to house and field to field, rising higher and higher in the state. He seemed to be ever verdant like a laurel, he grew as a tree in its own native soil, from which it had never been transplanted. No particular tree is here meant, a spreading beech or a wide expanding oak may serve us to realize the picture; it is a thing of earth, whose roots are in the clay; its honours are fading leaves; and though its shadow dwarfs the plants which are condemned to pine beneath it, yet it is itself a dying things as the feller's axe shall prove. In the noble tree, which claims to be king of the forest, behold the grandeur of the ungodly today; wait awhile and wonder at the change, as the timber is carried away, and the very root torn from the ground.
 
 ### Verse 36
+
+> Yet he passed away, and, lo, he *was* not: yea, I sought him, but he could not be found.
 
 *Yet he passed away.* Tree and man both gone, the son of man as surely as the child of the forest. What clean sweeps death makes! *And, lo, he was not.* To the surprise of all men the great man was gone, his estates sold, his business bankrupt, his house alienated, his name forgotten, and all in a few months. *Yea, I sought him, but he could not be found.* Moved by curiosity, if we enquire for the ungodly, they have left no trace; like birds of ill omen none desire to remember them. Some of the humblest of the godly are immortalized, their names are imperishably fragrant in the church, while of the ablest of infidels and blasphemers hardly their names are remembered beyond a few years. Men who were in everybody's mouths but yesterday are forgotten tomorrow, for only virtue is immortal.
 
 ### Verse 37
 
+> Mark the perfect *man*, and behold the upright: for the end of *that* man *is* peace.
+
 *Mark the perfect man, and behold the upright.* After having watched with surprise the downfall of the wicked, give your attention to the sincerely godly man, and observe the blessed contrast. Good men are men of mark, and are worth our study. Upright men are marvels of grace, and worth beholding. *For the end of that man is peace.* The man of peace has an end of peace. Peace without end comes in the end to the man of God. His way may be rough, but it leads home. With believers it may rain in the morning, thunder at midday, and pour in torrents in the afternoon, but it must clear up ere the sun goes down. War may last till our last hour, but then we shall hear the last of it.
 
 ### Verse 38
+
+> But the transgressors shall be destroyed together: the end of the wicked shall be cut off.
 
 *But the transgressors shall be destroyed together.* A common ruin awaits those who are joined in common rebellion. *The end of the wicked shall be cut off.* Their time shall be shortened, their happiness shall be ended, their hopes for ever blasted, their execution hastened on. Their present is shortened by their sins; they shall not live out half their days. They have no future worth having, while the righteous count their future as their true heritage.
 
 ### Verse 39
 
+> But the salvation of the righteous *is* of the LORD: *he is* their strength in the time of trouble.
+
 *But the salvation of the righteous is of the Lord.* Sound doctrine this. The very marrow of the gospel of free grace. By salvation is meant deliverance of every kind; not only *the* salvation which finally lands us in glory, but all the minor rescues of the way; these are all to be ascribed unto the Lord, and to him alone. Let him have glory from those to whom he grants salvation. *He is their strength in the time of trouble.* While trouble overthrows the wicked, it only drives the righteous to their strong Helper, who rejoices to uphold them.
 
 ### Verse 40
+
+> And the LORD shall help them, and deliver them: he shall deliver them from the wicked, and save them, because they trust in him.
 
 *And the Lord shall help them.* In all future time Jehovah will stand up for his chosen. Our Great Ally will bring up his forces in the heat of the battle. *He shall deliver them from the wicked.* As he rescued Daniel from the lions, so will he preserve his beloved from their enemies; they need not therefore fret, nor be discouraged. *And save them, because they trust in him.* Faith shall ensure they safety of the elect. It is the mark of the sheep by which they shall be separated from the goats. Not their merit, but their believing, shall distinguish them. Who would not try the walk of faith? Whoever truly believes in God will be no longer fretful against the apparent irregularities of this present life, but will rest assured that what is mysterious is nevertheless just, and what seems hard, is, beyond a doubt, ordered in mercy. So the Psalm ends with a note which is the death knell of the unhallowed disquietude with which the Psalm commenced. Happy they who can thus sing themselves out of ill frames into gracious conditions.
 
