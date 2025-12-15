@@ -12,51 +12,72 @@ To the Chief Musician. Although David had his own case in his mind's eye, yet he
 
 ### Verse 1
 
+> Do ye indeed speak righteousness, O congregation? do ye judge uprightly, O ye sons of men?
+
 *Do ye indeed speak righteousness, O congregation?* The enemies of David were a numerous and united band, and because they so unanimously condemned the persecuted one, they were apt to take it for granted that their verdict was a right one. "What everybody says must be true, "is a lying proverb based upon the presumption which comes of large combinations. Have we not all agreed to hound the man to the death, and who dare hint that so many great ones can be mistaken? Yet the persecuted one lays the axe at the root by requiring his judges to answer the question whether or not they were acting according to justice. It were well if men would sometimes pause, and candidly consider this. Some of those who surrounded Saul were rather passive than active persecutors; they held their tongues when the object of royal hate was slandered; in the original, this first sentence appears to be addressed to them, and they are asked to justify their silence. Silence gives consent. He who refrains from defending the right is himself an accomplice in the wrong. Do ye judge uprightly, O ye sons of men? Ye too are only men though dressed in a little brief authority. Your office for men, and your relation to men both bind you to rectitude; but have ye remembered this? Have ye not put aside all truth when ye have condemned the godly, and united in seeking the overthrow of the innocent? Yet in doing this be not too sure of success, or ye are only the "sons of men, "and there is a God who can and will reverse your verdicts.
 
 ### Verse 2
+
+> Yea, in heart ye work wickedness; ye weigh the violence of your hands in the earth.
 
 *Yea, in heart ye work wickedness.* Down deep in your very souls ye hold a rehearsal of the injustice ye intend to practise, and when your opportunity arrives, ye wreak vengeance with a gusto; your hearts are in your wicked work, and your hands are therefore ready enough. Those very men who sat as judges, and pretended to so much indignation at the faults imputed to their victim, were in their hearts perpetrating all manner of evil. Ye weigh the violence of your hands in the earth. They were deliberate sinners, cold, calculating villains. As righteous judges ponder the law, balance the evidence, and weigh the case, so the malicious dispense injustice with malice aforethought in cold blood. Note in this verse that the men described sinned with heart and hand; privately in their heart, publicly in the earth; they worked and they weighed—they were active, and yet deliberate. See what a generation saints have to deal with! Such were the foes of our Lord, a generation of vipers, an evil and adulterous generation; they sought to kill him because he was righteousness itself, yet they masked their hatred to his goodness by charging him with sin.
 
 ### Verse 3
 
+> The wicked are estranged from the womb: they go astray as soon as they be born, speaking lies.
+
 *The wicked are estranged from the womb.* It is small wonder that some men persecute the righteous seed of the woman, since all of them are of the serpent's brood, and enmity is set between them. No sooner born than alienated from God—what a condition to be found in! Do we so early leave the right track? Do we at the same moment begin to be men and commence to be sinners? They go astray as soon as they be born, speaking lies. Every observer may see how very soon infants act lies. Before they can speak they practise little deceptive arts. This is especially the case in those who grow up to be adept in slander, they begin their evil trade early, and there is no marvel that they become adept in it. He who starts early in the morning will go far before night. To be untruthful is one of the surest proofs of a fallen state, and since falsehood is universal, so also is human depravity.
 
 ### Verse 4
+
+> Their poison *is* like the poison of a serpent: *they are* like the deaf adder *that* stoppeth her ear;
 
 *Their poison is like the poison of a serpent.* Is man also a poisonous reptile? Yes, and his venom is even as that of a serpent. The viper has but death for the body in his fangs; but unregenerate man carries poison under his tongue, destructive to the nobler nature. They are like the deaf adder that stoppeth her ear. While speaking of serpents the psalmist remembers that many of them have been conquered by the charmer's art, but men such as he had to deal with no art could tame or restrain; therefore, he likens them to a serpent less susceptible than others to the charmer's music, and says that they refused to hear reason, even as the adder shuts her ear to those incantations which fascinate other reptiles. Man, in his natural corruption, appears to have all the ill points of a serpent without its excellences. O sin, what hast thou done!
 
 ### Verse 5
 
+> Which will not hearken to the voice of charmers, charming never so wisely.
+
 *Which will not hearken to the voice of charmers, charming never so wisely.* Ungodly men are not to be won to right by arguments the most logical, or appeals the most pathetic. Try all your arts, ye preachers of the word! Lay yourselves out to meet the prejudices and tastes of sinners, and ye shall yet have to cry, "Who hath believed our report?" It is not in your music, but in the sinner's ear that the cause of failure lies, and it is only the power of God that can remove it.
 
-"You can call spirits from the vast deep,
-
-But will they come when you do call for them?"
+> "You can call spirits from the vast deep,  
+> But will they come when you do call for them?"
 
 No, we call and call, and call in vain, till the arm of the Lord is revealed. This is at once the sinner's guilt and danger. He ought to hear but will not, and because he will not hear, he cannot escape the damnation of hell.
 
 ### Verse 6
 
+> Break their teeth, O God, in their mouth: break out the great teeth of the young lions, O LORD.
+
 *Break their teeth, O God, in their mouth.* If they have no capacity for good, at least deprive them of their ability for evil. Treat them as the snake charmers do their serpents, extract their fangs, break their teeth. The Lord can do this, and he will. He will not suffer the malice of the wicked to triumph, he will deal them such a blow as shall disable them from mischief. Break out the great teeth of the young lions, O Lord. As if one brute creature had not enough of evil in it to complete the emblem of ungodly nature, another specimen of *ferae naturae* is fetched in. For fierce cruelty the wicked are likened to young lions, monsters in the prime of their vigour, and the fury of their lustiness; and it is asked that their grinders may be smashed in, broken off, or dashed out, that the creatures may henceforth be harmless. One can well understand how the banished son of Jesse, while poisoned by the venomous slander of his foes, and worried by their cruel power, should appeal to heaven for a speedy and complete riddance from his enemies.
 
 ### Verse 7
+
+> Let them melt away as waters *which* run continually: *when* he bendeth *his bow to shoot* his arrows, let them be as cut in pieces.
 
 *Let them melt away as waters which run continually.* Like mountain torrents dried up by the summer heats let them disappear; or like running streams whose waters are swiftly gone, so let them pass away; or like water spilt which none can find again, so let them vanish out of existence. Begone, ye foul streams, the sooner ye are forgotten the better for the universe. When he bendeth his bow to shoot his arrows, let them be as cut in *pieces.* When the Lord goes forth to war, let his judgments so tell upon these persecutors that they may be utterly cut in pieces as a mark shattered by many shafts. Or perhaps the meaning is, when the ungodly man marches to the conflict, let his arrows and his bow drop into fragments, the string cut, the bow snapped, the arrows headless, the points blunted; so that the boastful warrior may not have wherewithal to hurt the object of his enmity. In either sense the prayer of the Psalm has often become fact, and will be again fulfilled as often as need arises.
 
 ### Verse 8
 
+> As a snail *which* melteth, let *every one of them* pass away: *like* the untimely birth of a woman, *that* they may not see the sun.
+
 *As a snail which melteth, let every one of them pass away.* As the snail makes its own way by its slime, and so dissolves as it goes, or as its shell is often found empty, as though the inhabitant had melted away, so shall the malicious eat out their own strength while they proceed upon their malevolent designs, and shall themselves disappear. To destroy himself by envy and chagrin is the portion of the ill disposed. Like the untimely birth of a woman, that they may not see the *sun.* Solemn is this curse, but how surely does it fall on many graceless wretches! They are as if they had never been. Their character is shapeless, hideous, revolting. They are fitter to be hidden away in an unknown grave than to be reckoned among men. Their life comes never to ripeness, their aims are abortive, their only achievement is to have brought misery to others, and horror to themselves. Such men as Herod, Judas, Alva, Bonner, had it not been better for them if they had never been born? Better for the mothers who bore them? Better for the lands they cursed? Better for the earth in which their putrid carcasses are hidden from the sun? Every unregenerate man is an abortion. He misses the true form of God made manhood; he corrupts in the darkness of sin; he never sees or shall see the light of God in purity, in heaven.
 
 ### Verse 9
+
+> Before your pots can feel the thorns, he shall take them away as with a whirlwind, both living, and in *his* wrath.
 
 *Before your pots can feel the thorns.* So sudden is the overthrow of the wicked, so great a failure is their life, that they never see joy. Their pot is put upon the hook to prepare a feast of joy, and the fuel is placed beneath, but before the thorns are lit, before any heat can be brought to bear upon the pot, yea, even as soon as the fuel has touched the cooking vessel, a storm comes and sweeps all away; the pot is overturned, the fuel is scattered far and wide. Perhaps the figure may suppose the thorns, which are the fuel, to be kindled, and then the flame is so rapid that before any heat can be produced the fire is out, the meat remains raw, the man is disappointed, his work is altogether a failure. He shall take them away as with a whirlwind. Cook, fire, pot, meat and all, disappear at once, whirled away to destruction. Both living, and in his wrath. In the very midst of the man's life, and in the fury of his rage against the righteous, the persecutor is overwhelmed with a tornado, his designs are baffled, his contrivances defeated, and himself destroyed. The passage is difficult, but this is probably its meaning, and a very terrible one it is. The malicious wretch puts on his great seething pot, he gathers his fuel, he means to play the cannibal with the godly; but he reckons without his host, or rather without the Lord of hosts, and the unexpected tempest removes all trace of him, and his fire, and his feast, and that in a moment.
 
 ### Verse 10
 
+> The righteous shall rejoice when he seeth the vengeance: he shall wash his feet in the blood of the wicked.
+
 *The righteous shall rejoice when he seeth the vengeance.* He will have no hand in meting out, neither will he rejoice in the spirit of revenge, but his righteous soul shall acquiesce in the judgments of God, and he shall rejoice to see justice triumphant. There is nothing in Scripture of that sympathy with God's enemies which modern traitors are so fond of parading as the finest species of benevolence. We shall at the last say, "Amen, "to the condemnation of the wicked, and feel no disposition to question the ways of God with the impenitent. Remember how John, the loving disciple, puts it. "And after these things I heard a great voice of much people in heaven, saying, Alleluia; Salvation and glory, and honour, and power, unto the Lord our God: for true and righteous are his judgments: for he hath judged the great whore, which did corrupt the earth with her fornication, and hath avenged the blood of his servants at her hand. And again they said, Alleluia. And her smoke rose up for ever and ever." He shall wash his feet in the blood of the wicked. He shall triumph over them, they shall be so utterly vanquished that their overthrow shall be final and fatal, and his deliverance complete and crowning. The damnation of sinners shall not mar the happiness of saints.
 
 ### Verse 11
+
+> So that a man shall say, Verily *there is* a reward for the righteous: verily he is a God that judgeth in the earth.
 
 *So that a man shall say.* Every man however ignorant shall be compelled to say, Verily, in very deed, assuredly, there is a reward for the righteous. If nothing else be true this is. The godly are not after all forsaken and given over to their enemies; the wicked are not to have the best of it, truth and goodness are recompensed in the long run. Verily he is a God that judgeth in the earth. All men shall be forced by the sight of the final judgment to see that there is a God, and that he is the righteous ruler of the universe. Two things will come out clearly after all—there is a God and there is a reward for the righteous. Time will remove doubts, solve difficulties, and reveal secrets; meanwhile faith's foreseeing eye discerns the truth even now, and is glad thereat.
 

@@ -12,57 +12,85 @@ weight: 78
 
 ### Verse 1
 
+> Give ear, O my people, *to* my law: incline your ears to the words of my mouth.
+
 *Give ear, O my people, to my law.* The inspired bard calls on his countrymen to give heed to his patriotic teaching. We naturally expect God's chosen nation to be first in hearkening to his voice. When God gives his truth a tongue, and sends forth his messengers trained to declare his word with power, it is the least we can do to give them our ears and the earnest obedience of our hearts. Shall God speak, and his children refuse to hear? His teaching has the force of law, let us yield both ear and heart to it. Incline your ears to the words of my mouth. Give earnest attention, bow your stiff necks, lean forward to catch every syllable. We are at this day, as readers of the sacred records, bound to study them deeply, exploring their meaning, and labouring to practice their teaching. As the officer of an army commences his drill by calling for "Attention, "even so every trained soldier of Christ is called upon to give ear to his words. Men lend their ears to music, how much more then should they listen to the harmonies of the gospel; they sit enthralled in the presence of an orator, how much rather should they yield to the eloquence of heaven.
 
 ### Verse 2
+
+> I will open my mouth in a parable: I will utter dark sayings of old:
 
 *I will open my mouth in a parable.* Analogies are not only to be imagined, but are intended by God to be traced between the story of Israel and the lives of believers. Israel was ordained to be a type; the tribes and their marchings are living allegories traced by the hand of an all wise providence. Unspiritual persons may sneer about fancies and mysticisms, but Paul spake well when he said "which things are an allegory, "and Asaph in the present case spake to the point when he called his narrative "a parable." That such was his meaning is clear from the quotation, "All these things spake Jesus unto the multitude in parables; and without a parable spake he not unto them: that it might be fulfilled which was spoken by the prophet, saying, I will open my mouth in parables; I will utter things which have been kept secret from the foundation of the world." Mt 13:34-35. I will utter dark sayings of old;—enigmas of antiquity, riddles of yore. The mind of the poet prophet was so full of ancient lore that he poured it forth in a copious stream of song, while beneath the gushing flood lay pearls and gems of spiritual truth, capable of enriching those who could dive into the depths and bring them up. The letter of this song is precious, but the inner sense is beyond all price. Whereas the first verse called for attention, the second justifies the demand by hinting that the outer sense conceals an inner and hidden meaning, which only the thoughtful will be able to perceive.
 
 ### Verse 3
 
+> Which we have heard and known, and our fathers have told us.
+
 *Which we have heard and known, and our fathers have told us.* Tradition was of the utmost service to the people of God in the olden time, before the more sure word of prophecy had become complete and generally accessible. The receipt of truth from the lips of others laid the instructed believer under solemn obligation to pass on the truth to the next generation. Truth, endeared to us by its fond associations with godly parents and venerable friends, deserves of us our best exertions to preserve and propagate it. Our fathers told us, we hear them, and we know personally what they taught; it remains for us in our turn to hand it on. Blessed be God we have now the less mutable testimony of written revelation, but this by no means lessens our obligation to instruct our children in divine truth by word of mouth: rather, with such a gracious help, we ought to teach them far more fully the things of God. Dr. Doddridge owed much to the Dutch tiles and his mother's explanations of the Bible narratives. The more of parental teaching the better; ministers and Sabbath school teachers were never meant to be substitutes for mother's tears and father's prayers.
 
 ### Verse 4
+
+> We will not hide *them* from their children, shewing to the generation to come the praises of the LORD, and his strength, and his wonderful works that he hath done.
 
 *We will not hide them from their children.* Our negligent silence shall not deprive our own and our father's offspring of the precious truth of God, it would be shameful indeed if we did so. Shewing to the generation to come the praises of the Lord. We will look forward to future generations, and endeavour to provide for their godly education. It is the duty of the church of God to maintain, in fullest vigour, every agency intended for the religious education of the young; to them we must look for the church of the future, and as we sow towards them so shall we reap. Children are to be taught to magnify the Lord; they ought to be well informed as to his wonderful doings in ages past, and should be made to know his strength and his wonderful works that he hath done. The best education is education in the best things. The first lesson for a child should be concerning his mother's God. Teach him what you will, if he learn not the fear of the Lord, he will perish for lack of knowledge. Grammar is poor food for the soul if it be not flavoured with grace. Every satchel should have a Bible in it. The world may teach secular knowledge alone, it is all she has a heart to know, but the church must not deal so with her offspring; she should look well to every Timothy, and see to it that from a child he knows the Holy Scriptures. Around the fireside fathers should repeat not only the Bible records, but the deeds of the martyrs and reformers, and moreover the dealings of the Lord with themselves both in providence and grace. We dare not follow the vain and vicious traditions of the apostate church of Rome, neither would we compare the fallible record of the best human memories with the infallible written word, yet would we fain see oral tradition practised by every Christian in his family, and children taught cheerfully by word of mouth by their own mothers and fathers, as well as by the printed pages of what they too often regard as dull, dry task books. What happy hours and pleasant evenings have children had at their parents knees as they have listened to some "sweet story of old." Reader, if you have children, mind you do not fail in this duty.
 
 ### Verse 5
 
+> For he established a testimony in Jacob, and appointed a law in Israel, which he commanded our fathers, that they should make them known to their children:
+
 *For he established a testimony in Jacob.* The favoured nation existed for the very purpose of maintaining God's truth in the midst of surrounding idolatry. Theirs were the oracles, they were the conservators and guardians of the truth. And appointed a law in Israel, which he commanded our fathers, that *they should make them known to their children.* The testimony for the true God was to be transmitted from generation to generation by the careful instruction of succeeding families. We have the command for this oral transmission very frequently given in the Pentateuch, and it may suffice to quote one instance from De 6:7: "And thou shalt teach them diligently unto thy children, and shalt talk of them when thou sittest in thine house, and when thou walkest by the way, and when thou liest down, and when thou risest up." Reader, if you are a parent, have you conscientiously discharged this duty?
 
 ### Verse 6
+
+> That the generation to come might know *them, even* the children *which* should be born; *who* should arise and declare *them* to their children:
 
 *That the generation to come might know them, even the children which should be born.* As far on as our brief life allows us to arrange, we must industriously provide for the godly nurture of youth. The narratives, commands, and doctrines of the word of God are not worn out; they are calculated to exert an influence as long as our race shall exist. Who should arise and declare them to their children. The one object aimed at is transmission; the testimony is only given that it may be passed on to succeeding generations.
 
 ### Verse 7
 
+> That they might set their hope in God, and not forget the works of God, but keep his commandments:
+
 *That they might set their hope in God.* Faith cometh by hearing. Those who know the name of the Lord will set their hope in him, and that they may be led to do so is the main end of all spiritual teaching. And not forget the works of God. Grace cures bad memories; those who soon forget the merciful works of the Lord have need of teaching; they require to learn the divine art of holy memory. But keep his commandments. Those who forget God's works are sure to fail in their own. He who does not keep God's love in memory is not likely to remember his law. The design of teaching is practical; holiness towards God is the end we aim at, and not the filling of the head with speculative notions.
 
 ### Verse 8
+
+> And might not be as their fathers, a stubborn and rebellious generation; a generation *that* set not their heart aright, and whose spirit was not stedfast with God.
 
 *And might not be as their fathers, a stubborn and rebellious generation.* There was room for improvement. Fathers stubborn in their own way, and rebellious against God's way, are sorry examples for their children; and it is earnestly desired that better instruction may bring forth a better race. It is common in some regions for men to count their family custom as the very best rule; but disobedience is not to be excused because it is hereditary. The leprosy was none the less loathsome because it had been long in the family. If our fathers were rebellious we must be better than they were, or else we shall perish as they did. A generation that set not their heart aright. They had no decision for righteousness and truth. In them there was no preparedness, or willingness of heart, to entertain the Saviour; neither judgments, nor mercies could bind their affections to their God; they were fickle as the winds, and changeful as the waves. And whose spirit was not steadfast with God. The tribes in the wilderness were constant only in their inconstancy; there was no depending upon them. It was, indeed, needful that their descendants should be warned, so that they might not blindly imitate them. How blessed it would be if each age improved upon its predecessor; but, alas! it is to be feared that decline is more general than progress, and too often the heirs of true saints are far more rebellious than even their fathers were in their unregeneracy. May the reading of this patriotic and divine song move many to labour after the elevation of themselves and their posterity.
 
 ### Verse 9
 
+> The children of Ephraim, *being* armed, *and* carrying bows, turned back in the day of battle.
+
 *The children of Ephraim, being armed, and carrying bows, turned back in the day of battle.* Well equipped and furnished with the best weapons of the times, the leading tribe failed in faith and courage and retreated before the foe. There were several particular instances of this, but probably the psalmist refers to the general failure of Ephraim to lead the tribes to the conquest of Canaan. How often have we also, although supplied with every gracious weapon, failed to wage successful war against our sins, we have marched onward gallantly enough till the testing hour has come, and then "in the day of battle "we have proved false to good resolutions and holy obligations. How altogether vain is unregenerate man! Array him in the best that nature and grace can supply, he still remains a helpless coward in the holy war, so long as he lacks a loyal faith in his God.
 
 ### Verse 10
+
+> They kept not the covenant of God, and refused to walk in his law;
 
 *They kept not the covenant of God.* Vows and promises were broken, idols were set up, and the living God was forsaken. They were brought out of Egypt in order to be a people separated unto the Lord, but they fell into the sins of other nations, and did not maintain a pure testimony for the one only true God. And refused to walk in his law. They gave way to fornication, and idolatry, and other violations of the decalogue, and were often in a state of rebellion against the benign theocracy under which they lived. They had pledged themselves at Sinai to keep the law, and then they wilfully disobeyed it, and so became covenant breakers.
 
 ### Verse 11
 
+> And forgat his works, and his wonders that he had shewed them.
+
 *And forgat his works, and his wonders that he had shewed them.* Had they remembered them they would have been filled with gratitude and inspired with holy awe: but the memory of God's mercies to them was as soon effaced as if written upon water. Scarcely could one generation retain the sense of the divine presence in miraculous power, the succeeding race needed a renewal of the extraordinary manifestations, and even then was not satisfied without many displays thereof. Ere we condemn them, let us repent of our own wicked forgetfulness, and confess the many occasions upon which we also have been unmindful of past favours.
 
 ### Verse 12
+
+> Marvellous things did he in the sight of their fathers, in the land of Egypt, *in* the field of Zoan.
 
 Egypt, here called *the field of Zoan, * was the scene of marvellous things which were done in open day *in the sight* of Israel. These were extraordinary, upon a vast scale, astounding, indisputable, and such as ought to have rendered it impossible for an Israelite to be disloyal to Jehovah, Israel's God.
 
 ### Verse 13
 
+> He divided the sea, and caused them to pass through; and he made the waters to stand as an heap.
+
 *He divided the sea, and caused them to pass through.* A double wonder, for when the waters were divided the bottom of the sea would naturally be in a very unfit state for the passage of so vast a host as that of Israel; it would in fact have been impassable, had not the Lord made the road for his people. Who else has ever led a nation through a sea? Yet the Lord has done this full often for his saints in providential deliverances, making a highway for them where nothing short of an almighty arm could have done so. And he made the waters to stand as an heap. He forbade a drop to fall upon his chosen, they felt no spray from the crystal walls on either hand. Fire will descend and water stand upright at the bidding of the Lord of all. The nature of creatures is not their own intrinsically, but is retained or altered at the will of him who first created them. The Lord can cause those evils which threaten to overwhelm us to suspend their ordinary actions, and become innocuous to us.
 
 ### Verse 14
+
+> In the daytime also he led them with a cloud, and all the night with a light of fire.
 
 *In the daytime also he led them with a cloud.* HE did it all. *He* alone. He brought them into the wilderness, and he led them through it; it is not the Lord's manner to begin a work, and then cease from it while it is incomplete. The cloud both led and shadowed the tribes. It was by day a vast sun screen, rendering the fierce heat of the sun and the glare of the desert sand bearable. And all the night with a light of fire. So constant was the care of the Great Shepherd that all night and every night the token of his presence was with his people. That cloud which was a shade by day was as a sun by night. Even thus the grace which cools and calms our joys, soothes and solaces our sorrows. What a mercy to have a light of fire with us amid the lonely horrors of the wilderness of affliction. Our God has been all this to us, and shall we prove unfaithful to him? We have felt him to be both shade and light, according as our changing circumstances have required.
 
@@ -78,45 +106,67 @@ May this frequently renewed experience knit our hearts to him in firmest bonds.
 
 ### Verse 15
 
+> He clave the rocks in the wilderness, and gave *them* drink as *out of* the great depths.
+
 *He clave the rocks in the wilderness.* Moses was the instrument, but the Lord did it all. Twice he made the flint a gushing rill. What can he not do? And gave them drink as out of the great depths, —as though it gushed from earth's innermost reservoirs. The streams were so fresh, so copious, so constant, that they seemed to well up from the earth's primeval fountains, and to leap at once from "the deep which coucheth beneath." Here was a divine supply for Israel's urgent need, and such an one as ought to have held them for ever in unwavering fidelity to their wonder working God.
 
 ### Verse 16
+
+> He brought streams also out of the rock, and caused waters to run down like rivers.
 
 The supply of water was as plenteous in quantity as it was miraculous in origin. Torrents, not driblets came from the rocks. Streams followed the camp; the supply was not for an hour or a day. This was a marvel of goodness. If we contemplate the abounding of divine grace we shall be lost in admiration. Mighty rivers of love have flowed for us in the wilderness. Alas, great God! our return has not been commensurate therewith, but far otherwise.
 
 ### Verse 17
 
+> And they sinned yet more against him by provoking the most High in the wilderness.
+
 *And they sinned yet more against him.* Outdoing their former sins, going into greater deeps of evil: the more they had the more loudly they clamoured for more, and murmured because they had not every luxury that pampered appetites could desire. It was bad enough to mistrust their God for necessaries, but to revolt against him in a greedy rage for superfluities was far worse. Ever is it the nature of the disease of sin to proceed from bad to worse; men never weary of sinning, but rather increase their speed in the race of iniquity. In the case before us the goodness of God was abused into a reason for greater sin. Had not the Lord been so good they would not have been so bad. If he had wrought fewer miracles before, they would not have been so inexcusable in their unbelief, so wanton in their idolatry. By provoking the most High in the wilderness. Although they were in a position of obvious dependence upon God for everything, being in a desert where the soil could yield them no support, yet they were graceless enough to provoke their benefactor. At one time they provoked his jealousy by their hankering after false gods, anon they excited his wrath by their challenges of his power, their slanders against his love, their rebellions against his will. He was all bounty of love, and they all superfluity of naughtiness. They were favoured above all nations, and yet none were more ill favoured. For them the heavens dropped manna, and they returned murmurs; the rocks gave them rivers, and they replied with floods of wickedness. Herein, as in a mirror, we see ourselves. Israel in the wilderness acted out, as in a drama, all the story of man's conduct towards his God.
 
 ### Verse 18
+
+> And they tempted God in their heart by asking meat for their lust.
 
 *And they tempted God in their heart.* He was not tempted, for he cannot be tempted by any, but they acted in a manner calculated to tempt him, and it always just to charge that upon men which is the obvious tendency of their conduct. Christ cannot die again, and yet many crucify him afresh, because such would be the legitimate result of their behaviour if its effects were not prevented by other forces. The sinners in the wilderness would have had the Lord change his wise proceedings to humour their whims, hence they are said to tempt him. By asking meat for their lust. Would they have God become purveyor for their greediness? Was there nothing for it but that he must give them whatever their diseased appetites might crave? The sin began in their hearts, but it soon reached their tongues. What they at first silently wished for, they soon loudly demanded with menaces, insinuations, and upbraidings.
 
 ### Verse 19
 
+> Yea, they spake against God; they said, Can God furnish a table in the wilderness?
+
 From this verse we learn that unbelief of God is a slander against him. Yea, they spake against God. But how? The answer is, They said, Can God furnish a table in the wilderness? To question the ability of one who is manifestly Almighty, is to speak against him. These people were base enough to say that although their God had given them bread and water, yet he could not properly order or furnish a table. He could give them coarse food, but could not prepare a feast properly arranged, so they were ungrateful enough to declare. As if the manna was a mere makeshift, and the flowing rock stream a temporary expedient, they ask to have a regularly furnished table, such as they had been accustomed to in Egypt. Alas, how have we also quarrelled with our mercies, and querulously pined for some imaginary good, counting our actual enjoyments to be nothing because they did not happen to be exactly conformed to our foolish fancies. They who will not be content will speak against providence even when it daily loadeth them with benefits.
 
 ### Verse 20
+
+> Behold, he smote the rock, that the waters gushed out, and the streams overflowed; can he give bread also? can he provide flesh for his people?
 
 *Behold, he smote the rock, that the waters gushed out, and the streams overflowed.* They admit what he had done, and yet, with superabundant folly and insolence, demand further proofs of his omnipotence. Can he give bread also? can he provide flesh for his people? As if the manna were nothing, as if animal food alone was true nourishment for men. If they had argued, "can he *not* give flesh?" the argument would have been reasonable, but they ran into insanity; when, having seen many marvels of omnipotence, they dared to insinuate that other things were beyond the divine power. Yet, in this also, we have imitated their senseless conduct. Each new difficulty has excited fresh incredulity. We are still fools and slow of heart to believe our God, and this is a fault to be bemoaned with deepest penitence. For this cause the Lord is often wroth with us and chastens us sorely; for unbelief has in it a degree of provocation of the highest kind.
 
 ### Verse 21
 
+> Therefore the LORD heard *this*, and was wroth: so a fire was kindled against Jacob, and anger also came up against Israel;
+
 *Therefore the Lord heard this, and was wroth.* He was not indifferent to what they said. He dwelt among them in the holy place, and, therefore, they insulted him to his face. He did not hear a report of it, but the language itself came into his ears. So a fire was kindled against Jacob. The fire of his anger which was also attended with literal burnings. And anger also came up against Israel. Whether he viewed them in the lower or higher light, as Jacob or as Israel, he was angry with them: even as mere men they ought to have believed him; and as chosen tribes, their wicked unbelief was without excuse. The Lord doeth well to be angry at so ungrateful, gratuitous and dastardly an insult as the questioning of his power.
 
 ### Verse 22
+
+> Because they believed not in God, and trusted not in his salvation:
 
 *Because they believed not in God, and trusted not in his salvation.* This is the master sin, the crying sin. Like Jeroboam, the son of Nebat, it sins and makes Israel to sin; it is in itself evil and the parent of evils. It was this sin which shut Israel out of Canaan, and it shuts myriads out of heaven. God is ready to save, combining power with willingness, but rebellious man will not trust his Saviour, and therefore is condemned already. In the text it appears as if all Israel's other sins were as nothing compared with this; this is the peculiar spot which the Lord points at, the special provocation which angered him. From this let every unbeliever learn to tremble more at his unbelief than at anything else. If he be no fornicator, or thief, or liar, let him reflect that it is quite enough to condemn him that he trusts not in God's salvation.
 
 ### Verse 23
 
+> Though he had commanded the clouds from above, and opened the doors of heaven,
+
 *Though he had commanded the clouds from above.* Such a marvel ought to have rendered unbelief impossible: when clouds become granaries, seeing should be believing, and doubts should dissolve. And opened the doors of heaven. The great storehouse doors were set wide open, and the corn of heaven poured out in heaps. Those who would not believe in such a case were hardened indeed; and yet our own position is very similar, for the Lord has wrought for us great deliverances, quite as memorable and undeniable, and yet suspicions and forebodings haunt us. He might have shut the gates of hell upon us, instead of which he has opened the doors of heaven; shall we not both believe in him and magnify him for this?
 
 ### Verse 24
 
+> And had rained down manna upon them to eat, and had given them of the corn of heaven.
+
 *And had rained down manna upon them to eat.* There was so much of it, the skies poured with food, the clouds burst with provender. It was fit food, proper not for looking at but for eating; they could eat it as they gathered it. Mysterious though it was, so that they called it manna, or "what is it?" yet it was eminently adapted for human nourishment; and it was both abundant and adapted, so also was it available! They had not far to fetch it, it was nigh them, and they had only to gather it up. O Lord Jesus, thou blessed manna of heaven, how all this agrees with Thee! We will even now feed on Thee as our spiritual meat, and will pray Thee to chase away all wicked unbelief from us. Our fathers ate manna and doubted; we feed upon Thee and are filled with assurance. And had given them of the corn of heaven. It was all a gift without money and without price. Food which dropped from above, and was of the best quality, so as to be called heavenly corn, was freely granted them. The manna was round, like a coriander seed, and hence was rightly called corn; it did not rise from the earth, but descended from the clouds, and hence the words of the verse are literally accurate. The point to be noted is that this wonder of wonders left the beholders, and the feasters, as prone as ever to mistrust their Lord.
 
 ### Verse 25
+
+> Man did eat angels’ food: he sent them meat to the full.
 
 *Man did eat angel's food.* The delicacies of kings were outdone, for the dainties of angels were supplied. Bread of the mighty ones fell on feeble man. Those who are lower than the angels fared as well. It was not for the priests, or the princes, that the manna fell; but for all the nation, for every man, woman, and child in the camp: and there was sufficient for them all, for he sent them meat to the full. God's banquets are never stinted; he gives the best diet, and plenty of it. Gospel provisions deserve every praise that we can heap upon them; they are free, full, and preeminent; they are of God's preparing, sending, and bestowing. He is well fed whom God feeds; heaven's meat is nourishing and plentiful. If we have ever fed upon Jesus we have tasted better than angel's food; for
 
@@ -128,17 +178,25 @@ It will be our wisdom to eat to the full of it, for God has so sent it that we a
 
 ### Verse 26
 
+> He caused an east wind to blow in the heaven: and by his power he brought in the south wind.
+
 *He caused an east wind to blow in the heaven.* He is Lord Paramount, above the prince of the power of the air: storms arise and tempests blow at his command. Winds sleep till God arouses them, and then, like Samuel, each one answers, "Here am I, for thou didst call me." And by his power he brought in the south wind. Either these winds followed each other, and so blew the birds in the desired direction, or else they combined to form a south east wind; in either case they fulfilled the design of the Lord, and illustrated his supreme and universal power. If one wind will not serve, another shall; and if need be, they shall both blow at once. We speak of *fickle* winds, but their obedience to their Lord is such that they deserve a better word. If we ourselves were half as obedient as the winds, we should be far superior to what we are now.
 
 ### Verse 27
+
+> He rained flesh also upon them as dust, and feathered fowls like as the sand of the sea:
 
 *He rained flesh also upon them as dust.* First he rained bread and then flesh, when he might have rained fire and brimstone. The words indicate the speed, and the abundance of the descending quails. And feathered fowls like as the sand of the sea; there was no counting them. By a remarkable providence, if not by miracle, enormous numbers of migratory birds were caused to alight around the tents of the tribes. It was, however, a doubtful blessing, as easily acquired and super abounding riches generally are. The Lord save us from meat which is seasoned with divine wrath.
 
 ### Verse 28
 
+> And he let *it* fall in the midst of their camp, round about their habitations.
+
 *And he let it fall in the midst of their camp.* They had no journey to make; they had clamoured for flesh, and it almost flew into their mouths, round about their habitations. This made them glad for the moment, but they knew not that mercies can be sent in anger, else they had trembled at sight of the good things which they had lusted after.
 
 ### Verse 29
+
+> So they did eat, and were well filled: for he gave them their own desire;
 
 *So they did eat, and were well filled.* They greedily devoured the birds, even to repletion. The Lord shewed them that he could "provide flesh for his people, "even enough and to spare. He also shewed them that when lust wins its desire it is disappointed, and by the way of satiety arrive at distaste. First the food satiates, then it nauseates. For he gave them their own desire. They were filled with their own ways. The flesh meat was unhealthy for them, but as they cried for it they had it, and a curse with it. O my God, deny me my most urgent prayers sooner than answer them in displeasure. Better hunger and thirst after righteousness than to be well filled with sin's dainties.
 
@@ -148,165 +206,247 @@ They were not estranged from their lust. Lust grows upon that which it feeds on.
 
 ### Verse 32
 
+> For all this they sinned still, and believed not for his wondrous works.
+
 *For all this they sinned still.* Judgments moved them no more than mercies. They defied the wrath of God. Though death was in the cup of their iniquity, yet they would not put it away, but continued to quaff it as if it were a healthful potion. How truly might these words be applied to ungodly men who have been often afflicted, laid upon a sick bed, broken in spirit, and impoverished in estate, and yet have persevered in their evil ways, unmoved by terrors, unswayed by threatenings. And believed not for his wondrous works. Their unbelief was chronic and incurable. Miracles both of mercy and judgment were unavailing. They might be made to wonder, but they could not be taught to believe. Continuance in sin and in unbelief go together. Had they believed they would not have sinned, had they not have been blinded by sin they would have believed. There is a reflex action between faith and character. How can the lover of sin believe? How, on the other hand, can the unbeliever cease from sin? God's ways with us in providence are in themselves both convincing and converting, but unrenewed nature refuses to be either convicted or converted by them.
 
 ### Verse 33
+
+> Therefore their days did he consume in vanity, and their years in trouble.
 
 *Therefore their days did he consume in vanity.* Apart from faith life is vanity. To wander up and down in the wilderness was a vain thing indeed, when unbelief had shut them out of the promised land. It was meet that those who would not live to answer the divine purpose by believing and obeying their God should be made to live to no purpose, and to die before their time, unsatisfied, unblessed. Those who wasted their days in sin had little cause to wonder when the Lord cut short their lives, and sware that they should never enter the rest which they had despised. And their years in trouble. Weary marches were their trouble, and to come to no resting place was their vanity. Innumerable graves were left all along the track of Israel, and if any ask, "Who slew all these?" the answer must be, "They could not enter in because of unbelief." Doubtless much of the vexation and failure of many lives results from their being sapped by unbelief, and honeycombed by evil passions. None live so fruitlessly and so wretchedly as those who allow sense and sight to override faith, and their reason and appetite to domineer over their fear of God. Our days go fast enough according to the ordinary lapse of time, but the Lord can make them rust away at a bitterer rate, till we feel as if sorrow actually ate out the heart of our life, and like a canker devoured our existence. Such was the punishment of rebellious Israel, the Lord grant it may not be ours.
 
 ### Verse 34
 
+> When he slew them, then they sought him: and they returned and enquired early after God.
+
 *When he slew them, then they sought him.* Like whipped curs, they licked their Master's feet. They obeyed only so long as they felt the whip about their loins. Hard are the hearts which only death can move. While thousands died around them, the people of Israel became suddenly religious, and repaired to the tabernacle door, like sheep who run in a mass while the black dog drives them, but scatter and wander when the shepherd whistles him off. And they returned and enquired early after God. They could not be too zealous, they were in hot haste to prove their loyalty to their divine King. "The devil was sick and the devil a monk would be." Who would not be pious while the plague is abroad? Doors, which were never so sanctified before, put on the white cross then. Even reprobates send for the minister when they lie a dying. Thus sinners pay involuntary homage to the power of right and the supremacy of God, but their hypocritical homage is of small value in the sight of the Great Judge.
 
 ### Verse 35
+
+> And they remembered that God *was* their rock, and the high God their redeemer.
 
 *And they remember that God was their rock.* Sharp strokes awoke their sleepy memories. Reflection followed infliction. They were led to see that all their dependence must be placed upon their God; for he alone had been their shelter, their foundation, their fountain of supply, and their unchangeable friend. What could have made them forget this? Was it that their stomachs were so full of flesh that thy had no space for ruminating upon spiritual things? And the high God their redeemer. They had forgotten this also. The high hand and outstretched arm which redeemed them out of bondage had both faded from their mental vision. Alas, poor man, how readily dost thou forget thy God! Shame on thee, ungrateful worm, to have no sense of favours a few days after they have been received. Will nothing make thee keep in memory the mercy of thy God except the utter withdrawal of it?
 
 ### Verse 36
 
+> Nevertheless they did flatter him with their mouth, and they lied unto him with their tongues.
+
 Nevertheless they did flatter him with their mouth. Bad were they at their best. False on their knees, liars in their prayers. Mouth worship must be very detestable to God when dissociated from the heart: other kings love flattery, but the King of kings abhors it. Since the sharpest afflictions only extort from carnal men a feigned submission to God, there is proof positive that the heart is desperately set on mischief, and that sin is ingrained in our very nature. If you beat a tiger with many stripes you cannot turn him into a sheep. The devil cannot be whipped out of human nature, though another devil, namely, hypocrisy may be whipped into it. Piety produced by the damps of sorrow and the heats of terror is of mushroom growth; it is rapid in its springing up—"they enquired early after God"—but it is a mere unsubstantial fungus of unabiding excitement. And they lied unto him with their tongues. Their godly speech was cant, their praise mere wind, their prayer a fraud. Their skin deep repentance was a film too thin to conceal the deadly wound of sin. This teaches us to place small reliance upon professions of repentance made by dying men, or upon such even when the basis is evidently slavish fear, and nothing more. Any thief will whine out repentance if he thinks the judge will thereby be moved to let him go scot free.
 
 ### Verse 37
+
+> For their heart was not right with him, neither were they stedfast in his covenant.
 
 *For their heart was not right with him.* There was no depth in their repentance, it was not heart work. They were fickle as a weathercock, every wind turned them, their mind was not settled upon God. Neither were they stedfast in his covenant. Their promises were no sooner made than broken, as if only made in mockery. Good resolutions called at their hearts as men do at inns; they tarried awhile, and then took their leave. They were hot today for holiness, but cold towards it tomorrow. Variable as the hues of the dolphin, they changed from reverence to rebellion, from thankfulness to murmuring. One day they gave their gold to build a tabernacle for Jehovah, and the next they plucked off their earrings to make a golden calf. Surely the heart is a chameleon. Proteus had not so many changes. As in the ague we both burn and freeze, so do inconstant natures in their religion.
 
 ### Verse 38
 
+> But he, *being* full of compassion, forgave *their* iniquity, and destroyed *them* not: yea, many a time turned he his anger away, and did not stir up all his wrath.
+
 *But he, being full of compassion, forgave their iniquity, and destroyed them not.* Though they were full of flattery, he was full of mercy, and for this cause he had pity on them. Not because of their pitiful and hypocritical pretensions to penitence, but because of his own real compassion for them he overlooked their provocations. Yea, many a time turned he his anger away. When he had grown angry with them he withdrew his displeasure. Even unto seventy times seven did he forgive their offences. He was slow, very slow, to anger. The sword was uplifted and flashed in midair, but it was sheathed again, and the nation yet lived. Though not mentioned in the text, we know from the history that a mediator interposed, the man Moses stood in the gap; even so at this hour the Lord Jesus pleads for sinners, and averts the divine wrath. Many a barren tree is left standing because the dresser of the vineyard cries, "let it alone this year also." And did not stir up all his wrath. Had he done so they must have perished in a moment. When his wrath is kindled but a little men are burned up as chaff; but were he to let loose his indignation, the solid earth itself would melt, and hell would engulf every rebel. Who knoweth the power of thine anger, O Lord? We see the fulness of God's compassion, but we never see all his wrath.
 
 ### Verse 39
+
+> For he remembered that they *were but* flesh; a wind that passeth away, and cometh not again.
 
 *For he remembered that they were but flesh.* They were forgetful of God, but he was mindful of them. He knew that they were made of earthy, frail, corruptible material, and therefore he dealt leniently with them. Though in this he saw no excuse for their sin, yet he constrained it into a reason for mercy; the Lord is ever ready to discover some plea or other upon which he may have compassion. A wind that passeth away, and cometh not again. Man is but a breath, gone never to return. Spirit and wind are in this alike, so far as our humanity is concerned; they pass and cannot be recalled. What a nothing is our life. How gracious on the Lord's part to make man's insignificance an argument for staying his wrath.
 
 ### Verse 40
 
+> How oft did they provoke him in the wilderness, *and* grieve him in the desert!
+
 *How oft did they provoke him in the wilderness.* Times enough did they rebel: they were as constant in provocation as he was in his patience. In our own case, who can count his errors? In what book could all our perverse rebellions be recorded? The wilderness was a place of manifest dependence, where the tribes were helpless without divine supplies, yet they wounded the hand which fed them while it was in the act of feeding them. Is there no likeness between us and them? Does it bring no tears into our eyes, while as in a glass, we see our own selves? And grieve him in the desert. Their provocations had an effect; God was not insensible to them, he is said to have been grieved. His holiness could not find pleasure in their sin, his justice in their unjust treatment, or his truth in their falsehood. What must it be to grieve the Lord of love! Yet we also have vexed the Holy Spirit, and he would long ago have withdrawn himself from us, were it not that he is God and not man. We are in the desert where we need our God, let us not make it a wilderness of sin by grieving him.
 
 ### Verse 41
+
+> Yea, they turned back and tempted God, and limited the Holy One of Israel.
 
 Yea, they turned back. Their hearts sighed for Egypt and its fleshpots. They turned to their old ways again and again, after they had been scourged out of them. Full of twists and turns, they never kept the straight path. And tempted God. As far as in them lay they tempted him. His ways were good, and they in desiring to have them altered tempted God. Before they would believe in him they demanded signs, defying the Lord to do this and that, and acting as if he could be cajoled into being the minion of their lusts. What blasphemy was this! Yet let us not tempt Christ lest we also be destroyed by the destroyer. And limited the Holy One of Israel. Doubted his power and so limited him, dictated to his wisdom and so did the same. To chalk out a path for God is arrogant impiety. The Holy One must do right, the covenant God of Israel must be true, it is profanity itself to say unto him thou shalt do this or that, or otherwise I will not worship thee. Not thus is the Eternal God to be led by a string by his impotent creature. He is the Lord and he will do as seemeth him good.
 
 ### Verse 42
 
+> They remembered not his hand, *nor* the day when he delivered them from the enemy.
+
 *They remembered not his hand.* Yet it must have been difficult to forget it. Such displays of divine power as those which smote Egypt with astonishment, it must have needed some more than usual effort to blot it from the tablets of memory. It is probably meant that they practically, rather than actually, forgot. He who forgets the natural returns of gratitude, may justly be charged with not remembering the obligation. Nor the days when he delivered them from the enemy. The day itself was erased from their calendar, so far as any due result from it or return for it. Strange is the faculty of memory in its oblivion as well as its records. Sin perverts man's powers, makes them forceful only in wrong directions, and practically dead for righteous ends.
 
 ### Verse 43
+
+> How he had wrought his signs in Egypt, and his wonders in the field of Zoan:
 
 *How he had wrought his signs in Egypt.* The plagues were ensigns of Jehovah's presence and proofs of his hatred of idols; these instructive acts of power were wrought in the open view of all, as signals are set up to be observed by those far and near. And his wonders in the field of Zoan. In the whole land were miracles wrought, not in cities alone, but in the broad territory, in the most select and ancient regions of the proud nation. This the Israelites ought not to have forgotten, for they were the favoured people for whom these memorable deeds were wrought.
 
 ### Verse 44
 
+> And had turned their rivers into blood; and their floods, that they could not drink.
+
 *And had turned their rivers into blood.* The waters had been made the means of the destruction of Israel's newborn infants, and now they do as it were betray the crime—they blush for it, they avenge it on the murderers. The Nile was the vitality of Egypt, its true life blood, but at God's command it became a flowing curse; every drop of it was a horror, poison to drink, and terror to gaze on. How soon might the Almighty One do this with the Thames or the Seine. Sometimes he has allowed men, who were his rod, to make rivers crimson with gore, and this is a severe judgment; but the event now before us was more mysterious, more general, more complete, and must, therefore, have been a plague of the first magnitude. And their floods, that they could not drink. Lesser streams partook in the curse, reservoirs and canals felt the evil; God does nothing by halves. All Egypt boasted of the sweet waters of their river, but they were made to loathe it more than they had ever loved it. Our mercies may soon become our miseries if the Lord shall deal with us in wrath.
 
 ### Verse 45
+
+> He sent divers sorts of flies among them, which devoured them; and frogs, which destroyed them.
 
 *He sent diverse sorts of flies among them, which devoured them.* Small creatures become great tormentors. When they swarm they can sting a man till they threaten to eat him up. In this case, various orders of insects fought under the same banner; lice and beetles, gnats and hornets, wasps and gadflies dashed forward in fierce battalions, and worried the sinners of Egypt without mercy. The tiniest plagues are the greatest. What sword or spear could fight with these innumerable bands? Vain were the monarch's armour and robes of majesty, the little cannibals were no more lenient towards royal flesh than any other; it had the same blood in it, and the same sin upon it. How great is that God who thus by the minute can crush the magnificent. And frogs, which destroyed them. These creatures swarmed everywhere when they were alive, until the people felt ready to die at the sight; and when the reptiles died, the heaps of their bodies made the land to stink so foully, that a pestilence was imminent. Thus not only did earth and air send forth armies of horrible life, but the water also added its legions of loathsomeness. It seemed as if the Nile was first made nauseous and then caused to leave its bed altogether, crawling and leaping in the form of frogs. Those who contend with the Almighty, little know what arrows are in his quiver; surprising sin shall be visited with surprising punishment.
 
 ### Verse 46
 
+> He gave also their increase unto the caterpiller, and their labour unto the locust.
+
 *He gave also their increase unto the caterpillar, and their labour unto the locust.* Different sorts of devourers ate up every green herb and tree. What one would not eat another did. What they expected from the natural fertility of the soil, and what they looked for from their own toil, they saw devoured before their eyes by an insatiable multitude against whose depredation no defense could be found. Observe in the text that the Lord did it all—"he sent, " "he gave, ""he destroyed, ""he gave up, "etc.; whatever the second agent may be, the direct hand of the Lord is in every national visitation.
 
 ### Verse 47
+
+> He destroyed their vines with hail, and their sycomore trees with frost.
 
 *He destroyed their vines with hail.* No more shall thy butler press the clusters into thy cup, O Pharaoh! The young fruit bearing shoots were broken off, the vintage failed. And their sycomore trees with frost. Frost was not usual, but Jehovah regards no laws of nature when men regard not his moral laws. The sycomore fig was perhaps more the fruit of the many than was the vine, therefore this judgment was meant to smite the poor, while the former fell most heavily upon the rich. Mark how the heavens obey their Lord and yield their stores of hail, and note how the fickle weather is equally subservient to the divine will.
 
 ### Verse 48
 
+> He gave up their cattle also to the hail, and their flocks to hot thunderbolts.
+
 *He gave up their cattle also to the hail.* What hail it must have been to have force enough to batter down bullocks and other great beasts. God usually protects animals from such destruction, but here he withdraws his safeguards and gave them up: may the Lord never give *us* up. Some read, "shut up, "and the idea of being abandoned to destructive influences is then before us in another shape. And their flocks to hot thunderbolts. Fire was mingled with the hail, the fire ran along upon the ground, it smote the smaller cattle. What a storm must that have been: its effects were terrible enough upon plants, but to see the poor dumb creatures stricken must have been heartbreaking. Adamantine was that heart which quailed not under such plagues as these, harder than adamant those hearts which in after years forgot all that the Lord had done, and broke off from their allegiance to him.
 
 ### Verse 49
+
+> He cast upon them the fierceness of his anger, wrath, and indignation, and trouble, by sending evil angels *among them*.
 
 *He cast upon them the fierceness of his anger, wrath, and indignation, and trouble.* His last arrow was the sharpest. He reserved the strong wine of his indignation to the last. Note how the psalmist piles up the words, and well he might; for blow followed blow, each one more staggering than its predecessor, and then the crushing stroke was reserved for the end. By sending evil angels among them. Messengers of evil entered their houses at midnight, and smote the dearest objects of their love. The angels were evil to them, though good enough in themselves; those who to the heirs of salvation are ministers of grace, are to the heirs of wrath executioners of judgment. When God sends angels, they are sure to come, and if he bids them slay they will not spare. See how sin sets all the powers of heaven in array against man; he has no friend left in the universe when God is his enemy.
 
 ### Verse 50
 
+> He made a way to his anger; he spared not their soul from death, but gave their life over to the pestilence;
+
 *He made a way to his anger, * coming to the point with them by slow degrees; assailing their outworks first by destroying their property, and then coming in upon their persons as through an open breach in the walls. He broke down all the comforts of their life, and then advanced against their life itself. Nothing could stand in his way; he cleared a space in which to do execution upon his adversaries. He spared not their soul from death, but gave their life over to the *pestilence.* In their soul was the origin of the sin, and he followed it to its source and smote it there. A fierce disease filled the land with countless funerals; Jehovah dealt out myriads of blows, and multitudes of spirits failed before him.
 
 ### Verse 51
+
+> And smote all the firstborn in Egypt; the chief of *their* strength in the tabernacles of Ham:
 
 *And smote all the firstborn in Egypt.* No exceptions were made, the monarch bewailed his heir as did the menial at the mill. They smote the Lord's firstborn, even Israel, and he smites theirs. The chief of their strength in the tabernacles of Ham. Swinging his scythe over the field, death topped off the highest flowers. The tents of Ham knew each one its own peculiar sorrow, and were made to sympathise with the sorrows which had been ruthlessly inflicted upon the habitations of Israel. Thus curses come home to roost. Oppressors are repaid in their own coin, without the discount of a penny.
 
 ### Verse 52
 
+> But made his own people to go forth like sheep, and guided them in the wilderness like a flock.
+
 *But made his own people to go forth like sheep.* The contrast is striking, and ought never to have been forgotten by the people. The wolves were slain in heaps, the sheep were carefully gathered, and triumphantly delivered. The tables were turned, and the poor serfs became the honoured people, while their oppressors were humbled before them. Israel went out in a compact body like a flock; they were defenceless in themselves as sheep, but they were safe under their Great Shepherd; they left Egypt as easily as a flock leaves one pasture for another. And guided them in the wilderness like a flock. Knowing nothing of the way by their own understanding or experience, they were, nevertheless, rightly directed, for the All wise God knew every spot of the wilderness. To the sea, through the sea, and from the sea, the Lord led his chosen; while their former taskmasters were too cowed in spirit, and broken in power, to dare to molest them.
 
 ### Verse 53
+
+> And he led them on safely, so that they feared not: but the sea overwhelmed their enemies.
 
 *And he led them on safely, so that they feared not.* After the first little alarm, natural enough when they found themselves pursued by their old taskmasters, they plucked up courage and ventured forth boldly into the sea, and afterwards into the desert where no man dwelt. But the sea overwhelmed their enemies. They were gone, gone for ever, never to disturb the fugitives again. That tremendous blow effectually defended the tribes for forty years from any further attempt to drive them back. Egypt found the stone too heavy and was glad to let it alone. Let the Lord be praised who thus effectually freed his elect nation. What a grand narrative have we been considering. Well might the mightiest master of sacred song select "Israel in Egypt" as a choice theme for his genius; and well may every believing mind linger over every item of the amazing transaction. The marvel is that the favoured nation should live as if unmindful of it all, and yet such is human nature. Alas, poor man! Rather, alas, base heart! We now, after a pause, follow again the chain of events, the narration of which had been interrupted by a retrospect, and we find Israel entering into the promised land, there to repeat her follies and enlarge her crimes.
 
 ### Verse 54
 
+> And he brought them to the border of his sanctuary, *even to* this mountain, *which* his right hand had purchased.
+
 *And he brought them to the border of his sanctuary.* He conducted them to the frontier of the Holy Land, where he intended the tabernacle to become the permanent symbol of his abode among his people. He did not leave them halfway upon their journey to their heritage; his power and wisdom preserved the nation till the palm trees of Jericho were within sight on the other side of the river. Even to this mountain, which his right hand had purchased. Nor did he leave them then, but still conducted them till they were in the region round about Zion, which was to be the central seat of his worship. This the Lord had purchased in type of old by the sacrifice of Isaac, fit symbol of the greater sacrifice which was in due season to be presented there: that mountain was also redeemed by power, when the Lord's right hand enabled his valiant men to smite the Jebusites, and take the sacred hill from the insulting Canaanite. Thus shall the elect of God enjoy the sure protection of the Lord of hosts, even to the border land of death, and through the river, up to the hill of the Lord in glory. The purchased people shall safely reach the purchased inheritance.
 
 ### Verse 55
+
+> He cast out the heathen also before them, and divided them an inheritance by line, and made the tribes of Israel to dwell in their tents.
 
 *He cast out the heathen also before them, * or "he drove out the nations." Not only were armies routed, but whole peoples displaced. The iniquity of the Canaanites was full; their vices made them rot above ground; therefore, the land ate up its inhabitants, the hornets vexed them, the pestilence destroyed them, and the sword of the tribes completed the execution to which the justice of long provoked heaven had at length appointed them. The Lord was the true conqueror of Canaan; he cast out the nations as men cast out filth from their habitations, he uprooted them as noxious weeds are extirpated by the husbandman. And divided them an inheritance by line. He divided the land of the nations among the tribes by lot and measure, assigning Hivite, Perizzite, and Jebusite territory to Simeon, Judah, or Ephraim, as the case might be. Among those condemned nations were not only giants in stature, but also giants in crime: those monsters of iniquity had too long defiled the earth; it was time that they should no more indulge the unnatural crimes for which they were infamous; they were, therefore, doomed to forfeit life and lands by the hands of the tribes of Israel. The distribution of the forfeited country was made by divine appointment; it was no scramble, but a judicial appointment of lands which had fallen to the crown by the attainder of the former holders. And made the tribes of Israel to dwell in their tents. The favoured people entered upon a furnished house: they found the larder supplied, for they fed upon the old corn of the land, and the dwellings were already builded in which they could dwell. Thus does another race often enter into the lot of a former people, and it is sad indeed when the change which judgment decrees does not turn out to be much for the better, because the incomers inherit the evils as well as the goods of the ejected. Such a case of judicial visitation ought to have had a salutary influence upon the tribes; but, alas, they were incorrigible, and would not learn even from examples so near at home and so terribly suggestive.
 
 ### Verse 56
 
+> Yet they tempted and provoked the most high God, and kept not his testimonies:
+
 *Yet they tempted and provoked the most high God.* Change of condition had not altered their manners. They left their nomadic habits, but not their tendencies to wander from their God. Though every divine promise had been fulfilled to the letter, and the land flowing with milk and honey was actually their own, yet they tried the Lord again with unbelief, and provoked him with other sins. He is not only high and glorious, but most High, yea, *the* most High, the only being who deserves to be so highly had in honour; yet, instead of honouring him, Israel grieved him with rebellion. And kept not his testimonies. They were true to nothing but hereditary treachery; steadfast in nothing but in falsehood. They knew his truth and forgot it, his will and disobeyed it, his grace and perverted it to an occasion for greater transgression. Reader, dost thou need a looking glass? See here is one which suits the present expositor well; does it not also reflect thine image?
 
 ### Verse 57
+
+> But turned back, and dealt unfaithfully like their fathers: they were turned aside like a deceitful bow.
 
 *But turned back.* Turned over the old leaf, repeated the same offences, started aside like an ill made bow, were false and faithless to their best promises. And dealt unfaithfully like their fathers, proving themselves legitimate by manifesting the treachery of their sires. They were a new generation, but not a new nation—another race yet not another. Evil propensities are transmitted; the birth follows the progenitor; the wild ass breeds wild asses; the children of the raven fly to the carrion. Human nature does not improve, the new editions contain all the errata of the first, and sometimes fresh errors are imported. They were turned aside like a deceitful bow, which not only fails to send the arrow towards the mark in a direct line, but springs back to the archer's hurt, and perhaps sends the shaft among his friends to their serious jeopardy. Israel boasted of the bow as the national weapon, they sang the song of the bow, and hence a deceitful bow is made to be the type and symbol of their own unsteadfastness; God can make men's glory the very ensign of their shame, he draws a bar sinister across the escutcheon of traitors.
 
 ### Verse 58
 
+> For they provoked him to anger with their high places, and moved him to jealousy with their graven images.
+
 *For they provoked him to anger with their high places.* This was their first error—will worship, or the worship of God, otherwise than according to his command. Many think lightly of this, but it was no mean sin; and its tendencies to further offence are very powerful. The Lord would have his holy place remain as the only spot for sacrifice; and Israel, in wilful rebellion, (no doubt glossed over by the plea of great devotion, )determined to have many altars upon many hills. If they might have but one God, they insisted upon it that they would not be restricted to one sacred place of sacrifice. How much of the worship of the present day is neither more nor less than sheer will worship! Nobody dare plead a divine appointment for a tithe of the offices, festivals, ceremonies, and observances of certain churches. Doubtless God, so far from being honoured by worship which he has not commanded, is greatly angered at it. And moved him to jealousy with their graven images. This was but one more step; they manufactured symbols of the invisible God, for they lusted after something tangible and visible to which they could shew reverence. This also is the crying sin of modern times. Do we not hear and see superstition abounding? Images, pictures, crucifixes, and a host of visible things are had in religious honour, and worst of all men now a days worship what they eat, and call that a God which passes into their belly, and thence into baser places still. Surely the Lord is very patient, or he would visit the earth for this worst and basest of idolatry. He is a jealous God, and abhors to see himself dishonoured by any form of representation which can come from man's hands.
 
 ### Verse 59
+
+> When God heard *this*, he was wroth, and greatly abhorred Israel:
 
 *When God heard this, he was wroth.* The mere report of it filled him with indignation; he could not bear it, he was incensed to the uttermost, and most justly so. And greatly abhorred Israel. He cast his idolatrous people from his favour, and left them to themselves, and their own devices. How could he have fellowship with idols? What concord hath Christ with Belial? Sin is in itself so offensive that it makes the sinner offensive too. Idols of any sort are highly abhorrent to God, and we must see to it that we keep ourselves from them through divine grace, for rest assured idolatry is not consistent with true grace in the heart. If Dagon sit aloft in any soul, the ark of God is not there. Where the Lord dwells no image of jealousy will be tolerated. A visible church will soon become a visible curse if idols be set up in it, and then the pruning knife will remove it as a dead branch from the vine. Note that God did not utterly cast away his people Israel even when he greatly abhorred them, for he returned in mercy to them, so the subsequent verses tell us: so now the seed of Abraham, though for awhile under a heavy cloud, will be gathered yet again, for the covenant of salt shall not be broken. As for the spiritual seed, the Lord hath not despised nor abhorred them; they are his peculiar treasure and lie for ever near his heart.
 
 ### Verse 60
 
+> So that he forsook the tabernacle of Shiloh, the tent *which* he placed among men;
+
 *So that he forsook the tabernacle of Shiloh, the tent which he placed among men.* His glory would no more reveal itself there, he left Shiloh to become a complete ruin. At the door of that tent shameless sin had been perpetrated, and all around it idols had been adored, and therefore the glory departed and Ichabod was sounded as a word of dread concerning Shiloh and the tribe of Ephraim. Thus may the candlestick be removed though the candle is not quenched. Erring churches become apostate, but a true church still remains; if Shiloh be profaned Zion is consecrated. Yet is it ever a solemn caution to all the assemblies of the saints, admonishing them to walk humbly with their God, when we read such words as those of the prophet Jeremiah in is seventh chapter, "Trust ye not in lying words, saying, The temple of the Lord, The temple of the Lord, The temple of the Lord, are these. Go ye now unto my place which was in Shiloh, where I set my name at the first, and see what I did to it for the wickedness of my people Israel." Let us take heed, lest as the ark never returned to Shiloh after its capture by the Philistines, so the gospel may be taken from us in judgment, never to be restored to the same church again.
 
 ### Verse 61
+
+> And delivered his strength into captivity, and his glory into the enemy’s hand.
 
 *And delivered his strength into captivity.* The ark was captured by the Philistines in battle, only because the Lord for the punishment of Israel chose to deliver it into their hands, otherwise they could have had no power at all against it. The token of the divine presence is here poetically called "his strength; ", and, indeed, the presence of the Lord is his strength among his people. It was a black day when the mercyseat was removed, when the cherubim took flight, and Israel's palladium was carried away. And his glory into the enemy's hand. The ark was the place for the revealed glory of God, and his enemies exulted greatly when they bore it away into their own cities. Nothing could more clearly have shown the divine displeasure. It seemed to say that Jehovah would sooner dwell among his avowed adversaries than among so false a people as Israel; he would sooner bear the insults of Philistia than the treacheries of Ephraim. This was a fearful downfall for the favoured nation, and it was followed by dire judgments of most appalling nature. When God is gone all is gone. No calamity can equal the withdrawal of the divine presence from a people. O Israel, how art thou brought low! Who shall help thee now that thy God has left thee!
 
 ### Verse 62
 
+> He gave his people over also unto the sword; and was wroth with his inheritance.
+
 *He gave his people over also unto the sword.* They fell in battle because they were no longer aided by the divine strength. Sharp was the sword, but sharper still the cause of its being unsheathed. And was wroth with his inheritance. They were *his* still, and twice in this verse they are called so; yet his regard for them did not prevent his chastening them, even with a rod of steel. Where the love is most fervent, the jealousy is most cruel. Sin cannot be tolerated in those who are a people near unto God.
 
 ### Verse 63
+
+> The fire consumed their young men; and their maidens were not given to marriage.
 
 *The fire consumed their young men.* As fire slew Nadab and Abihu literally, so the fire of divine wrath fell on the sons of Eli, who defiled the sanctuary of the Lord, and the like fire, in the form of war, consumed the flower of the people. And their maidens were not given to marriage. No nuptial hymn were sung, the bride lacked her bridegroom, the edge of the sword had cut the bands of their espousals, and left unmarried those who else had been extolled in hymns and congratulations. Thus Israel was brought very low, she could not find husbands for her maids, and therefore her state was not replenished; no young children clustered around parental knees. The nation had failed in its solemn task of instructing the young in the fear of Jehovah, and it was a fitting judgment that the very production of a posterity should be endangered.
 
 ### Verse 64
 
+> Their priests fell by the sword; and their widows made no lamentation.
+
 *Their priests fell by the sword.* Hophni and Phineas were slain; they were among the chief in sin, and, therefore, they perished with the rest. Priesthood is no shelter for transgressors; the jewelled breastplate cannot turn aside the arrows of judgment. And their widows made no lamentation. Their private griefs were swallowed up in the greater national agony, because the ark of God was taken. As the maidens had no heart for the marriage song, so the widows had no spirit, even to utter the funeral wail. The dead were buried too often and too hurriedly to allow of the usual rites of lamentation. This was the lowest depth; from this point things will take a gracious turn.
 
 ### Verse 65
+
+> Then the Lord awaked as one out of sleep, *and* like a mighty man that shouteth by reason of wine.
 
 *The Lord awaked as one out of sleep.* Justly inactive, he had suffered the enemy to triumph, his ark to be captured, and his people to be slain; but now he arouses himself, his heart is full of pity for his chosen, and anger against the insulting foe. Woe to thee, O Philistia, now thou shalt feel the weight of his right hand! Waking and putting forth strength like a man who has taken a refreshing draught, the Lord is said to be, like a mighty man that shouteth by reason of wine. Strong and full of energy the Lord dashed upon his foes, and made them stagger beneath his blows. His ark from city to city went as an avenger rather than as a trophy, and in every place the false gods fell helplessly before it.
 
 ### Verse 66
 
+> And he smote his enemies in the hinder parts: he put them to a perpetual reproach.
+
 *He smote his enemies in the hinder parts.* The emerods rendered them ridiculous, and their numerous defeats made them yet more so. They fled but were overtaken and wounded in the back to their eternal disgrace. He put them to a perpetual reproach. Orientals are not very refined, and we can well believe that the haemorrhoids were the subject of many a taunt against the Philistines, as also were their frequent defeats by Israel until at last they were crushed under, never to exist again as a distinct nation.
 
 ### Verse 67
+
+> Moreover he refused the tabernacle of Joseph, and chose not the tribe of Ephraim:
 
 *Moreover he refused the tabernacle of Joseph.* God had honoured Ephraim, for to that tribe belonged Joshua the great conqueror, and Gideon the great judge, and within its borders was Shiloh the place of the ark and the sanctuary; but now the Lord would change all this and set up other rulers. He would no longer leave matters to the leadership of Ephraim, since that tribe had been tried and found wanting. And chose not the tribe of Ephraim. Sin had been found in them, folly and instability, and therefore they were set aside as unfit to lead.
 
 ### Verse 68
 
+> But chose the tribe of Judah, the mount Zion which he loved.
+
 *But chose the tribe of Judah.* To give the nation another trial this tribe was elected to supremacy. This was according to Jacob's dying prophecy. Our Lord sprang out of Judah, and he it is whom his brethren shall praise. The Mount Zion which he loved. The tabernacle and ark were removed to Zion during the reign of David; no honour was left to the wayward Ephraimites. Hard by this mountain the Father of the Faithful had offered up his only son, and there in future days the great gatherings of his chosen seed would be, and therefore Zion is said to be lovely unto God.
 
 ### Verse 69
+
+> And he built his sanctuary like high *palaces*, like the earth which he hath established for ever.
 
 *And he built his sanctuary like high palaces.* The tabernacle was placed on high, literally and spiritually it was a mountain of beauty. True religion was exalted in the land. For sanctity it was a temple, for majesty it was a palace. Like the earth which he hath established for ever. Stability was well as stateliness were seen in the temple, and so also in the church of God. The prophets saw both in vision.
 
 ### Verse 70
 
+> He chose David also his servant, and took him from the sheepfolds:
+
 *He chose David also his servant.* It was an election of a sovereignly gracious kind, and it operated practically by making the chosen man a willing servant of the Lord. He was not chosen because he was a servant, but in order that he might be so. David always esteemed it to be a high honour that he was both elect of God, and a servant of God. And took him from the sheepfolds. A shepherd of sheep he had been, and this was a fit school for a shepherd of men. Lowliness of occupation will debar no man from such honours as the Lord's election confers, the Lord seeth not as man seeth. He delights to bless those who are of low estate.
 
 ### Verse 71
 
+> From following the ewes great with young he brought him to feed Jacob his people, and Israel his inheritance.
+
 *From following the ewes great with young he brought him to feed Jacob his people, and Israel his inheritance.* Exercising the care and art of those who watch for the young lambs, David followed the ewes in their wanderings; the tenderness and patience thus acquired would tend to the development of characteristics most becoming in a king. To the man thus prepared, the office and dignity which God had appointed for him, came in due season, and he was enabled worthily to wear them. It is wonderful how often divine wisdom so arranges the early and obscure portion of a choice life, so as to make it a preparatory school for a more active and noble future.
 
 ### Verse 72
+
+> So he fed them according to the integrity of his heart; and guided them by the skilfulness of his hands.
 
 *So he fed them according to the integrity of his heart.* David was upright before God, and never swerved in heart from the obedient worship of Jehovah. Whatever faults he had, he was unfeignedly sincere in his allegiance to Israel's superior king; he shepherded for God with honest heart. And guided them by the skilfulness of his hands. He was a sagacious ruler, and the psalmist magnifies the Lord for having appointed him. Under David, the Jewish kingdom rose to an honourable position among the nations, and exercised an influence over its neighbours. In closing the Psalm which has described the varying conditions of the chosen nation, we are glad to end so peacefully; with all noise of tumult or of sinful rites hushed into silence. After a long voyage over a stormy sea, the ark of the Jewish state rested on its Ararat, beneath a wise and gentle reign, to be wafted no more hither and thither by floods and gales. The psalmist had all along intended to make this his last stanza, and we too may be content to finish all our songs of love with the reign of the Lord's anointed. Only we may eagerly enquire, when will it come? When shall we end these desert roamings, these rebellions, and chastenings, and enter into the rest of a settled kingdom, with the Lord Jesus reigning as "the Prince of the house of David?" Thus have we ended this lengthy parable, may we in our life parable have less of sin, and as much of grace as are displayed in Israel's history, and may we close it under the safe guidance of "that great Shepherd of the sheep." AMEN.
 

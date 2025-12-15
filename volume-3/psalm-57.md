@@ -12,29 +12,43 @@ weight: 57
 
 ### Verse 1
 
+> Be merciful unto me, O God, be merciful unto me: for my soul trusteth in thee: yea, in the shadow of thy wings will I make my refuge, until *these* calamities be overpast.
+
 *Be merciful unto me, O God, be merciful unto me.* Urgent need suggests the repetition of the cry, for thus intense urgency of desire is expressed. If `he gives twice who gives quickly, 'so he who would receive quickly must ask twice. For mercy the psalmist pleads at first, and he feels he cannot improve upon his plea, and therefore returns to it. God is the God of mercy, and the Father of mercies, it is most fit therefore that in distress he should seek mercy from him in whom it dwells. For my soul trusteth in thee. Faith urges her suit right well. How can the Lord be unmerciful to a trustful soul? Our faith does not deserve mercy, but it always wins it from the sovereign grace of God when it is sincere, as in this case where *the soul* of the man believed. "With the heart man believeth unto righteousness." Yea, in the shadow of thy wings will I make my refuge. Not in the cave alone would he hide, but in the cleft of the Rock of ages. As the little birds find ample shelter beneath the parental wing, even so would the fugitive place himself beneath the secure protection of the divine power. The emblem is delightfully familiar and suggestive. May we all experimentally know its meaning. When we cannot see the sunshine of God's face, it is blessed to cower down beneath the shadow of his wings. Until these calamities be overpast. Evil will pass away, and the eternal wings will abide over us till then. Blessed be God, our calamities are matters of time, but our safety is a matter of eternity. When we are under the divine shadow, the passing over of trouble cannot harm us; the hawk flies across the sky, but this is no evil to the chicks when they are safely nestling beneath the hen.
 
 ### Verse 2
+
+> I will cry unto God most high; unto God that performeth *all things* for me.
 
 *I will cry.* He is quite safe, but yet he prays, for faith is never dumb. We pray because we believe. We exercise by faith the spirit of adoption whereby we cry. He says not I do cry, or I have cried, but I will cry, and indeed, this resolution may stand with all of us until we pass through the gates of pearl; for while we are here below we shall still have need to cry. Unto God most high.—Prayers are for God only; the greatness and sublimity of his person and character suggest and encourage prayer; however high our enemies, our heavenly Friend is higher, for he is *Most high, * and he can readily send from the height of his power the succour which we need. Unto God that performeth all things for me. He has cogent reason for praying, for he sees God performing. The believer waits and God works. The Lord has undertaken for us, and he will not draw back, he will go through with his covenant engagements. Our translators have very properly inserted the words, "all things, "for there is a blank in the Hebrew, as if it were a *carte blanche, * and you might write therein that the Lord would finish anything and everything which he has begun. Whatsoever the Lord takes in hand he will accomplish; hence past mercies are guarantees for the future, and admirable reasons for continuing to cry unto him.
 
 ### Verse 3
 
+> He shall send from heaven, and save me *from* the reproach of him that would swallow me up. Selah. God shall send forth his mercy and his truth.
+
 *He shall send from heaven.* If there be no fit instruments on earth, heaven shall yield up its legions of angels for the succour of the saints. We may in times of great straits expect mercies of a remarkable kind; like the Israelites in the wilderness, we shall have our bread hot from heaven, new every morning; and for the overthrow of our enemies God shall open his celestial batteries, and put them to utter confusion. Wherever the battle is more fierce than ordinary, there shall come succours from headquarters, for the Commander in chief sees all. And save me from the reproach of him that would swallow me up. He will be in time, not only to rescue his servants from being swallowed up, but even from being reproached. Not only shall they escape the flames, but not even the smell of fire shall pass upon them. O dog of hell, I am not only delivered from thy bite, but even from thy bark. Our foes shall not have the power to sneer at us, their cruel jests and taunting gibes shall be ended by the message from heaven, which shall for ever save us. Selah. Such mercy may well make us pause to meditate and give thanks. Rest, singer, for God has given thee rest! God shall send forth his mercy and his truth. He asked for mercy, and truth came with it. Thus evermore doth God give us more than we ask or think. His attributes, like angels on the wing, are ever ready to come to the rescue of his chosen.
 
 ### Verse 4
+
+> My soul *is* among lions: *and* I lie *even among* them that are set on fire, *even* the sons of men, whose teeth *are* spears and arrows, and their tongue a sharp sword.
 
 *My soul is among lions.* He was a very Daniel. Howled at, hunted, wounded, but not slain. His place was in itself one of extreme peril, and yet faith made him feel himself secure, so that he could lie down. The cave may have reminded him of a lion's den, and Saul and his band shouting and yelling in their disappointment at missing him, were the lions; yet beneath the divine shelter he finds himself safe. And I lie even among them that are set on fire. Perhaps Saul and his band kindled a fire in the cavern while they halted in it, and David was thus reminded of the fiercer fire of their hate which burned within their hearts. Like the bush in Horeb, the believer is often in the midst of flames, but never consumed. It is a mighty triumph of faith when we can lie down even among firebrands and find rest, because God is our defence. Even the sons of men, whose teeth are spears and arrows, and their *tongue a sharp sword.* Malicious men carry a whole armoury in their mouths; they have not harmless mouths, whose teeth grind their own food as in a mill, but their jaws are as mischievous as if every tooth were a javelin or an arrow. They have no molars, all their teeth are canines, and their nature is canine, leonine, wolfish, devilish. As for that busy member the tongue, in the case of the malicious, it is a two edged, keen, cutting, killing sword. The tongue, which is here compared to a sword, has the adjective *sharp* added to it, which is not used in reference to the teeth, which are compared to spears, as if to show that if men were actually to tear us with their teeth, like wild beasts, they could not thereby wound us so severely as they can do with their tongues. No weapon is so terrible as a tongue sharpened on the devil's grindstone; yet even this we need not fear, for "No weapon that is formed against thee shall prosper, and every tongue that riseth against thee in judgment thou shalt condemn."
 
 ### Verse 5
 
+> Be thou exalted, O God, above the heavens; *let* thy glory *be* above all the earth.
+
 *Be thou exalted, O God, above the heavens.* This is the chorus of the Psalm. Before he has quite concluded his prayer the good man interjects a verse of praise; and glorious praise too, seeing it comes from the lion's den and from amid the coals of fire. Higher than the heavens is the Most High, and so high ought our praises to rise. Above even the power of cherubim and seraphim to express it, the glory of God is revealed and is to be acknowledged by us. Let thy glory be above all the earth. As above, so below, let thy praises, O thou great Jehovah, be universally proclaimed. As the air surrounds all nature, so let thy praises gird the earth with a zone of song.
 
 ### Verse 6
 
+> They have prepared a net for my steps; my soul is bowed down: they have digged a pit before me, into the midst whereof they are fallen *themselves*. Selah.
+
 *They have prepared a net for my steps.* The enemies of the godly spare no pains, but go about their wicked work with the coolest deliberation. As for each sort of fish, or bird, or beast, a fitting net is needed, so do the ungodly suit their net to their victim's circumstances and character with a careful craftiness of malice. Whatever David might do, and whichever way he might turn, his enemies were ready to entrap him in some way or other. My soul is bowed down. He was held down like a bird in a trap; his enemies took care to leave him no chance of comfort. They have digged a pit before me, into the midst whereof they are *fallen themselves.* He likens the design of his persecutors to pits, which were commonly dug by hunters to entrap their prey; these were made in the usual path of the victim, and in this case David says, *before me, i.e., * in my ordinary way. He rejoices because these devices had recoiled upon themselves. Saul hunted David, but David caught him more than once and might have slain him on the spot. Evil is a stream which one day flows back to its source. Selah. We may sit down at the pit's mouth and view with wonder the just retaliations of providence.
 
 ### Verse 7
+
+> My heart is fixed, O God, my heart is fixed: I will sing and give praise.
 
 *My heart is fixed.* One would have thought he would have said, "My heart is fluttered; "but no, he is calm, firm, happy, resolute, established. When the central axle is secure, the whole wheel is right. If our great bower anchor holds, the ship cannot drive. O God, my heart is fixed. I am resolved to trust thee, to serve thee, and to praise thee. Twice does he declare this to the glory of God who thus comforts the souls of his servants. Reader, it is surely well with thee, if thy once roving heart is now firmly fixed upon God and the proclamation of his glory. I will sing and give praise. Vocally and instrumentally will I celebrate thy worship. With lip and with heart will I ascribe honour to thee. Satan shall not stop me, nor Saul, nor the Philistines, I will make Adullam ring with music, and all the caverns thereof echo with joyous song. Believer, make a firm decree that your soul in all seasons shall magnify the Lord.
 
@@ -48,17 +62,25 @@ For a saint to hold his tongue."
 
 ### Verse 8
 
+> Awake up, my glory; awake, psaltery and harp: I *myself* will awake early.
+
 *Awake up, my glory.* Let the noblest powers of my nature bestir themselves: the intellect which conceives thought, the tongue which expresses it, and the inspired imagination which beautifies it—let all be on the alert now that the hour for praise has come. Awake, psaltery and harp. Let all the music with which I am familiar be well attuned for the hallowed service of praise. I myself will awake early. I will awake the dawn with my joyous notes. No sleepy verses and weary notes shall be heard from me; I will thoroughly arouse myself for this high employ. When we are at our best we fall short of the Lord's deserts, let us, therefore, make sure that what we bring him is our best, and, if marred with infirmity, at least let it not be deteriorated by indolence. Three times the psalmist calls upon himself to awake. Do we need so much arousing, and for such work? Then let us not spare it, for the engagement is too honourable, too needful to be left undone or ill done for want of arousing ourselves.
 
 ### Verse 9
+
+> I will praise thee, O Lord, among the people: I will sing unto thee among the nations.
 
 *I will praise thee, O Lord, among the people.* Gentiles shall hear my praise. Here is an instance of the way in which the truly devout evangelic spirit overleaps the boundaries which bigotry sets up. The ordinary Jew would never wish the Gentile dogs to hear Jehovah's name, except to tremble at it; but this grace taught psalmist has a missionary spirit, and would spread the praise and fame of his God. I will sing unto thee among the nations. However far off they may be, I would make them hear of thee through my glad psalmody.
 
 ### Verse 10
 
+> For thy mercy *is* great unto the heavens, and thy truth unto the clouds.
+
 *For thy mercy is great unto the heavens.* Right up from man's lowliness to heaven's loftiness mercy reaches. Imagination fails to guess the height of heaven, and even thus the riches of mercy exceed our highest thoughts. The psalmist, as he sits at the cave's mouth and looks up to the firmament, rejoices that God's goodness is more vast and more sublime than even the vaulted skies. And thy truth unto the clouds. Upon the cloud he sets the seal of his truth, the rainbow, which ratifies his covenant; in the cloud he hides his rain and snow, which prove his truth by bringing to us seedtime and harvest, cold and heat. Creation is great, but the Creator greater far. Heaven cannot contain him; above clouds and stars his goodness far exceeds.
 
 ### Verse 11
+
+> Be thou exalted, O God, above the heavens: *let* thy glory *be* above all the earth.
 
 *Be thou exalted, O God, above the heavens.* A grand chorus. Take it up, ye angels and ye spirits made perfect, and join in it, ye sons of men below, as ye say, Let thy glory be above all the earth. The prophet in the previous verse spoke of mercy "unto the heavens, "but here his song flies "above the heavens; "praise rises higher, and knows no bound
 

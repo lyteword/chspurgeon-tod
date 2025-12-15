@@ -12,37 +12,55 @@ weight: 56
 
 ### Verse 1
 
+> Be merciful unto me, O God: for man would swallow me up; he fighting daily oppresseth me.
+
 *Be merciful unto me, O God.* In my deep distress my soul turns to thee, my God. Man has no mercy on me, therefore double thy mercy to me. If thy justice has let loose my enemies, let thy mercy shorten their chain. It is sweet to see how the tender dove like spirit of the psalmist flies to the most tender attribute for succour in the hour of peril. For man would swallow me up. He is but thy creature, a mere man, yet like a monster he is eager for blood, he pants, he gapes for me; he would not merely wound me, or feed on my substance, but he would fain swallow me altogether, and so make an end of me. The open mouths of sinners when they rage against us should open our mouths in prayer. We may plead the cruelty of men as a reason for the divine interposition—a father is soon aroused when his children are shamefully entreated. He fighting daily oppresseth me. He gives me no interval—he fights daily. He is successful in his unrighteous war—he oppresses me, he crushes me, he presses me sore. David has his eye on the leader of his foes, and lays his complaint against him in the right place. If we may thus plead against man, much more against that great enemy of souls, the devil. We ask the Lord to forgive us our trespasses, which is another way of saying, "Be merciful to me, O God, "and then we may say, "Lead us not into temptation, but deliver us from the evil one." The more violent the attack of Satan the stronger our plea for deliverance.
 
 ### Verse 2
+
+> Mine enemies would daily swallow *me* up: for *they be* many that fight against me, O thou most High.
 
 *Mine enemies would daily swallow me up.* Their appetite for blood never fails them. With them there is no truce or armistice. They are many, but one mind animates them. Nothing I can do can make them relent. Unless they can quite devour me they will never be content. The ogres of nursery tales exist in reality in the enemies of the church, who would crush the bones of the godly, and make a mouthful of them if they could. For they be many that fight against me. Sinners are gregarious creatures. Persecutors hunt in packs. These wolves of the church seldom come down upon us singly. The number of our foes is a powerful plea for the interposition of the one Defender of the faithful, who is mightier than all their bands. These foes of the gracious are also keen eyed, and ever on the watch, hence the margin calls them "observers." O thou most High. Thus he invokes against the lofty ones of the earth the aid of one who is higher than the highest. Some translate the words differently, and think that the writer means that his foes assailed him from the high places in which pride and power had placed them. Saul, his great foe, attacked him from his throne with all the force which his high position placed at his disposal: our comfort in such a case is near to hand, for God will help us from a higher place than our proudest foes can occupy. The greatness of God as the Most High is a fertile source of consolation to weak saints oppressed by mighty enemies.
 
 ### Verse 3
 
+> What time I am afraid, I will trust in thee.
+
 *What time I am afraid.* David was no braggart, he does not claim never to be afraid, and he was no brutish Stoic free from fear because of the lack of tenderness. David's intelligence deprived him of the stupid heedlessness of ignorance, he saw the imminence of his peril, and was afraid. We are men, and therefore liable to overthrow; we are feeble, and therefore unable to prevent it; we are sinful men, and therefore deserving it, and for all these reasons we are afraid. But the condition of the psalmist's mind was complex—he feared, but that fear did not fill the whole area of his mind, for he adds, I will trust in thee. It is possible, then, for fear and faith to occupy the mind at the same moment. We are strange beings, and our experience in the divine life is stranger still. We are often in a twilight, where light and darkness are both present, and it is hard to tell which predominates. It is a blessed fear which drives us to trust. Unregenerate fear drives from God, gracious fear drives to him. If I fear man I have only to trust God, and I have the best antidote. To trust when there is no cause for fear, is but the name of faith, but to be reliant upon God when occasions for alarm are abundant and pressing, is the conquering faith of God's elect. Though the verse is in the form of a resolve, it became a fact in David's life, let us make it so in ours. Whether the fear arise from without or within, from past, present, or future, from temporals, or spirituals, from men or devils, let us maintain faith, and we shall soon recover courage.
 
 ### Verse 4
+
+> In God I will praise his word, in God I have put my trust; I will not fear what flesh can do unto me.
 
 *In God I will praise his word.* Faith brings forth praise. He who can trust will soon sing. God's promise, when fulfilled, is a noble subject for praise, and even before fulfilment it should be the theme of song. It is in or through God that we are able to praise. We praise as well as pray in the Spirit. Or we may read it—in extolling the Lord one of the main points for thanksgiving is his revealed will in the Scriptures, and the fidelity with which he keeps his word of promise. In God I have put my trust. Altogether and alone should we stay ourselves on God. What was a gracious resolve in the former verse, is here asserted as already done. I will not fear what flesh can do unto me. Faith exercised, fear is banished, and holy triumph ensues, so that the soul asks, "What can flesh do unto me?" What indeed? He can do me no real injury; all his malice shall be overruled for my good. Man is flesh, flesh is grass—Lord, in thy name I defy its utmost wrath. There were two verses of complaint, and here are two of confidence; it is well to weigh out a sufficient quantity of the sweet to counteract the sour.
 
 ### Verse 5
 
+> Every day they wrest my words: all their thoughts *are* against me for evil.
+
 *Every day they wrest my words.* This is a common mode of warfare among the ungodly. They put our language on the rack, they extort meanings from it which it cannot be made fairly to contain. Thus our Saviour's prophecy concerning the temple of his body, and countless accusations against his servants, were founded on wilful perversions. They who do this every day become great adepts in the art. A wolf can always find in a lamb's discourse a reason for eating him. Prayers are blasphemies if you choose to read them the wrong way upwards. All their thoughts are against me for evil. No mixture of good will tone down their malice. Whether they viewed him as a king, a psalmist, a man, a father, a warrior, a sufferer, it was all the same, they saw through coloured glass, and could not think a generous thought towards him. Even those actions of his which were an undoubted blessing to the commonwealth, they endeavoured to undervalue. Oh, foul spring, from which never a drop of pure water can come!
 
 ### Verse 6
+
+> They gather themselves together, they hide themselves, they mark my steps, when they wait for my soul.
 
 *They gather themselves together.* Firebrands burn the fiercer for being pushed together. They are afraid to meet the good man till their numbers place terrible odds against him. Come out, ye cowards, man to man, and fight the old hero! No, ye wait till ye are assembled like thieves in bands, and even then ye waylay the man. There in nothing brave about you. They hide themselves. In ambuscade they wait their opportunity. Men of malice are men of cowardice. He who dares not meet his man on the king's highway, writes himself down a villain. Constantly are the reputations of good men assailed with deep laid schemes, and diabolical plots, in which the anonymous enemies stab in the dark. They mark my steps, as hunters mark the trail of their game, and so track them. Malicious men are frequently very sharp sighted to detect the failings, or supposed failings, of the righteous. Spies and *mouchards* are not all in the pay of earthly governments, some of them will have wages to take in red hot coin from one who himself is more subtle than all the beasts of the field. When they wait for my soul. Nothing less than his life would content them, only his present and eternal ruin could altogether glut them. The good man is no fool, he sees that he has enemies, and that they are many and crafty; he sees also his own danger, and then he shows his wisdom by spreading the whole case before the Lord, and putting himself under divine protection.
 
 ### Verse 7
 
+> Shall they escape by iniquity? in *thine* anger cast down the people, O God.
+
 *Shall they escape by iniquity?* Will such wickedness as this stand them in good stead? Can it be that this conduct shall enable them to avoid the sentence of earthly punishment? They slander the good man to screen themselves—will this avail them? They have cunningly managed hitherto, but will there not be an end to their games? In thine anger cast down the people, O God. Trip them up in their tricks. Hurl them from the Tarpeian rock. A persecuted man finds a friend even in an angry God, how much more in the God of love! When men seek to cast us down, it is but natural and not at all unlawful to pray that they may be disabled from the accomplishment of their infamous designs. What God often does we may safely ask him to do.
 
 ### Verse 8
 
+> Thou tellest my wanderings: put thou my tears into thy bottle: *are they* not in thy book?
+
 *Thou tellest my wanderings.* Every step which the fugitive had taken when pursued by his enemies, was not only observed but thought worthy of counting and recording. We perhaps are so confused after a long course of trouble, that we hardly know where we have or where we have not been; but the omniscient and considerate Father of our spirits remembers all in detail; for he has counted them over as men count their gold, for even the trial of our faith is precious in his sight. Put thou my tears into thy bottle. His sorrows were so many that there would need a great wineskin to hold them all. There is no allusion to the little complimentary lachrymators for fashionable and fanciful Romans, it is a more robust metaphor by far; such floods of tears had David wept that a leathern bottle would scarce hold them. He trusts that the Lord will be so considerate of his tears as to store them up as men do the juice of the vine, and he hopes that the place of storage will be a special one— *thy bottle, * not *a* bottle. Are they not in thy book? Yes, they are recorded there, but let not only the record but the grief itself be present to thee. Look on my griefs as real things, for these move the heart more than a mere account, however exact. How condescending is the Lord! How exact his knowledge of us! How generous his estimation! How tender his regard!
 
 ### Verse 9
+
+> When I cry *unto thee*, then shall mine enemies turn back: this I know; for God *is* for me.
 
 *When I cry unto thee, then shall mine enemies turn back.* So soon as I pray they shall fly. So surely as I cry they shall be put to the rout.
 
@@ -54,17 +72,25 @@ The machinery of prayer is not always visible, but it is most efficient. God inc
 
 ### Verse 10
 
+> In God will I praise *his* word: in the LORD will I praise *his* word.
+
 *In God will I praise his word.* Now comes the thanksgiving. He is a wretch who, having obtained help, forgets to return a grateful acknowledgment. The least we can do is to praise him from whom we receive such distinguished favours. Does David here mean "by God's grace I will praise him"? If so, he shows us that all our emotions towards God must be in God, produced by him and presented as such. Or does he mean, "that which in God is most the object of my praise is his word, and the faithfulness with which he keeps it"? If so, we see how attached our hearts should be to the sure word of promise, and especially to *him* who is the WORD incarnate. The Lord is to be praised under every aspect, and in all his attributes and acts, but certain mercies peculiarly draw out our admiration towards special portions of the great whole. That praise which is never special in its direction cannot be very thoughtful, and it is to be feared cannot be very acceptable. In the Lord will I praise his word. He delights to dwell on his praise, he therefore repeats his song. The change by which he brings in the glorious name of Jehovah is doubtless meant to indicate that under every aspect he delights in his God and in his word.
 
 ### Verse 11
+
+> In God have I put my trust: I will not be afraid what man can do unto me.
 
 *In God have I put my trust.* This and the former verse are evidently the chorus of the Psalm. We cannot be too careful of our faith, or see too sedulously that it is grounded on the Lord alone. I will not be afraid what man can do unto me. Faith has banished fear. He views his foes in their most forcible character, calling them not *flesh, * but indicating them as *man, * yet he dreads them not; though the whole race were his enemies he would not be afraid now that his trust is stayed on God. He is not afraid of what they threaten to do, for much of that they cannot do; and even what is in their power, what they *can do, * he defies with holy daring. He speaks for the future, "I will not, "for he is sure that the security of the present will suffice for days to come.
 
 ### Verse 12
 
+> Thy vows *are* upon me, O God: I will render praises unto thee.
+
 *Thy vows are upon me, O God.* Vows made in his trouble he does not lightly forget, nor should we. We voluntarily made them, let us cheerfully keep them. All professed Christians are men under vows, but especially those who in hours of dire distress have rededicated themselves unto the Lord. I will render praises unto thee. With heart, and voice, and gift, we should cheerfully extol the God of our salvation. The practice of making solemn vows in times of trouble is to be commended, when it is followed by the far less common custom of fulfilling them when the trouble is over.
 
 ### Verse 13
+
+> For thou hast delivered my soul from death: *wilt* not *thou deliver* my feet from falling, that I may walk before God in the light of the living?
 
 *For thou hast delivered my soul from death.* His enemies were defeated in their attempts upon his life, and therefore he vowed to devote his life to God. Wilt not thou deliver my feet from falling? One mercy is a plea for another, for indeed it may happen that the second is the necessary complement of the first. It little boots that we live, if we are made to fall in character by the thrusts of our enemies. As lief not be, as live to be bereft of honour, and fallen prostrate before my enemies. That I may walk before God in the light of the living, enjoying the favour and presence of God, and finding the joy and brightness of life therein. Walking at liberty, in holy service, in sacred communion, in constant progress in holiness, enjoying the smile of heaven—this I seek after. Here is the loftiest reach of a good man's ambition, to dwell with God, to walk in righteousness before him, to rejoice in his presence, and in the light and glory which it yields. Thus in this short Psalm, we have climbed from the ravenous jaws of the enemy into the light of Jehovah's presence, a path which only faith can tread.
 

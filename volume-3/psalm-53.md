@@ -12,6 +12,8 @@ weight: 53
 
 ### Verse 1
 
+> The fool hath said in his heart, *There is* no God. Corrupt are they, and have done abominable iniquity: *there is* none that doeth good.
+
 *The fool hath said in his heart, There is no God.* And this he does because he is a fool. Being a fool he speaks according to his nature; being a great fool he meddles with a great subject, and comes to a wild conclusion. The atheist is, morally as well as mentally, a fool, a fool in the heart as well as in the head; a fool in morals as well as in philosophy. With the denial of God as a starting point, we may well conclude that the fool's progress is a rapid, riotous, raving, ruinous one. He who begins at impiety is ready for anything.
 
 No God, being interpreted, means no law, no order, no restraint to lust, no limit to passion. Who but a fool would be of this mind? What a Bedlam, or rather what an Aceldama, would the world become if such lawless principles came to be universal! He who heartily entertains an irreligious spirit, and follows it out to its legitimate issues is a son of Belial, dangerous to the commonwealth, irrational, and despicable. Every natural man is, more or less a denier of God. Practical atheism is the religion of the race.
@@ -24,9 +26,13 @@ There is none that doeth good. The one typical fool is reproduced in the whole r
 
 ### Verse 2
 
+> God looked down from heaven upon the children of men, to see if there were *any* that did understand, that did seek God.
+
 *God looked down from heaven upon the children of men.* He did so in ages past, and he has continued his steadfast gaze from his all surveying observatory. To see if there were any that did understand, that did seek God. Had there been one understanding man, one true lover of his God, the divine eye would have discovered him. Those pure heathens and admirable savages that men talk so much of, do not appear to have been visible to the eye of Omniscience, the fact being that they live nowhere but in the realm of fiction. The Lord did not look for great grace, but only for sincerity and right desire, but these he found not. He saw all nations, and all men in all nations, and all hearts in all men, and all motions of all hearts, but he saw neither a clear head nor a clean heart among them all. Where God's eyes see no favourable sign we may rest assured there is none.
 
 ### Verse 3
+
+> Every one of them is gone back: they are altogether become filthy; *there is* none that doeth good, no, not one.
 
 *Every one of them is gone back.* The whole mass of manhood, all of it, is gone back. In the fourteenth Psalm it was said to turn aside, which was bad enough, but here it is described as running in a diametrically opposite direction. The life of unregenerate manhood is in direct defiance of the law of God, not merely apart from it but opposed to it. They are altogether become filthy. The whole lump is soured with an evil leaven, fouled with an all pervading pollution, made rank with general putrefaction. Thus, in God's sight, our atheistic nature is not the pardoned thing that we think it to be. Errors as to God are not the mild diseases which some account them, they are abominable evils. Fair is the world to blind eyes, but to the all seeing Jehovah it is otherwise. There is none that doeth good, no, not one. How could there be, when the whole mass was leavened with so evil a leaven? This puts an end to the fictions of the innocent savage, the lone patriarch, "the Indian whose untutored mind, "etc. Pope's verse—
 
@@ -42,13 +48,19 @@ Jehovah, Jove, or Lord, "
 
 ### Verse 4
 
+> Have the workers of iniquity no knowledge? who eat up my people *as* they eat bread: they have not called upon God.
+
 *Have the workers of iniquity no knowledge?* They have no wisdom, certainly, but even so common a thing as knowledge might have restrained them. Can they not see that there is a God? that sin is an evil thing? that persecution recoils upon a man's own head? Are they such utter fools as not to know that they are their own enemies, and are ruining themselves? Who eat up my people as they eat bread. Do they not see that such food will be hard to digest, and will bring on them a horrible vomit when God deals with them in justice? Can they imagine that the Lord will allow them to devour his people with impunity? They must be insane indeed. They have not called upon God. They carry on their cruel enterprises against the saints, and use every means but that which is essential to success in every case, namely, the invocation of God. In this respect persecutors are rather more consistent than Pharisees who devoured widow's houses, and prayed too. The natural man, like Ishmael, loves not the spiritual seed, is very jealous of it, and would fain destroy it, because it is beloved of God; yet the natural man does not seek after the like favour from God. The carnal mind envies those who obtain mercy, and yet it will not seek mercy itself. It plays the dog in the manger. Sinners will out of a malicious jealousy devour those who pray, but yet they will not pray themselves.
 
 ### Verse 5
 
+> There were they in great fear, *where* no fear was: for God hath scattered the bones of him that encampeth *against* thee: thou hast put *them* to shame, because God hath despised them.
+
 *There were they in great fear, where no fear was.* David sees the end of the ungodly, and the ultimate triumph of the spiritual seed. The rebellious march in fury against the gracious, but suddenly they are seized with a causeless panic. The once fearless boasters tremble like the leaves of the aspen, frightened at their own shadows. In this sentence and this verse, this Psalm differs much from the fourteenth. It is evidently expressive of a higher state of realisation in the poet, he emphasises the truth by stronger expressions. Without cause the wicked are alarmed. He who denies God is at bottom a coward, and in his infidelity he is like the boy in the churchyard who "whistles to keep his courage up." For God hath scattered the bones of him that encampeth against *thee.* When the wicked see the destruction of their fellows they may well quail. Mighty were the hosts which besieged Zion, but they were defeated, and their unburied carcasses proved the prowess of the God whose being they dared to deny. Thou hast put them to shame, because God hath despised them. God's people may well look with derision upon their enemies since they are the objects of divine contempt. They scoff at us, but we may with far greater reason laugh them to scorn, because the Lord our God considers them as less than nothing and vanity.
 
 ### Verse 6
+
+> Oh that the salvation of Israel *were come* out of Zion! When God bringeth back the captivity of his people, Jacob shall rejoice, *and* Israel shall be glad.
 
 *Oh that the salvation of Israel were come out of Zion.* Would God the final battle were well over. When will the Lord avenge his own elect? When will the long oppression of the saints come to its close, and glory crown their heads? The word *salvation* is in the plural, to show its greatness. When God bringeth back the captivity of his people, Jacob shall *rejoice, and Israel shall be glad.* Inasmuch as the yoke has been heavy, and the bondage cruel, the liberty will be happy, and the triumph joyous. The second advent and the restoration of Israel are our hope and expectation. We have attempted to throw into rhyme the last two verses of this Psalm:
 

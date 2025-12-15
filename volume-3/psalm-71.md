@@ -12,9 +12,13 @@ weight: 71
 
 ### Verse 2
 
+> Deliver me in thy righteousness, and cause me to escape: incline thine ear unto me, and save me.
+
 *Deliver me in thy righteousness, and cause me to escape.* Be true, O God, to thy word. It is a righteous thing in thee to keep the promises which thou hast made unto thy servants. I have trusted thee, and thou wilt not be unrighteous to forget my faith. I am taken as in a net, but do thou liberate me from the malice of my persecutors. Incline thine ear unto me, and save me. Stoop to my feebleness, and hear my faint whispers; be gracious to my infirmities, and smile upon me: I ask salvation; listen thou to my petitions, and save me. Like one wounded and left for dead by mine enemies, I need that thou bend over me and bind up my wounds. These mercies are asked on the plea of faith, and they cannot, therefore, be denied.
 
 ### Verse 3
+
+> Be thou my strong habitation, whereunto I may continually resort: thou hast given commandment to save me; for thou *art* my rock and my fortress.
 
 *Be thou my strong habitation.* Permit me to enter into thee, and be as much at home as a man in his own house, and then suffer me to remain in thee as my settled abode. Whereas foes molest me, I need a dwelling framed and bulwarked, to sustain a siege and resist the attacks of armies; let, then, thine omnipotence secure me, and be as a fortress unto me. Here we see a weak man, but he is in a strong habitation; his security rests upon the tower in which he hides, and is not placed in jeopardy through his personal feebleness. Whereunto I may continually resort. Fast shut is this castle against all adversaries, its gates they cannot burst open; the drawbridge is up, the portcullis is down, the bars are fast in their places; but, there is a secret door, by which friends of the great Lord can enter at all hours of the day or night, as often as ever they please. There is never an hour when it is unlawful to pray. Mercy's gates stand wide open, and shall do so, till, at the last, the Master of the house has risen up and shut to the door. Believers find their God to be their habitation, strong and accessible, and this is for them a sufficient remedy for all the ills of their mortal life.
 
@@ -22,85 +26,127 @@ Thou hast given commandment to save me. Nature is charged to be tender with God'
 
 ### Verse 4
 
+> Deliver me, O my God, out of the hand of the wicked, out of the hand of the unrighteous and cruel man.
+
 *Deliver me, O my God, out of the hand of the wicked.* God is on the same side with us, and those who are our enemies are also his, for they are wicked; therefore will the Lord surely rescue his own confederates, and he will not suffer the evil to triumph over the just. He who addresses such a prayer as this to heaven, does more injury to his enemies than if he had turned a battery of Armstrongs upon them. Out of the hand of the unrighteous and cruel man. Being wicked to God, they become unrighteous towards men, and cruel in their persecutions of the godly. Two hands are here mentioned: they grasp and they crush; they strike and they would slay if God did not prevent; had they as many hands as Briarcus, the finger of God would more than match them.
 
 ### Verse 5
+
+> For thou *art* my hope, O Lord GOD: *thou art* my trust from my youth.
 
 *For thou art my hope, O Lord God.* God who gives us grace to hope in him, will assuredly fulfil our hope, and, therefore, we may plead it in prayer. His name is "Jehovah, the hope of Israel" (Jer 17:13); and, as he cannot be a false or failing hope, we may expect to see our confidence justified. Thou art my trust from my youth. David had proved his faith by notable exploits when he was a youth and ruddy; it was to him a cheering recollection, and he felt persuaded that the God of his youth would not forsake him in his age. They are highly favoured who can like David, Samuel, Josiah, Timothy, and others say, "Thou art my trust from my youth."
 
 ### Verse 6
 
+> By thee have I been holden up from the womb: thou art he that took me out of my mother’s bowels: my praise *shall be* continually of thee.
+
 *By thee have I been holden up from the womb.* Before he was able to understand the power which preserved him, he was sustained by it. God knows us before we know anything. The elect of old lay in the bosom of God before they were laid on their mothers' bosoms; and when their infantile weakness had no feet strong enough to carry it, the Lord upheld it. We do well to reflect upon divine goodness to us in childhood, for it is full of food for gratitude. Thou art he that took me out of my mother's bowels. Even before conscious life, the care of God is over his chosen. Birth is a mystery of mercy, and God is with both mother and babe. If marriages are registered in heaven, we may be sure that births are also. Holy women do well to bless God for his mercy to them in nature's perilous hour; but every one who is born of woman has equal cause for thankfulness. She, whose life is preserved, should render thanks, and so should he whose life is given. My praise shall be continually of thee. Where goodness has been unceasingly received, praise should unceasingly be offered. God is the circle where praise should begin, continue, and endlessly revolve, since in him we live, and move, and have our being.
 
 ### Verse 7
+
+> I am as a wonder unto many; but thou *art* my strong refuge.
 
 *I am as a wonder unto many.* "To thousand eyes a mark and gaze am I." The saints are men wondered at; often their dark side is gloomy even to amazement, while their bright side is glorious even to astonishment. The believer is a riddle, an enigma puzzling the unspiritual; he is a monster warring with those delights of the flesh, which are the all in all of other men; he is a prodigy, unaccountable to the judgments of ungodly men; a wonder gazed at, feared, and, by and by, contemptuously derided. Few understand us, many are surprised at us. But thou art my strong refuge. Here is the answer to our riddle. If we are strong, it is in God; if we are safe, our refuge shelters us; if we are calm, our soul hath found her stay in God. When faith is understood, and the grounds of her confidence seen, the believer is no longer a wonder; but the marvel is that so much unbelief remains among the sons of men.
 
 ### Verse 8
 
+> Let my mouth be filled *with* thy praise *and with* thy honour all the day.
+
 *Let my mouth be filled with thy praise and with thy honour all the day.* What a blessed mouthful! A man never grows nauseated though the flavour of it be all day in his mouth. God's bread is always in our mouths, so should his praise be. He fills us with good; let us be also filled with gratitude. This would leave no room for murmuring or backbiting; therefore, may we well join with holy David in this sacred wish.
 
 ### Verse 9
+
+> Cast me not off in the time of old age; forsake me not when my strength faileth.
 
 *Cast me not off in the time of old age.* David was not tired of his Master, and his only fear was lest his Master should be tired of him. The Amalekite in the Bible history left his Egyptian servant to famish when he grew old and sick, but not so the Lord of saints; even to hoar hairs he bears and carries us. Alas for us, if we were abandoned by our God, as many a courtier has been by his prince! Old age robs us of personal beauty, and deprives us of strength for active service; but it does not lower us in the love and favour of God. An ungrateful country leaves its worn out defenders to starve upon a scanty pittance, but the pensioners of heaven are satisfied with good things. Forsake me not when my strength faileth. Bear with me, and endure my infirmities. To be forsaken of God is the worst of all conceivable ills, and if the believer can be but clear of that grievous fear, he is happy: no saintly heart need be under any apprehension upon this point.
 
 ### Verse 10
 
+> For mine enemies speak against me; and they that lay wait for my soul take counsel together,
+
 *For mine enemies speak against me.* Dogs howl over a dying lion. When David's arm was able to chastise his foes, they were yet impudent enough to slander him, and he fears that now they will take fresh license in the hour of his weakness. The text most properly means that his enemies had said that God would forsake him; and, therefore, he is the more earnest that the Lord's faithful dealings may give them the lie. And they that lay wait for my soul take counsel together. The psalmist had enemies, and these were most malicious; seeking his utter destruction, they were very persevering, and staid long upon the watch; to this they added cunning, for they lay in ambush to surprise him, and take him at a disadvantage; and all this they did with the utmost unanimity and deliberation, neither spoiling their design by want of prudence, nor marring its accomplishment by a lack of unity. The Lord our God is our only and all sufficient resort from every form of persecution.
 
 ### Verse 11
+
+> Saying, God hath forsaken him: persecute and take him; for *there is* none to deliver *him*.
 
 *Saying, God hath forsaken him.* O bitter taunt! There is no worse arrow in all the quivers of hell. Our Lord felt this barbed shaft, and it is no marvel if his disciples feel the same. Were this exclamation the truth, it were indeed an ill day for us; but, glory be to God, it is a barefaced lie. Persecute and take him. Let loose the dogs of persecution upon him, seize him, worry him, for there is none to deliver him. Down with him, for he has no friends. It is safe to insult him, for none will come to his rescue. O cowardly boasts of a braggart foe, how do ye wound the soul of the believer: and only when his faith cries to his Lord is he able to endure your cruelty.
 
 ### Verse 12
 
+> O God, be not far from me: O my God, make haste for my help.
+
 *O God, be not far from me.* Nearness to God is our conscious security. A child in the dark is comforted by grasping its father's hand. O my God, make haste for my help. To call God ours, as having entered into covenant with us, is a mighty plea in prayer, and a great stay to our faith. The cry of "make haste" has occurred many times in this portion of the Psalms, and it was evoked by the sore pressure of affliction. Sharp sorrows soon put an end to procrastinating prayers.
 
 ### Verse 13
+
+> Let them be confounded *and* consumed that are adversaries to my soul; let them be covered *with* reproach and dishonour that seek my hurt.
 
 *Let them be confounded and consumed that are adversaries to my soul.* It will be all this to them to see thy servant preserved; their envy and malice, when disappointed, will fill them with life consuming bitterness. The defeat of their plans shall nonplus them, they shall be confounded as they enquire the reason for their overthrow; the men they seek to destroy seem so weak, and their cause so contemptible, that they will be filled with amazement as they see them not only survive all opposition, but even surmount it. How confounded must Pharaoh have been when Israel multiplied, despite his endeavours to exterminate the race; and how consumed with rage must the Scribes and Pharisees have become when they saw the gospel spreading from land to land by the very means which they used for its destruction. Let them be covered with reproach and dishonour that seek my hurt. He would have their shame made visible to all eyes, by their wearing it in their blushes as a mantle. They would have made a laughing stock of the believer, if his God had forsaken him; therefore, let unbelief and atheism be made a public scoffing in their persons.
 
 ### Verse 14
 
+> But I will hope continually, and will yet praise thee more and more.
+
 The holy faith of the persecuted saint comes to the front in these three verses. But I will hope continually. When I cannot rejoice in what I have, I will look forward to what shall be mine, and will still rejoice. Hope will live on a bare common, and sing on a branch laden down with snow. No date and no place are unsuitable for hope. Hell alone excepted, hope is a dweller in all regions. We may always hope, for we always have grounds for it: we will always hope, for it is a never failing consolation. And will yet praise thee more and more. He was not slack in thanksgiving; in fact, no man was ever more diligent in it; yet he was not content with all his former praises, but vowed to become more and more a grateful worshipper. When good things are both continual and progressive with us, we are on the right tack. We ought to be misers in going good, and our motto should be "more and more." While we do not disdain to "rest and be thankful, "we cannot settle down into resting in our thankfulness. *"Superior"* cries the eagle, as he mounts towards the sun: higher and yet higher is also our aim, as we soar aloft in duty and devotion. It is our continual hope that we shall be able more and more to magnify the Lord.
 
 ### Verse 15
+
+> My mouth shall shew forth thy righteousness *and* thy salvation all the day; for I know not the numbers *thereof*.
 
 *My mouth shall shew forth thy righteousness and thy salvation all the day.* We are to bear testimony as experience enables us, and not withhold from others that which we have tasted and handled. The faithfulness of God in saving us, in delivering us out of the hand of our enemies, and in fulfilling his promises, is to be everywhere proclaimed by those who have proved it in their own history. How gloriously conspicuous is righteousness in the divine plan of redemption! It should be the theme of constant discourse. The devil rages against the substitutionary sacrifice, and errorists of every form make this the main point of their attack; be it ours, therefore, to love the doctrine, and to spread its glad tidings on every side, and at all times. Mouths are never so usefully employed as in recounting the righteousness of God revealed in the salvation of believers in Jesus. The preacher who should be confined to this one theme would never need seek another: it is the *medulla theologae, * the very pith and marrow of revealed truth. Has our reader been silent upon this choice subject? Let us, then, press him to tell abroad what he enjoys within: he does not well who keeps such glad tidings to himself. For I know not the numbers thereof. He knew the sweetness of it, the sureness, the glory, and the truth of it; but as to the full reckoning of its plenitude, variety, and sufficiency, he felt he could not reach to the height of the great argument. Lord, where I cannot count I will believe, and when a truth surpasses numeration I will take to admiration. When David spoke of his enemies, he said they were more in number than the hairs of his head; he had, therefore, some idea of their number, and found a figure suitable to set it out; but, in the case of the Lord's covenant mercies, he declares, "I know not the number, "and does not venture upon any sort of comparison. To creatures belong number and limit, to God and his grace there is neither. We may, therefore, continue to tell out his great salvation all day long, for the theme is utterly inexhaustible.
 
 ### Verse 16
 
+> I will go in the strength of the Lord GOD: I will make mention of thy righteousness, *even* of thine only.
+
 *I will go in the strength of the Lord God.* Our translators give us a good sense, but not the sense in this place, which is on this wise, "I will come with the mighty deeds of the Lord Jehovah." He would enter into those deeds by admiring study, and then, wherever he went, he would continue to rehearse them. He should ever be a welcome guest who can tell us of the mighty acts of the Lord, and help us to put our trust in him. The authorised version may be used by us as a resolve in all our exertions and endeavours. In our own strength we must fail; but, when we hear the voice which saith, "Go in this thy might, "we may advance without fear. Though hell itself were in the way, the believer would pursue the path of duty, crying: I will go in the strength of the Lord God: I will make mention of thy *righteousness, even of thine only.* Man's righteousness is not fit to be mentioned—filthy rags are best hidden; neither is there any righteousness under heaven, or in heaven, comparable to the divine. As God himself fills all space, and is, therefore, the only God, leaving no room for another, so God's righteousness, in Christ Jesus, fills the believer's soul, and he counts all other things but dross and dung "that he may win Christ, and be found in him, not having his own righteousness which is of the law, but the righteousness which is of God by faith." What would be the use of speaking upon any other righteousness to a dying man? and all are dying men. Let those who will cry up man's natural innocence, the dignity of the race, the purity of philosophers, the loveliness of untutored savages, the power of sacraments, and the infallibility of pontiffs; this is the true believer's immovable resolve: "I will make mention of thy righteousness, even of thine only." For ever dedicated to thee, my Lord, be this poor, unworthy tongue, whose glory it shall be to glorify thee.
 
 ### Verse 17
+
+> O God, thou hast taught me from my youth: and hitherto have I declared thy wondrous works.
 
 *O God, thou hast taught me from my youth.* It was comfortable to the psalmist to remember that from his earliest days he had been the Lord's disciple. None are too young to be taught of God, and they make the most proficient scholars who begin betimes. And hitherto have I declared thy wondrous works. He had learned to tell what he knew, he was a pupil teacher; he continued still learning and declaring, and did not renounce his first master; this, also, was his comfort, but it is one which those who have been seduced from the school of the gospel, into the various colleges of philosophy and scepticism, will not be able to enjoy. A sacred conservatism is much needed in these days, when men are giving up old lights for new. We mean both to learn and to teach the wonders of redeeming love, till we can discover something nobler or more soul satisfying; for this reason we hope that our gray heads will be found in the same road as we have trodden, even from our beardless youth.
 
 ### Verse 18
 
+> Now also when I am old and grayheaded, O God, forsake me not; until I have shewed thy strength unto *this* generation, *and* thy power to every one *that* is to come.
+
 *Now also when I am old and grey headed, O God, forsake me not.* There is something touching in the sight of hair whitened with the snows of many a winter: the old and faithful soldier receives consideration from his king, the venerable servant is beloved by his master. When our infirmities multiply, we may, with confidence, expect enlarged privileges in the world of grace, to make up for our narrowing range in the field of nature. Nothing shall make God forsake those who have not forsaken him. Our fear is lest he should do so; but his promise kisses that fear into silence. Until I have shewed thy strength unto this generation. He desired to continue his testimony and complete it; he had respect to the young men and little children about him, and knowing the vast importance of training them in the fear of God, he longed to make them all acquainted with the power of God to support his people, that they also might be led to walk by faith. He had leaned on the almighty arm, and could speak experimentally of its all sufficiency, and longed to do so ere life came to a close. And thy power to every one that is to come. He would leave a record for unborn ages to read. He thought the Lord's power to be so worthy of praise, that he would make the ages ring with it till time should be no more. For this cause believers live, and they should take care to labour zealously for the accomplishment of this their most proper and necessary work. Blessed are they who begin in youth to proclaim the name of the Lord, and cease not until their last hour brings their last word for their divine Master.
 
 ### Verse 19
+
+> Thy righteousness also, O God, *is* very high, who hast done great things: O God, who *is* like unto thee!
 
 *Thy righteousness also, O God, is very high.* Very sublime, unsearchable, exalted, and glorious is the holy character of God, and his way of making men righteous. His plan of righteousness uplifts men from the gates of hell to the mansions of heaven. It is a high doctrine gospel, gives a high experience, leads to high practice, and ends in high felicity. Who hast done great things. The exploits of others are mere child's play compared with thine, and are not worthy to be mentioned in the same age. Creation, providence, redemption, are all unique, and nothing can compare with them. O God, who is like unto thee. As thy works are so transcendent, so art thou. Thou art without compeer, or even second, and such are thy works, and such, especially, thy plan of justifying sinners by the righteousness which thou hast provided. Adoration is a fit frame of mind for the believer. When he draws near to God, he enters into a region where everything is surpassingly sublime; miracles of love abound on every hand, and marvels of mingled justice and grace. A traveller among the high Alps often feels overwhelmed with awe, amid their amazing sublimities; much more is this the case when we survey the heights and depths of the mercy and holiness of the Lord. O God, who is like unto thee.
 
 ### Verse 20
 
+> *Thou*, which hast shewed me great and sore troubles, shalt quicken me again, and shalt bring me up again from the depths of the earth.
+
 *Thou, which hast shewed me great and sore troubles, shalt quicken me again.* Here is faith's inference from the infinite greatness of the Lord. He has been strong to smite; he will be also strong to save. He has shown me many heavy and severe trials, and he will also show me many and precious mercies. He has almost killed me, he will speedily revive me; and though I have been almost dead and buried, he will give me a resurrection, and bring me up again from the depths of the earth. However low the Lord may permit us to sink, he will fix a limit to the descent, and in due time will bring us up again. Even when we are laid low in the tomb, the mercy is that we can go no lower, but shall retrace our steps and mount to better lands; and all this, because the Lord is ever mighty to save. A little God would fail us, but not Jehovah the Omnipotent. It is safe to lean on him, since he bears up the pillars both of heaven and earth.
 
 ### Verse 21
+
+> Thou shalt increase my greatness, and comfort me on every side.
 
 *Thou shalt increase my greatness.* As a king, David grew in influence and power. God did great things for him, and by him, and this is all the greatness believers want. May we have faith in God, such as these words evince. And comfort me on every side. As we were surrounded with afflictions, so shall we be environed with consolations. From above, and from all around, light shall come to dispel our former gloom; the change shall be great, indeed, when the Lord returns to comfort us. Here is the final vow of praise.
 
 ### Verse 22
 
+> I will also praise thee with the psaltery, *even* thy truth, O my God: unto thee will I sing with the harp, O thou Holy One of Israel.
+
 *I will also praise thee with the psaltery.* Love so amazing calls for sweetest praise. David would give his best music, both vocal and instrumental, to the Best of Masters. His harp should not be silent, nor his voice. Even thy truth, O my God. This is ever a most enchanting attribute—viz., the truth or faithfulness of our covenant God. On this we rest, and from it we draw streams of richest consolation. His promises are sure, his love unalterable, his veracity indisputable. What saint will not praise him as he remembers this? Unto thee will I sing with the harp, O thou Holy One of Israel. Here is a new name, and, as it were, a new song. The Holy One of Israel is at once a lofty and an endearing name, full of teaching. Let us resolve, by all means within our power, to honour him. Here is the final vow of praise.
 
 ### Verse 23
 
+> My lips shall greatly rejoice when I sing unto thee; and my soul, which thou hast redeemed.
+
 *My lips shall greatly rejoice when I sing unto thee.* It shall be no weariness to me to praise thee. It shall be a delightful recreation, a solace, a joy. The essence of song lies in the holy joy of the singer. And my soul, which thou hast redeemed. Soul singing is the soul of singing. Till men are redeemed, they are like instruments out of tune; but when once the precious blood has set them at liberty, then are they fitted to magnify the Lord who bought them. Our being bought with a price is a more than sufficient reason for our dedicating ourselves to the earnest worship of God our Saviour. Here is the final vow of praise.
 
 ### Verse 24
+
+> My tongue also shall talk of thy righteousness all the day long: for they are confounded, for they are brought unto shame, that seek my hurt.
 
 *My tongue also shall talk of thy righteousness all the day long.* I will talk to myself, and to thee, my God, and to my fellow men: my theme shall be thy way of justifying sinners, the glorious display of thy righteousness and grace in thy dear Son; and this most fresh and never to be exhausted subject shall be ever with me, from the rising of the sun to the going down of the same. Others talk of their beloveds, and they shall be made to hear of mine. I will become an incessant talker, while this matter lies on my heart, for in all company this subject will be in season. For they are confounded, for they are brought unto shame, that seek my *hurt.* As in many other Psalms, the concluding stanzas speak of that as an accomplished fact, which was only requested in former verses. Faith believes that she has her request, and she has it. She is the substance of things hoped for—a substance so real and tangible, that it sets the glad soul singing. Already sin, Satan, and the world are vanquished, and the victory is ours.
 

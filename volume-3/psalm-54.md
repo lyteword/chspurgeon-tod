@@ -12,29 +12,43 @@ weight: 54
 
 ### Verse 1
 
+> Save me, O God, by thy name, and judge me by thy strength.
+
 *Save me, O God.* Thou art my Saviour; all around me are my foes and their eager helpers. No shelter is permitted me. Every land rejects me and denies me rest. But thou, O God, wilt give me refuge, and deliver me from all my enemies. By thy name, by thy great and glorious nature. Employ all thine attributes for me. Let every one of the perfections which are blended in thy divine name work for me. Is not thine honour pledged for my defence? And judge me by thy strength. Render justice to me, for none else will or can. Thou canst give me efficient justice, and right my wrongs by thine omnipotence. We dare not appeal to God in a bad cause, but when we know that we can fearlessly carry our cause before his justice we may well commit it to his power.
 
 ### Verse 2
+
+> Hear my prayer, O God; give ear to the words of my mouth.
 
 *Hear my prayer, O God.* This has ever been the defence of saints. As long as God hath an open ear we cannot be shut up in trouble. All other weapons may be useless, but all prayer is evermore available. No enemy can spike this gun. Give ear to the words of my mouth. Vocal prayer helps the supplicant, and we keep our minds more fully awake when we can use our tongues as well as our hearts. But what is prayer if God hear not? It is all one whether we babble nonsense or plead arguments if our God grant us not a hearing. When his case had become dangerous, David could not afford to pray out of mere custom, he must succeed in his pleadings, or become the prey of his adversary.
 
 ### Verse 3
 
+> For strangers are risen up against me, and oppressors seek after my soul: they have not set God before them. Selah.
+
 *For strangers are risen up against me.* Those who had no cause for ill will had gone against him; persons to whom he could have given no offence, for they were strangers to him. They were aliens to his God also, and should these be allowed to worry and destroy him. A child may well complain to his father when strangers come in to molest him. What right have they to interfere? Let them leave off meddling and mind their own concerns. And oppressors seek after my soul. Saul, that persecuting tyrant, had stamped his own image on many more. Kings generally coin their own likeness. He led the way, and others followed seeking David's soul, his blood, his life, his very existence. Cruel and intense were they in their malice, they would utterly crush the good man; no half measure would content them. They have not set God before them. They had no more regard for right and justice than if they knew no God, or cared for none. Had they regarded God they would not have betrayed the innocent to be hunted down like a poor harmless stag. David felt that atheism lay at the bottom of the enmity which pursued him. Good men are hated for God's sake, and this is a good plea for them to urge in prayer. Selah. As if he said, "Enough of this, let us pause." He is out of breath with indignation. A sense of wrong bids him suspend the music awhile. It may also be observed, that more pauses would, as a rule, improve our devotions: we are usually too much in a hurry: a little more holy meditation would make our words more suitable and our emotions more fervent.
 
 ### Verse 4
+
+> Behold, God *is* mine helper: the Lord *is* with them that uphold my soul.
 
 *Behold, God is mine helper.* He saw enemies everywhere, and now to his joy as he looks upon the band of his defenders he sees one whose aid is better than all the help of men; he is overwhelmed with joy at recognizing his divine champion, and cries, Behold. And is not this a theme for pious exultation in all time, that the great God protects us, his own people: what matters the number or violence of our foes when HE uplifts the shield of his omnipotence to guard us, and the sword of his power to aid us? Little care we for the defiance of the foe while we have the defence of God. The Lord is with them that uphold my soul. The reigning Lord, the great Adonai is in the camp of my defenders. Here was a greater champion than any of the three mighties, or than all the valiant men who chose David for their captain. The psalmist was very confident, he felt so thoroughly that his heart was on the Lord's side that he was sure God was on *his* side. He asked in the first verse for deliverance, and here he returns thanks for upholding: while we are seeking one mercy which we have not, we must not be unmindful of another which we have. It is a great mercy to have some friends left us, but a greater mercy still to see the Lord among them, for like so many cyphers our friends stand for nothing till the Lord sets himself as a great unit in the front of them.
 
 ### Verse 5
 
+> He shall reward evil unto mine enemies: cut them off in thy truth.
+
 *He shall reward evil unto mine enemies.* They worked for evil, and they shall have their wages. It cannot be that malice should go unavenged. It were cruelty to the good to be lenient to their persecutors. It is appointed, and so it must ever be, that those who shoot upward the arrows of malice shall find them fall upon themselves. The recoil of their own gun has often killed oppressors. Cut them off in thy truth. Not in ferocious revenge is this spoken, but as an Amen to the sure sentence of the just Judge. Let the veracity of thy threatenings be placed beyond dispute, the decree is right and just, let it be fulfilled. It is not a private desire, but the solemn utterance of a military man, a grossly injured man, a public leader destined to be a monarch, and a man well trained in the school of Moses, whose law ordains eye for eye, and tooth for tooth.
 
 ### Verse 6
 
+> I will freely sacrifice unto thee: I will praise thy name, O LORD; for *it is* good.
+
 *I will freely sacrifice unto thee.* Spontaneously will I bring my freewill offerings. So certain is he of deliverance that he offers a vow by anticipation. His overflowing gratitude would load the altars of God with victims cheerfully presented. The more we receive, the more we ought to render. The spontaneousness of our gifts is a great element in their acceptance; the Lord loveth a cheerful giver. I will praise thy name, O Lord. As if no amount of sacrifice could express his joyful feelings, he resolves to be much in vocal thanksgiving. The name which he invoked in prayer (Ps 54:1), he will now magnify in praise. Note how roundly he brings it out: O Jehovah. This is ever the grand name of the revealed God of Israel, a name which awakens the most sublime sentiments, and so nourishes the most acceptable praise. None can praise the Lord so well as those who have tried and proved the preciousness of his name in seasons of adversity. The psalmist adds, for it is good, and surely we may read this with a double nominative, God's name is good, and so is his praise. It is of great use to our souls to be much in praise; we are never so holy or so happy as when our adoration of God abounds. Praise is good in itself, good to us, and good to all around us. If David's enemies are described in Ps 54:3 as not setting God before them, he here declares that he is of a different mind from them, for he resolves to have the Lord in perpetual remembrance in his sacrifices and praises.
 
 ### Verse 7
+
+> For he hath delivered me out of all trouble: and mine eye hath seen *his desire* upon mine enemies.
 
 *For he hath delivered me out of all trouble.* Up to that time deliverance had come, and for that danger also he felt that rescue was near. David lived a life of dangers and hair breadth escapes, yet he was always safe. In the retrospect of his very many deliverances he feels that he must praise God, and looking upon the mercy which he sought as though it were already received, he sang this song over it—
 

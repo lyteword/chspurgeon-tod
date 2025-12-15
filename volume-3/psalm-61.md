@@ -12,9 +12,13 @@ weight: 61
 
 ### Verse 1
 
+> Hear my cry, O God; attend unto my prayer.
+
 *Hear my cry, O God.* He was in terrible earnest; he shouted, he lifted up his voice on high. He is not however content with the expression of his need: to give his sorrows vent is not enough for him, he wants actual audience of heaven, and manifold succour as the result. Pharisees may rest in their prayers; true believers are eager for an answer to them: ritualists may be satisfied when they have, "said or sung" their litanies and collects, but living children of God will never rest till their supplications have entered the ears of the Lord God of Sabaoth. Attend unto my prayer. Give it thy consideration, and such an answer as thy wisdom sees fit. When it comes to crying with us, we need not doubt but that it will come to attending with God. Our heavenly Father is not hardened against the cries of his own children. What a consoling thought it is that the Lord at all times hears his people's cries, and is never forgetful of their prayers; whatever else fails to move him, praying breath is never spent in vain!
 
 ### Verse 2
+
+> From the end of the earth will I cry unto thee, when my heart is overwhelmed: lead me to the rock *that* is higher than I.
 
 *From the end of the earth will I cry unto thee.* He was banished from the spot which was the centre of his delight, and at the same time his mind was in a depressed and melancholy condition; both actually and figuratively he was an outcast, yet he does not therefore restrain prayer, but rather finds therein a reason for the louder and more importunate cries. To be absent from the place of divine worship was a sore sorrow to saints in the olden times; they looked upon the tabernacle as the centre of the world, and they counted themselves to be at the fag end of the universe when they could no longer resort to the sacred shrine; their heart was heavy as in a strange land when they were banished from its solemnities. Yet even they knew right well that no place is unsuitable for prayer. There may be an end of the earth, but there must not be an end to devotion. On creation's verge we may call upon God, for even there he is within call. No spot is too dreary, no condition too deplorable; whether it be the world's end or life's end, prayer is equally available. To pray in some circumstances needs resolve, and the psalmist here expresses it,
 
@@ -22,9 +26,13 @@ I will cry. It was a wise resolution, for had he ceased to pray he would have be
 
 ### Verse 3
 
+> For thou hast been a shelter for me, *and* a strong tower from the enemy.
+
 *For thou hast been a shelter for me.* Observe how the psalmist rings the changes on, *Thou hast, * and *I will, * —Ps 61:3-6. Experience is the nurse of faith. From the past we gather arguments for present confidence. Many and many a time had the persecutions of Saul and the perils of battle imperilled David's life, and only by miracle had he escaped, yet was he still alive and unhurt; this he remembers, and he is full of hope. And a strong tower from the enemy. As in a fort impregnable, David had dwelt, because surrounded by omnipotence. Sweet is it beyond expression to remember the lovingkindnesses of the Lord in our former days, for he is unchangeable, and therefore will continue to guard us from all evil.
 
 ### Verse 4
+
+> I will abide in thy tabernacle for ever: I will trust in the covert of thy wings. Selah.
 
 *I will abide in thy tabernacle for ever.* Let me once get back to thy courts, and nothing shall again expel me from them: even now in my banishment my heart is there; and ever will I continue to worship thee in spirit wherever my lot may be cast. Perhaps by the word *tabernacle* is here meant the dwelling place of God; and if so, the sense is, I will dwell with the Lord, enjoying his sacred hospitality, and sure protection.
 
@@ -40,17 +48,25 @@ He who communes with God is always at home. The divine omnipresence surrounds su
 
 ### Verse 5
 
+> For thou, O God, hast heard my vows: thou hast given *me* the heritage of those that fear thy name.
+
 *For thou, O God, hast heard my vows.* Proofs of divine faithfulness are to be had in remembrance, and to be mentioned to the Lord's honour. The prayer of Ps 61:1 is certain of an answer because of the experience of Ps 61:5, since we deal with an immutable God. Vows may rightly be joined with prayers when they are lawful, well considered, and truly for God's glory. It is great mercy on God's part to take any notice of the vows and promises of such faithless and deceitful creatures as we are. What we promise him is his due already, and yet he deigns to accept our vows as if we were not so much his servants as his free suitors who could give or withhold at pleasure. Thou hast given me the heritage of those that fear thy name. We are made heirs, joint heirs with all the saints, partakers of the same portion. With this we ought to be delighted. If we suffer, it is the heritage of the saints; if we are persecuted, are in poverty, or in temptation, all this is contained in the title deeds of the heritage of the chosen. Those we are to sup with we may well be content to dine with. We have the same inheritance as the Firstborn himself; what better is conceivable? Saints are described as fearing the name of God; they are reverent worshippers; they stand in awe of the Lord's authority; they are afraid of offending him, they feel their own nothingness in the sight of the Infinite One. To share with such men, to be treated by God with the same favour as he metes out to them, is matter for endless thanksgiving. All the privileges of all the saints are also the privileges of each one.
 
 ### Verse 6
+
+> Thou wilt prolong the king’s life: *and* his years as many generations.
 
 *Thou wilt prolong the king's life;* or, better, "days to the days of the King thou wilt add." Death threatened, but God preserved his beloved. David, considering his many perils, enjoyed a long and prosperous reign. And his years as many generations. He lived to see generation after generation personally; in his descendants he lived as king through a very long period; his dynasty continued for many generations; and in Christ Jesus, his seed and son, spiritually David reigns on evermore. Thus he who began at the foot of the rock, half drowned, and almost dead, is here led to the summit, and sings as a priest abiding in the tabernacle, a king ruling with God for ever, and a prophet foretelling good things to come. (Ps 61:7.) See the uplifting power of faith and prayer. None so low but they may yet be set on high.
 
 ### Verse 7
 
+> He shall abide before God for ever: O prepare mercy and truth, *which* may preserve him.
+
 *He shall abide before God for ever.* Though this is true of David in a modified sense, we prefer to view the Lord Jesus as here intended as the lineal descendant of David, and the representative of his royal race. Jesus is enthroned before God to eternity; here is our safety, dignity, and delight. We reign in him; in him we are made to sit together in the heavens. David's personal claim to sit enthroned for ever is but a foreshadowing of the revealed privilege of all true believers. O prepare mercy and truth, which may preserve him. As men cry, "Long live the king, "so we hail with acclamation our enthroned Immanuel, and cry, "Let mercy and truth preserve him." Eternal love and immutable faithfulness are the bodyguards of Jesus' throne, and they are both the providers and the preservers of all those who in him are made kings and priests unto God. We cannot keep ourselves, and nothing short of divine mercy and truth can do it; but these both can and will, nor shall the least of the people of God be suffered to perish.
 
 ### Verse 8
+
+> So will I sing praise unto thy name for ever, that I may daily perform my vows.
 
 *So will I sing praise unto thy name for ever.* Because my prayer is answered, my song shall be perpetual; because Jesus for ever sits at thy right hand, it shall be acceptable; because I am preserved in him, it shall be grateful. David had given vocal utterance to his prayer by a cry; he will now give expression to his praise by a song: there should be a parallel between our supplications and our thanksgivings. We ought not to leap in prayer, and limp in praise. The vow to celebrate the divine name *for ever* is no hyperbolical piece of extravagance, but such as grace and glory shall enable us to carry out to the letter. That I may daily perform my vows. To God who adds days to our days we will devote all our days. We vowed perpetual praise, and we desire to render it without intermission. We would worship God *de die in diem, * going right on as the days roll on. We ask no vacation from this heavenly vocation; we would make no pause in this sacred service. God daily performs his promises, let us daily perform our vows: he keeps his covenant, let us not forget ours. Blessed be the name of the Lord from this time forth, even for evermore.
 

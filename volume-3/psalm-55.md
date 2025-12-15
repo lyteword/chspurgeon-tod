@@ -14,25 +14,37 @@ weight: 55
 
 ### Verse 1
 
+> Give ear to my prayer, O God; and hide not thyself from my supplication.
+
 *Give ear to my prayer, O God.* The fact is so commonly before us, otherwise we should be surprised to observe how universally and constantly the saints resort to prayer in seasons of distress. From the Great Elder Brother down to the very least of the divine family, all of them delight in prayer. They run as naturally to the mercyseat in time of trouble as the little chickens to the hen in the hour of danger. But note well that it is never the bare act of prayer which satisfies the godly, they crave an audience with heaven, and an answer from the throne, and nothing less will content them. Hide not thyself from my supplication. Do not stop thine ear, or restrain thy hand. When a man saw his neighbour in distress, and deliberately passed him by, he was said to hide himself from him; and the psalmist begs that the Lord would not so treat him. In that dread hour when Jesus bore our sins upon the tree, his Father did hide himself, and this was the most dreadful part of all the Son of David's agony. Well may each of us deprecate such a calamity as that God should refuse to hear our cries.
 
 ### Verse 2
+
+> Attend unto me, and hear me: I mourn in my complaint, and make a noise;
 
 *Attend unto me, and hear me.* This is the third time he prays the same prayer. He is in earnest, in deep and bitter earnest. If his God do not hear, he feels that all is over with him. He begs for his God to be a listener and an answerer. I mourn in my complaint, and make a noise. He gives a loose to his sorrows, permits his mind to rehearse her griefs, and to pour them out in such language as suggests itself at the time, whether it be coherent or not. What a comfort that we may be thus familiar with our God! We may not complain *of* him, but we may complain *to* him. Our rambling thoughts when we are distracted with grief we may bring before him, and that too in utterances rather to be called a noise than language. He will attend so carefully that he will understand us, and he will often fulfil desires which we ourselves could not have expressed in intelligible words. "Groanings that cannot be uttered, "are often prayers which cannot be refused. Our Lord himself used strong crying and tears, and was heard in that he feared.
 
 ### Verse 3
 
+> Because of the voice of the enemy, because of the oppression of the wicked: for they cast iniquity upon me, and in wrath they hate me.
+
 *Because of the voice of the enemy.* The enemy was vocal and voluble enough, and found a voice where his godly victim had nothing better than a "noise." Slander is seldom short of expression, it prates and prattles evermore. Neither David, nor our Lord, nor any of the saints were allowed to escape the attacks of venomous tongues, and this evil was in every case the cause of acute anguish. Because of the oppression of the wicked: the unjust pressed and oppressed the righteous; like an intolerable burden they crushed them down, and brought them to their knees before the Lord. This is a thrice told story, and to the end of time it will be true; he that is born after the flesh will persecute him that is born after the Spirit. The great seed of the woman suffered from a bruised heel. For they cast iniquity upon me, they black me with their soot bags, throw the dust of their lying over me, cast the vitriol of their calumny over me. They endeavour to trip me up, and if I do not fall they say I do. And in wrath they hate me. With a hearty ill will they detested the holy man. It was no sleeping animosity, but a moral rancour which reigned in their bosoms. The reader needs not that we show how applicable this is to our Lord.
 
 ### Verse 4
+
+> My heart is sore pained within me: and the terrors of death are fallen upon me.
 
 *My heart is sore pained within me.* His spirit writhed in agony, like a poor worm; he was mentally as much in pain as a woman in travail physically. His inmost soul was touched; and a wounded spirit who can bear? If this were written when David was attacked by his own favourite son, and ignominiously driven from his capital, he had reason enough for using these expressions. And the terrors of death are fallen upon me. Mortal fears seized him, he felt like one suddenly surrounded with the glooms of the shadow of death, upon whom the eternal night suddenly descends. Within and without he was afflicted, and his chief terror seemed to come from above, for he uses the expression, "Fallen upon me." He gave himself up for lost. He felt that he was as good as dead. The inmost centre of his nature was moved with dismay. Think of our Lord in the garden, with his "soul exceeding sorrowful even unto death, " and you have a parallel to the griefs of the psalmist. Perchance, dear reader, if as yet thou hast not trodden this gloomy way, thou wilt do soon; then be sure to mark the footprints of thy Lord in this miry part of the road.
 
 ### Verse 5
 
+> Fearfulness and trembling are come upon me, and horror hath overwhelmed me.
+
 *Fearfulness and trembling are come upon me.* Like house breakers these robbers were entering his soul. Like one who feels a fainting fit coming over him, so the oppressed suppliant was falling into a state of terror. His fear was so great as to make him tremble. He did not know what would happen next, or how soon the worst should come. The sly, mysterious whisperings of slander often cause a noble mind more fear than open antagonism; we can be brave against an open foe, but cowardly, plotting conspiracies bewilder and distract us. And horror hath overwhelmed me. He was as one enveloped in a darkness that might be felt. As Jonah went down into the sea, so did David appear to go down into deeps of horror. He was unmanned, confounded, brought into a hideous state of suspense and mortal apprehension.
 
 ### Verse 6
+
+> And I said, Oh that I had wings like a dove! *for then* would I fly away, and be at rest.
 
 *And I said, Oh that I had wings like a dove! for then would I fly away, and be at rest.* If he could not resist as an eagle, he would escape as a dove. Swiftly, and unobserved, on strong, untiring pinions would he h away from the abodes of slander and wickedness. His love of peace made him sigh for an escape from the scene of strife.
 
@@ -47,6 +59,8 @@ Might never reach me more."
 We are all too apt to utter this vain desire, for vain it is; no wings of doves or eagles could bear us away from the sorrows of a trembling heart. Inward grief knows nothing of place. Moreover, it is cowardly to shun the battle which God would have us fight. We had better face the danger, for we have no armour for our backs. He had need of a swifter conveyance than doves' pinions who would outfly slander; he may be at rest who does not fly, but commends his case to his God. Even the dove of old found no rest till she returned to her ark, and we amid all our sorrow may find rest in Jesus. We need not depart; all will be well if we trust in him.
 
 ### Verse 7
+
+> Lo, *then* would I wander far off, *and* remain in the wilderness. Selah.
 
 *Lo, then would I wander far off.* Yet when David was far off, he sighed to be once more near Jerusalem; thus, in our ill estate we ever think the past to be better than the present. We shall be called to fly far enough away, and perchance we shall be loath to go; we need not indulge vain notions of premature escape from earth.
 
@@ -64,65 +78,97 @@ Our Lord, while free from all idle wishes, found much strength in solitude, and 
 
 ### Verse 8
 
+> I would hasten my escape from the windy storm *and* tempest.
+
 *I would hasten my escape.* He tried to pause but could not, like a horse which when pulled up slips on a little because of the speed at which he was going. David declares that he would not waste a moment, or stay to bid adieu to his friends, but up and away at once, for fear he should be too late, and because he could bear the clamour of his foes no longer. From the windy storm and tempest. A storm was brewing, and, like a dove, he would outfly it and reach a calmer region. Swifter than the storm cloud would he fly, to avoid the deluge of rain, and the flash of the lightning. Alas! poor soul, no such wings are thine, as yet thou must tarry here and feel the tempest; but be of good cheer, thou shalt stretch thy wings ere long for a bolder flight, heaven shall receive thee, and there thy sorrows shall have a finis of felicity among the birds of paradise.
 
 ### Verse 9
+
+> Destroy, O Lord, *and* divide their tongues: for I have seen violence and strife in the city.
 
 *Destroy, O Lord.* Put mine enemies to the rout. Let them be devoured by the sword, since they have unsheathed it against me. How could we expect the exiled monarch to offer any other prayer than this against the rebellious bands of Absalom, and the crafty devices of Ahithophel? Divide their tongues. Make another Babel in their debates and councils of war. Set them at cross purposes. Divide the pack that the hunted one may escape. The divisions of error are the hope of truth. For I have seen violence and strife in the city. The rabble and their leaders were plotting and planning, raging and contending against their king, running wild with a thousand mad projects: anarchy had fermented among them, and the king hoped that now it might come to pass that the very lawlessness which had exiled him would create weakness among his foes. Revolution devours its own children. They who are strong through violence, will sooner or later find that their strength is their death. Absalom and Ahithophel may raise the mob, but they cannot so easily rule it, nor so readily settle their own policy as to remain firm friends. The prayer of David was heard, the rebels were soon divided in their councils; Ahithophel went his way to be hanged with a rope, and Absalom to be hanged without one.
 
 ### Verse 10
 
+> Day and night they go about it upon the walls thereof: mischief also and sorrow *are* in the midst of it.
+
 *Day and night they go about it upon the walls thereof.* The city, the holy city had become a den of wickedness; conspirators met in the dark, and talked in little knots in the streets even in broad daylight. Meanwhile the country was being roused to revolt, and the traitors without threatened to environ the city, and act in concert with the rebels within. No doubt there was a smothered fire of insurrection which Absalom kindled and fanned, which David perceived with alarm some time before he left Jerusalem; and when he quitted the city it broke out into an open flame. Mischief also and sorrow are in the midst of it. Unhappy capital to be thus beset by foes, left by her monarch, and filled with all those elements of turbulence which breed evil and trouble. Unhappy king to be thus compelled to see the mischief which he could not avert laying waste the city which he loved so well. There was another King whose many tears watered the rebellious city, and who said, "O Jerusalem, Jerusalem, how often would I have gathered thy children together, even as a hen gathereth her chickens under her wings, and ye would not!"
 
 ### Verse 11
+
+> Wickedness *is* in the midst thereof: deceit and guile depart not from her streets.
 
 *Wickedness is in the midst thereof.* The very heart of the city was base. In her places of authority crime went hand in hand with calamity. All the wilder and more wicked elements were uppermost; the *canaille* were commanders; the scum floated uppermost; justice was at a discount; the population was utterly demoralized; prosperity had vanished and order with it. Deceit and guile depart not from her streets. In all the places of concourse crafty tongues were busy persuading the people with cozening phrases. Crafty demagogues led the people by the nose. Their good king was defamed in all ways, and when they saw *him* go away, they fell to reviling the governors of their own choosing. The forum was the fortress of fraud, the congress was the convention of cunning. Alas, poor Jerusalem, to be thus the victim of sin and shame! Virtue reviled and vice regnant! Her solemn assemblies broken up, her priests fled, her king banished, and troops of reckless villains parading her streets, sunning themselves on her walls, and vomiting their blasphemies in her sacred shrines. Here was cause enough for the sorrow which so plaintively utters itself in these verses.
 
 ### Verse 12
 
+> For *it was* not an enemy *that* reproached me; then I could have borne *it:* neither *was it* he that hated me *that* did magnify *himself* against me; then I would have hid myself from him:
+
 The reader will do well to observe how accurately the psalmist described his own Psalm when he said, "I mourn in my complaint, "or rather "give loose to my thoughts, "for he proceeds from one point of his sorrow to another, wandering on like one in a maze, making few pauses, and giving no distinct intimations that he is changing the subject. Now from the turbulent city his mind turns to the false hearted councillor. For is was not an enemy that reproached me; then I could have borne *it.* It was not an open foe, but a pretended friend; he went over to the other camp and tried to prove the reality of his treachery by calumniating his old friend. None are such real enemies as false friends. Reproaches from those who have been intimate with us, and trusted by us, cut us to the quick; and they are usually so well acquainted with our peculiar weaknesses that they know how to touch us where we are most sensitive, and to speak so as to do us most damage. The slanders of an avowed antagonist are seldom so mean and dastardly as those of a traitor, and the absence of the elements of ingratitude and treachery renders them less hard to bear. We can bear from Shimei what we cannot endure from Ahithophel. Neither was it he that hated me that did magnify himself against me; *then I would have hid myself from him.* We can find a hiding place from open foes, but who can escape from treachery? If our enemies proudly boast over us we nerve our souls for resistance, but when those who pretended to love us leer at us with contempt, whither shall we go? Our blessed Lord had to endure at its worst the deceit and faithlessness of a favoured disciple; let us not marvel when we are called to tread the road which is marked by his pierced feet.
 
 ### Verse 13
+
+> But *it was* thou, a man mine equal, my guide, and mine acquaintance.
 
 *But it was thou.* He sees him. The poetic fury is upon him, he sees the traitor as though he stood before him in flesh and blood. He singles him out, he points his finger at him, he challenges him to his face. But thou. *Et tu, Brute.* And thou, Ahithophel, art thou here? Judas, betrayest *thou* the Son of Man? A man mine equal. Treated by me as one of my own rank, never looked upon as an inferior, but as a trusted friend. My guide, a counsellor so sage that I trusted thine advice and found it prudent to do so. And mine acquaintance, with whom I was on most intimate terms, who knew me even as I knew him by mutual disclosures of heart. No stranger occasionally conversed with, but a near and dear friend admitted to my secret fellowship. It was fiendish treason for such a one to prove false hearted. There was no excuse for such villainy. Judas stood very much in this relation to our Lord, he was treated as an equal, trusted as treasurer, and in that capacity often consulted with. He knew the place where the Master was wont to spend his solitude; in fact, he knew all the Master's movements, and yet he betrayed him to his remorseless adversaries. How justly might the Lord have pointed at him and said, But thou; but his gentler spirit warned the son of perdition in the mildest manner, and had not Iscariot been tenfold a child of hell he would have relinquished his detestable purpose.
 
 ### Verse 14
 
+> We took sweet counsel together, *and* walked unto the house of God in company.
+
 *We took sweet counsel together.* It was not merely the counsel which men take together in public or upon common themes, their fellowship had been tender and confidential. The traitor had been treated lovingly, and trusted much. Solace, mutual and cheering, had grown out of their intimate communings. There were secrets between them of no common kind. Soul had been in converse with soul, at least on David's part. However feigned might have been the affection of the treacherous one, the betrayed friend had not dealt with him coldly, or guarded his utterance before him. Shame on the wretch who could belie such fellowship, and betray such confidence! And walked unto the house of God in company. Religion had rendered their intercourse sacred, they had mingled their worship, and communed on heavenly themes. If ever any bonds ought to be held inviolable, religious connections should be. There is a measure of impiety, of a detestable sort, in the deceit which debases the union of men who make profession of godliness. Shall the very altar of God be defiled with hypocrisy? Shall the gatherings of the temple be polluted by the presence of treachery? All this was true of Ahithophel, and in a measure of Judas. His union with the Lord was on the score of faith, they were joined in the holiest of enterprises, he had been sent on the most gracious of errands. His cooperation with Jesus to serve his own abominable ends stamped him as the firstborn of hell. Better had it been for him had he never been born. Let all deceitful professors be warned by his doom, for like Ahithophel he went to his own place by his own hand, and retains a horrible preeminence in the calendar of notorious crime. Here was one source of heart break for the Redeemer, and it is shared in by his followers. Of the serpent's brood some vipers still remain, who will sting the hand that cherished them, and sell for silver those who raised them to the position which rendered it possible for them to be so abominably treacherous.
 
 ### Verse 15
+
+> Let death seize upon them, *and* let them go down quick into hell: for wickedness *is* in their dwellings, *and* among them.
 
 Not thus would Jesus pray, but the rough soldier David so poured out the anguish of his spirit, under treachery and malice seldom equalled and altogether unprovoked. The soldier, as such, desires the overthrow of his foes, for this very end he fights; and viewed as a matter of law and justice, David was right in his wish; he was waging a just, defensive war against men utterly regardless of truth and justice. Read the words as a warrior's imprecation. Let death seize upon them. Traitors such as these deserve to die, there is no living with them, earth is polluted by their tread; if spies are shot, much more these sneaking villains. Let them go down quick into hell. While in the vigour of life into *sheol* let them sink, let them suddenly exchange the enjoyment of the quick or living for the sepulchre of the dead. There is, however, no need to read this verse as an imprecation, it is rather a confident expectation or prophecy: God would, he was sure, desolate them, and cast them out of the land of the living into the regions of the dead. For wickedness is in their dwellings, and among them. They are too bad to be spared, for their houses are dens of infamy, and their hearts fountains of mischief. They are a pest to the commonwealth, a moral plague, a spiritual pestilence, to be stamped out by the laws of men and the providence of God. Both Ahithophel and Judas soon ended their own lives; Absalom was hanged in the oak, and the rebels perished in the wood in great numbers. There is justice in the universe, love itself demands it; pity to rebels against God, as such, is no virtue—we pray for them as creatures, we abhor them as enemies of God. We need in these days far more to guard against the disguised iniquity which sympathises with evil, and counts punishment to be cruelty, than against the harshness of a former age. We have steered so far from Scylla that Charybdis is absorbing us.
 
 ### Verse 16
 
+> As for me, I will call upon God; and the LORD shall save me.
+
 *As for me, I will call upon God.* The psalmist would not endeavour to meet the plots of his adversaries by counterplots, or imitate their incessant violence, but in direct opposition to their godless behaviour would continually resort to his God. Thus Jesus did, and it has been the wisdom of all believers to do the same. As this exemplifies the contrast of their character, so it will foretell the contrast of their end—the righteous shall ascend to their God, the wicked shall sink to ruin. And the Lord shall save me. Jehovah will fulfil my desire, and glorify himself in my deliverance. The psalmist is quite sure. He knows that he will pray, and is equally clear that he will be heard. The covenant name is the pledge of the covenant promise.
 
 ### Verse 17
+
+> Evening, and morning, and at noon, will I pray, and cry aloud: and he shall hear my voice.
 
 *Evening and morning, and at noon, will I pray.* Often but none too often. Seasons of great need call for frequent seasons of devotion. The three periods chosen are most fitting; to begin, continue, and end the day with God is supreme wisdom. Where time has naturally set up a boundary, there let us set up an altar stone. The psalmist means that he will always pray; he will run a line of prayer right along the day, and track the sun with his petitions. Day and night he saw his enemies busy (Ps 55:10), and therefore he would meet their activity by continuous prayer. And cry aloud. He would give a tongue to his complaint; he would be very earnest in his pleas with heaven. Some cry aloud who never say a word. It is the bell of the heart that rings loudest in heaven. Some read it, "I will nurse and murmur; "deep heart thoughts should be attended with inarticulate but vehement utterances of grief. Blessed be God, moaning is translatable in heaven. A father's heart reads a child's heart. And he shall hear my voice. He is confident that he will prevail; he makes no question that he would be heard, he speaks as if already he were answered. When our window is opened towards heaven, the windows of heaven are open to us. Have but a pleading heart and God will have a plenteous hand.
 
 ### Verse 18
 
+> He hath delivered my soul in peace from the battle *that was* against me: for there were many with me.
+
 *He hath delivered my soul in peace from the battle that was against me.* The deliverance has come. Joab has routed the rebels. The Lord has justified the cause of his anointed. Faith sees as well as foresees; to her foresight is sight. He is not only safe but serene, delivered in peace—peace in his inmost soul. For there were many with me; many contending against me. Or it may be that he thankfully acknowledges that the Lord raised him up unexpected allies, fetched him succour when he most needed it, and made the friendless monarch once more the head of a great army. The Lord can soon change our condition, and he often does so when our prayers become fervent. The crisis of life is usually the secret place of wrestling. Jabbok makes Jacob a prevailing prince. He who stripped us of all friends to make us see himself in their absence, can give them back again in greater numbers that we may see him more joyfully in the fact of their presence.
 
 ### Verse 19
+
+> God shall hear, and afflict them, even he that abideth of old. Selah. Because they have no changes, therefore they fear not God.
 
 *God shall hear, and afflict them.* They make a noise as well as I, and God will hear them. The voice of slander, malice, and pride, is not alone heard by those whom it grieves, it reaches to heaven, it penetrates the divine ear, it demands vengeance, and shall have it. God hears and delivers his people, he hears and destroys the wicked. Their cruel jests, their base falsehoods, their cowardly insults, their daring blasphemies are heard, and shall be repaid to them by the eternal judge. Even he that abideth of old. He sits in eternity, enthroned judge for evermore; all the prayers of saints and profanities of sinners are before his judgment seat, and he will see that justice is done. Selah. The singer pauses, overwhelmed with awe in the presence of the everlasting God. Because they have no changes, therefore they fear not God. His own reverential feeling causes him to remember the daring godlessness of the wicked; he feels that his trials have driven him to his God, and he declares that their uninterrupted prosperity was the cause of their living in such neglect of the Most High. It is a very manifest fact that long continued ease and pleasure are sure to produce the worst influences upon graceless men: though troubles do not convert them, yet the absence of them makes their corrupt nature more readily develop itself. Stagnant water becomes putrid. Summer heat breeds noxious insects. He who is without trouble is often without God. It is a forcible proof of human depravity that man turns the mercy of God into nutriment for sin: the Lord save us from this.
 
 ### Verse 20
 
+> He hath put forth his hands against such as be at peace with him: he hath broken his covenant.
+
 The psalmist cannot forget the traitor's conduct, and returns again to consider it. He hath put forth his hands against such as be at peace with him. He smites those to whom he had given the hand of friendship, he breaks the bonds of alliance, he is perfidious to those who dwell at ease because of his friendly profession. He hath broken his covenant. The most solemn league he has profaned, he is regardless of oaths and promises.
 
 ### Verse 21
+
+> *The words* of his mouth were smoother than butter, but war *was* in his heart: his words were softer than oil, yet *were* they drawn swords.
 
 *The words of his mouth were smoother than butter.* He lauded and larded the man he hoped to devour. He buttered him with flattery and then battered him with malice. Beware of a man who has too much honey on his tongue; a trap is to be suspected where the bait is so tempting. Soft, smooth, oily words are most plentiful where truth and sincerity are most scarce. But war was in his heart. He brought forth butter in a lordly dish, but he had a tent pin ready for the temples of his guest. When heart and lip so widely differ, the man is a monster, and those whom he assails are afflicted indeed. His words were softer than oil. Nothing could be more unctuous and fluent, there were no objectionable syllables, no jars or discords, his words were as yielding as the best juice of the olive; yet were they drawn swords, rapiers unsheathed, weapons brandished for the fray. Ah! base wretch, to be cajoling your victim while intending to devour him! entrapping him as if he were but a beast of prey; surely, such art thou thyself.
 
 ### Verse 22
 
+> Cast thy burden upon the LORD, and he shall sustain thee: he shall never suffer the righteous to be moved.
+
 *Thy burden, * or what thy God lays upon thee, lay thou it upon the Lord. His wisdom casts it on thee, it is thy wisdom to cast it on him. He cast thy lot for thee, cast thy lot on him. He gives thee thy portion of suffering, accept it with cheerful resignation, and then take it back to him by thine assured confidence. He shall sustain thee. Thy bread shall be given thee, thy waters shall be sure. Abundant nourishment shall fit thee to bear all thy labours and trials. As thy days so shall thy strength be. He shall never suffer the righteous to be moved. He may move like the boughs of a tree in the tempest, but he shall never be moved like a tree torn up by the roots. He stands firm who stands in God. Many would destroy the saints, but God has not suffered it, and never will. Like pillars, the godly stand immoveable, to the glory of the Great Architect.
 
 ### Verse 23
+
+> But thou, O God, shalt bring them down into the pit of destruction: bloody and deceitful men shall not live out half their days; but I will trust in thee.
 
 For the ungodly a sure, terrible, and fatal overthrow is appointed. Climb as they may, *the pit* yawns for them, God himself will cause them to descend into it, and *destruction* there shall be their portion. Bloody and deceitful men, with double iniquity of cruelty and craft upon them, shall not live out half their days; they shall be cut off in their quarrels, or being disappointed in their artifices, vexation shall end them. They were in heart murderers of others, and they became in reality self murderers. Doubt not that virtue lengthens life, and that vice tends to shorten it. But I will trust in thee. A very wise, practical conclusion. We can have no better ground of confidence. The Lord is all, and more than all that faith can need as the foundation of peaceful dependence. Lord, increase our faith evermore.
 
