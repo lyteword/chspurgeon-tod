@@ -12,133 +12,199 @@ weight: 107
 
 ### Verse 1
 
+> O give thanks unto the LORD, for *he is* good: for his mercy *endureth* for ever.
+
 *O give thanks unto the Lord, for he is good.* It is all we can give him, and the least we can give; therefore let us diligently render to him our thanksgiving. The psalmist is in earnest in the exhortation, hence the use of the interjection "O", to intensity his words: let us be at all times thoroughly fervent in the praises of the Lord, both with our lips and with our lives, by thanksgiving and thanks living. JEHOVAH, for that is the name here used, is not to be worshipped with groans and cries, but with thanks, for he is good; and these thanks should be heartily rendered, for his is no common goodness: he is good by nature, and essence, and proven to be good in all the acts of his eternity. Compared with him there is none good, no, not one: but he is essentially, perpetually, superlatively, infinitely good. We are the perpetual partakers of his goodness, and therefore ought above all his creatures to magnify his name. Our praise should be increased by the fact that the divine goodness is not a transient thing, but in the attribute of mercy abides for ever the same, for his mercy endureth for ever. The word *endureth* has been properly supplied by the translators, but yet it somewhat restricts the sense, which will be better seen if we read it, *"for his mercy forever."* That mercy had no beginning, and shall never know an end. Our sin required that goodness should display itself to us in the form of mercy, and it has done so, and will do so evermore; let us not be slack in praising the goodness which thus adapts itself to our fallen nature.
 
 ### Verse 2
+
+> Let the redeemed of the LORD say *so*, whom he hath redeemed from the hand of the enemy;
 
 *Let the redeemed of the LORD say so.* Whatever others may think or say, the redeemed have overwhelming reasons for declaring the goodness of the Lord. Theirs is a peculiar redemption, and for it they ought to render peculiar praise. The Redeemer is so glorious, the ransom price so immense, and the redemption so complete, that they are under sevenfold obligations to give thanks unto the Lord, and to exhort others to do so. Let them not only feel so but say so; let them both sing and bid their fellows sing. Whom he hath redeemed from the hand of the enemy. Snatched by superior power away from fierce oppressions, they are bound above all men to adore the Lord, their Liberator. Theirs is a divine redemption, "he hath redeemed" them, and no one else has done it. His own unaided arm has wrought out their deliverance. Should not emancipated slaves be grateful to the hand which set them free? What gratitude can suffice for a deliverance from the power of sin, death, and hell? In heaven itself there is no sweeter hymn than that whose burden is, "Thou hast redeemed us unto God by thy blood."
 
 ### Verse 3
 
+> And gathered them out of the lands, from the east, and from the west, from the north, and from the south.
+
 *And gathered them out of the lands, from the east, and from the west, from the north, and from the south.* Gathering follows upon redeeming. The captives of old were restored to their own land from every quarter of the earth, and even from beyond the sea; for the word translated *south* is really *the sea.* No matter what divides, the Lord will gather his own into one body, and first on earth by "one Lord, one faith, and one baptism", and then in heaven by one common bliss they shall be known to be the one people of the One God. What a glorious Shepherd must, he be who thus collects the blood bought flock from the remotest regions, guides them through countless perils, and at last makes them to lie down in the green pastures of Paradise. Some have wandered one way and some another they have all left Immanuel's land and strayed as far as they could, and great are the grace and power by which they are all collected into one flock by the Lord Jesus. With one heart and voice let the redeemed praise the Lord who gathers them into one.
 
 ### Verse 4
+
+> They wandered in the wilderness in a solitary way; they found no city to dwell in.
 
 *They wandered in the wilderness.* They *wandered, * for the track was lost, no vestige of a road remained; worse still, they wandered *in a wilderness, * where all around was burning sand. They were lost in the worst possible place, even as the sinner is who is lost in sin; they wandered up and down in vain searches and researches as a sinner does when he is awakened and sees his lost estate; but it ended in nothing, for they still continued in the wilderness, though they had hoped to escape from it. In a solitary way. No dwelling of man was near, and no other company of travellers passed within hail. Solitude is a great intensifier of misery. The loneliness of a desert has a most depressing influence upon the man who is lost in the boundless waste. The traveller's way in the wilderness is a *waste* way, and when he leaves even that poor, barren trail, to get utterly beyond the path of man, he is in a wretched plight indeed. A soul without sympathy is on the borders of hell: a solitary way is the way of despair. They found no city to dwell in. How could they? There was none. Israel in the wilderness abode under canvas, and enjoyed none of the comforts of settled life; wanderers in the Sahara find no town or village. Men when under distress of soul find nothing to rest upon, no comfort and no peace; their efforts after salvation are many, weary, and disappointing, and the dread solitude of their hearts fills them with dire distress.
 
 ### Verse 5
 
+> Hungry and thirsty, their soul fainted in them.
+
 *Hungry and thirsty, their soul fainted in them.* The spirits sink when the bodily frame becomes exhausted by long privations. Who can keep his courage up when he is ready to fall to the ground at every step through utter exhaustion? The supply of food is all eaten, the water is spent in the bottles, and there are neither fields nor streams in the desert, the heart therefore sinks in dire despair. Such is the condition of an awakened conscience before it knows the Lord Jesus; it is full of unsatisfied cravings, painful needs, and heavy fears. It is utterly spent and without strength, and there is nothing in the whole creation which can minister to its refreshment.
 
 ### Verse 6
+
+> Then they cried unto the LORD in their trouble, *and* he delivered them out of their distresses.
 
 *Then they cried unto the LORD in their trouble.* Not till they were in extremities did they pray, but the mercy is that they prayed *then, * and prayed in the right manner, with a *cry, * and to the right person, even *to the Lord.* Nothing else remained for them to do; they could not help themselves, or find help in others, and therefore they cried to God. Supplications which are forced out of us by stern necessity are none the less acceptable with God; but, indeed, they have all the more prevalence, since they are evidently sincere, and make a powerful appeal to the divine pity. Some men will never pray till they are half starved, and for their best interests it is far better for them to be empty and faint than to be full and stouthearted. If hunger brings us to our knees it is more useful to us than feasting; if thirst drives us to the fountain it is better than the deepest draughts of worldly joys; and if fainting leads to crying it is better than the strength of the mighty, And he delivered them out of their distresses. Deliverance follows prayer most surely. The cry must have been very feeble, for they were faint, and their faith was as weak as their cry; but yet they were heard, and heard at once. A little delay would have been their death: but there was none, for the Lord was ready to save them. The Lord delights to come in when no one else can be of the slightest avail. The case was hopeless till Jehovah interposed, and then all was changed immediately; the people were shut up, straitened, and almost pressed to death, but enlargement came to them at once when they began to remember their God, and look to him in prayer. Those deserve to die of hunger who will not so much as ask for bread, and he who being lost in a desert will not beg the aid of a guide cannot be pitied even if he perish in the wilds and feed the vultures with his flesh.
 
 ### Verse 7
 
+> And he led them forth by the right way, that they might go to a city of habitation.
+
 *And he led them forth by the right way.* There are many wrong ways, but only one right one, and into this none can lead us but God himself. When the Lord is leader the way is sure to be right; we never need question that. Forth from the pathless mazes of the desert he conducted the lost ones; he found the way, made the way, and enabled them to walk along it, faint and hungry as they were. That they might go to a city of habitation. The end was worthy of the way: he did not lead them from one desert to another, but he gave the wanderers an abode, the weary ones a place of rest. *They* found no city to dwell in, but *he* found one readily enough. What *we* can do and what *God* can do are two very different things. What a difference it made to them to leave their solitude for a city, their trackless path for well frequented streets, and their faintness of heart for the refreshment of a home! Far greater are the changes which divine love works in the condition of sinners when God answers their prayers and brings them to Jesus. Shall not the Lord be magnified for such special mercies? Can we who have enjoyed them sit down in ungrateful silence?
 
 ### Verse 8
+
+> Oh that *men* would praise the LORD *for* his goodness, and *for* his wonderful works to the children of men!
 
 *Oh that men would praise the LORD for his goodness.* Men are not mentioned here in the original, but the word is fitly supplied by the translators; the psalmist would have all things in existence magnify Jehovah's name. Surely *men* will do this without being exhorted to it when the deliverance is fresh in their memories. They must be horrible ingrates who will not honour such a deliverer for so happy a rescue from the most cruel death. It is well that the redeemed should be stirred up to bless the Lord again and again, for preserved life deserves life long thankfulness. Even those who have not encountered the like peril, and obtained the like deliverance, should bless the Lord in sympathy with their fellows, sharing their joy. And for his wonderful works to the children of men. These favours are bestowed upon *our* race, upon children of the family to which we belong, and therefore we ought to join in the praise. The children of men are so insignificant, so feeble, and so undeserving, that it is a great wonder that the Lord should do anything for them; but he is not content with doing little works, he puts forth his wisdom, power, and love to perform marvels on the behalf of those who seek him. In the life of each one of the redeemed there is a world of wonders, and therefore from each there should resound a world of praises. As to the marvels of grace which the Lord has wrought for his church as a whole there is no estimating them, they are as high above our thoughts as the heavens are high above the earth. When shall the day dawn when the favoured race of man shall be as devoted to the praise of God as they are distinguished by the favour of God?
 
 ### Verse 9
 
+> For he satisfieth the longing soul, and filleth the hungry soul with goodness.
+
 *For he satisfieth the longing soul.* This is the summary of the lost traveller's experience. He who in a natural sense has been rescued from perishing in a howling wilderness ought to bless the Lord who brings hint again to eat bread among men. The spiritual sense is, however, the more rich in instruction. The Lord sets us longing and then completely satisfies us. That longing leads us into solitude, separation, thirst, faintness and self despair, and all these conduct us to prayer, faith, divine guidance, satisfying of the soul's thirst, and rest: the good hand of the Lord is to be seen in the whole process and in the divine result. And filleth the hungry soul with goodness. As for thirst he gives satisfaction, so for hunger he supplies filling. In both cases the need is more than met, there is an abundance in the supply which is well worthy of notice: the Lord does nothing in a niggardly fashion; satisfying and filling are his peculiar modes of treating his guests; none who come under the Lord's providing ever complain of short commons. Nor does he fill the hungry with common fare, but with *goodness* itself. It is not so much good, as the essence of goodness which he bestows on needy suppliants. Shall man be thus royally supplied and return no praise for the largeness of love? It must not be so. We will even now give thanks with all the redeemed church, and pray for the time when the whole earth shall be filled with his glory.
 
 ### Verse 10
+
+> Such as sit in darkness and in the shadow of death, *being* bound in affliction and iron;
 
 *Such as sit in darkness and in the shadow of death.* The cell is dark of itself, and the fear of execution casts a still denser gloom over the prison. Such is the cruelty of man to man that tens of thousands have been made to linger in places only fit to be tombs; unhealthy, suffocating, filthy sepulchres, where they have sickened and died of broken hearts. Meanwhile the dread of sudden death has been the most hideous part of the punishment; the prisoners have felt as if the chill shade of death himself froze them to the very marrow. The state of a soul under conviction of sin is forcibly symbolized by such a condition; persons in that state cannot see the promises which would yield them comfort, they sit still in the inactivity of despair, they fear the approach of judgment, and are thereby as much distressed as if they were at death's door. Being bound in affliction and iron. Many prisoners have been thus doubly fettered in heart and hand; or the text may mean that affliction becomes as an iron band to them, or that the iron chains caused them great affliction. None know these things but those who have felt them; we should prize our liberty more if we knew by actual experience what manacles and fetters mean. In a spiritual sense affliction frequently attends conviction of sin, and then the double grief causes a double bondage. In such cases the iron enters into the soul, the poor captives cannot stir because of their bonds, cannot rise to hope because of their grief, and have no power because of their despair. Misery is the companion of all those who are shut up and cannot come forth. O ye who are made free by Christ Jesus, remember those who are in bonds.
 
 ### Verse 11
 
+> Because they rebelled against the words of God, and contemned the counsel of the most High:
+
 *Because they rebelled against the words of God.* This was the general cause of bondage among the ancient people of God, they were given over to their adversaries because they were not loyal to the Lord. God's words are not to be trifled with, and those who venture on such rebellion will bring themselves into bondage. And contemned the counsel of the Most High. They thought that they knew better than the Judge of all the earth, and therefore they left his ways and walked in their own. When men do not follow the divine counsel they give the most practical proof of their contempt for it. Those who will not be bound by God's law will, ere long, be bound by the fetters of judgment. There is too much contemning of the divine counsel, even among Christians, and hence so few of them know the liberty wherewith Christ makes us free.
 
 ### Verse 12
+
+> Therefore he brought down their heart with labour; they fell down, and *there was* none to help.
 
 *Therefore he brought down their heart with labour.* In eastern prisons men are frequently made to labour like beasts of the field. As they have no liberty, so they have no rest. This soon subdues the stoutest heart, and makes the proud boaster sing another tune. Trouble and hard toil are enough to tame a lion. God has methods of abating the loftiness of rebellious looks; the cell and the mill make even giants tremble. They fell down, and there was none to help. Stumbling on in the dark beneath their weary task, they at last fell prone upon the ground, but no one came to pity them or to lift them up. Their fall might be fatal for aught that any man cared about them; their misery was unseen, or, if observed, no one could interfere between them and their tyrant masters. In such a wretched plight the rebellious Israelite became more lowly in mind, and thought more tenderly of his God and of his offences against him. When a soul finds all its efforts at self salvation prove abortive, and feels that it is now utterly without strength, then the Lord is at work hiding pride from man and preparing the afflicted one to receive his mercy. The spiritual case which is here figuratively described is desperate, and therefore affords the finer field for the divine interposition; some of us remember well how brightly mercy shone in our prison, and what music the fetters made when they fell off from our hands. Nothing but the Lord's love could have delivered us; without it we must have utterly perished.
 
 ### Verse 13
 
+> Then they cried unto the LORD in their trouble, *and* he saved them out of their distresses.
+
 *Then they cried unto the Lord in their trouble.* Not a prayer till then. While there was any to help below they would not look above. No cries till their hearts were brought down and their hopes were all dead— *then* they cried, but not before. So many a man offers what he calls prayer when he is in good case and thinks well of himself, but in very deed the only real cry to God is that which is forced out of him by a sense of utter helplessness and misery. We pray best when we are fallen on our faces in painful helplessness. And he saved them out of their distresses. Speedily and willingly he sent relief. They were long before they cried, but he was not long before he saved. They had applied everywhere else before they came to him, but when they did address themselves to him, they were welcome at once. He who saved men in the open wilderness can also save in the close prison: bolts and bars cannot shut him out, nor long shut in his redeemed ones.
 
 ### Verse 14
+
+> He brought them out of darkness and the shadow of death, and brake their bands in sunder.
 
 *He brought them out of darkness and the shadow of death.* The Lord in providence fetches out prisoners from their cells and bids them breathe the sweet fresh air again, and then he takes off their fetters, and gives liberty to their aching limbs. So also he frees men from care and trouble, and especially from the misery and slavery of sin. This he does with his own hand, for in the experience of all the saints it is certified that there is no jail delivery unless by the Judge himself. And brake their bands in sunder. Set them free by force, so liberating them that they could not be chained again, for he had broken the manacles to pieces. The Lord's deliverances are of the most complete and triumphant kind, he neither leaves the soul in darkness nor in bonds, nor does he permit the powers of evil again to enthral the liberated captive. What he does is done for ever. Glory be to his name.
 
 ### Verse 15
 
+> Oh that *men* would praise the LORD *for* his goodness, and *for* his wonderful works to the children of men!
+
 *Oh that men would praise the LORD for his goodness, and for his wonderful works to the children of men.* The sight of such goodness makes a right minded man long to see the Lord duly honoured for his amazing mercy. When dungeon doors fly open, and chains are snapped, who can refuse to adore the glorious goodness of the Lord? It makes the heart sick to think of such gracious mercies remaining unsung: we cannot but plead with men to remember their obligations and extol the Lord their God.
 
 ### Verse 16
+
+> For he hath broken the gates of brass, and cut the bars of iron in sunder.
 
 *For he hath broken the gates of brass, and cut the bars of Zion in sunder.* This verse belongs to that which precedes it, and Sums up the mercy experienced by captives. The Lord breaks the strongest gates and bars when the time comes to set free his prisoners: and spiritually the Lord Jesus has broken the most powerful of spiritual bonds and made us free indeed. Brass and iron are as tow before the flame of Jesus' love. The gates of hell shall not prevail against us, neither shall the bars of the grave detain us. Those of us who have experienced his redeeming power must and will praise the Lord for the wonders of his grace displayed on our behalf.
 
 ### Verse 17
 
+> Fools because of their transgression, and because of their iniquities, are afflicted.
+
 *Fools because of their transgression, and because of their iniquities, are afflicted.* Many sicknesses are the direct result of foolish acts. Thoughtless and lustful men by drunkenness, gluttony, and the indulgence of their passions fill their bodies with diseases of the worst kind. Sin is at the bottom of all sorrow, but some sorrows are the immediate results of wickedness: men by a course of transgression afflict themselves and are fools for their pains. Worse still, even when they are in affliction they are fools still; and if they were brayed in a mortar among wheat with a pestle, yet would not their folly depart from them. From one transgression they go on to many iniquities, and while under the rod they add sin to sin. Alas, even the Lord's own people sometimes play the fool in this sad manner.
 
 ### Verse 18
+
+> Their soul abhorreth all manner of meat; and they draw near unto the gates of death.
 
 *Their soul abhorreth all manner of meat.* Appetite departs from men when they are sick: the best of food is nauseous to them, their stomach turns against it. And they draw near unto the gates of death. From want of food, and from the destructive power of their malady, they slide gradually down till they lie at the door of the grave; neither does the skill of the physician suffice to stay their downward progress. As they cannot eat there is no support given to the system, and as the disease rages their little strength is spent in pain and misery. Thus it is with souls afflicted with a sense of sin, they cannot find comfort in the choicest promises, but turn away with loathing even from the gospel, so that they gradually decay into the grave of despair. The mercy is that though near the gates of death they are not yet inside the sepulchre.
 
 ### Verse 19
 
+> Then they cry unto the LORD in their trouble, *and* he saveth them out of their distresses.
+
 *Then they cry unto the LORD in their trouble.* They join the praying legion at last. Saul also is among the prophets. The fool lays aside his motley in prospect of the shroud, and betakes himself to his knees. What a cure for the soul sickness of body is often made to be by the Lord's grace! And he saveth them out of their distresses. Prayer is as effectual on a sick bed as in the wilderness or in prison; it may be tried in all places and circumstances with certain result. We may pray about our bodily pains and weaknesses, and we may look for answers too. When we have no appetite for meat we may have an appetite for prayer. He who cannot feed on the word of God may yet turn to God himself and find mercy.
 
 ### Verse 20
+
+> He sent his word, and healed them, and delivered *them* from their destructions.
 
 *He sent his word and healed them.* Man is not healed by medicine alone, but by the word which proceedeth out of the mouth of God is man restored from going down to the grave. A word will do it, a word has done it thousands of times. And delivered them from their destructions. They escape though dangers had surrounded them, dangers many and deadly. The word of the Lord has a great delivering power; he has but to speak and the armies of death flee in an instant. Sin sick souls should remember the power of *the Word, * and be much in hearing it and meditating upon it. Spiritually considered, these verses describe a sin sick soul: foolish but yet aroused to a sense of guilt, it refuses comfort from any and every quarter, and a lethargy of despair utterly paralyses it. To its own apprehension nothing remains but utter destruction in many forms: the gates of death stand open before it, and it is, in its own apprehension, hurried in that direction. Then is the soul driven to cry in the bitterness of its grief unto the Lord, and Christ, the eternal Word, comes with healing power in the direst extremity, saving to the uttermost.
 
 ### Verse 21
 
+> Oh that *men* would praise the LORD *for* his goodness, and *for* his wonderful works to the children of men!
+
 *Oh that men would praise the Lord for his goodness, and for his wonderful works to the children of men.* It is marvellous that men can be restored from sickness and yet refuse to bless the Lord. It would seem impossible that they should forget such great mercy, for we should expect to see both themselves and the friends to whom they are restored uniting in a lifelong act of thanksgiving. Yet when ten are healed it is seldom that more than one returns to give glory to God. Alas, where are the nine? When a spiritual cure is wrought by the great Physician, praise is one of the surest signs of renewed health. A mind rescued from the disease of sin and the weary pains of conviction, must and will adore Jehovah Rophi, the healing God: yet it were well if there were a thousand times as much even of this.
 
 ### Verse 22
+
+> And let them sacrifice the sacrifices of thanksgiving, and declare his works with rejoicing.
 
 *And let them sacrifice the sacrifices of thanksgiving.* In such a case let there be gifts and oblations as well as words. Let the good Physician have his fee of gratitude. Let life become a sacrifice to him who has prolonged it, let the deed of self denying gratitude be repeated again and again: there must be many cheerful sacrifices to celebrate the marvellous boon. And declare his works with rejoicing. Such things are worth telling, for the personal declaration honours God, relieves ourselves, comforts others, and puts all men in possession of facts concerning the divine goodness which they will not be able to ignore.
 
 ### Verse 23
 
+> They that go down to the sea in ships, that do business in great waters;
+
 *They that go down to the sea in ships.* Navigation was so little practised among the Israelites that mariners were invested with a high mystery, and their craft was looked upon as one of singular daring degree of and peril. Tales of the sea thrilled all hearts with awe, and he who had been to Ophir or to Tarshish and had returned alive was looked upon as a man of renown, an ancient mariner to be listened to with reverent attention. Voyages were looked on as descending to an abyss, "going down to the sea in ships"; whereas now our bolder and more accustomed sailors talk of the "high seas." That do business in great waters. If they had not had business to do, they would never have ventured on the ocean, for we never read in the Scriptures of any man taking his pleasure on the sea: so averse was the Israelitish mind to seafaring, that we do not hear of even Solomon himself keeping a pleasure boat. The Mediterranean was "the great sea" to David and his countrymen, and they viewed those who had business upon it with no small degree of admiration.
 
 ### Verse 24
+
+> These see the works of the LORD, and his wonders in the deep.
 
 *These see the works of the LORD.* Beyond the dwellers on the land they see the Lord's greatest works, or at least such as stayers at home judge to be so when they hear the report thereof. Instead of the ocean proving to be a watery wilderness, it is full of God's creatures, and if we were to attempt to escape from his presence by flying to the uttermost parts of it, we should only rush into Jehovah's arms, and find ourselves in the very centre of his workshop. And his wonders in the deep. They see wonders in it and on it. It is in itself a wonder and it swarms with wonders. Seamen, because they have fewer objects around them, are more observant of those they have than landsmen are, and hence they are said to *see* the wonders in the deep. At the same time, the ocean really does contain many of the more striking of God's creatures, and it is the scene of many of the more tremendous of the physical phenomena by which the power and more majesty of the Lord are revealed among men. The chief wonders alluded to by the Psalmist are a sudden storm and the calm which follows it. All believers have not the same deep experience; but for wise ends, that they may do business for him, the Lord sends some of his saints to the sea of soul trouble, and there they see, as others do not, the wonders of divine grace. Sailing over the deeps of inward depravity, the waste waters of poverty, the billows of persecution, and the rough waves of temptation, they need God above all others, and they find him.
 
 ### Verse 25
 
+> For he commandeth, and raiseth the stormy wind, which lifteth up the waves thereof.
+
 *For he commandeth*: his word is enough for anything, he has but to will it and the tempest rages. And raiseth the stormy wiled. It seemed to he asleep before, but it knows its Master's bidding, and is up at once in all its fury. Which lifteth up the waves thereof. The glassy surface of the sea is broken, and myriads of white heads appear and rage and toss themselves to and fro as the wind blows upon them. Whereas they were lying down in quiet before, the waves rise in their might and leap towards the sky as soon as the howling of the wind awakens them. Thus it needs but a word from God and the soul is in troubled waters, tossed to and fro with a thousand afflictions. Doubts, fears, terrors, anxieties lift their heads like so many angry waves, when once the Lord allows the storm winds to beat upon us.
 
 ### Verse 26
+
+> They mount up to the heaven, they go down again to the depths: their soul is melted because of trouble.
 
 *They mount up to the heaven.* Borne aloft on the crest of the wave, the sailors and their vessels appear to climb the skies, but it is only for a moment, for very soon in the trough of the sea they go down again to the depths. As if their vessel were but a sea bird, the mariners are tossed "up and down, up and down, from the base of the wave to the billow's crown." Their soul is melted because of trouble. Weary, wet, dispirited, hopeless of escape, their heart is turned to water, and they seem to have no manhood left. Those who have been on the spiritual deep in one of the great storms which occasionally agitate the soul know what this verse means. In these spiritual cyclones presumption alternates with despair, indifference with agony! No heart is left for anything, courage is gone, hope is almost dead. Such an experience is as real as the tossing of a literal tempest and far more painful. Some of us have weathered many such an internal hurricane, and have indeed seen the Lord's wondrous works.
 
 ### Verse 27
 
+> They reel to and fro, and stagger like a drunken man, and are at their wits’ end.
+
 *They reel to and fro, and stagger like a drunken man.* The violent motion of the vessel prevents their keeping their legs, and their fears drive them out of all power to use their brains, and therefore they look like intoxicated men. And are at their wit's end. What more can they do? They have used every expedient known to navigation, but the ship is so strained and beaten about that they know not how to keep her afloat. Here too the spiritual mariner's log agrees with that of the sailor on the sea. We have staggered frightfully! We could stand to nothing and hold by nothing. We knew not what to do, and could have done nothing if we had known it. We were as men distracted, and felt as if destruction itself would be better than our horrible state of suspense. As for wit and wisdom, they were clean washed out of us, we felt ourselves to be at a nonplus altogether.
 
 ### Verse 28
+
+> Then they cry unto the LORD in their trouble, and he bringeth them out of their distresses.
 
 *Then they cry unto the LORD in their trouble.* Though at their wit's end, they had wit enough to pray; their heart was melted, and it ran out in cries for help. This was well and ended well, for it is written, And he brought them out of their distresses. Prayer is good in a storm. We may pray staggering and reeling, and pray when we are at our wit's end. God will hear us amid the thunder and answer us out of the storm. He brought their distresses upon the mariners, and therefore they did well to turn to him for the removal of them; nor did they look in vain.
 
 ### Verse 29
 
+> He maketh the storm a calm, so that the waves thereof are still.
+
 *He maketh the storm a calm.* He reveals his power in the sudden and marvellous transformations which occur at his bidding. He commanded the storm and now he ordains a calm: God is in all natural phenomena, and we do well to recognise his working. So that the waves thereof are still. They bow in silence at his feet. Where huge billows leaped aloft there is scarce a ripple to be seen. When God makes peace it is peace indeed, the peace of God which passeth all understanding. He can in an instant change the condition of a man's mind, so that it shall seem an absolute miracle to him that he has passed so suddenly from hurricane to calm. O that the Lord would thus work in the reader, should his heart be storm beaten with outward troubles or inward fears. Lord, say the word and peace will come at once.
 
 ### Verse 30
+
+> Then are they glad because they be quiet; so he bringeth them unto their desired haven.
 
 *Then are they glad because they be quiet.* No one can appreciate this verse unless he has been in a storm at sea. No music can be sweeter than the rattling of the chain as the shipmen let down the anchor; and no place seems more desirable than the little cove, or the wide bay, in which the ship rests in peace. So he bringeth them unto their desired haven. The rougher the voyage the more the mariners long for port, and heaven becomes more and more "a desired haven", as our trials multiply. By storms and by favourable breezes, though tempest and fair weather, the great Pilot and Ruler of the sea brings mariners to port, and his people to heaven. HE must have the glory of the successful voyage of time, and when we are moored in the river of life above we shall take care that his praises are not forgotten. We should long ago have been wrecked if it had not been for his preserving hand, and our only hope of outliving the storms of the future is based upon his wisdom, faithfulness and power. Our heavenly haven shall ring with shouts of grateful joy when once we reach its blessed shore.
 
 ### Verse 31
 
+> Oh that *men* would praise the LORD *for* his goodness, and *for* his wonderful works to the children of men!
+
 *Oh that men would praise the Loud for his goodness, and for his wonderful works to the children of men!* Let the sea sound forth Jehovah's praises because of his delivering grace. As the sailor touches the shore let him lift the solemn hymn to heaven, and let others who see him rescued from the jaws of death unite in his thanksgiving.
 
 ### Verse 32
 
+> Let them exalt him also in the congregation of the people, and praise him in the assembly of the elders.
+
 *Let them exalt him also in the congregation of the people.* Thanks for such mercies should be given in public in the place where men congregate for worship. And praise him in the assembly of the elders. The praise should be presented with great solemnity in the presence of men of years, experience, and influence. High and weighty service should be rendered for great and distinguished favours, and therefore let the sacrifice be presented with due decorum and with grave seriousness. Often when men hear of a narrow escape from shipwreck they pass over the matter with a careless remark about good luck, but it should never be thus jested with. When a heart has been in great spiritual storms and has at last found peace, there will follow as a duty and a privilege the acknowledgment of the Lord's mercy before his people, and it is well that this should be done in the presence of those who hold office in the church, and who from their riper years are better able to appreciate the testimony.
 
 ### Verse 33
+
+> He turneth rivers into a wilderness, and the watersprings into dry ground;
 
 *He turneth rivers into a wilderness, and the watersprings into dry ground.* When the Lord deals with rebellious men he can soon deprive them of those blessings of which they feel most assured: their rivers and perennial springs they look upon as certain never to be taken from them, but the Lord at a word can deprive them even of these. In hot climates after long droughts streams of water utterly fail, and even springs cease to flow, and this also has happened in other parts of the world when great convulsions of the earth's surface have occurred. In providence this physical catastrophe finds its counterpart when business ceases to yield profit and sources of wealth are made to fail; as also when health and strength are taken away, when friendly aids are withdrawn, and comfortable associations are broken up. So, too, in soul matters, the most prosperous ministries may become dry, the most delightful meditations cease to benefit us, and the most fruitful religious exercises grow void of the refreshment of grace which they formerly yielded. Since
 
@@ -150,37 +216,57 @@ it behooves us to walk before him with reverential gratitude, and so to live tha
 
 ### Verse 34
 
+> A fruitful land into barrenness, for the wickedness of them that dwell therein.
+
 *A fruitful land into barrenness.* This has been done in many instances, and notably in the case of the psalmist's own country, which was once the glory of all lands and is now almost a desert. For the wickedness of them that dwell therein. Sin is at the bottom of sorrow. It first made the ground sterile in father Adam's day, and it continues to have a blighting effect upon all that it touches. If we have not the salt of holiness we shall soon receive the salt of barrenness, for the text in the Hebrew is—"a fruitful land into saltness." If we will not yield the Lord a harvest of obedience he may forbid the soil to yield us a harvest of bread, and what then? If we turn good into evil can we wonder if the Lord pays us in kind, and returns our baseness into our own bosoms? Many a barren church owes its present sad estate to its inconsistent behaviour, and many a barren Christian has come into this mournful condition by a careless, unsanctified walk before the Lord. Let not saints who are now useful run the risk of enduring the loss of their mercies, but let them be watchful that all things may go well with them.
 
 ### Verse 35
+
+> He turneth the wilderness into a standing water, and dry ground into watersprings.
 
 *He turneth the wilderness into a standing water.* With another turn of his hand he more than restores that which in judgment he took away. He does his work of mercy on a royal scale, for a deep lake is seen where before there was only a sandy waste. It is not by natural laws, working by some innate force, that this wonder is wrought, but by himself—HE TURNETH. And dry ground into watersprings. Continuance, abundance, and perpetual freshness are all implied in watersprings, and these are created where all was dry. This wonder of mercy is the precise reversal of the deed of judgment, and wrought by the selfsame hand. Even thus in the church, and in each individual saint, the mercy of the Lord soon works wonderful changes where restoring and renewing grace begin their benign work. O that we might see this verse fulfilled in all around us, and within our own hearts: then would these words serve us for an exclamation of grateful astonishment, and a song of well deserved praise.
 
 ### Verse 36
 
+> And there he maketh the hungry to dwell, that they may prepare a city for habitation;
+
 *And there he maketh the hungry to dwell*, where none could dwell before. They will appreciate the change and prize his grace; as the barrenness of the land caused their hunger so will its fertility banish it for ever, and they will settle down a happy and thankful people to bless God for every handful of corn which the land yields to them. None are so ready to return a revenue of praise to God for great mercies as those who have known the lack of them. Hungry souls make sweet music when the Lord fills them with his gracious gifts. Are we hungry? Or are we satisfied with the husks of this poor, swinish world? That they may prepare a city for habitation. When the earth is watered and men cultivate it, cities spring up and teem with inhabitants; when grace abounds where sin formerly reigned, hearts find peace and dwell in God's love as in a strong city. The church is built up where once all was a waste when the Lord causes the broad rivers and streams of gospel grace to flow forth.
 
 ### Verse 37
+
+> And sow the fields, and plant vineyards, which may yield fruits of increase.
 
 *And sow the fields, and plant vineyards, which may yield fruits of increase.* Men work when God works. His blessing encourages the sower, cheers the planter, and rewards the labourer. Not only necessaries but luxuries are enjoyed, wine as well as corn, when the heavens are caused to yield the needed rain to fill the watercourses. Divine visitations bring great spiritual riches, foster varied works of faith and labours of love, and cause every good fruit to abound to our comfort and to God's praise. When God sends the blessing it does not supersede, but encourages and develops human exertion. Paul plants, Apollos waters, and God gives the increase.
 
 ### Verse 38
 
+> He blesseth them also, so that they are multiplied greatly; and suffereth not their cattle to decrease.
+
 *He blesseth them also, so that they are multiplied greatly; and suffereth not their cattle to decrease.* God's blessing is everything. It not only makes men happy, but it makes men themselves, by causing men to be multiplied upon the earth. When the Lord made the first pair he blessed them and said "be fruitful and multiply", and here he restores the primeval blessing. Observe that beasts as well as men fare well when God favours his people: they share with men in the goodness or severity of divine providence. Plagues and pests are warded off from the flock and the herd when the Lord means well towards a people; but when chastisement is intended, the flocks and herds rot from off the face of the earth. O that nations in the day of their prosperity would but own the gracious hand of God, for it is to his blessing that they owe their all.
 
 ### Verse 39
+
+> Again, they are minished and brought low through oppression, affliction, and sorrow.
 
 *Again they are minished and brought low through oppression, affliction, and sorrow.* As they change in character, so do their circumstances alter. Under the old dispensation, this was very clearly to be observed; Israel's ups and downs were the direct consequences of her sins and repentance. Trials are of various kinds; here we have three words for affliction, and there are numbers more: God has many rods and we have many smarts; and all because we have many sins. Nations and churches soon diminish in number when they are diminished in grace. If we are low in love to God, it is small wonder that he brings us low in other respects. God can reverse the order of our prosperity, and give us a *diminuendo* where we had a *crescendo;* therefore let us walk before him with great tenderness of spirit, conscious of our dependence upon his smile.
 
 ### Verses 40 & 41
 
+> He poureth contempt upon princes, and causeth them to wander in the wilderness, *where there is* no way. 
+
+> Yet setteth he the poor on high from affliction, and maketh *him* families like a flock.
+
 In these two verses we see how the Lord at will turns the wheel of providence. Paying no respect to man's imaginary grandeur, he puts princes down and makes them wander in banishment as they had made their captives wander when they drove them from land to land: at the same time, having ever a tender regard for the poor and needy, the Lord delivers the distressed and sets them in a position of comfort and happiness. This is to be seen upon the roll of history again and again, and in spiritual experience we remark its counterpart: the self sufficient are made to despise themselves and search in vain for help in the wilderness of their nature, while poor convicted souls are added to the Lord's family and dwell in safety as the sheep of his fold.
 
 ### Verse 42
 
+> The righteous shall see *it*, and rejoice: and all iniquity shall stop her mouth.
+
 *The righteous shall see it, and rejoice.* Divine providence causes joy to God's true people; they see the hand of the Lord in all things, and delight to study the ways of his justice and of his grace. And all iniquity shall stop her mouth. What can she say? God's providence is often so conclusive in its arguments of fact, that there is no replying or questioning. It is not long that the impudence of ungodliness can be quiet, but when God's judgments are abroad it is driven to hold its tongue.
 
 ### Verse 43
+
+> Whoso *is* wise, and will observe these *things*, even they shall understand the lovingkindness of the LORD.
 
 Those who notice providence shall never be long without a providence notice. It is wise to observe what the Lord doth, for he is wonderful in counsel; has given us eyes to see with, and it is foolish to close them when there is most to observe; but we must observe wisely, otherwise we may soon confuse ourselves and others with hasty reflections upon the dealings of the Lord. In a thousand ways the lovingkindness of the Lord is shown, and if we will prudently watch, we shall come to a better understanding of it. To understand the delightful attribute of lovingkindness is an attainment as pleasant it is profitable: those who are proficient scholars in this art will be among sweetest singers to the glory of Jehovah.
 
