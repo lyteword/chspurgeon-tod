@@ -96,7 +96,7 @@ Amongst the dead, amidst the graves."
 
 *Only with thine eyes shalt thou behold and see the reward of the wicked.* The sight shall reveal both the justice and the mercy of God; in them that perish the severity of God will be manifest, and in the believer's escape the richness of divine goodness will be apparent. Joshua and Caleb verified this promise. The Puritan preachers during the plague of London must have been much impressed with this verse as they came out of their hiding places to proclaim mercy and judgment to the dissolute age which was so sorely visited with the pest. The sight of God's judgments softens the heart, excites a solemn awe, creates gratitude, and so stirs up the deepest kind of adoration. It is such a sight as none of us would wish to see, and yet if we did see it we might thus be lifted up to the very noblest style of manhood. Let us but watch providence, and we shall find ourselves living in a school where examples of the ultimate reward of sin are very plentiful. One case may not be judged alone lest we misjudge, but instances of divine visitation will be plentiful in the memory of any attentive observer of men and things; from all these put together we may fairly draw conclusions, and unless we shut our eyes to that which is self evident, we shall soon perceive that there is after all a moral ruler over the sons of men, who sooner or later rewards the ungodly with due punishment.
 
-### Verse 9 & 10
+### Verses 9 & 10
 
 > Because thou hast made the LORD, *which is* my refuge, *even* the most High, thy habitation;
 
