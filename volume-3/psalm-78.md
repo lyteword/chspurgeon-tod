@@ -200,7 +200,7 @@ It will be our wisdom to eat to the full of it, for God has so sent it that we a
 
 *So they did eat, and were well filled.* They greedily devoured the birds, even to repletion. The Lord shewed them that he could "provide flesh for his people, "even enough and to spare. He also shewed them that when lust wins its desire it is disappointed, and by the way of satiety arrive at distaste. First the food satiates, then it nauseates. For he gave them their own desire. They were filled with their own ways. The flesh meat was unhealthy for them, but as they cried for it they had it, and a curse with it. O my God, deny me my most urgent prayers sooner than answer them in displeasure. Better hunger and thirst after righteousness than to be well filled with sin's dainties.
 
-### Verse 30-31
+### Verses 30-31
 
 > They were not estranged from their lust. But while their meat *was* yet in their mouths, 
 

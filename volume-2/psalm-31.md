@@ -90,7 +90,7 @@ weight: 31
 
 *For I have heard the slander of many.* One slanderous viper is death to all comfort—what must be the venom of a whole brood? What the ear does not hear the heart does not rue; but in David's case the accusing voices were loud enough to break in upon his quiet—foul mouths had grown so bold, that they poured forth their falsehoods in the presence of their victim. Shimei was but one of a class, and his cry of "Go up, thou bloody man, "was but the common speech of thousands of the sons of Belial. All Beelzebub's pack of hounds may be in full cry against a man, and yet he may be the Lord's anointed. *Fear was on every side.* He was encircled with fearful suggestions, threatenings, remembrances, and forebodings; no quarter was clear from incessant attack. *While they took counsel together against me, they devised to take away my life.* The ungodly act in concert in their onslaughts upon the excellent of the earth: it is to be wondered at that sinners should often be better agreed than saints, and generally set about their wicked work with much more care and foresight than the righteous exhibit in holy enterprises. Observe the cruelty of a good man's foes! they will be content with nothing less than his blood—for this they plot and scheme. Better fall into the power of a lion than under the will of malicious persecutors, for the beast may spare its prey if it be fed to the full, but malice is unrelenting and cruel as a wolf. Of all fiends the most cruel is envy. How sorely was the psalmist bestead when the poisoned arrows of a thousand bows were all aimed at his life! Yet in all this his faith did not fail him, nor did his God forsake him. Here is encouragement for us.
 
-### Verse 14-18
+### Verses 14-18
 
 In this section of the Psalm he renews his prayers, urging the same pleas as at first: earnest wrestlers attempt over and over again the same means of gaining their point.
 
@@ -124,7 +124,7 @@ In this section of the Psalm he renews his prayers, urging the same pleas as at 
 
 *Let the lying lips be put to silence.* A right good and Christian prayer; who but a bad man would give liars more license than need be? May God silence them either by leading them to repentance, by putting them to thorough shame, or by placing them in positions where what they may say will stand for nothing. *Which speak grievous things proudly and contemptuously against the righteous.* The sin of slanderers lies partly in the matter of their speech; "they speak grievous things; "things cutting deep into the feelings of good men, and wounding them sorely in that tender place—their reputations. The sin is further enhanced by the manner of their speech; they speak proudly and contemptuously; they talk as if they themselves were the cream of society, and the righteous the mere scum of vulgarity. Proud thoughts of self are generally attended by debasing estimates of others. The more room we take up ourselves, the less we can afford our neighbours. What wickedness it is that unworthy characters should always be the loudest in railing at good men! They have no power to appreciate moral worth of which they are utterly destitute, and yet they have the effrontery to mount the judgment seat, and judge the men compared with whom they are as so much chaff. Holy indignation may well prompt us to desire anything which may rid the world of such unbearable impertinence and detestable arrogance.
 
-### Verse 19-22
+### Verses 19-22
 
 Being full of faith, the psalmist gives glory to God for the mercy which he is assured will be his position.
 

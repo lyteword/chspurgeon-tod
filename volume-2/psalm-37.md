@@ -112,7 +112,7 @@ The ploughman sows and harrows, and then leaves the harvest to God. What can he 
 
 *But the meek shall inherit the earth.* Above all others they shall enjoy life. Even if they suffer, their consolations shall overtop their tribulations. By inheriting the land is meant obtaining covenant privileges and the salvation of God. Such as are truly humble shall take their lot with the rest of the heirs of grace, to whom all good things come by a sacred birthright. *And shall delight themselves in the abundance of peace.* Peace they love and peace they shall have. If they find not abundance of gold, abundance of peace will serve their turn far better. Others find joy in strife, and thence arises their misery in due time, but peace leads on to peace, and the more a man loves it the more shall it come to him. In the halcyon period of the latter days, when universal peace shall make glad the earth, the full prophetic meaning of words like these will be made plain.
 
-### Verse 12-15
+### Verses 12-15
 
 Here is the portrait of a proud oppressor armed to the teeth.
 
@@ -206,7 +206,7 @@ This was David's observation, *I have been young, and now am old; yet have I not
 
 *He is ever merciful, and lendeth.* The righteous are constantly under generous impulses; they do not prosper through parsimony, but through bounty. Like the bounteous giver of all good, of whom they are the beloved sons, they delight in doing good. How stingy covetous professors can hope for salvation is a marvel to those who read such verses as this in the Bible. *And his seed is blessed.* God pays back with interest in the next generation. Where the children of the righteous are not godly, there must be some reason for it in parental neglect, or *some* other guilty cause. The friend of the father is the friend of the family. The God of Abraham is the God of Isaac and of Jacob.
 
-### Verse 27-29
+### Verses 27-29
 
 Here we have the seventh precept, which takes a negative and positive form, and is the quintessence of the entire Psalm
 

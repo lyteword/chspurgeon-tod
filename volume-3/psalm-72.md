@@ -144,7 +144,7 @@ God's church is no mean thing; its beginnings are small, but its increase is of 
 
 *His name shall endure for ever.* In its saving power, as the rallying point of believers, and as renowned and glorified, his name shall remain for ever the same. His name shall be continued as long as the sun. While time is measured out by days, Jesus shall be glorious among men. And men shall be blessed in him. There shall be cause for all this honour, for he shall really and truly be a benefactor to the race. He himself shall be earth's greatest blessing; when men wish to bless others they shall bless in his name. All nations shall call him blessed. The grateful nations shall echo his benedictions, and wish him happy who has made them happy. Not only shall some glorify the Lord, but all; no land shall remain in heathenism; all nations shall delight to do him honour.
 
-### Verse 18-19
+### Verses 18-19
 
 > Blessed *be* the LORD God, the God of Israel, who only doeth wondrous things.
 

@@ -90,7 +90,7 @@ Arm of the Lord, awake, awake."
 
 Pluck it out of thy bosom. A bold simile, but dying men must venture for their lives. When God seems to fold his arms we must not fold ours, but rather renew our entreaties that he would again put his hand to the work. O for more agony in prayer among professing Christians, then should we see miracles of grace. We have here before us a model of pleading, a very rapture of prayer. It is humble, but very bold, eager, fervent, and effectual. The heart of God is always moved by such entreaties. When we bring forth out strong reasons, then will he bring forth his choice mercies.
 
-### Verse 12-23
+### Verses 12-23
 
 Having spread the sad case before the Lord, the pleader now urges another series of arguments for divine help. He reasons from the Lord's former wonders of grace, and his deeds of power, imploring a repetition of the same divine works.
 

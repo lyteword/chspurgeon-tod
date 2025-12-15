@@ -72,7 +72,7 @@ weight: 22
 
 *"I was cast upon thee from the womb."* Into the Almighty arms he was first received, as into those of a loving parent. This is a sweet thought. God begins his care over us from the earliest hour. We are dandled upon the knee of mercy, and cherished in the lap of goodness; our cradle is canopied by divine love, and our first totterings are guided by his care. *"Thou art my God from my mother's belly."* The psalm begins with *"My God, my God, "* and here, not only is the claim repeated, but its early date is urged. Oh noble perseverance of faith, thus to continue pleading with holy ingenuity of argument! Our birth was our weakest and most perilous period of existence; if we were then secured by Omnipotent tenderness, surely we have no cause to suspect that divine goodness will fail us now. He who was our God when we left our mother, will be with us till we return to mother earth, and will keep us from perishing in the belly of hell.
 
-### Verse 11-21
+### Verses 11-21
 
 The crucified Son of David continues to pour out his complaint and prayer. We need much grace that while reading we may have fellowship with his sufferings. May the blessed Spirit conduct us into a most clear and affecting sight of our Redeemer's woes.
 
@@ -142,7 +142,7 @@ So emaciated was Jesus by his fastings and sufferings that he says, *"I may tell
 
 *"Save me from the lion's mouth: for thou hast heard me from the* horns of the unicorns." Having experienced deliverance in the past from great enemies, who were strong as the unicorns, the Redeemer utters his last cry for rescue from death, which is fierce and mighty as the lion. This prayer was heard, and the gloom of the cross departed. Thus faith, though sorely beaten, and even cast beneath the feet of her enemy, ultimately wins the victory. It was so in our Head, it shall be so in all the members. We have overcome the unicorn, we shall conquer the lion, and from both lion and unicorn we shall take the crown.
 
-### Verse 22-31
+### Verses 22-31
 
 The transition is very marked; from a horrible tempest all is changed into calm. The darkness of Calvary at length passed away from the face of nature, and from the soul of the Redeemer, and beholding the light of his triumph and its future results the Saviour smiled. We have followed him through the gloom, let us attend him in the returning light. It will be well still to regard the words as a part of our Lord's soliloquy upon the cross, uttered in his mind during the last few moments before his death.
 
