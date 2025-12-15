@@ -12,6 +12,8 @@ It commences with a threefold praise to the *Triune Lord* (Ps 136:1-3), then it 
 
 ### Verse 1
 
+> O give thanks unto the LORD; for *he is* good: for his mercy *endureth* for ever.
+
 *O give thanks unto the LORD.* The exhortation is intensely earnest: the Psalmist pleads with the Lord's people with an "O", three times repeated. Thanks are the least that we can offer, and these we ought freely to give. The inspired writer calls us to praise Jehovah for all his goodness to us, and all the greatness of his power in blessing his chosen. We thank our parents, let us praise our heavenly Father; we are grateful to our benefactors, let us give thanks unto the Giver of all good. For he is good. Essentially he is goodness itself, practically all that he does is good, relatively he is good to his creatures. Let us thank him that we have seen, proved, and tasted that he is good. He is good beyond all others: indeed, he alone is good in the highest sense; he is the source of good, the good of all good, the sustainer of good, the perfecter of good, and the rewarder of good. For this he deserves the constant gratitude of his people. For his mercy endureth for ever. We shall have this repeated in every verse of this song, but not once too often. It is the sweetest stanza that a man can sing. What joy that there is mercy, mercy with Jehovah, enduring mercy, mercy enduring for ever. We are ever needing it, trying it, praying for it, receiving it: therefore let us for ever sing of it.
 
 "When all else is changing within and around,
@@ -19,6 +21,8 @@ It commences with a threefold praise to the *Triune Lord* (Ps 136:1-3), then it 
 In God and his mercy no change can be found."
 
 ### Verse 2
+
+> O give thanks unto the God of gods: for his mercy *endureth* for ever.
 
 *O give thanks unto the God of gods.* If there be powers in heaven or on earth worthy of the name of gods he is the God of them; from him their dominion comes, their authority is derived from him, and their very existence is dependent upon his will. Moreover, for the moment assuming that the deities of the heathen were gods, yet none of them could be compared with our Elohim, who is infinitely beyond what they are fabled to be. Jehovah is our God, to be worshipped and adored, and he is worthy of our reverence to the highest degree. If the heathen cultivate the worship of their gods with zeal, how much more intently should we seek the glory of the God of gods—the only true and real God. Foolish persons have gathered from this verse that the Israelites believed in the existence of many gods, at the same time believing that their Jehovah was the chief among them; but this is an absurd inference, since gods who have a God over them cannot possibly be gods themselves. The words are to be understood after the usual manner of human speech, in which things are often spoken of not as they really are, but as they profess to be. God as God is worthy of our warmest thanks, for his mercy endureth for ever. Imagine supreme Godhead without everlasting mercy! It would then have been as fruitful a source of terror as it is now a fountain of thanksgiving. Let the Highest be praised in the highest style, for right well do his nature and his acts deserve the gratitude of all his creatures.
 
@@ -28,6 +32,8 @@ For his love endureth still.
 
 ### Verse 3
 
+> O give thanks to the Lord of lords: for his mercy *endureth* for ever.
+
 *O give thanks to the Lord of lords.* There are lords many, but Jehovah is the Lord of them. All lordship is vested in the Eternal. He makes and administers law, he rules and governs mind and matter, he possesses in himself all sovereignty and power. All lords in the plural are summed up in this Lord in the singular; he is more lordly than all emperors and kings condensed into one. For this we may well be thankful, for we know the superior Sovereign will rectify the abuses of the underlings who now lord it over mankind. He will call these lords to his bar, and reckon with them for every oppression and injustice. He is as truly the Lord of lords as he is Lord over the meanest of the land, and he rules with a strict impartiality, for which every just man should give heartiest thanks. For his mercy endureth for ever. Yes, he mingles mercy with his justice, and reigns for the benefit of his subjects. He pities the sorrowful, protects the helpless, provides for the needy, and pardons the guilty; and this he does from generation to generation, never wearying of his grace, "because he delighteth in mercy." Let us arouse ourselves to laud our glorious Lord! A third time let us thank him who is our Jehovah, our God, and our Lord; and let this one reason suffice us for three thanksgivings, or for three thousand—
 
 "For his mercy shall endure,
@@ -35,6 +41,8 @@ For his love endureth still.
 Ever faithful, ever sure."
 
 ### Verse 4
+
+> To him who alone doeth great wonders: for his mercy *endureth* for ever.
 
 *To him who alone doeth great wonders.* Jehovah is the great Thaumaturge, the unrivalled Wonder worker. None can be likened unto him, he is alone in wonderland, the Creator and Worker of true marvels, compared with which all other remarkable things are as child's play. His works are all great in wonder even when they are not great in size; in fact, in the minute objects of the microscope we behold as great wonders as even the telescope can reveal. All the works of his unrivalled skill are wrought by him alone and unaided, and to him, therefore, must be undivided honour. None of the gods or the lords helped Jehovah in creation, or in the redemption of his people: his own right hand and his holy arm have wrought for him these great deeds. What have the gods of the heathen done? If the question be settled by doings, Jehovah is indeed "alone." It is exceedingly wonderful that men should worship gods who can do nothing, and forget the Lord who alone doeth great wonders. Even when the Lord uses men as his instruments, yet the wonder of the work is his alone; therefore let us not trust in men, or idolize them, or tremble before them. Praise is to be rendered to Jehovah, for his mercy endureth for ever. The mercy of the wonder is the wonder of the mercy; and the enduring nature of that mercy is the central wonder of that wonder. The Lord causes us often to sit down in amazement as we see what his mercy has wrought out and prepared for us: "wonders of grace to God belong", yea, great wonders and unsearchable. Oh the depth! Glory be to his name world without end!
 
@@ -44,6 +52,8 @@ Mercy sits upon his throne.
 
 ### Verse 5
 
+> To him that by wisdom made the heavens: for his mercy *endureth* for ever.
+
 *To him that by wisdom made the heavens.* His goodness appears in creating the upper regions. He set his wisdom to the task of fashioning a firmament, or an atmosphere suitable for a world upon which mortal men should dwell. What a mass of wisdom lies hidden in this one creating act! The discoveries of our keenest observers have never searched out all the evidences of design which are crowded together in this work of God's hands. The lives of plants, animals, and men are dependent upon the fashioning of our heavens: had the skies been other than they are we had not been here to praise God. Divine foresight planned the air and the clouds, with a view to the human race. For his mercy endureth for ever. The Psalmist's details of mercy begin in the loftiest regions, and gradually descend from the heavens to "our low estate" (Ps 134:23); and this is an ascent, for mercy becomes greater as its objects become less worthy. Mercy is far reaching, long enduring, all encompassing. Nothing is too high for its reach, as nothing is beneath its stoop.
 
 High as heaven his wisdom reigns,
@@ -51,6 +61,8 @@ High as heaven his wisdom reigns,
 Mercy on the throne remains.
 
 ### Verse 6
+
+> To him that stretched out the earth above the waters: for his mercy *endureth* for ever.
 
 *To him that stretched out the earth above the waters.* Lifting it up from the mingled mass, the dank morass, the bottomless bog, of mixed land and sea; and so fitting it to be the abode of man. Who but the Lord could have wrought this marvel? Few even think of the divine wisdom and power which performed all this of old; yet, if a continent can be proved to have risen or fallen an inch within historic memory, the fact is recorded in the "transactions" of learned societies, and discussed at every gathering of philosophers. For his mercy endureth for ever, as is seen in the original upheaval and perpetual upstanding of the habitable land, so that no deluge drowns the race. By his strength he sets fast the mountains and consolidates the land upon which we sojourn.
 
@@ -60,6 +72,8 @@ Firm his mercies ever stand.
 
 ### Verse 7
 
+> To him that made great lights: for his mercy *endureth* for ever:
+
 *To him that made great lights.* This also is a creating miracle worthy of our loudest thanks. What could men have done without light? Though they had the heavens above them, and dry land to move upon, yet what could they see, and where could they go without light? Thanks be to the Lord, who has not consigned us to darkness. In great mercy he has not left us to an uncertain, indistinct light, floating about fitfully, and without order; but he has concentrated light upon two grand luminaries, which, as far as we are concerned, are to us "great lights." The Psalmist is making a song for common people, not for your critical savans, —and so he sings of the sun and moon as they appear to us, —the greatest of lights. These the Lord created in the beginning; and for the present age of man made or constituted them light bearers for the world. For his mercy endureth for ever. Mercy gleams in every ray of light, and it is most clearly seen in the arrangement by which it is distributed with order and regularity from the sun and moon.
 
 Lamps he lit in heaven's heights,
@@ -67,6 +81,8 @@ Lamps he lit in heaven's heights,
 For in mercy he delights.
 
 ### Verse 8
+
+> The sun to rule by day: for his mercy *endureth* for ever:
 
 *The sun to rule by day.* We cannot be too specific in our praises; after mentioning great lights, we may sing of each of them, and yet not outwear our theme. The influences of the sun are too many for us to enumerate them all, but untold benefits come to all orders of beings by its light, warmth, and other operations. Whenever we sit in the sunshine, our gratitude should be kindled. The sun is a great ruler, and his government is pure beneficence, because by God's mercy it is moderated to our feebleness; let all who rule take lessons from the sun which rules to bless. By day we may well give thanks, for God gives cheer. The sun rules because God rules; it is not the sun which we should worship, like the Parsees; but the Creator of the sun, as he did who wrote this sacred song. For his mercy endureth for ever. Day unto day uttereth speech concerning the mercy of the Lord; every sunbeam is a mercy, for it falls on undeserving sinners who else would sit in doleful darkness, and find earth a hell. Milton puts it well:
 
@@ -80,6 +96,8 @@ Ever faithful, ever sure."
 
 ### Verse 9
 
+> The moon and stars to rule by night: for his mercy *endureth* for ever.
+
 *The moon and stars to rule by night.* No hour is left without rule. Blessed be God, he leaves us never to the doom of anarchy. The rule is one of light and benediction. The moon with her charming changes, and the stars in their fixed spheres gladden the night. When the season would be dark and dreary because of the absence of the sun, forth come the many minor comforters. The sun is enough alone; but when he is gone a numerous band cannot suffice to give more than a humble imitation of his radiance. Jesus, the Sun of Righteousness, alone, can do more for us than all his servants put together. He makes our day. When he is hidden, it is night, and remains night, let our human comforters shine at their full. What mercy is seen in the lamps of heaven gladdening our landscape at night! What equal mercy in all the influences of the moon upon the tides, those life floods of the earth! The Lord is the Maker of every star, be the stars what they may; he calleth them all by their names, and at his bidding each messenger with his torch enlightens our darkness. For his mercy endureth for ever. Let our thanks be as many as the stars, and let our lives reflect the goodness of the Lord, even as the moon reflects the light of the sun. The nightly guides and illuminators of men on land and sea are not for now and then, but for all time. They shone on Adam, and they shine on us. Thus they are tokens and pledges of undying grace to men; and we may sing with our Scotch friends—
 
 "For certainly
@@ -92,6 +110,8 @@ Eternally."
 
 ### Verse 10
 
+> To him that smote Egypt in their firstborn: for his mercy *endureth* for ever:
+
 We have heard of the glory of the world's creation, we are now to praise the Lord for the creation of his favoured nation by their Exodus from Egypt. Because the monarch of Egypt stood in the way of the Lord's gracious purposes it became needful for the Lord to deal with him in justice; but the great design was mercy to Israel, and through Israel mercy to succeeding ages, and to all the world. To him that smote Egypt in their firstborn. The last and greatest of the plagues struck all Egypt to the heart. The sorrow and the terror which it caused throughout the nation it is hardly possible to exaggerate. From king to slave each one was wounded in the most tender point. The joy and hope of every household was struck down in one moment, and each family had its own wailing. The former blows had missed their aim compared with the last; but that "smote Egypt." The Lord's firstborn had been oppressed by Egypt, and at last the Lord fulfilled his threatening, "I will slay thy son, even thy firstborn." Justice lingered but it struck home at last. "For his mercy endureth for ever." Yes, even to the extremity of vengeance upon a whole nation the Lord's mercy to his people endured. He is slow to anger, and judgment is his strange work; but when mercy to men demands severe punishments he will not hold back his hand from the needful surgery. What were all the firstborn of Egypt compared with those divine purposes of mercy to all generations of men which were wrapped up in the deliverance of the elect people? Let us even when the Lord's judgments are abroad in the earth continue to sing of his unfailing grace.
 
 "For evermore his love shall last,
@@ -99,6 +119,8 @@ We have heard of the glory of the world's creation, we are now to praise the Lor
 For ever sure, for ever fast."
 
 ### Verse 11
+
+> And brought out Israel from among them: for his mercy *endureth* for ever:
 
 *And brought out Israel from among them.* Scattered as the tribes were up and down the country, and apparently held in a grasp which would never be relaxed, the Lord wrought their deliverance, and severed them from their idolatrous task masters. None of them remained in bondage. The Lord brought them out; brought them all out; brought them out at the very hour when his promise was due; brought them out despite their being mingled among the Egyptians; brought them out never to return. Unto his name let us give thanks for this further proof of his favour to the chosen ones, For his mercy endureth for ever. Once the Israelites did not care to go out, but preferred to bear the ills they had rather than risk they knew not what; but the Lord's mercy endured that test also, and ceased not to stir up the nest till the birds were glad to take to their wings. He turned the land of plenty into a house of bondage, and the persecuted nation was glad to escape from slavery. The unfailing mercy of the Lord is gloriously seen in his separating his elect from the world. He brings out his redeemed and they are henceforth a people who show forth his praise.
 
@@ -112,6 +134,8 @@ Shall never end."
 
 ### Verse 12
 
+> With a strong hand, and with a stretched out arm: for his mercy *endureth* for ever.
+
 *With a strong hand, and with a stretched out arm.* Not only the matter but the manner of the Lord's mighty acts should be the cause of our praise. We ought to bless the Lord for adverbs as well as adjectives. In the Exodus the great power and glory of Jehovah were seen. He dashed in pieces the enemy with his right hand. He led forth his people in no mean or clandestine manner. "He brought them forth also with silver and gold, and there was not one feeble person in all their tribes." Egypt was glad when they departed. God worked with great display of force, and with exceeding majesty; he stretched out his arm like a workman intent on his labour, he lifted up his hand as one who is not ashamed to be seen. Even thus was it in the deliverance of each one of us from the thraldom of sin; "according to the working of his mighty power which he wrought in Christ when he raised him from the dead and set him at his own right hand in the heavenly places." For his mercy endureth for ever—therefore his power is put forth for the rescue of his own. If one plague will not set them free there shall be ten; but free they shall all be at the appointed hour; not one Israelite shall remain under Pharaoh's power. God will not only use his hand but his arm—his extraordinary power shall be put to the work sooner than his purpose of mercy shall fail.
 
 See, he lifts his strong right hand,
@@ -119,6 +143,8 @@ See, he lifts his strong right hand,
 For his mercies steadfast stand.
 
 ### Verse 13
+
+> To him which divided the Red sea into parts: for his mercy *endureth* for ever:
 
 *To him which divided the Red sea into parts.* He made a road across the sea bottom, causing the divided waters to stand like walls on either side. Men deny miracles; but, granted that there is a God, they become easy of belief. Since it requires me to be an atheist that I may logically reject miracles, I prefer the far smaller difficulty of believing in the infinite power of God. He who causes the waters of the sea ordinarily to remain as one mass can with equal readiness divide them. He who can throw a stone in one direction can with the same force throw it another way: the Lord can do precisely what he wills, and he wills to do anything which is ten the deliverance of his people. For his mercy endureth for ever, and therefore it endures through the sea as well as over the dry land. He will do a new thing to keep his old promise. His way is in the sea, and he will make a way for his people in the same pathless region.
 
@@ -128,6 +154,8 @@ For his mercy sure abides.
 
 ### Verse 14
 
+> And made Israel to pass through the midst of it: for his mercy *endureth* for ever:
+
 *And made Israel to pass through the midst of it.* HE gave the people courage to follow the predestined track through the yawning abyss, which might well have terrified a veteran host. It needed no little generalship to conduct so vast and motley a company along a way so novel and apparently so dangerous. He made them to pass, by the untrodden road; he led them down into the deep and up again on the further shore in perfect order, keeping their enemies back by the thick darkness of the cloudy pillar. Herein is the glory of God set forth, as all his people see it in their own deliverance from sin. By faith we also give up all reliance upon works and trust ourselves to pass by a way which we have not known, even by the way of reliance upon the atoning blood: thus are we effectually sundered from the Egypt of our former estate, and our sins themselves are drowned. The people marched dry shod through the heart of the sea. Hallelujah! For his mercy endureth for ever. Mercy cleared the road, mercy cheered the host, mercy led them down, and mercy brought them up again. Even to the depth of the sea mercy reaches, —there is no end to it, no obstacle in the way of it, no danger to believers in it, while Jehovah is all around. "Forward?" be *our* watchword as it was that of Israel of old, for mercy doth compass us about;
 
 Through the fire or through the sea
@@ -135,6 +163,8 @@ Through the fire or through the sea
 Still his mercy guards thee.
 
 ### Verse 15
+
+> But overthrew Pharaoh and his host in the Red sea: for his mercy *endureth* for ever.
 
 *But overthrew Pharaoh and his host in the Red sea.* Here comes the thunder clap. Though we hear them sounding peal upon peal, yet the judgments of the Lord were only loud mouthed mercies speaking confusion to the foe, that the chosen might tremble before him no longer. The chariots were thrown over, the horses were overthrown. The King and his warriors were alike overwhelmed; they were hurled from their chariots as locusts are tossed to and fro in the wind. Broken was the power and conquered was the pride of Egypt. Jehovah had vanquished the enemy. "Art thou not it which cut Rahab and wounded crocodile?" None are too great for the Lord to subdue, none too high for Lord to abase. The enemy in his fury drove after Israel into the sea, but his wrath found a terrible recompense beneath the waves. For his mercy endureth for ever. Yes, mercy continued to protect its children, and therefore called in the aid of justice to fulfil the capital sentence on their foes. Taken red handed, in the very act of rebellion against their sovereign Lord, the adversaries met the fate which they had themselves invited. He that goes into the midst of the sea asks to be drowned. Sin is self damnation. The sinner goes downward of his own choice, and if he finds out too late that he return, is not his blood upon his own head? The finally impenitent, terrible their doom, will not be witnesses against mercy; but rather this shall aggravate their misery, that they went on in defiance of mercy, and would yield themselves to him whose mercy endureth for ever. To the Israelites as they sung this song their one thought would be of the rescue of their fathers from fierce oppressor. Taken like a lamb from between the teeth of the lion, justly praises her Deliverer and chants aloud:
 
@@ -144,6 +174,8 @@ Pharaoh and his host are slain.
 
 ### Verse 16
 
+> To him which led his people through the wilderness: for his mercy *endureth* for ever.
+
 *To him which led his people through the wilderness.* He led them into it, and therefore he was pledged to lead them through it. They were *"his people", * and yet they must go into the wilderness, and the wilderness must remain as barren as ever it was; but in the end they must come out of it into the promised land. God's dealings are mysterious, but they must be right, simply because they are his. The people knew nothing of the way, but they were led; they were a vast host, yet they were all led; there were neither roads nor tracks, but being led by unerring wisdom they never lost their way. He who brought them out of Egypt, also led them through the wilderness. By Moses, and Aaron, and Jethro, and the pillar of cloud he led them. What a multitude of mercies are comprehended in the conduct of such an enormous host through a region wherein there was no provision even for single travellers; yet the Lord by his infinite power and wisdom conducted a whole nation for forty years through a desert land, and their feet did not swell, neither did their garments wax old in all the journey. For his mercy endureth for ever. Their conduct in the wilderness tested his mercy most severely, but it bore the strain; many a time he forgave them; and though he smote them for their transgressions, yet he waited to be gracious and speedily turned to them in compassion. *Their* faithfulness soon failed, but *his* did not: the fiery, cloudy pillar which never ceased to lead the van was the visible proof of his immutable love—
 
 "For his, mercy, changing never,
@@ -151,6 +183,8 @@ Pharaoh and his host are slain.
 Still endureth, sure for ever."
 
 ### Verse 17
+
+> To him which smote great kings: for his mercy *endureth* for ever:
 
 *To him which smote great kings.* Within sight of their inheritance Israel had to face powerful enemies. Kings judged to be great because of the armies at their back blocked up their road. This difficulty soon disappeared, for the Lord smote their adversaries, and a single stroke sufficed for their destruction. He who had subdued the really mighty ruler of Egypt made short work of these petty sovereigns, great though they were in the esteem of neighbouring princes. For his mercy endureth for ever. Mercy, which had brought the chosen tribes so far, would not be balked by the opposition of boastful foes. The Lord who smote Pharaoh at the beginning of the wilderness march, smote Sihon and Og at the close of it. How could these kings hope to succeed when even mercy itself was in arms against them.
 
@@ -160,6 +194,8 @@ Saving from the foe man's hands.
 
 ### Verse 18
 
+> And slew famous kings: for his mercy *endureth* for ever:
+
 *And slew famous kings.* What good was their fame to them? As they opposed God they became infamous rather than famous. Their deaths made the Lord's fame to increase among the nations while their fame ended in disgraceful defeat. For his mercy endureth for ever. Israelitish patriots felt that they, could never have too much of this music; God had protected their nation, and they chanted his praises with unwearied iteration.
 
 Kings he smote despite their fame,
@@ -167,6 +203,8 @@ Kings he smote despite their fame,
 For his mercy's still the same.
 
 ### Verse 19
+
+> Sihon king of the Amorites: for his mercy *endureth* for ever:
 
 *Sihon king of the Amorites.* Let the name be mentioned that the mercy may be the better remembered. Sihon smote Moab, but he could not smite Israel, for the Lord smote *him.* He was valiant and powerful, so as to be both great and famous; but as he wilfully refused to give a peaceful passage to the Israelites, and fought against them in malice, there was no choice for it but to let him run into that destruction which he courted. His fall was speedy and final, and the chosen people were so struck with it that they sung of his overthrow in their national songs. For his mercy endureth for ever. His mercy is no respecter of persons, and neither the greatness nor the fame of Sihon could protect him after he had dared to attack Israel. The Lord will not forsake his people because Sihon blusters.
 
@@ -179,6 +217,8 @@ Still most sure,
 His love shall dure.
 
 ### Verse 20
+
+> And Og the king of Bashan: for his mercy *endureth* for ever:
 
 *And Og the king of Bashan.* He was of the race of the giants, but he was routed like a pygmy when he entered the lists with Israel's God. The Lord's people were called upon to fight against him, but it was God who won the victory. The fastnesses of Bashan were no defence against Jehovah. Og was soon ousted from his stronghold when the captain of the Lord's host led the war against him. He had to exchange his bedstead of iron for a bed in the dust, for he fell on the battle field.
 
@@ -194,6 +234,8 @@ If Sihon could not turn the Lord from his purpose we may be sure that Og could n
 
 ### Verse 21
 
+> And gave their land for an heritage: for his mercy *endureth* for ever:
+
 *And gave their land for an heritage.* As Lord of the whole earth he transferred his estate from one tenant to another. The land did not become the property of the Israelites by their own sword and bow, but by a grant from the throne. This was the great end which all along had been aimed at from Egypt to Jordan. He who brought his people out also brought them in. He who had promised the land to the seed of Abraham also saw to it that the deed of gift did not remain a dead letter. Both our temporal and our spiritual estates come to us by royal charter. What God gives us is ours by the best of titles. Inheritance by God's gift is tenure which even Satan cannot dispute. For his mercy endureth for ever. Faithful love endures without end, and secures its own end. "Thou wilt surely bring them in", said the prophet poet; and here we see the deed complete.
 
 Till they reach the promised land
@@ -201,6 +243,8 @@ Till they reach the promised land
 Mercy still the same must stand.
 
 ### Verse 22
+
+> *Even* an heritage unto Israel his servant: for his mercy *endureth* for ever.
 
 *Even an heritage unto Israel his servant.* Repetitions are effective in poetry, and the more so if there be some little variation in them, bringing out into fuller light some point which else had not been noticed. The lands of the heathen kings were given to "Israel", the name by which the chosen seed is here mentioned for the third time in the Psalm, with the addition of the words, "his servant." The leasehold of Canaan to Israel after the flesh was made dependent upon suit and service rendered to the Lord of the manor by whom the lease was granted. It was a country worth singing about, richly justifying the two stanzas devoted to it. The division of the country by lot, and the laws by which the portions of ground were reserved to the owners and their descendants for a perpetual inheritance were fit subjects for song. Had other nations enjoyed land laws which ensured to every family a plot of ground for cultivation, much of the present discontent would never have arisen, beggary would soon have become uncommon, and poverty itself would have been rare. For his mercy endureth for ever. Yes, mercy fights for the land, mercy divides the spoil among its favoured ones, and mercy secures each man in his inheritance. Glory be to God the faithful One.
 
@@ -210,6 +254,8 @@ Wins us full felicity."
 
 ### Verse 23
 
+> Who remembered us in our low estate: for his mercy *endureth* for ever:
+
 *Who remembered us in our low estate.* Personal mercies awake the sweetest song—"he remembered *us*." Our prayer is, "Lord, remember me", and this is our encouragement—he has remembered us. For the Lord even to think of us is a wealth of mercy. Ours was a sorry estate, —an estate of bankruptcy and mendicancy. Israel rested in its heritage, but we were still in bondage, groaning in captivity: the Lord seemed to have forgotten us, and left us in our sorrow; but it was not so for long: he turned again in his compassion, bethinking himself of his afflicted children. Our state was once so low as to be at hell's mouth; since then it has been low in poverty, bereavement, despondency, sickness, and heart sorrow, and we fear, also, sinfully low in faith, and love, and every other grace; and yet the Lord has not forgotten us as a dead thing out of mind; but he has tenderly remembered us still. We thought ourselves too small and too worthless for his memory to burden itself about us, yet he remembered us. For his mercy endureth for ever. Yes, this is one of the best proofs of the immutability of his mercy, for if he could have changed towards any, it would certainly have been towards us who have brought ourselves low, kept ourselves low, and prepared ourselves to sink yet lower. It is memorable mercy to remember us in our low estate: in our highest joys we will exalt Jehovah's name, since of this we are sure, —he will not now desert us—
 
 For his mercy full and free
@@ -218,6 +264,8 @@ Lasteth to eternity.
 
 ### Verse 24
 
+> And hath redeemed us from our enemies: for his mercy *endureth* for ever.
+
 *And hath redeemed us from our enemies.* Israel's enemies brought the people low; but the Lord intervened, and turned the tables by a great redemption. The expression implies that they had become like slaves, and were not set free without price and power; for they needed to be *"redeemed."* In our case the redemption which is in Christ Jesus is an eminent reason for giving thanks unto the Lord. Sin is our enemy, and we are redeemed from it by the atoning blood; Satan is our enemy, and we are redeemed from him by the Redeemer's power; the world is our enemy, and we are redeemed from it by the Holy Spirit. We are ransomed, let us enjoy our liberty; Christ has wrought our redemption, let us praise his name. For his mercy endureth for ever. Even to redemption by the death of his Son did divine mercy stretch itself. What more can be desired? What more can be imagined? Many waters could not quench love, neither could the floods drown it.
 
 E'en to death upon the tree
@@ -225,6 +273,8 @@ E'en to death upon the tree
 Mercy dureth faithfully.
 
 ### Verse 25
+
+> Who giveth food to all flesh: for his mercy *endureth* for ever.
 
 *Who giveth food to all flesh.* Common providence, which cares for all living things, deserves our most devout thanks. If we think of heavenly food, by which all saints are supplied, our praises rise to a still greater height; but meanwhile the universal goodness of God in feeding all his creatures is as worthy of praise as his special favours to the elect nation. Because the Lord feeds all life therefore we expect him to take special care of his own family. For his mercy endureth for ever. Reaching downward even to beasts and reptiles, it is, indeed, a boundless mercy, which knows no limit because of the meanness of its object.
 
@@ -237,6 +287,8 @@ For his mercy shall endure,
 Ever faithful, ever sure."
 
 ### Verse 26
+
+> O give thanks unto the God of heaven: for his mercy *endureth* for ever.
 
 *O give thanks unto the God of heaven.* The title is full of honour. The Lord is God in the highest realms, and among celestial beings. His throne is set in glory, above all, out of reach of foes, in the place of universal oversight. He who feeds ravens and sparrows is yet the glorious God of the highest realms. Angels count it their glory to proclaim his glory in every heavenly street. See herein the greatness of his nature, the depth of his condescension, and the range of his love. Mark the one sole cause of his bounty—For his mercy endureth for ever. He hath done all things from this motive; and because his mercy never ceases, he will continue to multiply deeds of love world without end. Let us with all our powers of heart and tongue give thanks unto the holy name of Jehovah for ever and ever.
 

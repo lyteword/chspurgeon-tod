@@ -10,17 +10,25 @@ We have now reached the last summit of the mountain chain of Psalms. It rises hi
 
 ### Verse 1
 
+> Praise ye the LORD. Praise God in his sanctuary: praise him in the firmament of his power.
+
 *Praise ye the LORD.* Hallelujah! The exhortation is to all things in earth or in heaven. Should they not all declare the glory of him for whose glory they are, and were created? Jehovah, the one God, should be the one object of adoration. To give the least particle of his honour to another is shameful treason; to refuse to render it to him is heartless robbery. Praise God in his sanctuary. Praise El, or the strong one, in his holy place. See how power is mentioned with holiness in this change of names. Praise begins at home. "In God's own house pronounce his praise." The holy place should be filled with praise, even as of old the high priest filled the *sanctum sanctorum* with the smoke of sweet smelling incense. In his church below and in his courts above hallelujahs should be continually presented. In the person of Jesus God finds a holy dwelling or sanctuary, and there he is greatly to be praised. He may also be said to dwell in holiness, for all his ways are right and good; for this we ought to extol him with heart and with voice. Whenever we assemble for holy purposes our main work should be to present praises unto the Lord our God. Praise him in the firmament of his power. It is a blessed thing that in our God holiness and power are united. Power without righteousness would be oppression, and righteousness without power would be too weak for usefulness; but put the two together in an infinite degree and we have God. What an expanse we have in the boundless firmament of divine power! Let it all be filled with praise. Let the heavens, so great and strong, echo with the praise of the thrice holy Jehovah, while the sanctuaries of earth magnify the Almighty One.
 
 ### Verse 2
+
+> Praise him for his mighty acts: praise him according to his excellent greatness.
 
 *Praise him for his mighty acts.* Here is a reason for praise. In these deeds of power we see himself. These doings of his omnipotence are always on behalf of truth and righteousness. His works of creation, providence, and redemption, all call for praise; they are his acts, and his acts of might, therefore let him be praised for them. Praise him according to his excellent greatness. His being is unlimited, and his praise should correspond therewith. He possesses a multitude or a plenitude of greatness, and therefore he should be greatly praised. There is nothing little about God, and there is nothing great apart from him. If we were always careful to make our worship fit and appropriate for our great Lord how much better should we sing! How much more reverently should we adore! Such excellent deeds should have excellent praise.
 
 ### Verse 3
 
+> Praise him with the sound of the trumpet: praise him with the psaltery and harp.
+
 *Praise him with the sound of the trumpet.* With the loudest, clearest note call the people together. Make all men to know that we are not ashamed to worship. Summon them with unmistakable sound to bow before their God. The sound of trumpet is associated with the grandest and most solemn events, such as the giving of the law, the proclamation of jubilee, the coronation of Jewish kings, and the raging of war. It is to be thought of in reference to the coming of our Lord in his second advent and the raising of the dead. If we cannot give voice to this martial instrument, at least let our praise be as decided and bold as if we could give a blast upon the horn. Let us never sound a trumpet before us to our own honour, but reserve all our trumpeting for God's glory. When the people have been gathered by blast of trumpet, then proceed to praise him with the psaltery and harp. Stringed instruments are to be used as well as those which are rendered vocal by wind. Dulcet notes are to be consecrated as well as more startling sounds. The gospel meaning is that all powers and faculties should praise the Lord—all sorts of persons, under all circumstances, and with differing constitutions, should do honour unto the Lord of all. If there be any virtue, if there be any talent, if there be any influence, let all be consecrated to the service of the universal Benefactor. Harp and lyre—the choicest, the sweetest, must be all our Lord's.
 
 ### Verse 4
+
+> Praise him with the timbrel and dance: praise him with stringed instruments and organs.
 
 *Praise him with the timbrel and dance.* Associated with the deliverance at the Red Sea, this form of worship set forth the most jubilant and exultant of worship. The hands and the feet were both employed, and the entire body moved in sympathy with the members. Are there not periods of life when we feel so glad that we would fain dance for joy? Let not such exhilaration be spent upon common themes, but let the name of God stir us to ecstasy. Let us exult as we cry,
 
@@ -32,9 +40,13 @@ There is enough in our holy faith to create and to justify the utmost degree of 
 
 ### Verse 5
 
+> Praise him upon the loud cymbals: praise him upon the high sounding cymbals.
+
 *Praise high upon the loud cymbals: praise him upon the high sounding cymbals.* Let the clash of the loudest music be the Lord's: let the joyful clang of the loftiest notes be all for him. Praise has beaten the timbrel, swept the harp, and sounded the trumpet, and now for a last effort, awakening the most heavy of slumberers, and startling the most indifferent of onlookers, she dashes together the disks of brass, and with sounds both loud and high proclaims the glories of the Lord.
 
 ### Verse 6
+
+> Let every thing that hath breath praise the LORD. Praise ye the LORD.
 
 *Let everything that hath breath praise the Lord.* "Let all breath praise him": that is to say, all living beings. He gave them breath, let them breathe his praise. His name is in the Hebrew composed rather of breathings than of letters, to show that all breath comes from him: therefore let it be used for him. Join all ye living things in the eternal song. Be ye least or greatest, withhold not your praises. What a day will it be when all things in all places unite to glorify the one only living and true God! This will be the final triumph of the church of God. Praise ye the LORD. Once more, Hallelujah! Thus is the Psalm rounded with the note of praise; and thus is the Book of Psalms ended by a glowing word of adoration. Reader, wilt not thou at this moment pause a while, and worship the Lord thy God? Hallelujah!
 
