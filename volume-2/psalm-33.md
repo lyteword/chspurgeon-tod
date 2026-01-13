@@ -4,9 +4,9 @@ weight: 33
 
 # Psalm 33
 
-**Title &mdash;** This song of praise bears no title or indication of authorship; to teach us, says Dickson, "to look upon Holy Scripture as altogether inspired of God, and not put price upon it for the writers thereof."
+**Title &mdash;** *This song of praise bears no title or indication of authorship; to teach us, says Dickson, "to look upon Holy Scripture as altogether inspired of God, and not put price upon it for the writers thereof."* 
 
-**Subject &amp; Division &mdash;** The praise of Jehovah is the subject of this sacred song. The righteous are exhorted to praise him, Ps 33:1-3; because of the excellency of his character, Ps 33:4-5; and his majesty in creation, Ps 33:6-7. Men are bidden to fear before Jehovah because his purposes are accomplished in providence, Ps 33:8-11. His people are proclaimed blessed, Ps 33:12. The omniscience and omnipotence of God, and his care for his people are celebrated, in opposition to the weakness of an arm of flesh, Ps 33:13-19; and the Psalm concludes with a fervent expression of confidence, Ps 33:20-21, and an earnest prayer, Ps 33:22.
+**Subject &amp; Division &mdash;** *The praise of Jehovah is the subject of this sacred song. The righteous are exhorted to praise him, Ps 33:1-3; because of the excellency of his character, Ps 33:4-5; and his majesty in creation, Ps 33:6-7. Men are bidden to fear before Jehovah because his purposes are accomplished in providence, Ps 33:8-11. His people are proclaimed blessed, Ps 33:12. The omniscience and omnipotence of God, and his care for his people are celebrated, in opposition to the weakness of an arm of flesh, Ps 33:13-19; and the Psalm concludes with a fervent expression of confidence, Ps 33:20-21, and an earnest prayer, Ps 33:22.* 
 
 ## Exposition
 
