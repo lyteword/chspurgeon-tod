@@ -4,9 +4,9 @@ weight: 38
 
 # Psalm 38
 
-**Title &mdash;** A Psalm of David, to bring remembrance. David felt as if he had been forgotten of his God, and, therefore, he recounted his sorrows and cried mightily for help under them. The same title is given to Psalm 70, where in like manner the psalmist pours out his complaint before the Lord. It would be foolish to make a guess as to the point in David's history when this was written; it may be a commemoration of his own sickness and endurance of cruelty; it may, on the other hand, have been composed by him for the use of sick and slandered saints, without special reference to himself.
+**Title &mdash;** *A Psalm of David, to bring remembrance. David felt as if he had been forgotten of his God, and, therefore, he recounted his sorrows and cried mightily for help under them. The same title is given to Psalm 70, where in like manner the psalmist pours out his complaint before the Lord. It would be foolish to make a guess as to the point in David's history when this was written; it may be a commemoration of his own sickness and endurance of cruelty; it may, on the other hand, have been composed by him for the use of sick and slandered saints, without special reference to himself.*
 
-**Division &mdash;** The Psalm opens with a prayer, Ps 38:1; continues in a long complaint, Ps 38:2-8; pauses to dart an eye to heaven, Ps 38:9; proceeds with a second tale of sorrow, Ps 38:10-14; interjects another word of hopeful address to God, Ps 38:15; a third time pours out a flood of griefs, Ps 38:16-20; and then closes as it opened, with renewed petitioning, Ps 38:21-22.
+**Division &mdash;** *The Psalm opens with a prayer, Ps 38:1; continues in a long complaint, Ps 38:2-8; pauses to dart an eye to heaven, Ps 38:9; proceeds with a second tale of sorrow, Ps 38:10-14; interjects another word of hopeful address to God, Ps 38:15; a third time pours out a flood of griefs, Ps 38:16-20; and then closes as it opened, with renewed petitioning, Ps 38:21-22.*
 
 ## Exposition
 
