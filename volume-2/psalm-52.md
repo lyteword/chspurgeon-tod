@@ -4,9 +4,9 @@ weight: 52
 
 # Psalm 52
 
-**Title &mdash;** *To the Chief Musician.* Even short Psalms, if they record but one instance of the goodness of the Lord, and rebuke but briefly the pride of man, are worthy of our best minstrelsy. When we see that each Psalm is dedicated to "the chief musician, "it should make us value our psalmody, and forbid us to praise the Lord carelessly. *Maschil.* An Instructive. Even the malice of a Doeg may furnish instruction to a David. *A Psalm of David.* He was the prime object of Doeg's doggish hatred, and therefore the most fitting person to draw from the incident the lesson concealed within it. *When Doeg the Edomite came and told Saul, and saith unto him, David is come to the house of Ahimelech.* By this deceitful tale bearing, he procured the death of all the priests at Nob: though it had been a crime to have succoured David as a rebel, they were not in their intent and knowledge guilty of the fault. David felt much the villany of this arch enemy, and here he denounces him in vigorous terms; it may be also that he has Saul in his eye.
+**Title &mdash;** *To the Chief Musician. Even short Psalms, if they record but one instance of the goodness of the Lord, and rebuke but briefly the pride of man, are worthy of our best minstrelsy. When we see that each Psalm is dedicated to "the chief musician, "it should make us value our psalmody, and forbid us to praise the Lord carelessly. *Maschil.* An Instructive. Even the malice of a Doeg may furnish instruction to a David. *A Psalm of David.* He was the prime object of Doeg's doggish hatred, and therefore the most fitting person to draw from the incident the lesson concealed within it. *When Doeg the Edomite came and told Saul, and saith unto him, David is come to the house of Ahimelech.* By this deceitful tale bearing, he procured the death of all the priests at Nob: though it had been a crime to have succoured David as a rebel, they were not in their intent and knowledge guilty of the fault. David felt much the villany of this arch enemy, and here he denounces him in vigorous terms; it may be also that he has Saul in his eye.* 
 
-**Division &mdash;** We shall follow the sacred pauses marked by the Selahs of the poet.
+**Division &mdash;** *We shall follow the sacred pauses marked by the Selahs of the poet.* 
 
 ## Exposition
 
