@@ -4,9 +4,9 @@ weight: 49
 
 # Psalm 49
 
-**Title &mdash;** To the Chief Musician, a Psalm for the sons of Korah. This is precisely the same as on former occasions, and no remark is needed.
+**Title &mdash;** *To the Chief Musician, a Psalm for the sons of Korah. This is precisely the same as on former occasions, and no remark is needed.*
 
-**Division &mdash;** The poet musician sings, to the accompaniment of his harp, the despicable character of those who trust in their wealth, and so he consoles the oppressed believer. The first four verses are a preface; from Ps 49:5-12 all fear of great oppressors is removed by the remembrance of their end and their folly; Ps 49:13 contains an expression of wonder at the perpetuity of folly; Ps 49:14-15 contrast the ungodly and the righteous in their future; and from Ps 49:16-20 the lesson from the whole is given in an admonitory form. Note the chorus in Ps 49:2, 20, and also the two Selahs.
+**Division &mdash;** *The poet musician sings, to the accompaniment of his harp, the despicable character of those who trust in their wealth, and so he consoles the oppressed believer. The first four verses are a preface; from Ps 49:5-12 all fear of great oppressors is removed by the remembrance of their end and their folly; Ps 49:13 contains an expression of wonder at the perpetuity of folly; Ps 49:14-15 contrast the ungodly and the righteous in their future; and from Ps 49:16-20 the lesson from the whole is given in an admonitory form. Note the chorus in Ps 49:2, 20, and also the two Selahs.*
 
 ## Exposition
 
