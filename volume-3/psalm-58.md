@@ -4,9 +4,9 @@ weight: 58
 
 # Psalm 58
 
-To the Chief Musician. Although David had his own case in his mind's eye, yet he wrote not as a private person, but as an inspired prophet, and therefore his song is presented, for public and perpetual use, to the appointed guardian of the Temple psalmody. *Altaschith.* The wicked are here judged and condemned, but over the godly the sacred *"Destroy not"* is solemnly pronounced. *Michtam of David.* This is the fourth of the Psalms of the Golden Secret, and the second of the "Destroy nots." These names if they serve for nothing else may be useful to aid the memory. Men give names to their horses, jewels, and other valuables, and these names are meant not so much to describe as to distinguish them, and in some cases to set forth the owner's high esteem of his treasure; after the same fashion the Oriental poet gave a title to the song he loved, and so aided his memory, and expressed his estimation of the strain. We are not always to look for a meaning in these superscriptions, but to treat them as we would the titles of poems, or the names of tunes.
+*To the Chief Musician. Although David had his own case in his mind's eye, yet he wrote not as a private person, but as an inspired prophet, and therefore his song is presented, for public and perpetual use, to the appointed guardian of the Temple psalmody. Altaschith. The wicked are here judged and condemned, but over the godly the sacred "Destroy not" is solemnly pronounced. Michtam of David. This is the fourth of the Psalms of the Golden Secret, and the second of the "Destroy nots." These names if they serve for nothing else may be useful to aid the memory. Men give names to their horses, jewels, and other valuables, and these names are meant not so much to describe as to distinguish them, and in some cases to set forth the owner's high esteem of his treasure; after the same fashion the Oriental poet gave a title to the song he loved, and so aided his memory, and expressed his estimation of the strain. We are not always to look for a meaning in these superscriptions, but to treat them as we would the titles of poems, or the names of tunes.
 
-**Division &mdash;** The ungodly enemy is accused, Ps 58:1-5; judgment is sought from the judge, Ps 58:6-8; and seen in prophetic vision as already executed, Ps 58:9-11.
+**Division &mdash;** *The ungodly enemy is accused, Ps 58:1-5; judgment is sought from the judge, Ps 58:6-8; and seen in prophetic vision as already executed, Ps 58:9-11.* 
 
 ## Exposition
 
@@ -47,7 +47,7 @@ No, we call and call, and call in vain, till the arm of the Lord is revealed. Th
 
 ### Verse 6
 
-> Break their teeth, O God, in their mouth: break out the great teeth of the young lions, O LORD.
+> Break their teeth, O God, in their mouth: break out the great teeth of the young lions, O Lord.
 
 *Break their teeth, O God, in their mouth.* If they have no capacity for good, at least deprive them of their ability for evil. Treat them as the snake charmers do their serpents, extract their fangs, break their teeth. The Lord can do this, and he will. He will not suffer the malice of the wicked to triumph, he will deal them such a blow as shall disable them from mischief. Break out the great teeth of the young lions, O Lord. As if one brute creature had not enough of evil in it to complete the emblem of ungodly nature, another specimen of *ferae naturae* is fetched in. For fierce cruelty the wicked are likened to young lions, monsters in the prime of their vigour, and the fury of their lustiness; and it is asked that their grinders may be smashed in, broken off, or dashed out, that the creatures may henceforth be harmless. One can well understand how the banished son of Jesse, while poisoned by the venomous slander of his foes, and worried by their cruel power, should appeal to heaven for a speedy and complete riddance from his enemies.
 
