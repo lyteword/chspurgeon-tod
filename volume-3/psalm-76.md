@@ -4,7 +4,7 @@ weight: 76
 
 # Psalm 76
 
-**Title &mdash;** *To the Chief Musician on Neginoth.* The Precentor is here instructed to perform this song to the music of stringed instruments. The master of the harpers was called for his most skilful minstrelsy, and truly the song is worthy of the sweetest sounds that strings can yield. *A Psalm or Song of Asaph.* The style and matter indicate the same hand as that which wrote the preceding; and it is an admirable arrangement which placed the two in juxtaposition. Faith in the 75th Psalm sung of victories to come, and here it sings of triumphs achieved. The present Psalm is a most jubilant war song, a paean to the King of kings, the hymn of a theocratic nation to its divine ruler. We have no need to mark divisions in a song where the unity is so well preserved.
+**Title &mdash;** *To the Chief Musician on Neginoth. The Precentor is here instructed to perform this song to the music of stringed instruments. The master of the harpers was called for his most skilful minstrelsy, and truly the song is worthy of the sweetest sounds that strings can yield. A Psalm or Song of Asaph. The style and matter indicate the same hand as that which wrote the preceding; and it is an admirable arrangement which placed the two in juxtaposition. Faith in the 75th Psalm sung of victories to come, and here it sings of triumphs achieved. The present Psalm is a most jubilant war song, a paean to the King of kings, the hymn of a theocratic nation to its divine ruler. We have no need to mark divisions in a song where the unity is so well preserved.* 
 
 ## Exposition
 
