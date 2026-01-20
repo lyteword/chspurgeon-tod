@@ -4,13 +4,13 @@ weight: 100
 
 # Psalm 100
 
-**Title &mdash;** A Psalm of Praise; or rather of thanksgiving. This is the only psalm bearing this precise inscription. It is all ablaze with grateful adoration, and has for this reason been a great favourite with the people of God ever since it was written. "Let us sing the Old Hundredth" is one of the every-day expressions of the Christian church, and will be so while men, exist whose hearts are loyal to the Great King. Nothing can be more sublime this side heaven than the singing of this noble psalm by a vast congregation. Watts' paraphrase, beginning "Before Jehovah's awful throne, "and the Scotch "All people that on earth do dwell, "are both noble versions; and event Tare and Brady rise beyond themselves when they sing—
+**Title &mdash;** *A Psalm of Praise; or rather of thanksgiving. This is the only psalm bearing this precise inscription. It is all ablaze with grateful adoration, and has for this reason been a great favourite with the people of God ever since it was written. "Let us sing the Old Hundredth" is one of the every-day expressions of the Christian church, and will be so while men, exist whose hearts are loyal to the Great King. Nothing can be more sublime this side heaven than the singing of this noble psalm by a vast congregation. Watts' paraphrase, beginning "Before Jehovah's awful throne, "and the Scotch "All people that on earth do dwell, "are both noble versions; and event Tare and Brady rise beyond themselves when they sing—*
 
-"With one consent let all the earth
+*"With one consent let all the earth*
 
-To God their cheerful voices raise."
+*To God their cheerful voices raise."*
 
-In this divine lyric we sing with gladness the creating power and goodness of the Lord, even as before with trembling we adored his holiness.
+*In this divine lyric we sing with gladness the creating power and goodness of the Lord, even as before with trembling we adored his holiness.*
 
 ## Exposition
 

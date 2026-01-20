@@ -4,11 +4,11 @@ weight: 82
 
 # Psalm 82
 
-**Title &amp; Subject &mdash;** A Psalm of Asaph. This poet of the temple here acts as a preacher to the court and to the magistracy. Men who do one thing well are generally equal to another; he who writes good verse is not unlikely to be able to preach. What preaching it would have been had Milton entered the pulpit, or had Virgil been an apostle.
+**Title &amp; Subject &mdash;** *A Psalm of Asaph. This poet of the temple here acts as a preacher to the court and to the magistracy. Men who do one thing well are generally equal to another; he who writes good verse is not unlikely to be able to preach. What preaching it would have been had Milton entered the pulpit, or had Virgil been an apostle.*
 
-Asaph's sermon before the judges is now before us. He speaks very plainly, and his song is rather characterised by strength than by sweetness. We have here a clear proof that all psalms and hymns need not be direct expressions of praise to God; we may, according to the example of this psalm, admonish one another in our songs. Asaph no doubt saw around him much bribery and corruption, and while David punished it with the sword, he resolved to scourge it with a prophetic psalm. In so doing, the sweet singer was not forsaking his profession as a musician for the Lord, but rather was practically carrying it out in another department. He was praising God when he rebuked the sin which dishonoured him, and if he was not making music, he was hushing discord when he bade rulers dispense justice with impartiality.
+*Asaph's sermon before the judges is now before us. He speaks very plainly, and his song is rather characterised by strength than by sweetness. We have here a clear proof that all psalms and hymns need not be direct expressions of praise to God; we may, according to the example of this psalm, admonish one another in our songs. Asaph no doubt saw around him much bribery and corruption, and while David punished it with the sword, he resolved to scourge it with a prophetic psalm. In so doing, the sweet singer was not forsaking his profession as a musician for the Lord, but rather was practically carrying it out in another department. He was praising God when he rebuked the sin which dishonoured him, and if he was not making music, he was hushing discord when he bade rulers dispense justice with impartiality.*
 
-**Division &mdash;** The Psalm is a whole and needs no formal division.
+**Division &mdash;** *The Psalm is a whole and needs no formal division.*
 
 ## Exposition
 

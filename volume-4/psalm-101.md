@@ -4,7 +4,7 @@ weight: 101
 
 # Psalm 101
 
-**Title &mdash;** A Psalm of David. This is just such a psalm as the man after God's own heart would compose when he was about to become king in Israel. It is David all over, straight forward, resolute, devout; there is no trace of policy or vacillation, the Lord has appointed him to be king, and he knows it, therefore he purposes in all things to behave as becomes a monarch who me the Lord himself has chosen. If we call this THE PSALM or PIOUS RESOLUTIONS, we shall perhaps remember it all the more readily. After songs of praise a psalm of practice not only makes variety, but comes in most fittingly. We never praise the Lord better than when we do those things which are pleasing in his sight.
+**Title &mdash;** *A Psalm of David. This is just such a psalm as the man after God's own heart would compose when he was about to become king in Israel. It is David all over, straight forward, resolute, devout; there is no trace of policy or vacillation, the Lord has appointed him to be king, and he knows it, therefore he purposes in all things to behave as becomes a monarch who me the Lord himself has chosen. If we call this THE PSALM or PIOUS RESOLUTIONS, we shall perhaps remember it all the more readily. After songs of praise a psalm of practice not only makes variety, but comes in most fittingly. We never praise the Lord better than when we do those things which are pleasing in his sight.*
 
 ## Exposition
 

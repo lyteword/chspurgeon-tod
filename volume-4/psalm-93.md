@@ -4,7 +4,7 @@ weight: 93
 
 # Psalm 93
 
-This brief Psalm is without title or name of author, but its subject is obvious enough, being stated in the very first line. It is the Psalm of Omnipotent Sovereignty: Jehovah, despite all opposition, reigns supreme. Possibly at the time this sacred ode was written, the nation was in danger from its enemies, and the hopes of the people of God were encouraged by remembering that the Lord was still King. What sweeter and surer consolation could they desire?
+*This brief Psalm is without title or name of author, but its subject is obvious enough, being stated in the very first line. It is the Psalm of Omnipotent Sovereignty: Jehovah, despite all opposition, reigns supreme. Possibly at the time this sacred ode was written, the nation was in danger from its enemies, and the hopes of the people of God were encouraged by remembering that the Lord was still King. What sweeter and surer consolation could they desire?*
 
 ## Exposition
 

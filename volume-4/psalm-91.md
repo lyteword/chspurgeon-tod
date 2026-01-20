@@ -4,21 +4,21 @@ weight: 91
 
 # Psalm 91
 
-**Title &mdash;** This Psalm is without a title, and we have no means of ascertaining either the name of its writer, or the date of its composition, with certainly. The Jewish doctors consider that when the author's name is not mentioned we may assign the Psalm to the last named writer; and, if so, this is another Psalm of Moses, the man of God. Many expressions here used are similar to those of Moses in Deuteronomy, and the internal evidence, from the peculiar idioms, would point towards him as the composer. The continued lives of Joshua and Caleb, who followed the Lord fully, make remarkably apt illustrations of this Psalm, for they, as a reward for abiding in continued nearness to the Lord, lived on "amongst the dead, amid their graves." For these reasons it is by no means improbable that this Psalm may have been written by Moses, but we dare not dogmatize. If David's pen was used in giving us this matchless ode, we cannot believe as some do that he this commemorated the plague which devastated Jerusalem on account of his numbering the people. For him, then, to sing of himself as seeing "the reward of the wicked" would be clean contrary to his declaration, "I have sinned, but these sheep, what have they done?"; and the absence of any allusion to the sacrifice upon Zion could not be in any way accounted for, since David's repentance would inevitably have led him to dwell upon the atoning sacrifice and the sprinkling of blood by the hyssop.
+**Title &mdash;** *This Psalm is without a title, and we have no means of ascertaining either the name of its writer, or the date of its composition, with certainly. The Jewish doctors consider that when the author's name is not mentioned we may assign the Psalm to the last named writer; and, if so, this is another Psalm of Moses, the man of God. Many expressions here used are similar to those of Moses in Deuteronomy, and the internal evidence, from the peculiar idioms, would point towards him as the composer. The continued lives of Joshua and Caleb, who followed the Lord fully, make remarkably apt illustrations of this Psalm, for they, as a reward for abiding in continued nearness to the Lord, lived on "amongst the dead, amid their graves." For these reasons it is by no means improbable that this Psalm may have been written by Moses, but we dare not dogmatize. If David's pen was used in giving us this matchless ode, we cannot believe as some do that he this commemorated the plague which devastated Jerusalem on account of his numbering the people. For him, then, to sing of himself as seeing "the reward of the wicked" would be clean contrary to his declaration, "I have sinned, but these sheep, what have they done?"; and the absence of any allusion to the sacrifice upon Zion could not be in any way accounted for, since David's repentance would inevitably have led him to dwell upon the atoning sacrifice and the sprinkling of blood by the hyssop.*
 
-In the whole collection there is not a more cheering Psalm, its tone is elevated and sustained throughout, faith is at its best, and speaks nobly. A German physician was wont to speak of it as the best preservative in times of cholera, and in truth, it is a heavenly medicine against plague and pest. He who can live in its spirit will be fearless, even if once again London should become a lazar-house, and the grave be gorged with carcases.
+*In the whole collection there is not a more cheering Psalm, its tone is elevated and sustained throughout, faith is at its best, and speaks nobly. A German physician was wont to speak of it as the best preservative in times of cholera, and in truth, it is a heavenly medicine against plague and pest. He who can live in its spirit will be fearless, even if once again London should become a lazar-house, and the grave be gorged with carcases.*
 
-**Division &mdash;** On this occasion we shall follow the divisions which our translators have placed at the head of the Psalm, for they are pithy and suggestive.
+**Division &mdash;** *On this occasion we shall follow the divisions which our translators have placed at the head of the Psalm, for they are pithy and suggestive.*
 
-Ps 91:1-2—The state of the godly.
+*Ps 91:1-2—The state of the godly.*
 
-Ps 91:3-8—Their safety.
+*Ps 91:3-8—Their safety.*
 
-Ps 91:9-10—Their habitation.
+*Ps 91:9-10—Their habitation.*
 
-Ps 91:11-13—Their servants.
+*Ps 91:11-13—Their servants.*
 
-Ps 91:14-16—Their friend; with the effects of them all.
+*Ps 91:14-16—Their friend; with the effects of them all.*
 
 ## Exposition
 
