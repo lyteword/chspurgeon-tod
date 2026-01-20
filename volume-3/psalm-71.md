@@ -4,9 +4,9 @@ weight: 71
 
 # Psalm 71
 
-**Title &mdash;** There is no title to this Psalm, and hence some conjecture that Psalm 70 is intended to be a prelude to it, and has been broken off from it. Such imaginings have no value with us. We have already met with five Psalms without title, which are, nevertheless, as complete as those which bear them. We have here *THE PRAYER OF THE AGED BELIEVER, * who, in holy confidence of faith, strengthened by a long and remarkable experience, pleads against his enemies, and asks further blessings for himself. Anticipating a gracious reply, he promises to magnify the Lord exceedingly.
+**Title &mdash;** *There is no title to this Psalm, and hence some conjecture that Psalm 70 is intended to be a prelude to it, and has been broken off from it. Such imaginings have no value with us. We have already met with five Psalms without title, which are, nevertheless, as complete as those which bear them. We have here the prayer of the aged believer, who, in holy confidence of faith, strengthened by a long and remarkable experience, pleads against his enemies, and asks further blessings for himself. Anticipating a gracious reply, he promises to magnify the Lord exceedingly.* 
 
-**Division &mdash;** The first four verses are faith's cry for help; the next four are a testimony of experience. From Ps 71:9-13, the aged saint pleads against his foes, and then rejoices in hope, Ps 71:14-16. He returns to prayer again in Ps 71:17-18, repeats the confident hopes which cheered his soul, Ps 71:19-21; and then he closes with the promise of abounding in thanksgiving. Throughout, this Psalm may be regarded as the utterance of struggling, but unstaggering, faith.
+**Division &mdash;** *The first four verses are faith's cry for help; the next four are a testimony of experience. From Ps 71:9-13, the aged saint pleads against his foes, and then rejoices in hope, Ps 71:14-16. He returns to prayer again in Ps 71:17-18, repeats the confident hopes which cheered his soul, Ps 71:19-21; and then he closes with the promise of abounding in thanksgiving. Throughout, this Psalm may be regarded as the utterance of struggling, but unstaggering, faith.* 
 
 ## Exposition
 
