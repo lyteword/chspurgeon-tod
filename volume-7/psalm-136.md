@@ -4,9 +4,9 @@ weight: 136
 
 # Psalm 136
 
-We know not by whom this Psalm was written, but we do know that it was sung in Solomon's temple (2Ch 7:3, 6), and by the armies of Jehoshaphat when they sang themselves into victory in the wilderness of Tekoa. From the striking form of it we should infer that it was a popular hymn among the Lord's ancient people. Most hymns with a solid, simple chorus become favourites with congregations, and this is sure to have been one of the best beloved. It contains nothing but praise. It is tuned to rapture, and can only be fully enjoyed by a devoutly grateful heart.
+*We know not by whom this Psalm was written, but we do know that it was sung in Solomon's temple (2Ch 7:3, 6), and by the armies of Jehoshaphat when they sang themselves into victory in the wilderness of Tekoa. From the striking form of it we should infer that it was a popular hymn among the Lord's ancient people. Most hymns with a solid, simple chorus become favourites with congregations, and this is sure to have been one of the best beloved. It contains nothing but praise. It is tuned to rapture, and can only be fully enjoyed by a devoutly grateful heart.*
 
-It commences with a threefold praise to the *Triune Lord* (Ps 136:1-3), then it gives us six notes of praise to *the Creator* (Ps 136:4-9), six more upon *deliverance from Egypt* (Ps 134:10-15), and seven upon *the journey through the wilderness* and *the entrance into Canaan.* Then we have two happy verses of *personal gratitude for present mercy* (Ps 134:23-24), one (Ps 134:25) to tell of the Lord's universal providence, and a closing verse to excite to *never ending praise.>* 
+*It commences with a threefold praise to the Triune Lord (Ps 136:1-3), then it gives us six notes of praise to the Creator (Ps 136:4-9), six more upon deliverance from Egypt (Ps 134:10-15), and seven upon the journey through the wilderness and the entrance into Canaan. Then we have two happy verses of personal gratitude for present mercy (Ps 134:23-24), one (Ps 134:25) to tell of the Lord's universal providence, and a closing verse to excite to never ending praise.>*
 
 ## Exposition
 

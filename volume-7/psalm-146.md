@@ -4,9 +4,9 @@ weight: 146
 
 # Psalm 146
 
-**Division &mdash;** We are now among the Hallelujahs. The rest of our journey lies through the Delectable Mountains. All is praise to the close of the book. The key is high pitched: the music is upon the high sounding cymbals. O for a heart full of joyful gratitude, that we may run, and leap, and glorify God, even as these Psalms do.
+**Division &mdash;** *We are now among the Hallelujahs. The rest of our journey lies through the Delectable Mountains. All is praise to the close of the book. The key is high pitched: the music is upon the high sounding cymbals. O for a heart full of joyful gratitude, that we may run, and leap, and glorify God, even as these Psalms do.*
 
-Alexander thinks that this song may be regarded as composed of two equal parts; in the first we see the happiness of those who trust in God, and not in man (Ps 146:1-5), while the second gives the reason drawn from the Divine perfections (Ps 146:5-10). This might suffice for our purpose; but as there is really no break at all, we will keep it entire. It is "one pearl", a sacred censer of holy incense, pouring forth one sweet perfume.
+*Alexander thinks that this song may be regarded as composed of two equal parts; in the first we see the happiness of those who trust in God, and not in man (Ps 146:1-5), while the second gives the reason drawn from the Divine perfections (Ps 146:5-10). This might suffice for our purpose; but as there is really no break at all, we will keep it entire. It is "one pearl", a sacred censer of holy incense, pouring forth one sweet perfume.*
 
 ## Exposition
 

@@ -4,9 +4,9 @@ weight: 128
 
 # Psalm 128
 
-**Title &mdash;** *A Song of Degrees*. There is an evident ascent from the last Psalm: that did but hint at the way in which a house may be built up, but this draws a picture of that house built, and adorned with domestic bliss through the Lord's own benediction. There is clearly an advance in age, for here we go beyond children to children's children; and also a progress in happiness, for children which in the last Psalm were arrows are here Olive plants, and instead of speaking "with the enemies in the gate" we done with "peace upon Israel." Thus we rise step by step, and sing as we ascend.
+**Title &mdash;** *A Song of Degrees. There is an evident ascent from the last Psalm: that did but hint at the way in which a house may be built up, but this draws a picture of that house built, and adorned with domestic bliss through the Lord's own benediction. There is clearly an advance in age, for here we go beyond children to children's children; and also a progress in happiness, for children which in the last Psalm were arrows are here Olive plants, and instead of speaking "with the enemies in the gate" we done with "peace upon Israel." Thus we rise step by step, and sing as we ascend.*
 
-**Subject &mdash;** It is a family hymn, a song for a marriage, or a birth, or for any day in which a happy household has met to praise the Lord. Like all the songs of degrees, it has an eye to Zion and Jerusalem, which are both expressly mentioned, and it closes like Psalms 125, 130, and 131, with an allusion to Israel. It is a short Psalm, but exceedingly full and suggestive. Its poetry is of the highest order. Perhaps in no country can it be better understood than in our own, for we above all nations delight to sing of "Home, sweet home."
+**Subject &mdash;** *It is a family hymn, a song for a marriage, or a birth, or for any day in which a happy household has met to praise the Lord. Like all the songs of degrees, it has an eye to Zion and Jerusalem, which are both expressly mentioned, and it closes like Psalms 125, 130, and 131, with an allusion to Israel. It is a short Psalm, but exceedingly full and suggestive. Its poetry is of the highest order. Perhaps in no country can it be better understood than in our own, for we above all nations delight to sing of "Home, sweet home."*
 
 ## Exposition
 

@@ -4,7 +4,7 @@ weight: 149
 
 # Psalm 149
 
-We are almost at the last Psalm, and still among the Hallelujahs. This is *"a new song", * evidently intended for the new creation, and the men who are of new heart. It is such a song as may be sung at the coming of the Lord, when the new dispensation shall bring overthrow to the wicked and honour to all the saints. The tone is exceedingly jubilant and exultant. All through one hears the beat of the feet of dancing maidens, keeping time to the timbrel and harp.
+*We are almost at the last Psalm, and still among the Hallelujahs. This is "a new song",  evidently intended for the new creation, and the men who are of new heart. It is such a song as may be sung at the coming of the Lord, when the new dispensation shall bring overthrow to the wicked and honour to all the saints. The tone is exceedingly jubilant and exultant. All through one hears the beat of the feet of dancing maidens, keeping time to the timbrel and harp.*
 
 ## Exposition
 

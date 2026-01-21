@@ -4,9 +4,9 @@ weight: 134
 
 # Psalm 134
 
-**Title &mdash;** *A Song of Degrees.* We have now reached the last of the Gradual Psalms. The Pilgrims are going home, and are singing the last song in their psalter. They leave early in the morning, before the day has fully commenced, for the journey is long for many of them. While yet the night lingers they are on the move. As soon as they are outside the gates they see the guards upon the temple wall, and the lamps shining from the windows of the chambers which surround the sanctuary; therefore, moved by the sight, they chant a farewell to the perpetual attendants upon the holy shrine. Their parting exhortation arouses the priests to pronounce upon them a blessing out of the holy place: this benediction is contained in the third verse. The priests as good as say, "You have desired us to bless the Lord, and now we pray the Lord to bless you."
+**Title &mdash;** *A Song of Degrees. We have now reached the last of the Gradual Psalms. The Pilgrims are going home, and are singing the last song in their psalter. They leave early in the morning, before the day has fully commenced, for the journey is long for many of them. While yet the night lingers they are on the move. As soon as they are outside the gates they see the guards upon the temple wall, and the lamps shining from the windows of the chambers which surround the sanctuary; therefore, moved by the sight, they chant a farewell to the perpetual attendants upon the holy shrine. Their parting exhortation arouses the priests to pronounce upon them a blessing out of the holy place: this benediction is contained in the third verse. The priests as good as say, "You have desired us to bless the Lord, and now we pray the Lord to bless you."*
 
-The Psalm teaches us to pray for those who are continually ministering before the Lord, and it invites all ministers to pronounce benedictions upon their loving and prayerful people.
+*The Psalm teaches us to pray for those who are continually ministering before the Lord, and it invites all ministers to pronounce benedictions upon their loving and prayerful people.*
 
 ## Exposition
 

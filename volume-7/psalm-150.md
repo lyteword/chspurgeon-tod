@@ -4,7 +4,7 @@ weight: 150
 
 # Psalm 150
 
-We have now reached the last summit of the mountain chain of Psalms. It rises high into the clear azure, and its brow is bathed in the sunlight of the eternal world of worship, it is a rapture. The poet prophet is full of inspiration and enthusiasm. He slays not to argue, to teach, to explain; but cries with burning words, "Praise him, Praise him, Praise ye the LORD."
+*We have now reached the last summit of the mountain chain of Psalms. It rises high into the clear azure, and its brow is bathed in the sunlight of the eternal world of worship, it is a rapture. The poet prophet is full of inspiration and enthusiasm. He slays not to argue, to teach, to explain; but cries with burning words, "Praise him, Praise him, Praise ye the LORD."*
 
 ## Exposition
 

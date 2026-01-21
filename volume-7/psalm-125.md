@@ -4,11 +4,11 @@ weight: 125
 
 # Psalm 125
 
-**Title &mdash;** A Song of Degrees. Another step is taken in the ascent, another station in the pilgrimage is reached: certainly a rise in the sense is here perceptible, since full assurance concerning years to come is a higher form of faith than the ascription of farther escapes to the Lord. Faith has praised Jehovah for past deliverances, and t, ere she rises to a confident jury in the present and future safety of believers. She asserts that they shall forever secure who trust themselves with the Lord. We can imagine the pilgrims chanting this song when perambulating the city walls.
+**Title &mdash;** *A Song of Degrees. Another step is taken in the ascent, another station in the pilgrimage is reached: certainly a rise in the sense is here perceptible, since full assurance concerning years to come is a higher form of faith than the ascription of farther escapes to the Lord. Faith has praised Jehovah for past deliverances, and t, ere she rises to a confident jury in the present and future safety of believers. She asserts that they shall forever secure who trust themselves with the Lord. We can imagine the pilgrims chanting this song when perambulating the city walls.*
 
-We do not assert that David wrote this Psalm, but we have as much ground for doing so as others have for declaring that it was written after the captivity. It would seem provable that all the Pilgrim Psalms were composed, or, at least, compiled by the same writer, and as some of them are certainly by David, there is too conclusive reason for taking away the rest from him.
+*We do not assert that David wrote this Psalm, but we have as much ground for doing so as others have for declaring that it was written after the captivity. It would seem provable that all the Pilgrim Psalms were composed, or, at least, compiled by the same writer, and as some of them are certainly by David, there is too conclusive reason for taking away the rest from him.*
 
-**Division &mdash;** First we have a song of holy confidence (Ps 125:1-2); then a promise, Ps 125:3; followed by a prayer, Ps 125:4; and a note of warning.
+**Division &mdash;** *First we have a song of holy confidence (Ps 125:1-2); then a promise, Ps 125:3; followed by a prayer, Ps 125:4; and a note of warning.*
 
 ## Exposition
 
