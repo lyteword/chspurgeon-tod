@@ -12,7 +12,7 @@ weight: 25
 
 ### Verse 1
 
-> Unto thee, O LORD, do I lift up my soul.
+> Unto thee, O Lord, do I lift up my soul.
 
 *Unto thee, O Lord.* See how the holy soul flies to its God like a dove to its cote. When the storm winds are out, the Lord's vessels put about and make for their well remembered harbour of refuge. What a mercy that the Lord will condescend to hear our cries in time of trouble, although we may have almost forgotten him in our hours of fancied prosperity. *Unto thee, O Jehovah, do I lift up my soul.* It is but a mockery to uplift the hands and the eyes unless we also bring our souls into our devotions. True prayer may be described as the soul rising from earth to have fellowship with heaven; it is taking a journey upon Jacob's ladder, leaving our cares and fears at the foot, and meeting with a covenant God at the top. Very often the soul cannot rise, she has lost her wings, and is heavy and earth bound; more like a burrowing mole than a soaring eagle. At such dull seasons we must not give over prayer, but must, by God's assistance, exert all our powers to lift up our hearts. Let faith be the lever and grace be the arm, and the dead lump will yet be stirred. But what a lift it has sometimes proved! With all our tugging and straining we have been utterly defeated, until the heavenly loadstone of our Saviour's love has displayed its omnipotent attractions, and then our hearts have gone up to our Beloved like mounting flames of fire.
 
@@ -30,7 +30,7 @@ weight: 25
 
 ### Verse 4
 
-> Shew me thy ways, O LORD; teach me thy paths.
+> Shew me thy ways, O Lord; teach me thy paths.
 
 *Shew me thy ways, O Lord.* Unsanctified natures clamour for their own way, but gracious spirits cry, "Not my will, but thine be done. " We cannot at all times discern the path of duty, and at such times it is our wisdom to apply to the Lord himself. Frequently the dealings of God with us are mysterious, and then also we may appeal to him as his own interpreter, and in due time he will make all things plain. Moral, providential and mental forms of guidance are all precious gifts of a gracious God to a teachable people. The second petition, *teach me thy paths, * appears to mean more than the first, and may be illustrated by the case of a little child who should say to his father, "Father, first tell me which is the way, and then teach my little trembling feet to walk in it. " What weak dependent creatures we are! How constantly should we cry to the Strong for strength!
 
@@ -42,7 +42,7 @@ weight: 25
 
 ### Verse 6
 
-> Remember, O LORD, thy tender mercies and thy lovingkindnesses; for they *have been* ever of old.
+> Remember, O Lord, thy tender mercies and thy lovingkindnesses; for they *have been* ever of old.
 
 *Remember, O Lord, thy tender mercies and thy lovingkindnesses.* We are usually tempted in seasons of affliction to fear that our God has forgotten us, or forgotten his usual kindness towards us; hence the soul doth as it were put the Lord in remembrance, and beseech him to recollect those deeds of love which once he wrought towards it. There is a holy boldness which ventures thus to deal with the Most High, let us cultivate it; but there is also an unholy unbelief which suggests our fears, let us strive against it with all our might. What gems are those two expressions, *"tender mercies and lovingkindnesses!"* They are the virgin honey of language; for sweetness no words can excel them; but as for the gracious favours which are intended by them, language fails to describe them.
 
@@ -55,7 +55,7 @@ If the Lord will only do unto us in the future as in the past, we shall be well 
 
 ### Verse 7
 
-> Remember not the sins of my youth, nor my transgressions: according to thy mercy remember thou me for thy goodness’ sake, O LORD.
+> Remember not the sins of my youth, nor my transgressions: according to thy mercy remember thou me for thy goodness’ sake, O Lord.
 
 *Remember not the sins of my youth.* Sin is *the* stumbling block. This is the thing to be removed. Lord, pass an act of oblivion for all my sins, and especially for the hot blooded wanton follies of my younger years. Those offences which we remember with repentance God forgets, but if we forget them, justice will bring them forth to punishment. The world winks at the sins of younger men, and yet they are none so little after all; the bones of our youthful feastings at Satan's table will stick painfully in our throats when we are old men. He who presumes upon his youth is poisoning his old age. How large a tear may wet this page as some of us reflect upon the past! *Nor my transgressions.* Another word for the same evils. Sincere penitents cannot get through their confessions at a gallop; they are constrained to use many bemoanings, for their swarming sins smite them with so innumerable griefs. A painful sense of any one sin provokes the believer to repentance for the whole mass of his iniquities. Nothing but the fullest and clearest pardon will satisfy a thoroughly awakened conscience. David would have his sins not only forgiven, but forgotten. *According to thy mercy remember thou me for thy goodness' sake, O Lord.* David and the dying thief breathe the same prayer, and doubtless they grounded it upon the same plea, viz., the free grace and unmerited goodness of Jehovah. We dare not ask to have our portion measured from the balances of justice, but we pray to be dealt with by the hand of mercy.
 
@@ -65,7 +65,7 @@ These three verses are a meditation upon the attributes and acts of the Lord. He
 
 ### Verse 8
 
-> Good and upright *is* the LORD: therefore will he teach sinners in the way.
+> Good and upright *is* the Lord: therefore will he teach sinners in the way.
 
 *Good and upright is the Lord: therefore will he teach sinners in the way.* Here the goodness and rectitude of the divine character are beheld in friendly union; he who would see them thus united in bonds of perfect amity must stand at the foot of the cross and view them blended in the sacrifice of the Lord Jesus. It is no less true than wonderful that through the atonement the justice of God pleads as strongly as his grace for the salvation of the sinners whom Jesus died to save. Moreover, as a good man naturally endeavours to make others like himself, so will the Lord our God in his compassion bring sinners into the way of holiness and conform them to his own image; thus the goodness of our God leads us to expect the reclaiming of sinful men. We may not conclude from God's goodness that he will save those sinners who continue to wander in their own ways, but we may be assured that he will renew transgressors' hearts and guide them into the way of holiness. Let those who desire to be delivered from sin take comfort from this. God himself will condescend to be the teacher of sinners. What a ragged school is this for God to teach in! God's teaching is practical; he teaches sinners not only the doctrine but *the way.*
 
@@ -77,19 +77,19 @@ These three verses are a meditation upon the attributes and acts of the Lord. He
 
 ### Verse 10
 
-> All the paths of the LORD *are* mercy and truth unto such as keep his covenant and his testimonies.
+> All the paths of the Lord *are* mercy and truth unto such as keep his covenant and his testimonies.
 
 This is a rule without exception. God is good to those that be good. Mercy and faithfulness shall abound towards those who through mercy are made faithful. Whatever outward appearances may threaten we should settle it steadfastly in our minds that while grace enables us to obey the Lord's will we need not fear that Providence will cause us any real loss. There shall be mercy in every unsavoury morsel, and faithfulness in every bitter drop; let not our hearts be troubled, but let us rest by faith in the immutable covenant of Jehovah, which is ordered in all things and sure. Yet this is not a general truth to be trampled upon by swine, it is a pearl for a child's neck. Gracious souls, by faith resting upon the finished work of the Lord Jesus, *keep* the *covenant* of the Lord, and, being sanctified by the Holy Spirit, they walk in *his testimonies;* these will find all things working together for their good, but to the sinner there is no such promise. Keepers of the covenant shall be kept by the covenant; those who follow the Lord's commandments shall find the Lord's mercy following them.
 
 ### Verse 11
 
-> For thy name’s sake, O LORD, pardon mine iniquity; for it *is* great.
+> For thy name’s sake, O Lord, pardon mine iniquity; for it *is* great.
 
 This sentence of prayer would seem out of place were it not that prayer is always in its place, whether in season or out of season. Meditation having refreshed the Psalmist, he falls to his weighty work again, and wrestles with God for the remission of his sin. *For thy name's sake, O Lord.* Here is a blessed, never failing plea. Not for our sakes or our merit's sake, but to glorify thy mercy, and to show forth the glory of thy divine attributes. *Pardon mine iniquity.* It is confessed, it is abhorred, it is consuming my heart with grief; Lord forgive it; let thine own lips pronounce my absolution. *For it is great.* It weighs so heavily upon me that I pray thee remove it. Its greatness is no difficulty with thee, for thou art a great God, but the misery which it causes to me is my argument with thee for speedy pardon. Lord, the patient is sore sick, therefore heal him. To pardon a great sinner will bring thee great glory, therefore for thy name's sake pardon me. Observe how this verse illustrates the logic of faith, which is clean contrary to that of a legal spirit; faith looks not for merit in the creature, but hath regard to the goodness of the Creator; and instead of being staggered by the demerits of sin it looks to the precious blood, and pleads all the more vigorously because of the urgency of the case.
 
 ### Verse 12
 
-> What man *is* he that feareth the LORD? him shall he teach in the way *that* he shall choose.
+> What man *is* he that feareth the Lord? him shall he teach in the way *that* he shall choose.
 
 *What man is he that feareth the Lord?* Let the question provoke self examination. Gospel privileges are not for every pretender. Art thou of the seed royal or no? *Him shall he teach in the way that he shall choose.* Those whose hearts are right shall not err for want of heavenly direction. Where God sanctifies the heart he enlightens the head. We all wish to choose our way; but what a mercy is it when the Lord directs that choice, and makes free will to be goodwill! If we make our will God's will, God will let is have our will. God does not violate our will, but leaves much to our choice; nevertheless, he instructs our wills, and so we choose that which is well pleasing in his sight. The will should be subject to law; there is a way which we should choose, but so ignorant are we that we need to be taught, and so wilful that none but God himself can teach us effectually.
 
@@ -101,13 +101,13 @@ He who fears God has nothing else to fear. *His soul shall dwell at ease.* He sh
 
 ### Verse 14
 
-> The secret of the LORD *is* with them that fear him; and he will shew them his covenant.
+> The secret of the Lord *is* with them that fear him; and he will shew them his covenant.
 
 *The secret of the Lord is with them that fear him.* Some read it "the friendship:" it signifies familiar intercourse, confidential intimacy, and select fellowship. This is a great secret. Carnal minds cannot guess what is intended by it, and even believers cannot explain it in words, for it must be felt to be known. The higher spiritual life is necessarily a path which the eagle's eye hath not known, and which the lion's whelp has not travelled; neither natural wisdom nor strength can force a door into this inner chamber. Saints have the key of heaven's hieroglyphics; they can unriddle celestial enigmas. They are initiated into the fellowship of the skies; they have heard words which it is not possible for them to repeat to their fellows. *And he will shew them his covenant.* Its antiquity, security, righteousness, fulness, graciousness and excellence, shall be revealed to their hearts and understandings, and above all, their own part in it shall be sealed to their souls by the witness of the Holy Spirit. The designs of love which the Lord has to his people in the covenant of grace, he has been pleased to show to believers in the Book of Inspiration, and by his Spirit he leads us into the mystery, even the hidden mystery of redemption. He who does not know the meaning of this verse, will never learn it from a commentary; let him look to the cross, for the secret lies there.
 
 ### Verse 15
 
-> Mine eyes *are* ever toward the LORD; for he shall pluck my feet out of the net.
+> Mine eyes *are* ever toward the Lord; for he shall pluck my feet out of the net.
 
 *Mine eyes are ever toward the Lord.* The writer claims to be fixed in his trust, and constant in his expectation; he looks in confidence, and waits in hope. We may add to this look of faith and hope the obedient look of service, the humble look of reverence, the admiring look of wonder, the studious look of meditation, and the tender look of affection. Happy are those whose eyes are never removed from their God. "The eye, "says Solomon, "is never satisfied with seeing, "but this sight is the most satisfying in the world. *For he shall pluck my feet out of the net.* Observe the conflicting condition in which a gracious soul may be placed, his eyes are in heaven and yet his feet are sometimes in a net; his nobler nature ceases not to behold the glories of God, while his baser parts are enduring the miseries of the world. A net is the common metaphor for temptation. The Lord often keeps his people from falling into it, and if they have fallen he rescues them. The word *"pluck"* is a rough word, and saints who have fallen into sin find that the means of their restoration are not always easy to the flesh; the Lord plucks at us sharply to let us feel that sin is an exceeding bitter thing. But what a mercy is here: Believer, be very grateful for it. The Lord will deliver us from the cunning devices of our cruel enemy, and even if through infirmity we have fallen into sin, he will not leave us to be utterly destroyed but will pluck us out of our dangerous state; though our feet are in the net, if our eyes are up unto God, mercy certainly will interpose.
 
@@ -218,7 +218,7 @@ His own eyes were fixed upon God, but he feared that the Lord had averted his fa
 
 **Verse 7.** *The sins of my youth.* Two aged disciples, one eighty-seven years old, one day met. "Well, "enquired the younger, of his fellow pilgrim, "how long have you been interested in religion?" "Fifty years, "was the old man's reply. "Well, have you ever regretted that you began when young to devote yourself to religion?" "Oh no!" said he, and the tears trickled down his furrowed cheeks; "I weep when I think of the sins of my youth; it is this which makes me weep now. " *From K. Arvine's "Cyclopaedia of Moral and Religious Anecdotes, "* 1859. 
 
-**Verse 7.** *According to* THY *mercy, * not *mine;* for I have forsaken those *mercies* thou madest *mine own* Jon 2:8 Ps 59:10, 17, in being cruel to myself by my sin, through distrust of thy promise, and upon presumption in thy mercy; yea, let it be, *for* THY *goodness' sake, * not *mine, * for in me, that is, in my flesh, dwelleth no manner of thing that is good. Let thy goodness, then, be the motive, thy mercy the rule of all that grace, and of all those blessings you vouchsafe unto my soul. *Robert Mossom.* 
+**Verse 7.** *According to* Thy *mercy, * not *mine;* for I have forsaken those *mercies* thou madest *mine own* Jon 2:8 Ps 59:10, 17, in being cruel to myself by my sin, through distrust of thy promise, and upon presumption in thy mercy; yea, let it be, *for* Thy *goodness' sake, * not *mine, * for in me, that is, in my flesh, dwelleth no manner of thing that is good. Let thy goodness, then, be the motive, thy mercy the rule of all that grace, and of all those blessings you vouchsafe unto my soul. *Robert Mossom.* 
 
 **Verse 7.** *According to thy mercy.* Moses was the first that brought up this happy expression, *According to thy mercy* (I know not where it is used by any other man), that is, according to the infinite mercy that is in thy heart and nature. David did next use it (Psalm 25), and in the great case of his sin and adultery Ps 51:1, "that he would be merciful to him, according to the multitude of his mercies. " And as he needed all the mercies in God, so he confessed the sin of his nature, and hath recourse to the mercies in God's nature. But it is Ps 25:7, I pitch on; there he doth not content himself only with this expression, *According to thy mercy, * but he adds another phrase, "For thy mercy's sake, "and *goodness sake.* Muis observes in this coherence, *"Good and upright is the Lord"* Ps 25:8, that he centres in his nature. Thou hast a merciful nature; deal with me according to that, and for the sake of that, "according to thy mercy, "for thy goodness sake. " The mediation of that attribute was the foundation of his faith and prayer herein. When he has done, he refers himself to Moses: Ps 25:11, *For thy name's sake, O Lord, pardon mine iniquity; for it is great.* He refers to that name proclaimed before Moses. Ex 34:6, 7. But you will say, how do these expressions, "for thy name's sake, "for thy goodness sake, "for thy mercy's sake, "imply the same as "for himself, "for his own sake"? how do they involve the Godhead? Look to Isa 43:25, "I, even I, am he that blotteth out thy transgressions for mine own sake, "that is, for myself. Isa 48:11. "For mine own sake, even for mine own sake, will I do it. " You have it twice in one verse; and that which is "for mercy's sake" in one place, is "for mine own sake" in another, "and behold it is I, I am he, as I am God, who doth it. What is this, but Jehovah, Jehovah, God merciful"? *Thomas Goodwin.* 
 
@@ -424,9 +424,9 @@ Improvement:
 
 ## Works Upon The Twenty-Fifth Psalm
 
- *A Godly and Fruitful Exposition on the Twenty-fifth Psalme, the second of the Penitentials; (in "A Sacred Septenarie. ")* By ARCHIBALD SYMSON. 1638. (See page 74. )
+ *A Godly and Fruitful Exposition on the Twenty-fifth Psalme, the second of the Penitentials; (in "A Sacred Septenarie. ")* By Archibald Symson. 1638. (See page 74. )
 
- *The Preacher's Tripartie, in Three Books. The First, to raise Devotion in Divine Meditations upon Psalm XXV.* By R. MOSSOM, Preacher of God's Word, late at St. Peter's, Paul's Wharf, London, 1657. Folio. 
+ *The Preacher's Tripartie, in Three Books. The First, to raise Devotion in Divine Meditations upon Psalm XXV.* By R. Mossom, Preacher of God's Word, late at St. Peter's, Paul's Wharf, London, 1657. Folio. 
 
- *Six Sermons in "Expository Discourses, "* by the late Rev. WILLIAM RICHARDSON, Subchanter of York Cathedral. 1825. 
+ *Six Sermons in "Expository Discourses, "* by the late Rev. William Richardson, Subchanter of York Cathedral. 1825. 
 

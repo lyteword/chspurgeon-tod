@@ -10,7 +10,7 @@ weight: 23
 
 ### Verse 1
 
-> The LORD *is* my shepherd; I shall not want.
+> The Lord *is* my shepherd; I shall not want.
 
 *"The Lord is my shepherd."* What condescension is this, that the infinite Lord assumes towards his people the office and character of a Shepherd! It should be the subject of grateful admiration that the great God allows himself to be compared to anything which will set forth his great love and care for his own people. David had himself been a keeper of sheep, and understood both the needs of the sheep and the many cares of a shepherd. He compares himself to a creature weak, defenceless, and foolish, and he takes God to be his Provider, Preserver, Director, and, indeed, his everything. No man has a right to consider himself the Lord's sheep unless his nature has been renewed for the scriptural description of unconverted men does not picture them as sheep, but as wolves or goats. A sheep is an object of property, not a wild animal; its owner sets great store by it, and frequently it is bought with a great price. It is well to know, as certainly David did, that we belong to the Lord. There is a noble tone of confidence about this sentence. There is no "if" nor "but, " nor even "I hope so;" but he says, "The Lord *is* my shepherd." We must cultivate the spirit of assured dependence upon our heavenly Father. The sweetest word of the whole is that monosyllable, *"My."* He does not say, "The Lord is the shepherd of the world at large, and leadeth forth the multitude as his flock, " but "The Lord is *my* shepherd;" if he be a Shepherd to no one else, he is a Shepherd to *me;* he cares for *me, * watches over *me, * and preserves *me.* The words are in the present tense. Whatever be the believer's position, he is even now under the pastoral care of Jehovah. The next words are a sort of inference from the first statement—they are sententious and positive— *"I shall not want."* I might want otherwise, but when the Lord is my Shepherd he is able to supply my needs, and he is certainly willing to do so, for his heart is full of love, and therefore *"I shall not want."* I shall not lack for *temporal things.* Does he not feed the ravens, and cause the lilies to grow? How, then, can he leave his children to starve? I shall not want *for spirituals, * I know that his grace will be sufficient for me. Resting in him he will say to me, "As thy day so shall thy strength be." I may not possess all that I wish for, but "I shall not *want."* Others, far wealthier and wiser than I, may want, but "I *shall not."* "The young lions *do* lack, and suffer hunger: but they that seek the Lord shall not want any good thing." It is not only "I do not want, " but "I *shall not* want." Come what may, if famine should devastate the land, or calamity destroy the city, *"I shall not want."* Old age with its feebleness shall not bring me any lack, and even death with its gloom shall not find me destitute. I have all things and abound; not because I have a good store of money in the bank, not because I have skill and wit with which to win my bread, but because *"The Lord is my shepherd."* The wicked always want, but the righteous never; a sinner's heart is far from satisfaction, but a gracious spirit dwells in the palace of content.
 
@@ -40,7 +40,7 @@ weight: 23
 
 ### Verse 6
 
-> Surely goodness and mercy shall follow me all the days of my life: and I will dwell in the house of the LORD for ever.
+> Surely goodness and mercy shall follow me all the days of my life: and I will dwell in the house of the Lord for ever.
 
 *"Surely goodness and mercy shall follow me all the days of my life."* This is a fact as indisputable as it is encouraging, and therefore a heavenly *verily, * or *"surely"* is set as a seal upon it. This sentence may be read, "*only* goodness and mercy," for there shall be unmingled mercy in our history. These twin guardian angels will always be with me at my back and my beck. Just as when great princes go abroad they must not go unattended, so it is with the believer. Goodness and mercy follow him always— *"all the days of his life"* —the black days as well as the bright days, the days of fasting as well as the days of feasting, the dreary days of winter as well as the bright days of summer. Goodness supplies our needs, and mercy blots out our sins. *"And I will dwell in the house of the* Lord for ever.""A servant abideth not in the house for ever, but the son abideth ever." While I am here I will be a child at home with my God; the whole world shall be his house to me; and when I ascend into the upper chamber, I shall not change my company, nor even change the house; I shall only go to dwell in the upper storey of the house of the Lord for ever. May God grant us grace to dwell in the serene atmosphere of this most blessed Psalm!
 
@@ -94,7 +94,7 @@ weight: 23
 
 **Verse 2.** *"Lie down"—"leadeth."* Sitting Mary and stirring Martha are emblems of contemplation and action, and as they dwell in one house, so must these in one heart. *Nathanael Hardy.* 
 
-**Verse 2.** This short but touching epitaph is frequently seen in the catacombs at Rome, *"In Christo, in pace"* —(In Christ, in peace). Realise the constant presence of the Shepherd of peace. "HE maketh me to lie down!" "HE leadeth me." *J. R. Macduff, D. D.* 
+**Verse 2.** This short but touching epitaph is frequently seen in the catacombs at Rome, *"In Christo, in pace"* —(In Christ, in peace). Realise the constant presence of the Shepherd of peace. "He maketh me to lie down!" "He leadeth me." *J. R. Macduff, D. D.* 
 
 *Verse* 2 (*last clause* ). *"Easily leadeth, "* or *"comfortably guideth* me:"it noteth a soft and gentle leading, with sustaining of infirmity. *H. Ainsworth.* 
 
@@ -228,18 +228,18 @@ weight: 23
 
 ## Works Upon The Twenty-Third Psalm
 
-*Certain Comfortable Expositions of the Constant Martyrs of Christ.* JOHN HOOPER, Bishop of Gloucester and Worcester, 1555, written in the time of his Tribulation and Imprisonment, upon the Twenty-third, Sixty-second, Seventy-third, and Seventy-seventh Psalm of the prophet David. {In Parker Society's publications, and also in the "British Reformers" series of the Religious Tract Society.} 
+*Certain Comfortable Expositions of the Constant Martyrs of Christ.* John Hooper, Bishop of Gloucester and Worcester, 1555, written in the time of his Tribulation and Imprisonment, upon the Twenty-third, Sixty-second, Seventy-third, and Seventy-seventh Psalm of the prophet David. {In Parker Society's publications, and also in the "British Reformers" series of the Religious Tract Society.} 
 
-*The Chiefe Shepheard; or an Exposition upon ye Twenty-third Psalme*&mdash; BY SAMUEL SMITH, Minister of ye Word of God, at Prittlewell, in Essex. 1625\.8vo. 
+*The Chiefe Shepheard; or an Exposition upon ye Twenty-third Psalme*&mdash; By Samuel Smith, Minister of ye Word of God, at Prittlewell, in Essex. 1625\.8vo. 
 
-*Meditations and Disquisitions upon Seven Consolatorie Psalmes of* David. By Sir RICHARD BAKER. 1640. {see "WORKS, " p. 10.} 
+*Meditations and Disquisitions upon Seven Consolatorie Psalmes of* David. By Sir Richard Baker. 1640. {see "works, " p. 10.} 
 
-*The Shepherd of Israel; or, God's pastoral care over his people.* Delivered in divers Sermons on the whole Twenty-third Psalme&mdash; By that Reverend and Faithful Minister of the Gospel, Mr. OBADIAH SEDGWICK, B. D. 1658\.4to. 
+*The Shepherd of Israel; or, God's pastoral care over his people.* Delivered in divers Sermons on the whole Twenty-third Psalme&mdash; By that Reverend and Faithful Minister of the Gospel, Mr. Obadiah Sedgwick, B. D. 1658\.4to. 
 
-*The Shepherd of Israel: a practical Exposition and Improvement of the* Twenty-third Psalm. By J. THORNTON. 1826. 12mo. 
+*The Shepherd of Israel: a practical Exposition and Improvement of the* Twenty-third Psalm. By J. Thornton. 1826. 12mo. 
 
-*The Lord our Shepherd: an Exposition of the Twenty-third Psalm.* By the Rev, JOHN STEVENSON, perpetual Curate of Cury and Gunwalloe, Cornwall. 1845\.8vo. 
+*The Lord our Shepherd: an Exposition of the Twenty-third Psalm.* By the Rev, John Stevenson, perpetual Curate of Cury and Gunwalloe, Cornwall. 1845\.8vo. 
 
-*The Good Shepherd and the Chosen Flock: shewing the progress of the* sheep of Christ through the wilderness of this world to the pastures of the Heavenly Zion. An Exposition of the Twenty-third Psalm. By THOMAS DALE, M. A., Canon Residentiary of St, Paul's, London. 1847. 12mo. 
+*The Good Shepherd and the Chosen Flock: shewing the progress of the* sheep of Christ through the wilderness of this world to the pastures of the Heavenly Zion. An Exposition of the Twenty-third Psalm. By Thomas Dale, M. A., Canon Residentiary of St, Paul's, London. 1847. 12mo. 
 
-*The Shepherd King; or Jesus seen in the Life of David.* Designed for the Young. By the Authoress of "The Folded Lamb." {Mrs. Rogers.} 1856. 12mo. *The Song of Christ's Flock in the Twenty-third Psalm.* By JOHN STOUGHTON. 1860. 12m0. 
+*The Shepherd King; or Jesus seen in the Life of David.* Designed for the Young. By the Authoress of "The Folded Lamb." {Mrs. Rogers.} 1856. 12mo. *The Song of Christ's Flock in the Twenty-third Psalm.* By John Stoughton. 1860. 12m0. 
