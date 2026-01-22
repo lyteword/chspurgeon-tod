@@ -12,27 +12,27 @@ weight: 6
 
 ### Verse 1
 
-> O LORD, rebuke me not in thine anger, neither chasten me in thy hot displeasure.
+> O Lord, rebuke me not in thine anger, neither chasten me in thy hot displeasure.
 
 Having read through the first division, in order to see it as a whole, we will now look at it verse by verse. *"O Lord, rebuke* me not in thine anger." The Psalmist is very conscious that he deserves to be rebuked, and he feels, moreover, that the rebuke in some form or other must come upon him, if not for condemnation, yet for conviction and sanctification. "Corn is cleaned with wind, and the soul with chastenings." It were folly to pray against the golden hand which enriches us by its blows. He does not ask that the rebuke may be totally withheld, for he might thus lose a blessing in disguise; but, "Lord, rebuke me not *in thine anger."* If thou remindest me of my sin, it is good; but, oh, remind me not of it as one incensed against me, lest thy servant's heart should sink in despair. Thus saith Jeremiah, "O Lord, correct me, but with judgment; not in thine anger, lest thou bring me to nothing." I know that I must be chastened, and though I shrink from the rod yet do I feel that it will be for my benefit; but, oh, my God, *"chasten me not* in thy hot displeasure, "lest the rod become a sword, and lest in smiting, thou shouldest also kill. So may we pray that the chastisements of our gracious God, if they may not be entirely removed, may at least be sweetened by the consciousness that they are "not in anger, but in his dear covenant love."
 
 ### Verse 2
 
-> Have mercy upon me, O LORD; for I *am* weak: O LORD, heal me; for my bones are vexed.
+> Have mercy upon me, O Lord; for I *am* weak: O Lord, heal me; for my bones are vexed.
 
 *"Have mercy upon me, O Lord; for I am weak."* Though I deserve destruction, yet let thy mercy pity my frailty. This is the right way to plead with God if we would prevail. Urge not your goodness or your greatness, but plead your sin and your littleness. Cry, *"I am weak, "* therefore, O Lord, give me strength and crush me not. Send not forth the fury of thy tempest against so weak a vessel. Temper the wind to the shorn lamb. Be tender and pitiful to a poor withering flower, and break it not from its stem. Surely this is the plea that a sick man would urge to move the pity of his fellow if he were striving with him, "Deal gently with me, 'for I am weak.'" A sense of sin had so spoiled the Psalmist's pride, so taken away his vaunted strength, that he found himself weak to obey the law, weak through the sorrow that was in him, too weak, perhaps, to lay hold on the promise. *"I am weak."* The original may be read, "I am one who droops, " or withered like a blighted plant. Ah! beloved, we know what this means, for we, too, have seen our glory stained, and our beauty like a faded flower.
 
 ### Verse 3
 
-> My soul is also sore vexed: but thou, O LORD, how long?
+> My soul is also sore vexed: but thou, O Lord, how long?
 
 *"O Lord, heal me; for my bones are vexed."* Here he prays for *healing, * not merely the mitigation of the ills he endured, but their entire removal, and the curing of the wounds which had arisen therefrom. His bones were *"shaken, "* as the Hebrew has it. His terror had become so great that his very bones shook; not only did his flesh quiver, but the bones, the solid pillars of the house of manhood, were made to tremble. "My bones are shaken." Ah, when the soul has a sense of sin, it is enough to make the bones shake; it is enough to make a man's hair stand up on end to see the flames of hell beneath him, an angry God above him, and danger and doubt surrounding him. Well might he say, "My bones are shaken." Lest, however, we should imagine that it was merely bodily sickness— although bodily sickness might be the outward sign—the Psalmist goes on to say, *"My soul is also sore vexed."* Soul-trouble is the very soul of trouble. It matters not that the bones shake if the soul be firm, but when the soul itself is also sore vexed this is agony indeed. *"But thou, O Lord, how long?"* This sentence ends abruptly, for words failed, and grief drowned the little comfort which dawned upon him. The Psalmist had still, however, some hope; but that hope was only in his God. He therefore cries, "O Lord, how long?" The coming of Christ into the soul in his priestly robes of grace is the grand hope of the penitent soul; and, indeed, in some form or other, Christ's appearance is, and ever has been, the hope of the saints. Calvin's favourite exclamation was, "Domine usquequo"— *"O Lord, how long?"* Nor could his sharpest pains, during a life of anguish, force from him any other word. Surely this is the cry of the saints under the altar, "O Lord, how long?" And this should be the cry of the saints waiting for the millennial glories, "Why are his chariots so long in coming; Lord, how long?" Those of us who have passed through conviction of sin knew what it was to count our minutes hours, and our hours years, while mercy delayed its coming. We watched for the dawn of grace, as they that watch for the morning. Earnestly did our anxious spirits ask, "O Lord, how long?"
 
 ### Verse 4
 
-> Return, O LORD, deliver my soul: oh save me for thy mercies’ sake.
+> Return, O Lord, deliver my soul: oh save me for thy mercies’ sake.
 
-*"Return, O Lord; deliver my soul."* As God's absence was the main cause of his misery, so his return would be enough to deliver him from his trouble. *"Oh save me for thy mercies'* sake." He knows where to look, and what arm to lay hold upon. He does not lay hold on God's left hand of justice, but on his right hand of mercy. He knew his iniquity too well to think of merit, or appeal to anything but the grace of God. *"For thy mercies' sake."* What a plea that is! How prevalent it is with God! If we turn to justice, what plea can we urge? but if we turn to mercy we may still cry, notwithstanding the greatness of our guilt, "Save me for thy mercies' sake." Observe how frequently David here pleads the name of Jehovah, which is always intended where the word LORD is given in capitals. Five times in four verses we here meet with it. Is not this a proof that the glorious name is full of consolation to the tempted saint? Eternity, Infinity, Immutability, Self-existence, are all in the name Jehovah, and all are full of comfort.
+*"Return, O Lord; deliver my soul."* As God's absence was the main cause of his misery, so his return would be enough to deliver him from his trouble. *"Oh save me for thy mercies'* sake." He knows where to look, and what arm to lay hold upon. He does not lay hold on God's left hand of justice, but on his right hand of mercy. He knew his iniquity too well to think of merit, or appeal to anything but the grace of God. *"For thy mercies' sake."* What a plea that is! How prevalent it is with God! If we turn to justice, what plea can we urge? but if we turn to mercy we may still cry, notwithstanding the greatness of our guilt, "Save me for thy mercies' sake." Observe how frequently David here pleads the name of Jehovah, which is always intended where the word Lord is given in capitals. Five times in four verses we here meet with it. Is not this a proof that the glorious name is full of consolation to the tempted saint? Eternity, Infinity, Immutability, Self-existence, are all in the name Jehovah, and all are full of comfort.
 
 ### Verse 5
 
@@ -54,13 +54,13 @@ The Psalmist gives a fearful description of his long agony: *"I am weary with my
 
 ### Verse 8
 
-> Depart from me, all ye workers of iniquity; for the LORD hath heard the voice of my weeping.
+> Depart from me, all ye workers of iniquity; for the Lord hath heard the voice of my weeping.
 
 Hitherto, all has been mournful and disconsolate, but now— Your harps, ye trembling saints, Down from the willows take." Ye must have your times of weeping, but let them be short. Get ye up, get ye up, from your dunghills! Cast aside your sackcloth and ashes! Weeping may endure for a night, but joy cometh in the morning. David has found peace, and rising from his knees he begins to sweep his house of the wicked. *"Depart from* me, all ye workers of iniquity." The best remedy for us against an evil man is a long space between us both. "Get ye gone; I can have no fellowship with you." Repentance is a practical thing. It is not enough to bemoan the desecration of the temple of the heart, we must scourge out the buyers and sellers, and overturn the tables of the money changers. A pardoned sinner *will hate the sins* which cost the Saviour his blood. Grace and sin are quarrelsome neighbours, and one or the other must go to the wall. *"For the Lord hath hear the voice of* my weeping." What a fine Hebraism, and what grand poetry it is in English! "He hath heard the voice of my weeping." Is there a voice in weeping? Does weeping speak? In what language doth it utter its meaning? Why, in that universal tongue which is known and understood in all the earth, and even in heaven above. When a man weeps, whether he be a Jew or Gentile, Barbarian, Scythian, bond or free, it has the same meaning in it. Weeping is the eloquence of sorrow. It is an unstammering orator, needing no interpreter, but understood of all. Is it not sweet to believe that our tears are understood even when words fail? Let us learn to think of tears as liquid prayers, and of weeping as a constant dropping of importunate intercession which will wear its way right surely into the very heart of mercy, despite the stony difficulties which obstruct the way. My God, I will "weep" when I cannot plead, for thou hearest the voice of my weeping.
 
 ### Verse 9
 
-> The LORD hath heard my supplication; the LORD will receive my prayer.
+> The Lord hath heard my supplication; the Lord will receive my prayer.
 
 *"The Lord hath heard my supplication."* The Holy Spirit had wrought into the Psalmist's mind the confidence that his prayer was heard. This is frequently the privilege of the saints. Praying the prayer of faith, they are often infallibly assured that they have prevailed with God. We read of Luther that, having on one occasion wrestled hard with God in prayer, he came leaping out of his closet crying, *"Vicimus, vicimus;"* that is, We have conquered, we have prevailed with God." Assured confidence is no idle dream, for when the Holy Ghost bestows it upon us, we know its reality, and could not doubt it, even though all men should deride our boldness. *"The Lord will receive my prayer."* Here is past experience used for future encouragement. *He hath, he will.* Note this, O believer, and imitate its reasoning.
 
@@ -176,8 +176,8 @@ Hitherto, all has been mournful and disconsolate, but now— Your harps, ye trem
 
 ## Works Upon The Sixth Psalm
 
-*A Godly and Fruitful Exposition on the Sixt Psalme, the First of the Penitentials; in a sacred Septenarie; or, a Godly and Fruitful Exposition on the Seven Psalmes of Repentance* by MR. ARCHIBALD SYMSON, late Pastor of the Church at Dalkeeth in Scotland. 1638. 
+*A Godly and Fruitful Exposition on the Sixt Psalme, the First of the Penitentials; in a sacred Septenarie; or, a Godly and Fruitful Exposition on the Seven Psalmes of Repentance* by Mr. Archibald Symson, late Pastor of the Church at Dalkeeth in Scotland. 1638. 
 
-*Sermons on the Penetential Psalms, in "The Works of John Donne, D. D., Dean of St. Paul's, "* 1621-1631. Edited by HENRY ALFORD, M. A. In six volumes. 1839. 
+*Sermons on the Penetential Psalms, in "The Works of John Donne, D. D., Dean of St. Paul's, "* 1621-1631. Edited by Henry Alford, M. A. In six volumes. 1839. 
 
-*On Verse 6. The Sick Man's Couch; a Sermon preached before the most noble Prince Henry, as Greenwich, Mar. 12., ann. 1604.* by THOMAS PLAYFERE. &c., in Playfere's Sermons. 
+*On Verse 6. The Sick Man's Couch; a Sermon preached before the most noble Prince Henry, as Greenwich, Mar. 12., ann. 1604.* by Thomas Playfere. &c., in Playfere's Sermons. 
