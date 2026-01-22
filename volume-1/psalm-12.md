@@ -11,7 +11,7 @@ weight: 12
 
 ### Verse 1
 
-> Help, LORD; for the godly man ceaseth; for the faithful fail from among the children of men.
+> Help, Lord; for the godly man ceaseth; for the faithful fail from among the children of men.
 
 *"Help, Lord."* A short but sweet, suggestive, seasonable, and serviceable prayer; a kind of angel's sword, to be turned every way, and to be used on all occasions. Ainsworth says the word rendered "help, " is largely used for all manner of saving, helping, delivering, preserving, etc. Thus it seems that the prayer is very full and instructive. The Psalmist sees the extreme danger of his position, for a man had better be among lions than among liars; he feels his own inability to deal with such sons of Belial, for "he who shall touch them must be fenced with iron;" he therefore turns himself to his all-sufficient Helper, the Lord, whose help is never denied to his servants, and whose aid is enough for all their needs. *"Help, Lord, "* is a very useful ejaculation which we may dart up to heaven on occasions of emergency, whether in labour, learning, suffering, fighting, living, or dying. As small ships can sail into harbours which larger vessels, drawing more water, cannot enter, so our brief cries and short petitions may trade with heaven when our soul is wind-bound, and business-bound, as to longer exercises of devotion, and when the stream of grace seems at too low an ebb to float a more laborious supplication. *"For the godly man* ceaseth;"the death, departure, or decline of godly men should be a trumpet-call for more prayer. They say that fish smell first at the head, and when godly men decay, the whole commonwealth will soon go rotten. We must not, however, be rash in our judgment on this point, for Elijah erred in counting himself the only servant of God alive, when there were thousands whom the Lord held in reserve. The present times always appear to be peculiarly dangerous, because they are nearest to our anxious gaze, and whatever evils are rife are sure to be observed, while the faults of past ages are further off, and are more easily overlooked. Yet we expect that in the latter days, "because iniquity shall abound, the love of many shall wax cold, " and then we must the more thoroughly turn from man, and address ourselves to the Churches' Lord, by whose help the gates of hell shall be kept from prevailing against us. *"The faithful fail from among the* children of men;"when godliness goes, faithfulness inevitably follows; without fear of God, men have no love of truth. Common honesty is no longer common, when common irreligion leads to universal godlessness. David had his eye on Doeg, and the men of Ziph and Keilah, and perhaps remembered the murdered priests of Nob, and the many banished ones who consorted with him in the cave of Adullam, and wondered where the state would drift without the anchors of its godly and faithful men. David, amid the general misrule, did not betake himself to seditious plottings, but to solemn petitionings; nor did he join with the multitude to do evil, but took up the arms of prayer to withstand their attacks upon virtue.
 
@@ -23,7 +23,7 @@ weight: 12
 
 ### Verses 3 & 4
 
-> The LORD shall cut off all flattering lips, *and* the tongue that speaketh proud things:
+> The Lord shall cut off all flattering lips, *and* the tongue that speaketh proud things:
 
 > Who have said, With our tongue will we prevail; our lips *are* our own: who *is* lord over us?
 
@@ -31,19 +31,19 @@ Total destruction shall overwhelm the lovers of flattery and pride, but meanwhil
 
 ### Verse 5
 
-> For the oppression of the poor, for the sighing of the needy, now will I arise, saith the LORD; I will set *him* in safety *from him that* puffeth at him.
+> For the oppression of the poor, for the sighing of the needy, now will I arise, saith the Lord; I will set *him* in safety *from him that* puffeth at him.
 
 In due season the Lord will hear his elect ones, who cry day and night unto him, and though he bear long with their oppressors, yet will he avenge them speedily. Observe that the mere oppression of saints, however silently they bear it, is in itself a cry to God: Moses was heard at the Red Sea, though he said nothing; and Hagar's affliction was heard despite her silence. Jesus feels with his people, and their smarts are mighty orators with him. By-and-by, however, *they* begin to sigh and express their misery, and then relief comes post-haste. Nothing moves a father like the cries of his children; he bestirs himself, wakes up his manhood, overthrows the enemy, and sets his beloved in safety. A *puff* is too much for the child to bear, and the foe is so haughty, that he laughs the little one to scorn; but the Father comes, and then it is the child's turn to laugh, when he is set above the rage of his tormentor. What virtue is there in a poor man's sighs, that they should move the Almighty God to arise from his throne. The needy did not dare to speak, and could only sigh in secret, but the Lord heard, and could rest no longer, but girded on his sword for the battle. It is a fair day when our soul brings God into her quarrel, for when his bare arm is seen, Philistia shall rue the day. The darkest hours of the Church's night are those which precede the break of day. Man's extremity is God's opportunity. Jesus will come to deliver just when his needy ones shall sigh, as if all hope had gone for ever. O Lord, set thy *now* near at hand, and rise up speedily to our help. Should the afflicted reader be able to lay hold upon the promise of this verse, let him gratefully fetch a fulness of comfort from it. Gurnall says, "As one may draw out the wine of a whole hogshead at one tap, so may a poor soul derive the comfort of the whole covenant to himself through one promise, if he be able to apply it." He who promises to set us in safety, means thereby preservation on earth, and eternal salvation in heaven.
 
 ### Verse 6
 
-> The words of the LORD *are* pure words: *as* silver tried in a furnace of earth, purified seven times.
+> The words of the Lord *are* pure words: *as* silver tried in a furnace of earth, purified seven times.
 
 What a contrast between the vain words of man, and the pure words of Jehovah. Man's words are yea and nay, but the Lord's promises are yea and amen. For truth, certainty, holiness, faithfulness, the words of the Lord are pure as well-refined silver. In the original there is an allusion to the most severely-purifying process known to the ancients, through which silver was passed when the greatest possible purity was desired; the dross was all consumed, and only the bright and precious metal remained; so clear and free from all alloy of error or unfaithfulness is the book of the words of the Lord. The Bible has passed through the furnace of persecution, literary criticism, philosophic doubt, and scientific discovery, and has lost nothing but those human interpretations which clung to it as alloy to precious ore. The experience of saints has tried it in every conceivable manner, but not a single doctrine or promise has been consumed in the most excessive heat. What God's words are, the words of his children should be. If we would be Godlike in conversation, we must watch our language, and maintain the strictest purity of integrity and holiness in all our communications.
 
 ### Verse 7
 
-> Thou shalt keep them, O LORD, thou shalt preserve them from this generation for ever.
+> Thou shalt keep them, O Lord, thou shalt preserve them from this generation for ever.
 
 To fall into the hands of an evil generation, so as to be baited by their cruelty, or polluted by their influence, is an evil to be dreaded beyond measure; but it is an evil foreseen and provided for in the text. In life many a saint has lived a hundred years before his age, as though he had darted his soul into the brighter future, and escaped the mists of the beclouded present: he has gone to his grave unreverenced and misunderstood, and lo! as generations come and go, upon a sudden the hero is unearthed, and lives in the admiration and love of the excellent of the earth; preserved for ever from the generation which stigmatised him as a sower of sedition, or burned him as a heretic. It should be our daily prayer that we may rise above our age as the mountain-tops above the clouds, and may stand out as heaven-pointing pinnacle high above the mists of ignorance and sin which roll around us. O Eternal Spirit, fulfil in us the faithful saying of this verse! Our faith believes those two assuring words, and cries, *"Thou shalt, " "thou shalt."*
 
@@ -153,4 +153,4 @@ Here we return to the fount of bitterness, which first made the psalmist run to 
 
 ## Works Upon The Twelfth Psalm
 
-In *"A Godly Meditation upon XX select Psalms* By Sir ANTHONY COPE, Knight, 1547, " a thin black letter 4to., is an Exposition, or rather Meditation, on this Psalm. Reprinted 1848. 
+In *"A Godly Meditation upon XX select Psalms* By Sir Anthony Cope, Knight, 1547, " a thin black letter 4to., is an Exposition, or rather Meditation, on this Psalm. Reprinted 1848. 
