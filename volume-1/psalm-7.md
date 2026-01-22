@@ -12,7 +12,7 @@ weight: 7
 
 ### Verse 1
 
-> O LORD my God, in thee do I put my trust: save me from all them that persecute me, and deliver me:
+> O Lord my God, in thee do I put my trust: save me from all them that persecute me, and deliver me:
 
 David appears before God to plead with him against the Accuser, who had charged him with treason and treachery. The case is here opened with an avowal of confidence in God. Whatever may be the emergency of our condition we shall never find it amiss to retain our reliance upon our God. *"O Lord my God, "* mine by a special covenant, sealed by Jesus' blood, and ratified in my own soul by a sense of union to thee; *"in thee, "* and in thee only, *"do I* put my trust, "even now in my sore distress. I shake, but my rock moves not. It is never right to distrust God, and never vain to trust him. And now, with both divine relationship and holy trust to strengthen him, David utters the burden of his desire— *"save me* from all them that persecute me." His pursuers were very many, and any one of them cruel enough to devour him; he cries, therefore, for salvation from them *all.* We should never think our prayers complete until we *ask* for preservation from *all* sin, and all enemies. *"And deliver me, "* extricate me from their snares, acquit me of their accusations, give a true and just deliverance in this trial of my injured character. See how clearly his case is stated; let us see to it, that we know what we would have when we are come to the throne of mercy. Pause a little while before you pray, that you may not offer the sacrifice of fools. Get a distinct idea of your need, and then you can pray with the more fluency of fervency.
 
@@ -24,7 +24,7 @@ David appears before God to plead with him against the Accuser, who had charged 
 
 ### Verses 3-5
 
-> O LORD my God, if I have done this; if there be iniquity in my hands;
+> O Lord my God, if I have done this; if there be iniquity in my hands;
 
 > If I have rewarded evil unto him that was at peace with me; (yea, I have delivered him that without cause is mine enemy:)
 
@@ -35,7 +35,7 @@ The second part of this wandering hymn contains a protestation of innocence, and
 
 ### Verse 6
 
-> Arise, O LORD, in thine anger, lift up thyself because of the rage of mine enemies: and awake for me *to* the judgment *that* thou hast commanded.
+> Arise, O Lord, in thine anger, lift up thyself because of the rage of mine enemies: and awake for me *to* the judgment *that* thou hast commanded.
 
 We now listen to a fresh prayer, based upon the avowal which he has just made. We cannot pray too often, and when our heart is true, we shall turn to God in prayer as naturally as the needle to its pole. *"Arise, O Lord, in thine anger."* His sorrow makes him view the Lord as a judge who had left the judgment-seat and retired into his rest. Faith would move the Lord to avenge the quarrel of his saints. *"Lift up thyself because of the* rage of mine enemies"—a still stronger figure to express his anxiety that the Lord would assume his authority and mount the throne. Stand up, O God, rise thou above them all, and let thy justice tower above their villainies. *"Awake for me to the* judgment that thou hast commanded." This is a bolder utterance still, for it implies sleep as well as inactivity, and can only be applied to God in a very limited sense. He never slumbers, yet doth he often seem to do so; for the wicked prevail, and the saints are trodden in the dust. God's silence is the patience of longsuffering, and if wearisome to the saints, they should bear it cheerfully in the hope that sinners may thereby be led to repentance.
 
@@ -47,7 +47,7 @@ We now listen to a fresh prayer, based upon the avowal which he has just made. W
 
 ### Verse 8
 
-> The LORD shall judge the people: judge me, O LORD, according to my righteousness, and according to mine integrity *that is* in me.
+> The Lord shall judge the people: judge me, O Lord, according to my righteousness, and according to mine integrity *that is* in me.
 
 If I am not mistaken, David has now seen in the eye of his mind the Lord ascending to his judgment-seat, and beholding him seated there in royal state, he draws near to him to urge his suit anew. In the last two verses he besought Jehovah to arise, and now that he is arisen, he prepares to mingle with "the congregation of the people" who compass the Lord about. The royal heralds proclaim the opening of the court with the solemn words, *"The Lord shall* judge the people." Our petitioner rises at once, and cries with earnestness and humility, *"Judge me, O Lord, according to my* righteousness, and according to mine integrity that is in me." His hand is on an honest heart, and his cry is to a righteous Judge.
 
@@ -101,7 +101,7 @@ The rod which he lifted on high, has smitten his own back. He shot an arrow upwa
 
 ### Verse 17
 
-> I will praise the LORD according to his righteousness: and will sing praise to the name of the LORD most high.
+> I will praise the Lord according to his righteousness: and will sing praise to the name of the Lord most high.
 
 We conclude with the joyful contrast. In this all these Psalms are agreed; they all exhibit the blessedness of the righteous, and make its colours the more glowing by contrast with the miseries of the wicked. The bright jewel sparkles in a black foil. *Praise* is the occupation of the godly, their eternal work, and their present pleasure. *Singing* is the fitting embodiment for praise, and therefore do the saints make melody before the Lord Most High. The slandered one is now a singer: his harp was unstrung for a very little season, and now we leave him sweeping its harmonious chords, and flying on their music to the third heaven of adoring praise.
 
@@ -149,7 +149,7 @@ We conclude with the joyful contrast. In this all these Psalms are agreed; they 
 
 **Verse 10.** *"My defense is of God."* Literally, *"My* shield is upon God, "like Psalm 62:8, "My salvation is upon God." The idea may be taken from the armour-bearer, ever ready at hand to give the needed weapon to the warrior. *Andrew A. Bonar.* 
 
-**Verse 11.** *"God judgeth the righteous, "* etc. Many learned disputes have arisen as to the meaning of this verse; and it must be confessed that its real import is by no means easily determined: without the words written in italics, which are not in the original, it will read thus, "God judgeth the righteous, and God is angry every day." The question still will be, is this a good rendering? To this question it may be replied, that there is strong evidence for a contrary one. AINSWORTH translates it, "God *is* a just judge; and God angrily threateneth every day." With this corresponds the reading of COVERDALE'S Bible, "God is a righteous judge, and God is ever threatening." In King Edward's Bible, of 1549, the reading is the same. But there is another class of critics who adopt quite a different view of the text, and apparently with much colour of argument. BISHOP HORSLEY read the verse, "God is a righteous judge, although he is not angry every day." In this rendering he seems to have followed most of the ancient versions. The VULGATE read it, "God is a judge, righteous, strong, and patient; will he be angry every day?" The SEPTUAGINT reads it, "God is a righteous judge, strong, and longsuffering; not bringing forth his anger every day." The SYRIAC has it, "God is the judge of righteousness; he is not angry every day." In this view of the text Dr. A. Clarke agrees, and expresses it as his opinion that the text was first corrupted by the CHALDEE. This learned divine proposes to restore the text thus, "(Heb.), *el, * with the vowel point *tseri, * signifies God; (Heb.), *al, * the same letters, with the point *pathach, * signifies *not."* There is by this view of the original no repetition of the divine name in the verse, so that it will simply read, as thus restored, "God is a righteous judge, and is NOT angry every day." The text at large, as is intimated in the VULGATE, SEPTUAGINT, and some other ancient versions, conveys a strong intimation of the longsuffering of God, whose hatred of sin is unchangeable, but whose anger against transgressors is marked by infinite patience, and does not burst forth in vengeance every day. *John Morrison, in "An Exposition of* the Book of Psalms, "1829. 
+**Verse 11.** *"God judgeth the righteous, "* etc. Many learned disputes have arisen as to the meaning of this verse; and it must be confessed that its real import is by no means easily determined: without the words written in italics, which are not in the original, it will read thus, "God judgeth the righteous, and God is angry every day." The question still will be, is this a good rendering? To this question it may be replied, that there is strong evidence for a contrary one. Ainsworth translates it, "God *is* a just judge; and God angrily threateneth every day." With this corresponds the reading of Coverdale's Bible, "God is a righteous judge, and God is ever threatening." In King Edward's Bible, of 1549, the reading is the same. But there is another class of critics who adopt quite a different view of the text, and apparently with much colour of argument. Bishop Horsley read the verse, "God is a righteous judge, although he is not angry every day." In this rendering he seems to have followed most of the ancient versions. The Vulgate read it, "God is a judge, righteous, strong, and patient; will he be angry every day?" The Septuagint reads it, "God is a righteous judge, strong, and longsuffering; not bringing forth his anger every day." The Syriac has it, "God is the judge of righteousness; he is not angry every day." In this view of the text Dr. A. Clarke agrees, and expresses it as his opinion that the text was first corrupted by the Chaldee. This learned divine proposes to restore the text thus, "(Heb.), *el, * with the vowel point *tseri, * signifies God; (Heb.), *al, * the same letters, with the point *pathach, * signifies *not."* There is by this view of the original no repetition of the divine name in the verse, so that it will simply read, as thus restored, "God is a righteous judge, and is not angry every day." The text at large, as is intimated in the VULGATE, SEPTUAGINT, and some other ancient versions, conveys a strong intimation of the longsuffering of God, whose hatred of sin is unchangeable, but whose anger against transgressors is marked by infinite patience, and does not burst forth in vengeance every day. *John Morrison, in "An Exposition of* the Book of Psalms, "1829. 
 
 **Verse 11.** *"God is angry."* The original expression here is very forcible. The true idea of it appears to be, to *froth* or *foam at the mouth* with indignation. *Richard Mant, * D. D., 1824. 
 
