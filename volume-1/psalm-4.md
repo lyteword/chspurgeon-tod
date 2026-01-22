@@ -24,7 +24,7 @@ In this second division of the Psalm, we are led from the closet of prayer into 
 
 ### Verse 3
 
-> But know that the LORD hath set apart him that is godly for himself: the LORD will hear when I call unto him.
+> But know that the Lord hath set apart him that is godly for himself: the Lord will hear when I call unto him.
 
 *"But know."* Fools will not learn, and therefore they must again and again be told the same thing, especially when it is such a bitter truth which is to be taught them, viz.:—the fact that the godly are the chosen of God, and are, by distinguishing grace, set apart and separated from among men. Election is a doctrine which unrenewed men cannot endure, but nevertheless, it is a glorious and well-attested truth, and one which should comfort the tempted believer. Election is the guarantee of complete salvation, and an argument for success at the throne of grace. He who chose us for himself will surely hear our prayer. The Lord's elect shall not be condemned, nor shall their cry be unheard. David was king by divine decree, and we are the Lord's people in the same manner: let us tell our enemies to their faces, that they fight against God and destiny, when they strive to overthrow our souls. O beloved, when you are on your knees, the fact of your being *set apart* as God's own peculiar treasure, should give you courage and inspire you with fervency and faith. "Shall not God avenge his own elect, which cry day and night unto him?" Since he chose to love us he cannot but choose to hear us.
 
@@ -36,13 +36,13 @@ In this second division of the Psalm, we are led from the closet of prayer into 
 
 ### Verse 5
 
-> Offer the sacrifices of righteousness, and put your trust in the LORD.
+> Offer the sacrifices of righteousness, and put your trust in the Lord.
 
-Provided that the rebels had obeyed the voice of the last verse, they would now be crying, —"What shall we do to be saved?" And in the present verse, they are pointed to the *sacrifice, * and exhorted to *trust in the Lord.* When the Jew offered sacrifice righteously, that is, in a spiritual manner, he thereby set forth the Redeemer, the great sin-atoning Lamb; there is, therefore, the full gospel in this exhortation of the Psalmist. O sinners, flee ye to the sacrifice of Calvary, and there put your whole confidence and *trust, * for he who died for men is the LORD JEHOVAH.
+Provided that the rebels had obeyed the voice of the last verse, they would now be crying, —"What shall we do to be saved?" And in the present verse, they are pointed to the *sacrifice, * and exhorted to *trust in the Lord.* When the Jew offered sacrifice righteously, that is, in a spiritual manner, he thereby set forth the Redeemer, the great sin-atoning Lamb; there is, therefore, the full gospel in this exhortation of the Psalmist. O sinners, flee ye to the sacrifice of Calvary, and there put your whole confidence and *trust, * for he who died for men is the Lord Jehovah.
 
 ### Verse 6
 
-> *There be* many that say, Who will shew us *any* good? LORD, lift thou up the light of thy countenance upon us.
+> *There be* many that say, Who will shew us *any* good? Lord, lift thou up the light of thy countenance upon us.
 
 We have now entered upon the third division of the Psalm, in which the faith of the afflicted one finds utterance in sweet expressions of contentment and peace. There were many, even among David's own followers, who wanted to *see* rather than to believe. Alas! this is the tendency of us all! Even the regenerate sometimes groan after the sense and sight of prosperity, and are sad when darkness covers all good from view. As for worldlings, this is their unceasing cry. *"Who will shew us any good?"* Never satisfied, their gaping mouths are turned in every direction, their empty hearts are ready to drink in any fine delusion which impostors may invent; and when these fail, they soon yield to despair, and declare that there is no good thing in either heaven or earth. The true believer is a man of a very different mould. His face is not downward like the beasts', but upward like the angels'. He drinks not from the muddy pools of Mammon, but from the fountain of life above. The light of God's countenance is enough for him. This is his riches, his honour, his health, his ambition, his ease. Give him this, and he will ask no more. This is joy unspeakable, and full of glory. Oh, for more of the indwelling of the Holy Spirit, that our fellowship with the Father and with his Son Jesus Christ may be constant and abiding!
 
@@ -54,7 +54,7 @@ We have now entered upon the third division of the Psalm, in which the faith of 
 
 ### Verse 8
 
-> I will both lay me down in peace, and sleep: for thou, LORD, only makest me dwell in safety.
+> I will both lay me down in peace, and sleep: for thou, Lord, only makest me dwell in safety.
 
 Sweet Evening Hymn! I shall not sit up to watch through fear, but I will *lie down;* and then I will not lie awake listening to every rustling sound, but I will lie down *in peace* and sleep, for I have nought to fear. He that hath the wings of God above him needs no other curtain. Better than bolts or bars is the protection of the Lord. Armed men kept the bed of Solomon, but we do not believe that he slept more soundly than his father, whose bed was the hard ground, and who was haunted by blood-thirsty foes. Note the word *"only"*, which means that God alone was his keeper, and that though alone, without man's help, he was even then in good keeping, for he was "alone with God." A quiet conscience is a good bedfellow. How many of our sleepless hours might be traced to our untrusting and disordered minds. They slumber sweetly whom faith rocks to sleep. No pillow so soft as a promise; no coverlet so warm as an assured interest in Christ. O Lord, give us this calm repose on thee, that like David we may lie down in peace, and sleep each night while we live; and joyfully may we lie down in the appointed season, to sleep in death, to rest in God! Dr. Hawker's reflection upon this Psalm is worthy to be prayed over and fed upon with sacred delight. We cannot help transcribing it. "Reader! let us never lose sight of the Lord Jesus while reading this Psalm. He is the Lord our righteousness; and therefore, in all our approaches to the mercy seat, let us go there in a language corresponding to this which calls Jesus the Lord our righteousness. While men of the world, from the world are seeking their chief good, let us desire his favour which infinitely transcends corn and wine, and all the good things which perish in the using. Yes, Lord, *thy favour is better than life* itself. Thou causest them that love thee to inherit substance, and fillest all their treasure. "Oh! thou gracious God and Father, hast thou in such a wonderful manner set apart one in our nature for thyself? Hast thou indeed chosen one out of the people? Hast thou beheld him in the purity of his nature, —as one in every point Godly? Hast thou given him as the covenant of the people? And hast thou declared thyself well pleased in him? Oh! then, well may my soul be well pleased in him also. Now do I know that my God and Father will hear me when I call upon him in Jesus' name, and when I look up to him for acceptance for Jesus' sake! Yes, my heart is fixed, O Lord, my heart is fixed; Jesus is my hope and righteousness; the Lord will hear me when I call. And henceforth will I both lay me down in peace and sleep securely in Jesus, accepted in the Beloved; for *this is* the rest wherewith the Lord causeth the weary to rest, and this is the refreshing."
 
@@ -154,6 +154,6 @@ Sweet Evening Hymn! I shall not sit up to watch through fear, but I will *lie do
 
 ## Works Upon The Fourth Psalm
 
-*Choice and Practical Expositions on four select Psalms: namely, the Fourth Psalm, in eight Sermons, etc.* By THOMAS HORTON, D. D. 1675
+*Choice and Practical Expositions on four select Psalms: namely, the Fourth Psalm, in eight Sermons, etc.* By Thomas Horton, D. D. 1675
 
 *Meditations, Critical and Practical, on Psalm IV., * in Archbishop Leighton's Works. 
