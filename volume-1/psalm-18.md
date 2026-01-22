@@ -12,19 +12,19 @@ weight: 18
 
 ### Verse 1
 
-> I will love thee, O LORD, my strength.
+> I will love thee, O Lord, my strength.
 
 *"I will love thee, O Lord."* With strong, hearty affection will I cling to thee; as a child to its parent, or a spouse to her husband. The word is intensely forcible, the love is of the deepest kind. "I will love heartily, with my inmost bowels." Here is a fixed resolution to abide in the nearest and most intimate union with the Most High. Our triune God deserves the warmest love of all our hearts. Father, Son and Spirit have each a claim upon our love. The solemn purpose never to cease loving naturally springs from present fervour of affection. It is wrong to make rash resolutions, but this when made in the strength of God is most wise and fitting. *"My strength."* Our God is the strength of our life, our graces, our works, our hopes, our conflicts, our victories. This verse is not found in 2 Samuel 22, and is a most precious addition, placed above all and after all to form the pinnacle of the temple, the apex of the pyramid. Love is still the crowning grace.
 
 ### Verse 2
 
-> The LORD *is* my rock, and my fortress, and my deliverer; my God, my strength, in whom I will trust; my buckler, and the horn of my salvation, *and* my high tower.
+> The Lord *is* my rock, and my fortress, and my deliverer; my God, my strength, in whom I will trust; my buckler, and the horn of my salvation, *and* my high tower.
 
 *"The Lord is my rock and my fortress."* Dwelling among the crags and mountain fastnesses of Judea David had escaped the malice of Saul, and here he compares his God to such a place of concealment and security. Believers are often hidden in their God from the strife of tongues and the fury of the storm of trouble. The clefts of the Rock of Ages are safe abodes. *"My deliverer, "* interposing in my hour of peril. When almost captured the Lord's people are rescued from the hand of the mighty by him who is mightier still. This title of *"deliverer"* has many sermons in it, and is well worthy of the study of all experienced saints. *"My God;"* this is all good things in one. There is a boundless wealth in this expression; it means, my perpetual, unchanging, infinite, eternal good. He who can say truly "my God, " may well add, "my heaven, my all." *"My strength;"* this word is really *"my rock, "* in the sense of strength and immobility. My sure, unchanging, eternal confidence and support. Thus the word rock occurs twice, but it is no tautology, for the first time it is a rock for concealment, but here a rock for firmness and immutability. *"In whom I* will trust." Faith must be exercised, or the preciousness of God is not truly known; and God must be the object of faith, or faith is mere presumption. *"My buckler, "* warding off the blows of my enemy, shielding me from arrow or sword. The Lord furnishes his warriors with weapons both offensive and defensive. Our armoury is completely stored so that none need go to battle unarmed. *"The horn of my salvation, "* enabling me to push down my foes, and to triumph over them with holy exultation. *"My high* tower, "a citadel high planted on a rocky eminence beyond the reach of my enemies, from the heights of which I look down upon their fury without alarm, and survey a wide landscape of mercy reaching even unto the goodly land beyond Jordan. Here are many words, but none too many; we might profitably examine each one of them had we leisure, but summing up the whole, we may conclude with Calvin, that David here equips the faithful from head to foot.
 
 ### Verse 3
 
-> I will call upon the LORD, *who is worthy* to be praised: so shall I be saved from mine enemies.
+> I will call upon the Lord, *who is worthy* to be praised: so shall I be saved from mine enemies.
 
 In this verse the happy poet resolves to invoke the Lord in joyful song, believing that in all future conflicts his God would deal as well with him as in the past. It is well to pray to God as to one who deserves to be praised, for then we plead in a happy and confident manner. If I feel that I can and do bless the Lord for all his past goodness, I am bold to ask great things of him. That word *So* has much in it. To be saved singing is to be saved indeed. Many are saved mourning and doubting; but David had such faith that he could fight singing, and win the battle with a song still upon his lips. How happy a thing to receive fresh mercy with a heart already sensible of mercy enjoyed, and to anticipate new trials with a confidence based upon past experiences of divine love! No fearing or doubting with Christ on our side, We hope to die shouting, 'The Lord will provide.'"
 
@@ -46,7 +46,7 @@ In most poetical language the Psalmist now describes his experience of Jehovah's
 
 ### Verse 6
 
-> In my distress I called upon the LORD, and cried unto my God: he heard my voice out of his temple, and my cry came before him, *even* into his ears.
+> In my distress I called upon the Lord, and cried unto my God: he heard my voice out of his temple, and my cry came before him, *even* into his ears.
 
 *"In my distress I called upon the Lord, and cried unto my God."* Prayer is that postern gate which is left open even when the city is straitly besieged by the enemy; it is that way upward from the pit of despair to which the spiritual miner flies at once when the floods from beneath break forth upon him. Observe that he *calls, * and then *cries;* prayer grows in vehemence as it proceeds. Note also that he first invokes his God under the name of Jehovah, and then advances to a more familiar name, *"my God;"* thus faith increases by exercise, and he whom we at first viewed as Lord is soon seen to be our God in covenant. It is never an ill time to pray; no distress should prevent us from using the divine remedy of supplication. Above the noise of the raging billows of death, or the barking dogs of hell, the feeblest cry of a true believer will be heard in heaven. *"He heard my voice out of his temple, and my cry came before him, * even into his ears." Far up within the bejewelled walls, and through the gates of pearl, the cry of the suffering suppliant was heard. Music of angels and harmony of seraphs availed not to drown or even to impair the voice of that humble call. The king heard it in his palace of light unsufferable, and lent a willing ear to the cry of his own beloved child. O honoured prayer, to be able thus through Jesus' blood to penetrate the very ears and heart of Deity. The voice and the cry are themselves heard directly by the Lord, and not made to pass through the medium of saints and intercessors; "My cry came before *Him;"* the operation of prayer with God is immediate and personal. We may cry with confident and familiar importunity, while our Father himself listens.
 
@@ -88,7 +88,7 @@ Suddenly the terrible artillery of heaven was discharged; the *brightness* of li
 
 ### Verse 13
 
-> The LORD also thundered in the heavens, and the Highest gave his voice; hail *stones* and coals of fire.
+> The Lord also thundered in the heavens, and the Highest gave his voice; hail *stones* and coals of fire.
 
 Over all this splendour of tempest pealed the dread thunder. *"The Lord also thundered in the heavens, and the Highest gave his voice."* Fit accompaniment for the flames of vengeance. How will men bear to hear it at the last when addressed to them in proclamation of their doom, for even now their hearts are in their mouths if they do but hear it muttering from afar? In all this terror David found a theme for song, and thus every believer finds even in the terrors of God a subject for holy praise. *"Hailstones and coals of fire"* are twice mentioned to show how certainly they are in the divine hand, and are the weapons of Heaven's vengeance. Horne remarks that "every thunderstorm should remind us of that exhibition of power and vengeance, which is hereafter to accompany the general resurrection;" may it not also assure us of the real power of him who is our Father and our friend, and tend to assure us of our safety while he fights our battles for us. The prince of the power of the air is soon dislodged when the cherubic chariot is driven through his dominions; therefore let not the legions of hell cause us dismay. He who is with us is greater than all they that be against us.
 
@@ -100,7 +100,7 @@ The lightnings were darted forth as forked arrows upon the hosts of the foe, and
 
 ### Verse 15
 
-> Then the channels of waters were seen, and the foundations of the world were discovered at thy rebuke, O LORD, at the blast of the breath of thy nostrils.
+> Then the channels of waters were seen, and the foundations of the world were discovered at thy rebuke, O Lord, at the blast of the breath of thy nostrils.
 
 So tremendous was the shock of God's assault in arms that the order of nature was changed, and the bottoms of rivers and seas were laid bare. *"The channels of waters was seen;"* and the deep cavernous bowels of the earth were upheaved till *"the foundations of the world were* discovered." What will not Jehovah's *"rebuke"* do? If *"the blast of the* breath of thy nostrils, "O Lord, be so terrible, what must thine arm be? Vain are the attempts of men to conceal anything from him whose word unbars the deep, and lifts the doors of earth from their hinges! Vain are all hopes of resistance, for a whisper of his voice makes the whole earth quail in abject terror.
 
@@ -118,7 +118,7 @@ When we have been rescued, we must take care to ascribe all the glory to God by 
 
 ### Verse 18
 
-> They prevented me in the day of my calamity: but the LORD was my stay.
+> They prevented me in the day of my calamity: but the Lord was my stay.
 
 It was an ill day, a day of *calamity, * of which evil foes took cruel advantage, while they used crafty means uterly to ruin him, yet David could say, *"but the Lord is my stay."* What a blessed *but* which cuts the Gordian knot, and slays the hundred-headed hydra! There is no fear of deliverance when our stay is in Jehovah.
 
@@ -130,13 +130,13 @@ It was an ill day, a day of *calamity, * of which evil foes took cruel advantage
 
 ### Verse 20
 
-> The LORD rewarded me according to my righteousness; according to the cleanness of my hands hath he recompensed me.
+> The Lord rewarded me according to my righteousness; according to the cleanness of my hands hath he recompensed me.
 
 *"The Lord rewarded me according to my righteousness."* Viewing this psalm as prophetical of the Messiah, these strongly-expressed claims to righteousness are readily understood, for his garments were as white as snow; but considered as the language of David they have perplexed many. Yet the case is clear, and if the words be not strained beyond their original intention, no difficulty need occur. Albeit that the dispensations of divine grace are to the fullest degree sovereign and irrespective of human merit, yet in the dealings of Providence there is often discernible a rule of justice by which the injured are at length avenged, and the righteous ultimately delivered. David's early troubles arose from the wicked malice of envious Saul, who no doubt prosecuted his persecutions under cover of charges brought against the character of "the man after God's own heart." These charges David declares to have been utterly false, and asserts that he possessed a grace-given righteousness which the Lord had graciously rewarded in defiance of all his calumniators. Before God the man after God's own heart was a humble sinner, but before his slanderers he could with unblushing face speak of the *"cleanness of his hands"* and the righteousness of his life. He knows little of the sanctifying power of divine grace who is not at the bar of human equity able to plead innocence. There is no self-righteousness in an honest man knowing that he is honest, nor even in his believing that God rewards him in providence because of his honesty, for such is often a most evident matter of fact; but it would be self-righteousness indeed if we transferred such thoughts from the region of providential government into the spiritual kingdom, for there grace reigns not only supreme but sole in the distribution of divine favours. It is not at all an opposition to the doctrine of salvation by grace, and no sort of evidence of a Pharisaic spirit, when a gracious man, having been slandered, stoutly maintains his integrity, and vigorously defends his character. A godly man has a clear conscience, and knows himself to be upright; is he to deny his own consciousness, and to despise the work of the Holy Ghost, by hypocritically making himself out to be worse than he is? A godly man prizes his integrity very highly, or else he would not be a godly man at all; is he to be called proud because he will not readily lose the jewel of a reputable character? A godly man can see that in divine providence uprightness and truth are in the long run sure to bring their own reward; may he not, when he sees that reward bestowed in his own case, praise the Lord for it? Yea rather, must he not show forth the faithfulness and goodness of his God? Read the cluster of expressions in this and the following verses as the song of a good conscience, after having safely outridden a storm of obloquy, persecution, and abuse, and there will be no fear of our upbraiding the writer as one who sets too high a price upon his own moral character.
 
 ### Verse 21
 
-> For I have kept the ways of the LORD, and have not wickedly departed from my God.
+> For I have kept the ways of the Lord, and have not wickedly departed from my God.
 
 Here the assertion of purity is repeated, both in a positive and a negative form. There is *"I have"* and *"I have not, "* both of which must be blended in a truly sanctified life; constraining and restraining grace must each take its share. The words of this verse refer to the saint as a traveler carefully keeping to *"the ways of the Lord, "* and *"not* wickedly, "that is, designedly, wilfully, persistently, defiantly forsaking the ordained pathway in which God favours the pilgrim with his presence. Observe how it is implied in the expression, *"and have not wickedly* departed from my God, "that David lived habitually in communion with God, and knew him to be his own God, whom he might speak of as *"my God."* God never departs from his people, let them take heed of departing from him.
 
@@ -154,7 +154,7 @@ Here the assertion of purity is repeated, both in a positive and a negative form
 
 ### Verse 24
 
-> Therefore hath the LORD recompensed me according to my righteousness, according to the cleanness of my hands in his eyesight.
+> Therefore hath the Lord recompensed me according to my righteousness, according to the cleanness of my hands in his eyesight.
 
 God first gives us holiness, and then rewards us for it. We are his workmanship; vessels made unto honour; and when made, the honour is not withheld from the vessel; though, in fact, it all belongs to the Potter upon whose wheel the vessel was fashioned. The prize is awarded to the flower at the show, but the gardener reared it; the child wins the prize from the schoolmaster, but the real honour of his schooling lies with the master, although instead of receiving he gives the reward.
 
@@ -178,7 +178,7 @@ The dealings of the Lord in his own case, cause the grateful singer to remember 
 
 ### Verse 28
 
-> For thou wilt light my candle: the LORD my God will enlighten my darkness.
+> For thou wilt light my candle: the Lord my God will enlighten my darkness.
 
 *"For thou wilt light my candle."* Even the children of the day sometimes need candle-light. In the darkest hour light will arise; a candle shall be lit, it will be comfort such as we may fittingly use without dishonesty—it will be our own candle; yet God himself will find the holy fire with which the candle shall burn; our evidences are our own, but their comfortable light is from above. Candles which are lit by God the devil cannot blow out. All candles are not shining, and so there are some graces which yield no present comfort; but it is well to have candles which may by and by be lit, and it is well to possess graces which may yet afford us cheering evidences. The metaphor of the whole verse is founded upon the dolorous nature of darkness and the delightfulness of light; "truly the light is sweet, and a pleasant thing it is for the eyes to behold the sun;" and even so the presence of the Lord removes all the gloom of sorrow, and enables the believer to rejoice with exceeding great joy. The lighting of the lamp is a cheerful moment in the winter's evening, but the lifting up of the light of God's countenance is happier far. It is said that the poor in Egypt will stint themselves of bread to buy oil for the lamp, so that they may not sit in darkness; we could well afford to part with all earthly comforts if the light of God's love could but constantly gladden our souls.
 
@@ -194,13 +194,13 @@ Some repetitions are not vain repetitions. Second thoughts upon God's mercy shou
 
 ### Verse 30
 
-> *As for* God, his way *is* perfect: the word of the LORD is tried: he *is* a buckler to all those that trust in him.
+> *As for* God, his way *is* perfect: the word of the Lord is tried: he *is* a buckler to all those that trust in him.
 
 *"As for God, his way is perfect."* Far past all fault and error are God's dealings with his people; all his actions are resplendent with justice, truth, tenderness, mercy, and holiness. Every way of God is complete in itself, and all his ways put together are matchless in harmony and goodness. Is it not very consolatory to believe that he who has begun to bless us will perfect his work, for all his ways are *"perfect."* Nor must the divine *"word"* be without its song of praise. *"The word of the* Lord is tried, "like silver refined in the furnace. The doctrines are glorious, the precepts are pure, the promises are faithful, and the whole revelation is superlatively full of grace and truth. David had tried it, thousands have tried it, we have tried it, and it has never failed. It was meet that when way and word had been extolled, the Lord himself should be magnified; hence it is added, *"He is a buckler to all those that trust in* him." No armour of proof or shield of brass so well secures the warrior as the covenant God of Israel protects his warring people. He himself is the buckler of trustful ones; what a thought is this! What peace may every trusting soul enjoy!
 
 ### Verse 31
 
-> For who *is* God save the LORD? or who *is* a rock save our God?
+> For who *is* God save the Lord? or who *is* a rock save our God?
 
 Having mentioned his God, the psalmist's heart burns, and his words sparkle; he challenges heaven and earth to find another being worthy of adoration or trust in comparison with Jehovah. His God, as Matthew Henry says, is a None-such. The idols of the heathen he scorns to mention, snuffing them all out as mere nothings when Deity is spoken of. *"Who is* God save the Lord?"Who else creates, sustains, foresees, and overrules? Who but he is perfect in every attribute, and glorious in every act? To whom but Jehovah should creatures bow? Who else can claim their service and their love? *"Who is a rock save our God?"* Where can lasting hopes be fixed? Where can the soul find rest? Where is stability to be found? Where is strength to be discovered? Surely in the Lord Jehovah alone can we find rest and refuge.
 
@@ -256,7 +256,7 @@ It is impossible to be too frequent in the duty of ascribing all our victories t
 
 ### Verse 41
 
-> They cried, but *there was* none to save *them: even* unto the LORD, but he answered them not.
+> They cried, but *there was* none to save *them: even* unto the Lord, but he answered them not.
 
 *"They cried, but there was none to save them; even unto the* Lord, but he answered them not." Prayer is so notable a weapon that even the wicked will take to it to in their fits of desperation. Bad men have appealed to God against God's own servants, but all in vain; the kingdom of heaven is not divided, and God never succours his foes at the expense of his friends. There are prayers to God which are no better than blasphemy, which bring no comfortable reply, but rather provoke the Lord to greater wrath. Shall I ask a man to wound or slay his own child to gratify my malice? Would he not resent the insult against his humanity? How much less will Jehovah regard the cruel desires of the enemies of the church, who dare to offer their prayers for its destruction, calling its existence schism, and its doctrine heresy!
 
@@ -286,7 +286,7 @@ The defeat of the nations who fought with King David was so utter and complete t
 
 ### Verse 46
 
-> The LORD liveth; and blessed *be* my rock; and let the God of my salvation be exalted.
+> The Lord liveth; and blessed *be* my rock; and let the God of my salvation be exalted.
 
 *"The Lord liveth."* Possessing underived, essential, independent and eternal life. We serve no inanimate, imaginary, or dying God. He only hath immortality. Like loyal subjects let us cry, Live on, O God. Long live the King of kings. By thine immortality do we dedicate ourselves afresh to thee. As the Lord our God liveth so would we live to him. *"And blessed be my rock."* He is the ground of our hope, and let him be the subject of our praise. Our hearts bless the Lord, with holy love extolling him. Jehovah lives, my rock be blessed! Praised be the God who gives me rest! *"Let the God of my salvation be exalted."* As our Saviour, the Lord should more than ever be glorified. We should publish abroad the story of the covenant and the cross, the Father's election, the Son's redemption, and the Spirit's regeneration. He who rescues us from deserved ruin should be very dear to us. In heaven they sing "Unto him that loved us and washed us in his blood;" the like music should be common in the assemblies of the saints below.
 
@@ -304,7 +304,7 @@ From all enemies, and especially from one who was pre-eminent in violence, the L
 
 ### Verse 49
 
-> Therefore will I give thanks unto thee, O LORD, among the heathen, and sing praises unto thy name.
+> Therefore will I give thanks unto thee, O Lord, among the heathen, and sing praises unto thy name.
 
 Paul cites this verse (Romans 15:9): "And that the Gentiles might glorify God for his mercy; as it is written, For this cause I will confess to thee among the Gentiles, and sing unto thy name." This is clear evidence that David's Lord is here, but David is here too, and is to be viewed as an example of a holy soul making its boast in God even in the presence of ungodly men. Who are the despisers of God that we should stop our mouths for them? We will sing to our God whether they like it or no, and force upon them the knowledge of his goodness. Too much politeness to traitors may be treason to our King.
 
@@ -516,11 +516,11 @@ This is the winding up verse into which the writer throws a fulness of expressio
 
 **Verse 45.** The first clause is comparatively easy. *"The strangers shall* fade away"—"shall gradually wither and disappear;" but the second clause is very difficult, *"They shall be afraid out of their close* places." One Jewish scholar interprets it, "They shall fear for the prisons in which I will throw them and keep them confined." (Jarchi). Another, "They shall tremble in their castles to which they have betaken themselves for fear of me." Another (Abenezra), "They shall surrender themselves from their fortresses." The general meaning is plain enough. The class referred to are represented as reduced to a state of complete helpless subjugation. As to the event referred to, if we keep to the rendering of our translators the meaning may be, "The Pagans, retired now generally to villages and remote places, shall gradually dwindle away, and fearfully anticipate the complete extinction of their religion." This exactly accords with history. If with some interpreters we read, "The strangers shall fade away, and be afraid because of their prisons, " then the meaning may be, "that they who only feigned submission, when persecution for the word should arise should openly apostatise." This, too, would be found consonant with fact. The first of these interpretations seems the more probable.— *John Brown.* 
 
-**Verse 46.** *"The Lord liveth; and blessed be my rock; and let the God of* my salvation be exalted." Let us unite our hearts in this song for a close of our praises. Honours *die, * pleasures *die, * the world *dies;* but *"The* Lord liveth." My flesh is as *sand;* my fleshly life, strength, glory, is as *a word written on sand;* but *"blessed be my* ROCK." Those are for a moment; this stands for ever. The curse shall devour those; everlasting blessings on the head of this. Let outward salvations vanish; let the saved be crucified; let the *"God"* of our salvations *"be exalted."* This Lord is *my rock;* this God is *my salvation.* — *Peter Sterry, * 1649. 
+**Verse 46.** *"The Lord liveth; and blessed be my rock; and let the God of* my salvation be exalted." Let us unite our hearts in this song for a close of our praises. Honours *die, * pleasures *die, * the world *dies;* but *"The* Lord liveth." My flesh is as *sand;* my fleshly life, strength, glory, is as *a word written on sand;* but *"blessed be my* Rock." Those are for a moment; this stands for ever. The curse shall devour those; everlasting blessings on the head of this. Let outward salvations vanish; let the saved be crucified; let the *"God"* of our salvations *"be exalted."* This Lord is *my rock;* this God is *my salvation.* — *Peter Sterry, * 1649. 
 
 **Verse 46.** *"The Lord liveth."* Why do you not oppose one God to all the armies of evils that beset you round? why do you not take the more content in God when you have the less of the creature to take content in? why do you not boast in your God? and bear up yourselves big with your hopes in God and expectations from him? Do you not see young heirs to great estates act and spend accordingly? And, why shall you, being the King of heaven's son, be lean and ragged from day to day, as though you were not worth a groat? O sirs, live upon your portion, chide yourselves for living besides what you have. There are great and precious promises, rich, enriching mercies; you may make use of God's all-sufficiency; you can blame none but yourselves if you be defective or discouraged. A woman, truly godly for the main, having buried a child, and sitting alone in sadness, did yet bear up her heart with the expression, "God lives;" and having parted with another, still she redoubled, "Comforts die, but God lives." At last her dear husband dies, and she sat oppressed and most overwhelmed with sorrow. A little child she had yet surviving, having observed what before she spoke to comfort herself, comes to her and saith, "Is God dead, mother? is God dead?" This reached her heart, and by God's blessing recovered her former confidence in her God, who is a *living* God. Thus do you chide yourselves; ask your fainting spirits under pressing outward sorrows, is not God alive? and why then doth not thy soul revive? why doth thy heart die within thee when comforts die! Cannot a living God support thy dying hopes? Thus, Christians, argue down your discouraged and disquieted spirits as David did.— *Oliver Heywood's "Sure Mercies of David, "* 1672. 
 
-**Verse 47.** *"It is God."* Sir, this is none other than the hand of God; and to him alone belongs the glory, wherein none are to share with him. The General served you with all faithfulness and honour; and the best commendation I can give him is that I dare say he attributes all to God, and would rather perish than assume to himself.— *Written to the Speaker of the House of Commons, after the battle of Naseby, * June 14, 1645, by OLIVER CROMWELL. 
+**Verse 47.** *"It is God."* Sir, this is none other than the hand of God; and to him alone belongs the glory, wherein none are to share with him. The General served you with all faithfulness and honour; and the best commendation I can give him is that I dare say he attributes all to God, and would rather perish than assume to himself.— *Written to the Speaker of the House of Commons, after the battle of Naseby, * June 14, 1645, by Oliver Cromwell. 
 
 **Verse 49.** I admire King David a great deal more when I see him in the quire than when I see him in the camp; when I see him singing as the sweet singer of Israel, than when I see him fighting as the worthy warrior of Israel. For fighting with others he did overcome all others; but singing, and delighting himself, he did overcome himself.— *Thomas Playfere.* 
 
@@ -610,6 +610,6 @@ This is the winding up verse into which the writer throws a fulness of expressio
 
 ## Works Upon The Eighteenth Psalm
 
-There is "An Exposition" of this Psalm in *"A Critical History of the* Life of David. By SAMUEL CHANDLER, D. D., F. R., and A. S. S., " 1766. 2 vol., 8vo. 
+There is "An Exposition" of this Psalm in *"A Critical History of the* Life of David. By Samuel Chandler, D. D., F. R., and A. S. S., " 1766. 2 vol., 8vo. 
 
-*The Sufferings and Glories of the Messiah: an Exposition of Psalm* XVIII., and *Isaiah* 52:13; 53:12. By JOHN BROWN, D. D., 1853. 
+*The Sufferings and Glories of the Messiah: an Exposition of Psalm* XVIII., and *Isaiah* 52:13; 53:12. By John Brown, D. D., 1853. 
