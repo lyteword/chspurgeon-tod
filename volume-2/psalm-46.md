@@ -8,7 +8,7 @@ weight: 46
 
 *A Song upon Alamoth. Which may denote that the music was to be pitched high for the treble or soprano voices of the Hebrew virgins. They went forth in their dances to sing the praises of David when he smote the Philistine, it was meet that they should make merry and be glad when the victories of Jehovah became their theme. We need to praise God upon virgin hearts, with souls chaste towards his fear, with lively and exalted expressions, and happy strains. Or the word Alamoth may refer to shrill sounding instruments, as in 1Ch 15:20, where we read that Zechariah, and Eliab, and Benaiah were to praise the Lord "with psalteries on Alamoth." We are not always, in a slovenly manner, to fall into one key, but with intelligence are to modulate our praises and make them fittingly expressive of the occasion and the joy it creates in our souls. These old musical terms cannot be interpreted with certainty, but they are still useful because they show that care and skill should be used in our sacred music.*
 
-**Subject &mdash;** *Happen what may, the Lord's people are happy and secure, this is the doctrine of the Psalm, and it might, to help our memories, be called THE SONG OF HOLY CONFIDENCE, were it not that from the great reformer's love to this soul-stirring hymn it will probably be best remembered as Luther's Psalm.*
+**Subject &mdash;** *Happen what may, the Lord's people are happy and secure, this is the doctrine of the Psalm, and it might, to help our memories, be called the Song of Holy Confidence, were it not that from the great reformer's love to this soul-stirring hymn it will probably be best remembered as Luther's Psalm.*
 
 **Division &mdash;** *It is divided by inspired authority into three parts, each of which ends with Selah.*
 
@@ -60,13 +60,13 @@ From foe well known or stranger."
 
 ### Verse 7
 
-> The LORD of hosts *is* with us; the God of Jacob *is* our refuge. Selah.
+> The Lord of hosts *is* with us; the God of Jacob *is* our refuge. Selah.
 
-*The Lord of hosts is with us.* This is the reason for all Zion's security, and for the overthrow of her foes. The Lord rules the angels, the stars, the elements, and all the hosts of heaven; and the heaven of heavens are under his sway. The armies of men though they know it not are made to subserve his will. This Generalissimo of the forces of the land, and the Lord High Admiral of the seas, is on our side—our august ally; woe unto those who fight against him, for they shall fly like smoke before the wind when he gives the word to scatter them. *The God of Jacob is our refuge, * Immanuel is Jehovah of Hosts, and Jacob's God is our high place of defence. When this glad verse is sung to music worthy of such a jubilate, well may the singers pause and the players wait awhile to tune their instruments again; here, therefore, fitly stands that solemn, stately, peaceful note of rest, SELAH.
+*The Lord of hosts is with us.* This is the reason for all Zion's security, and for the overthrow of her foes. The Lord rules the angels, the stars, the elements, and all the hosts of heaven; and the heaven of heavens are under his sway. The armies of men though they know it not are made to subserve his will. This Generalissimo of the forces of the land, and the Lord High Admiral of the seas, is on our side—our august ally; woe unto those who fight against him, for they shall fly like smoke before the wind when he gives the word to scatter them. *The God of Jacob is our refuge, * Immanuel is Jehovah of Hosts, and Jacob's God is our high place of defence. When this glad verse is sung to music worthy of such a jubilate, well may the singers pause and the players wait awhile to tune their instruments again; here, therefore, fitly stands that solemn, stately, peaceful note of rest, selah.
 
 ### Verse 8
 
-> Come, behold the works of the LORD, what desolations he hath made in the earth.
+> Come, behold the works of the Lord, what desolations he hath made in the earth.
 
 *Come, behold the works of the Lord.* The joyful citizens of Jerusalem are invited to go forth and view the remains of their enemies, that they may mark the prowess of Jehovah and the spoil which his right hand hath won for his people. It were well if we also carefully noted the providential dealings of our covenant God, and were quick to perceive his hand in the battles of his church. Whenever we read history is should be with this verse sounding in our ears. We should read the newspaper in the same spirit, to see how the Head of the Church rules the nations for his people's good, as Joseph governed Egypt for the sake of Israel. *What desolations he hath made in the earth.* The destroyers he destroys, the desolators he desolates. How forcible is the verse at this date! The ruined cities of Assyria, Babylon, Petra, Bashan, Canaan, are our instructors, and in tables of stone record the doings of the Lord. In every place where his cause and crown have been disregarded ruin has surely followed: sin has been a blight on nations, and left their palaces to lie in heaps. In the days of the writer of this Psalm, there had probably occurred some memorable interpositions of God against his Israel's foes; and as he saw their overthrow, he called on his fellow citizens to come forth and attentively consider the terrible things in righteousness which had been wrought on their behalf. Dismantled castles and ruined abbeys in our own land stand as memorials of the Lord's victories over oppression and superstition. May there soon be more of such desolations.
 
@@ -94,19 +94,19 @@ And dragon find congenial resting place."
 
 ### Verse 11
 
-> The LORD of hosts *is* with us; the God of Jacob *is* our refuge. Selah.
+> The Lord of hosts *is* with us; the God of Jacob *is* our refuge. Selah.
 
-*The Lord of hosts is with us; the God of Jacob is our refuge.* It was meet to sing this twice over. It is a truth of which no believer wearies, it is a fact too often forgotten, it is a precious privilege which cannot be too often considered. Reader, is the Lord on thy side? Is Emmanuel, God with us, thy Redeemer? Is there a covenant between thee and God as between God and Jacob? If so, thrice happy art thou. Show thy joy in holy song, and in times of trouble play the man by still making music for thy God. SELAH. Here as before, lift up the heart. Rest in contemplation after praise. Still keep the soul in tune. It is easier to sing a hymn of praise than to continue in the spirit of praise, but let it be our aim to maintain the uprising devotion of our grateful hearts, and so end our song as if we intended it to be continued.
+*The Lord of hosts is with us; the God of Jacob is our refuge.* It was meet to sing this twice over. It is a truth of which no believer wearies, it is a fact too often forgotten, it is a precious privilege which cannot be too often considered. Reader, is the Lord on thy side? Is Emmanuel, God with us, thy Redeemer? Is there a covenant between thee and God as between God and Jacob? If so, thrice happy art thou. Show thy joy in holy song, and in times of trouble play the man by still making music for thy God. Selah. Here as before, lift up the heart. Rest in contemplation after praise. Still keep the soul in tune. It is easier to sing a hymn of praise than to continue in the spirit of praise, but let it be our aim to maintain the uprising devotion of our grateful hearts, and so end our song as if we intended it to be continued.
 
-SELAH bids the music rest.
+Selah bids the music rest.
 
 Pause in silence soft and blest;
 
-SELAH bids uplift the strain,
+Selah bids uplift the strain,
 
 Harps and voices tune again;
 
-SELAH ends the vocal praise,
+Selah ends the vocal praise,
 
 Still your hearts to God upraise.
 
@@ -140,7 +140,7 @@ They cannot overpower us.
 
  *—S. W. Christophers, in "Hymn Writers and their Hymns, " 1866* 
 
-**Verse 1.** *God is our refuge and strength, * etc. It begins abruptly, but nobly; ye may trust in whom and in what ye please; but GOD (ELOHIM) *is our refuge and strength*. *A very present help*. A help found to be very powerful and effectual in straits and difficulties. The words are very emphatic: (dam aumn twrub hrze), *ezrah betsaroth nimtsa meod, * "He is found an exceeding, or superlative, help in difficulties." Such we have found him, and therefore celebrate his praise. *Adam Clarke.* 
+**Verse 1.** *God is our refuge and strength, * etc. It begins abruptly, but nobly; ye may trust in whom and in what ye please; but God (Elohim) *is our refuge and strength*. *A very present help*. A help found to be very powerful and effectual in straits and difficulties. The words are very emphatic: (dam aumn twrub hrze), *ezrah betsaroth nimtsa meod, * "He is found an exceeding, or superlative, help in difficulties." Such we have found him, and therefore celebrate his praise. *Adam Clarke.* 
 
 **Verse 2.** *Though the earth be removed.* John Wesley preached in Hyde park, on the occasion of the earthquake felt in London, March 8, 1750, and repeated these words. Charles Wesley composed Hymn 67, Wesley's Collection, the following lines of which illustrate this verse:
 
