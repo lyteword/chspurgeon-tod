@@ -4,7 +4,7 @@ weight: 36
 
 # Psalm 36
 
-**Title &mdash;** *To the Chief Musician, He who had the leadership of the Temple service was charged with the use of this song in public worship. What is everybody's business is never done. It was well to have one person specially to attend to the service of song in the house of the Lord. Of David the servant of the Lord. This would seem to indicate that the Psalm peculiarly befits one who esteems it an honour to be called Jehovah's servant. It is THE SONG OF HAPPY SERVICE; such a one as all may join in who bear the easy yoke of Jesus. The wicked are contrasted with the righteous, and the great Lord of devout men is heartily extolled; thus obedience to so good a Master is indirectly insisted on, and rebellion against him is plainly condemned.* 
+**Title &mdash;** *To the Chief Musician, He who had the leadership of the Temple service was charged with the use of this song in public worship. What is everybody's business is never done. It was well to have one person specially to attend to the service of song in the house of the Lord. Of David the servant of the Lord. This would seem to indicate that the Psalm peculiarly befits one who esteems it an honour to be called Jehovah's servant. It is the Song of Happy Service; such a one as all may join in who bear the easy yoke of Jesus. The wicked are contrasted with the righteous, and the great Lord of devout men is heartily extolled; thus obedience to so good a Master is indirectly insisted on, and rebellion against him is plainly condemned.* 
 
 **Division &mdash;** *From Ps 36:1-4 David describes the rebellious: in Ps 36:5-9 he extols the various attributes of the Lord; in Ps 36:10-11 he addresses the Lord in prayer, and in the last verse his faith sees in vision the overthrow of all the workers of iniquity.* 
 
@@ -40,13 +40,13 @@ From the baseness of the wicked the psalmist turns his contemplation to the glor
 
 ### Verse 5
 
-> Thy mercy, O LORD, *is* in the heavens; *and* thy faithfulness *reacheth* unto the clouds.
+> Thy mercy, O Lord, *is* in the heavens; *and* thy faithfulness *reacheth* unto the clouds.
 
 *Thy mercy, O Lord, is in the heavens.* Like the ethereal blue, it encompasses the whole earth, smiling upon universal nature, acting as a canopy for all the creatures of earth, surmounting the loftiest peaks of human provocations, and rising high above the mists of mortal transgression. Clear sky is evermore above, and mercy calmly smiles above the din and smoke of this poor world. Darkness and clouds are but of earth's lower atmospheres: the heavens are evermore serene, and bright with innumerable stars. Divine mercy abides in its vastness of expanse, and matchless patience, all unaltered by the rebellions of man. When we can measure the heavens, then shall we bound the mercy of the Lord. Towards his own servants especially, in the salvation of the Lord Jesus, he has displayed grace higher than the heaven of heavens, and wider than the universe. O that there atheist could but see this, how earnestly would he long to become a servant of Jehovah! *Thy faithfulness reacheth unto the clouds.* Far, far above all comprehension is the truth and faithfulness of God. He never fails, nor forgets, nor falters, nor forfeits his word. Afflictions are like clouds, but the divine truthfulness is all around them. While we are under the cloud we are in the region of God's faithfulness; when we mount above it we shall not need such an assurance. To every word of threat, or promise, prophecy or covenant, the Lord has exactly adhered, for he is not a man that he should lie, nor the son of man that he should repent.
 
 ### Verse 6
 
-> Thy righteousness *is* like the great mountains; thy judgments *are* a great deep: O LORD, thou preservest man and beast.
+> Thy righteousness *is* like the great mountains; thy judgments *are* a great deep: O Lord, thou preservest man and beast.
 
 *Thy righteousness is like the great mountains.* Firm and unmoved, lofty and sublime. As winds and hurricanes shake not an Alp, so the righteousness of God is never in any degree affected by circumstances; he is always just. Who can bribe the Judge of all the earth, or who can, by threatening, compel him to pervert judgment? Not even to save his elect would the Lord suffer his righteousness to be set aside. No awe inspired by mountain scenery can equal that which fills the soul when it beholds the Son of God slain as a victim to vindicate the justice of the Inflexible Lawgiver. Right across the path of every unholy man who dreams of heaven stand the towering Andes of divine righteousness, which no unregenerate sinner can ever climb. Among great mountains lie slumbering avalanches, and there the young lightnings try their callow wings until the storm rushes down amain from the awful peaks; so against the great day of the Lord's wrath the Lord has laid up in the mountains of his righteousness dreadful ammunition of war with which to overwhelm his adversaries. *Thy judgments are a great deep.* God's dealings with men are not to be fathomed by every boaster who demands to see a why for every wherefore. The Lord is not to be questioned by us as to why this and why that. He has reasons, but he does not choose to submit them to our foolish consideration. Far and wide, terrible and irresistible like the ocean are the providential dispensations of God: at one time they appear as peaceful as the unrippled sea of glass; at another tossed with tempest and whirlwind, but evermore most glorious and full of mystery. Who shall discover the springs of the sea? He who shall do this may hope to comprehend the providence of the Eternal.
 
@@ -106,7 +106,7 @@ Yet as the deep mirrors the sky, so the mercy of the Lord is to be seen reflecte
 
 **Whole Psalm.** *First Part.* A character of a wicked man Ps 36:1. 1. He calls evil good Ps 36:2. 2. He continues in it. 3. He is an hypocrite Ps 36:3. 4. He is obstinate. 5. He is studious in wickedness Ps 36:4. *Second part.* God's patience and mercy Ps 36:5-6. 1. To all, even all creatures. 2. But particularly to his people, which he admires. Upon which the faithful (1) trust, (2) are satisfied Ps 36:7-8. The *Third part.* He prays that this effect may light, 1. On God's people Ps 36:10. 2. On himself Ps 36:11. 3. His acclimation upon it Ps 36:12. *William Nicholson (Bishop)*, 1662.
 
-**Verse 1.** In this Psalm we have a description of sin, especially as it appears in those who have openly broken God's bands. The introduction is very striking; *The transgression of the wicked saith within my heart, that there is no fear of God before his eyes.* How could the *transgression of the wicked* speak within the *heart* of him who in the inscription of the Psalm declares himself to be *the servant of* JEHOVAH? These words are generally understood as signifying that the outward conduct of the sinner, as often as he thought of it, naturally suggested this conclusion to his mind, that he was destitute of all fear of God. But they may perhaps admit of another meaning, equally agreeable to the literal reading; *wickedness, saith of the wicked, within my heart*, etc. According to this view, the psalmist meant that notwithstanding the external pretences of the wicked, and all their attempts to cover their iniquity, he was certain that they had no real sense of the presence of God, that they secretly renounced his authority. How was he assured of this? By a comparison of their conduct with the dictates of the heart. He could not indeed look into their hearts, but he could look into his own, and *there* he found corruption so strong, that were it not for the fear of God that was implanted within him, he would be as bad as they. *John Jamieson.* 
+**Verse 1.** In this Psalm we have a description of sin, especially as it appears in those who have openly broken God's bands. The introduction is very striking; *The transgression of the wicked saith within my heart, that there is no fear of God before his eyes.* How could the *transgression of the wicked* speak within the *heart* of him who in the inscription of the Psalm declares himself to be *the servant of* Jehovah? These words are generally understood as signifying that the outward conduct of the sinner, as often as he thought of it, naturally suggested this conclusion to his mind, that he was destitute of all fear of God. But they may perhaps admit of another meaning, equally agreeable to the literal reading; *wickedness, saith of the wicked, within my heart*, etc. According to this view, the psalmist meant that notwithstanding the external pretences of the wicked, and all their attempts to cover their iniquity, he was certain that they had no real sense of the presence of God, that they secretly renounced his authority. How was he assured of this? By a comparison of their conduct with the dictates of the heart. He could not indeed look into their hearts, but he could look into his own, and *there* he found corruption so strong, that were it not for the fear of God that was implanted within him, he would be as bad as they. *John Jamieson.* 
 
 **Verse 1.** It is not the imperfection or shortcoming in the fear of God, but the being destitute of it altogether, that proveth a wicked man: *There is no fear of God before his eyes. David Dickson.* 
 
@@ -178,13 +178,13 @@ As one who had a deadly moral plague.
 
 **Verses 5-9.** 
 
-Thy mercie Lord doth to the HEAUENS extend,
+Thy mercie Lord doth to the heauens extend,
 
-Thy faithfulness doth to the CLOUDES assend;
+Thy faithfulness doth to the cloudes assend;
 
-Thy justice stedfast as a MOUNTAINE is,
+Thy justice stedfast as a mountaine is,
 
-Thy JUDGEMENTS deepe as is the great Abisse;
+Thy judgements deepe as is the great Abisse;
 
 Thy noble mercies saue all liueinge thinges,
 
@@ -294,9 +294,9 @@ In a letter of Jeronius Segerson, written in the prison at Antwerp to his wife, 
 
 **Verse 8.** (*second clause* ). *The heavenly Hiddekel* —Its source, its flood, the happy drinkers, how they came to drink.
 
-**Verse 9.** (*first clause* ). LIFE, natural, mental, spiritual, proceeds from God, is sustained, restored, purified, and perfected by him. In him it dwells with permanency, from him it flows freely, with freshness, abundance, and purity; to him it should be consecrated.
+**Verse 9.** (*first clause* ). Life, natural, mental, spiritual, proceeds from God, is sustained, restored, purified, and perfected by him. In him it dwells with permanency, from him it flows freely, with freshness, abundance, and purity; to him it should be consecrated.
 
-**Verse 9.** (*second clause* ). LIGHT, what it is to see it. *Divine* light, what it is; how it is the medium by which we see other light. The experience here described, and the duty here hinted at.
+**Verse 9.** (*second clause* ). Light, what it is to see it. *Divine* light, what it is; how it is the medium by which we see other light. The experience here described, and the duty here hinted at.
 
 **Verse 10.** 
 
