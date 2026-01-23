@@ -4,7 +4,7 @@ weight: 114
 
 # Psalm 114
 
-**Subject &amp; Division &mdash;** *This sublime SONG OF THE EXODUS is one and indivisible. True poetry has here reached its climax: no human mind has ever been able to equal, much less to excel, the grandeur of this Psalm. God is spoken of as leading forth his people from Egypt to Canaan, and causing the whole earth to be moved at his coming. Things inanimate are represented as imitating the actions of living creatures when the Lord passes by. They are apostrophised and questioned with marvellous force of language, till one seems to look upon the actual scene. The God of Jacob is exalted as having command over river, sea, and mountain, and causing all nature to pay homage and tribute before his glorious majesty.*
+**Subject &amp; Division &mdash;** *This sublime Song of the Exodus is one and indivisible. True poetry has here reached its climax: no human mind has ever been able to equal, much less to excel, the grandeur of this Psalm. God is spoken of as leading forth his people from Egypt to Canaan, and causing the whole earth to be moved at his coming. Things inanimate are represented as imitating the actions of living creatures when the Lord passes by. They are apostrophised and questioned with marvellous force of language, till one seems to look upon the actual scene. The God of Jacob is exalted as having command over river, sea, and mountain, and causing all nature to pay homage and tribute before his glorious majesty.*
 
 ## Exposition
 
@@ -30,7 +30,7 @@ weight: 114
 
 > What *ailed* thee, O thou sea, that thou fleddest? thou Jordan, *that* thou wast driven back?
 
-What ailed thee, O thou sea? Wert thou terribly afraid? Did thy strength fail thee? Did thy very heart dry up? What ailed thee, O thou sea, that thou fleddest? Thou wert neighbour to the power of Pharaoh, but thou didst never fear his hosts; stormy wind could never prevail against thee so as to divide thee in twain; but when the way of the Lord was in thy great waters thou was seized with affright, and thou becamest a fugitive from before him. Thou Jordan, that thou wast driven back? What ailed thee, O quick descending river? Thy fountains had not dried up, neither had a chasm opened to engulf thee! The near approach of Israel and her God sufficed to make thee retrace thy steps. What aileth all our enemies that they fly when the Lord is on our side? What aileth hell itself that it is utterly routed when Jesus lifts up a standard against it? "Fear took hold upon them there, "for fear of HIM the stoutest hearted did quake, and became as dead men.
+What ailed thee, O thou sea? Wert thou terribly afraid? Did thy strength fail thee? Did thy very heart dry up? What ailed thee, O thou sea, that thou fleddest? Thou wert neighbour to the power of Pharaoh, but thou didst never fear his hosts; stormy wind could never prevail against thee so as to divide thee in twain; but when the way of the Lord was in thy great waters thou was seized with affright, and thou becamest a fugitive from before him. Thou Jordan, that thou wast driven back? What ailed thee, O quick descending river? Thy fountains had not dried up, neither had a chasm opened to engulf thee! The near approach of Israel and her God sufficed to make thee retrace thy steps. What aileth all our enemies that they fly when the Lord is on our side? What aileth hell itself that it is utterly routed when Jesus lifts up a standard against it? "Fear took hold upon them there, "for fear of Him the stoutest hearted did quake, and became as dead men.
 
 ### Verse 6
 
