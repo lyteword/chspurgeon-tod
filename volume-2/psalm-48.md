@@ -12,7 +12,7 @@ weight: 48
 
 ### Verse 1
 
-> Great *is* the LORD, and greatly to be praised in the city of our God, *in* the mountain of his holiness.
+> Great *is* the Lord, and greatly to be praised in the city of our God, *in* the mountain of his holiness.
 
 *Great is the Lord.* How great Jehovah is essentially none can conceive; but we can all see that he is great in the deliverance of his people, great in their esteem who are delivered, and great in the hearts of those enemies whom he scatters by their own fears. Instead of the mad cry of Ephesus, "Great is Diana, "we bear the reasonable, demonstrable, self evident testimony, "Great is Jehovah." There is none great in the church but the Lord. Jesus is "the *great* Shepherd, "he is "a Saviour, and a great one, "our great God and Saviour, our great High Priest; his Father has divided him a portion with the great, and his name shall be great unto the ends of the earth. *And greatly to be praised.* According to his nature should his worship be; it cannot be too constant, too laudatory, too earnest, too reverential, too sublime. *In the city of our God.* He is great there, and should be greatly praised there. If all the world beside renounced Jehovah's worship, the chosen people in his favoured city should continue to adore him, for in their midst and on their behalf his glorious power has been so manifestly revealed. In the church the Lord is to be extolled though all the nations rage against him. Jerusalem was the peculiar abode of the God of Israel, the seat of the theocratic government, and the centre of prescribed worship, and even thus is the church the place of divine manifestation. *In the mountain of his holiness.* Where his holy temple, his holy priests, and his holy sacrifices might continually be seen. Zion was a mount, and as it was the most renowned part of the city, it is mentioned as a synonym for the city itself. The church of God is a mount for elevation and for conspicuousness, and it should be adorned with holiness, her sons being partakers of the holiness of God. Only by holy men can the Lord be fittingly praised, and they should be incessantly occupied with his worship.
 
@@ -54,7 +54,7 @@ weight: 48
 
 ### Verse 8
 
-> As we have heard, so have we seen in the city of the LORD of hosts, in the city of our God: God will establish it for ever. Selah.
+> As we have heard, so have we seen in the city of the Lord of hosts, in the city of our God: God will establish it for ever. Selah.
 
 *As we have heard, so have we seen in the city of the Lord of hosts, in the city of our God.* Our father's stories are reproduced before our very eyes. We heard the promise, and we have seen the fulfilment. The records of Zion, wonderful as they are, are proved to be truthful, because present facts are in perfect harmony therewith. Note how the Lord is first spoken of as *Lord of hosts, * a name of power and sovereignty, and then as *our God, * a name of covenant relation and condescension. No wonder that since the Lord bears both titles, we find him dealing with us after the precedents of his lovingkindness, and the faithfulness of his promises. *God will establish it for ever.* The true church can never be disestablished. That which kings establish can last for time only, that which God establishes endures to all eternity. *Selah.* Here is a fit place to pause, viewing the past with admiration, and the future with confidence.
 

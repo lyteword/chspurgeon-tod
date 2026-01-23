@@ -18,15 +18,15 @@ weight: 47
 
 *O clap your hands.* The most natural and most enthusiastic tokens of exultation are to be used in view of the victories of the Lord, and his universal reign. Our joy in God may be demonstrative, and yet he will not censure it. *All ye people.* The joy is to extend to all nations; Israel may lead the van, but all the Gentiles are to follow in the march of triumph, for they have an equal share in that kingdom where there is neither Greek nor Jew, but Christ is all and in all. Even now if they did but know it, it is the best hope of all nations that Jehovah ruleth over them. If they cannot all speak the same tongue, the symbolic language of the hands they can all use. All people will be ruled by the Lord in the latter days, and all will exult in that rule; were they wise they would submit to it now, and rejoice to do so; yea, they would clap their hands in rapture at the thought. *Shout, * let your voices keep tune with your hands. *Unto God, * let him have all the honours of the day, and let them be loud, joyous, universal, and undivided. *With the voice of triumph, * with happy sounds, consonant with such splendid victories, so great a King, so excellent a rule, and such happy subjects. Many are human languages, and yet the nations may triumph as with one voice. Faith's view of God's government is full of transport. The prospect of the universal reign of the Prince of Peace is enough to make the tongue of the dumb sing; what will the reality be? Well might the poet of the seasons bid mountains and valleys raise their joyous hymn—
 
-"For the GREAT SHEPHERD reigns,
+"For the Great Shepherd reigns,
 
 And his *unsuffering* kingdom yet will come."
 
 ### Verse 2
 
-> For the LORD most high *is* terrible; *he is* a great King over all the earth.
+> For the Lord most high *is* terrible; *he is* a great King over all the earth.
 
-*For the Lord, * or JEHOVAH, the self existent and only God; *Most high, * most great in power, lofty in dominion, eminent in wisdom, elevated in glory. *Is terrible, * none can resist his power or stand before his vengeance; yet as these terrors are wielded on the behalf of his subjects, they are fit reasons for rejoicing. Omnipotence, which is terrible to crush, is almighty to protect. At a grand review of the troops of a great prince, all his loyal subjects are filled with triumph, because their liege lord is so able to defend his own, and so much dreaded by his foes. *He is a great King over all the earth.* Not over Judea only, but even to the utmost isles his reign extends. Our God is no local deity, no petty ruler of a tribe; in infinite majesty he rules the mightiest realm as absolute arbiter of destiny, sole monarch of all lands, King of kings, and Lord of lords. Not a hamlet or an islet is excluded from his dominion. How glorious will that era be when this is seen and known of all; when in the person of Jesus all flesh shall behold the glory of the Lord!
+*For the Lord, * or Jehovah, the self existent and only God; *Most high, * most great in power, lofty in dominion, eminent in wisdom, elevated in glory. *Is terrible, * none can resist his power or stand before his vengeance; yet as these terrors are wielded on the behalf of his subjects, they are fit reasons for rejoicing. Omnipotence, which is terrible to crush, is almighty to protect. At a grand review of the troops of a great prince, all his loyal subjects are filled with triumph, because their liege lord is so able to defend his own, and so much dreaded by his foes. *He is a great King over all the earth.* Not over Judea only, but even to the utmost isles his reign extends. Our God is no local deity, no petty ruler of a tribe; in infinite majesty he rules the mightiest realm as absolute arbiter of destiny, sole monarch of all lands, King of kings, and Lord of lords. Not a hamlet or an islet is excluded from his dominion. How glorious will that era be when this is seen and known of all; when in the person of Jesus all flesh shall behold the glory of the Lord!
 
 ### Verse 3
 
@@ -54,7 +54,7 @@ Him their God and Lord alone;
 
 Clap their hands with holy mirth,
 
-Hail him MONARCH OF THE EARTH.
+Hail him Monarch of the Earth.
 
 Come, my soul, before him bow,
 
@@ -70,7 +70,7 @@ He is thine and thou art his."
 
 ### Verse 5
 
-> God is gone up with a shout, the LORD with the sound of a trumpet.
+> God is gone up with a shout, the Lord with the sound of a trumpet.
 
 *God is gone up with a shout.* Faith hears the people already shouting. The command of the first verse is here regarded as a fact. The fight is over, the conqueror ascends to his triumphant chariot, and rides up to the gates of the city which is made resplendent with the joy of his return. The words are fully applicable to the ascension of the Redeemer. We doubt not that angels and glorified spirits welcomed him with acclamations. He came not without song, shall we imagine that he returned in silence? *The Lord with the sound of a trumpet.* Jesus is Jehovah. The joyful strain of the trumpet betokens the splendour of his triumph. It was meet to welcome one returning from the wars with martial music. Fresh from Bozrah, with his garments all red from the winepress, he ascended, leading captivity captive, and well might the clarion ring out the tidings of Immanuel's victorious return.
 
@@ -236,5 +236,5 @@ For the shields of the earth belong unto God. The insignia of pomp, the emblems 
 
 ## Works Upon The Forty-Seventh Psalm
 
-In the Works of JOHN BOYS, 1626, folio, pp. 931-937, there is an Exposition of this Psalm.
+In the Works of John Boys, 1626, folio, pp. 931-937, there is an Exposition of this Psalm.
 
