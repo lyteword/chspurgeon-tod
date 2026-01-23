@@ -388,5 +388,5 @@ b. For all names descriptive of what he is to his servants.— *G. R.*
 
 ## Works Upon The Hundred And Thirteenth Psalm
 
-There are Expositions of Psalms 113 and 114 in the Works of John Boys, Dean of Canterbury, 1638; folio edition, pp. 846-861.
+There are Expositions of Psalms 113 and 114 in the Works of John Boys, Dean of Canterbury, 1638; folio edition, pages 846-861.
 

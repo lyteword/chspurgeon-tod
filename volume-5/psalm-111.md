@@ -362,7 +362,7 @@ d. To arouse our praise: "Praise ye the Lord."
 
 ## Works Upon The Hundred And Eleventh Psalm
 
-In the Works of John Boys, 1626, folio, pp. 841-845, there is a short exposition of this psalm.
+In the Works of John Boys, 1626, folio, pages 841-845, there is a short exposition of this psalm.
 
  *Jesus God and Man; an Exposition of Psalms 111 and 112.* By the Rev. James H. Vidal, M. A., Vicar of Chiddingley, Sussex. London: 1863 *12mo*.
 

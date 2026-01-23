@@ -236,5 +236,5 @@ For the shields of the earth belong unto God. The insignia of pomp, the emblems 
 
 ## Works Upon The Forty-Seventh Psalm
 
-In the Works of John Boys, 1626, folio, pp. 931-937, there is an Exposition of this Psalm.
+In the Works of John Boys, 1626, folio, pages 931-937, there is an Exposition of this Psalm.
 

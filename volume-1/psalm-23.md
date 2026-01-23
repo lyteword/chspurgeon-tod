@@ -232,7 +232,7 @@ weight: 23
 
 *The Chiefe Shepheard; or an Exposition upon ye Twenty-third Psalme*&mdash; By Samuel Smith, Minister of ye Word of God, at Prittlewell, in Essex. 1625\.8vo. 
 
-*Meditations and Disquisitions upon Seven Consolatorie Psalmes of* David. By Sir Richard Baker. 1640. {see "works, " p. 10.} 
+*Meditations and Disquisitions upon Seven Consolatorie Psalmes of* David. By Sir Richard Baker. 1640. {see "works, " page 10.} 
 
 *The Shepherd of Israel; or, God's pastoral care over his people.* Delivered in divers Sermons on the whole Twenty-third Psalme&mdash; By that Reverend and Faithful Minister of the Gospel, Mr. Obadiah Sedgwick, B. D. 1658\.4to. 
 

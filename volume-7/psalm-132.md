@@ -554,7 +554,7 @@ d) That church will be glorified eternally in heaven.
 
 **Verse 16, 18.** Two forms of clothing: salvation and shame, prepared for his priests and Iris enemies. Which will you wear?
 
-**Verse 17.** A Lamp ordained for God's Anointed. Being the Substance of Two Sermons, by Ebenezer Erskine. *Works, Volume 3, pp. 3-41.* 
+**Verse 17.** A Lamp ordained for God's Anointed. Being the Substance of Two Sermons, by Ebenezer Erskine. *Works, Volume 3, pages 3-41.* 
 
 **Verses 17-18.** 
 
@@ -586,5 +586,5 @@ b) Its flourishing. Glory extending. Subjects increasing. Wealth growing. Foes f
 
 ## Works Upon The Hundred And Thirty-Second Psalm
 
-In "The Works of John Boys, " 1626, folio, pp. 821-5, there is an Exposition of Psalm 132. This is a poor and lean performance.
+In "The Works of John Boys, " 1626, folio, pages 821-5, there is an Exposition of Psalm 132. This is a poor and lean performance.
 

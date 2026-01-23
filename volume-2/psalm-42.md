@@ -500,7 +500,7 @@ A Practical Exposition of the Forty-second Psalm, in ten Sermons, in *Choice and
 
 Sabbaths at Home: or, a help to their right improvement; founded on *the Forty-second and Forty-third Psalms.* Intended for the use of pious persons when prevented from attending the public worship of God. By Henry March. London: 1823.
 
-On the eleventh verse of this Psalm there are the following works:—Twelve Sermons, in *"A Cordial for a Fainting Soule."* By John Collings. 1652. Part 2, pp. 133-206.
+On the eleventh verse of this Psalm there are the following works:—Twelve Sermons, in *"A Cordial for a Fainting Soule."* By John Collings. 1652. Part 2, pages 133-206.
 
 Thirteen Sermons in the works of William Bridge (1600-1670), entitled, *"A Lifting Up for the Downcast."* Volume 2, of the edition of 1845.
 

@@ -482,5 +482,5 @@ And joyful ages, from behind, in crowding ranks appear.
 
 ## Works Upon The Ninety-Eighth Psalm
 
-In "The Works of John Boys, "1626, folio, pp. 34-6, there is a short exposition of this psalm.
+In "The Works of John Boys, "1626, folio, pages 34-6, there is a short exposition of this psalm.
 

@@ -405,7 +405,7 @@ His purpose obtained, a fig for his man.
 
  *—L. Wright, * 1616.
 
-**Verse 21.** *The words of his mouth were smoother than butter, but war was in his heart: his words were softer than oil, yet were they drawn swords.* Well, when I came to the justice again, there was Mr. Foster, of Bedford, who coming out of another room, and seeing me by the light of the candle, for it was dark night when I came thither, he said unto me, "Who is there? John Bunyan?" with much seeming affection, as if he would have leaped in my neck and kissed me, (A right Judas.), which made me somewhat wonder that such a man as he, with whom I had so little acquaintance, and, besides, that had ever been a close opposer of the ways of God, should carry himself so full of love to me, but afterwards when I saw what he did, it caused me to remember those sayings, *Their tongues were softer than oil, yet were they drawn swords, * and again, "Beware of men, "etc. When I had answered him that, blessed be God, I was well, he said, "What is the occasion of your being here?" or to that purpose. To whom I answered that I was at a meeting of people a little way off, intending to speak a word of exhortation to them; but the justice hearing thereof (said I) was pleased to send his warrant to fetch me before him, etc.—John Bunyan. In relation to J. B.'s imprisonment: written by *himself. Offor's edit., Volume 1. p. 52.* 
+**Verse 21.** *The words of his mouth were smoother than butter, but war was in his heart: his words were softer than oil, yet were they drawn swords.* Well, when I came to the justice again, there was Mr. Foster, of Bedford, who coming out of another room, and seeing me by the light of the candle, for it was dark night when I came thither, he said unto me, "Who is there? John Bunyan?" with much seeming affection, as if he would have leaped in my neck and kissed me, (A right Judas.), which made me somewhat wonder that such a man as he, with whom I had so little acquaintance, and, besides, that had ever been a close opposer of the ways of God, should carry himself so full of love to me, but afterwards when I saw what he did, it caused me to remember those sayings, *Their tongues were softer than oil, yet were they drawn swords, * and again, "Beware of men, "etc. When I had answered him that, blessed be God, I was well, he said, "What is the occasion of your being here?" or to that purpose. To whom I answered that I was at a meeting of people a little way off, intending to speak a word of exhortation to them; but the justice hearing thereof (said I) was pleased to send his warrant to fetch me before him, etc.—John Bunyan. In relation to J. B.'s imprisonment: written by *himself. Offor's edit., Volume 1. page 52.* 
 
 **Verse 21.** (*first clause* ).—
 
@@ -603,5 +603,5 @@ And I see the good ship riding, all in a perilous road; The low reef booming on 
 
 ## Works Upon The Fifty-Fifth Psalm
 
-In Chandler's *"Life of David, "* Volume 2., pp. 305-315, there is an Exposition of this Psalm.
+In Chandler's *"Life of David, "* Volume 2., pages 305-315, there is an Exposition of this Psalm.
 

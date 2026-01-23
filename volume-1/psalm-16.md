@@ -284,9 +284,9 @@ Our Lord Jesus was not disappointed in his hope. He declared his Father's faithf
 
 *An Exposition upon some select Psalms of David* By Robert Rollock. 1600. 16mo. 
 
-*A Godly Exposition of the Sixteenth Psalm:* in R. Greenham's "Works:" pp. 316-331. Folio: 1612. 
+*A Godly Exposition of the Sixteenth Psalm:* in R. Greenham's "Works:" pages 316-331. Folio: 1612. 
 
-In the "Works" of John Boys, 1626, folio, pp. 898-908, there is an Exposition of Psalm Sixteen, 
+In the "Works" of John Boys, 1626, folio, pages 898-908, there is an Exposition of Psalm Sixteen, 
 
 *"Devotions Augustinianae Flamma; or, Certayne Devout, Godly, and Learned* 
 

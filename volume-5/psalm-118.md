@@ -702,5 +702,5 @@ Those things which the Spirit of God enables a man to do, are in Scripture somet
 
 ## Works Upon The Hundred Eighteenth Psalm
 
-In "The Works of John Boys, " 1626, folio, pp. 861-870, there is an exposition of this psalm.
+In "The Works of John Boys, " 1626, folio, pages 861-870, there is an exposition of this psalm.
 

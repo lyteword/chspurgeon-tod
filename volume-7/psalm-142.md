@@ -394,7 +394,7 @@ c) God has refreshed his saints with divine consolations for the future.— *Joh
 
 3\. Before every other "in the land of the living."— *W. B. H.* 
 
-**Verse 5.** "How we may bring our Hearts to bear Reproofs." See John Owen's Sermon in "The Morning Exercises", volume 2, page 600, etc.; and in his "Works", volume 16, p. 23, etc.
+**Verse 5.** "How we may bring our Hearts to bear Reproofs." See John Owen's Sermon in "The Morning Exercises", volume 2, page 600, etc.; and in his "Works", volume 16, page 23, etc.
 
 **Verse 6.** Two petitions and two arguments.
 
@@ -442,5 +442,5 @@ c) A new life of bounty and blessing—when we get out.
 
 ## Works Upon The Hundred And Forty-Second Psalm
 
-In Chandler's "Life of David, " volume 1, pp. 157-160, there is an Exposition of this Psalm.
+In Chandler's "Life of David, " volume 1, pages 157-160, there is an Exposition of this Psalm.
 

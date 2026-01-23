@@ -164,7 +164,7 @@ Resting on his sure word, we feel that joy which is here commanded, and in the s
 
 **Verse 3.** *We are his people.* We have been twice born, as all his people are. We love the society of his people. We are looking unto Jesus like his people. We are separated from the world as his people. We experience the trials of his people. We prefer the employment of his people. We enjoy the privileges of his people. *W. J.* 
 
-**Verse 4.** A Discourse of Thankfulness which is due to God for his benefits and blessings. A Sermon by Thomas Goodwin. Works, volume 9 pp. 499-514. Nichol's *edition.* 
+**Verse 4.** A Discourse of Thankfulness which is due to God for his benefits and blessings. A Sermon by Thomas Goodwin. Works, volume 9 pages 499-514. Nichol's *edition.* 
 
 **Verse 4.** 
 

@@ -460,7 +460,7 @@ d) Near to his Saviour and his God.
 
 — *George Brooks, in "The Homiletic Commentary, "* 1879.
 
-**Verse 3.** Worthless man much regarded by the mighty God. Sermon by Ebenezer Erskine. Works 3, pp. 141-162.
+**Verse 3.** Worthless man much regarded by the mighty God. Sermon by Ebenezer Erskine. Works 3, pages 141-162.
 
 **Verse 3.** It is a wonder above all wonders, that ever the great God should make such account of such a thing as man.
 

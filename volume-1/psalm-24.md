@@ -221,4 +221,4 @@ The closing note is inexpressibly grand. Jehovah of hosts, Lord of men and angel
 
 ## Works Upon The Twenty-Fourth Psalm
 
-In the "Works" of John Boys, 1626, folio, pp. 908-913, there is an Exposition of this Psalm. 
+In the "Works" of John Boys, 1626, folio, pages 908-913, there is an Exposition of this Psalm. 

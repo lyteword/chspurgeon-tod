@@ -562,5 +562,5 @@ Or
 
 ## Works Upon The Ninety-Fourth Psalm
 
-In the Works of Cardinal Sadoleto (1477-1547), pp. 895-972, there is an Exposition of this Psalm, 8 volume edition, Anno Domini 1607.
+In the Works of Cardinal Sadoleto (1477-1547), pages 895-972, there is an Exposition of this Psalm, 8 volume edition, Anno Domini 1607.
 

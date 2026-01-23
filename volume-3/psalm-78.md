@@ -1015,5 +1015,5 @@ Upon Israel in the wilderness:
 
 "The wanderings of the Children of Israel." By the late Rev. George Wagner, 1862.
 
-"The Church in the Wilderness." By William Seaton. In two vols. 1821.
+"The Church in the Wilderness." By William Seaton. In two volumes 1821.
 

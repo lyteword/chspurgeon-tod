@@ -728,7 +728,7 @@ Or Flattery soothe the dull cold ear of Death?— *Thomas Gray, * 1716-1771.
 
 3\. God is incomparably great in his works—creation; providence; redemption, and human salvation.— *Theophilus Jones, * 1830.
 
-**Verse 6.** —The incomparableness of God, in his Being, Attributes, Works, and Word.— *Swinnock.* (Nichol's Edition of Swinnock's Works, Volume 4, pp. 373-508.)
+**Verse 6.** —The incomparableness of God, in his Being, Attributes, Works, and Word.— *Swinnock.* (Nichol's Edition of Swinnock's Works, Volume 4, pages 373-508.)
 
 **Verses 6-7.** 
 
@@ -982,7 +982,7 @@ There is,
 
 ## Works Upon The Eighty-Ninth Psalm
 
-In the Works of John Boys, folio, pp. 805-9, there is an Exposition of a portion of this Psalm.
+In the Works of John Boys, folio, pages 805-9, there is an Exposition of a portion of this Psalm.
 
 **Here endeth the Third Book of the Psalms.** 
 

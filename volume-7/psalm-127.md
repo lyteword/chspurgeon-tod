@@ -290,7 +290,7 @@ b) By trusting to his foresight.— *G. R.*
 
 **Verse 2.** (*last clause* ). See "Spurgeon's Sermons, " No. 12: "The Peculiar Sleep of the Beloved."
 
-**Verse 3.** Sermon by Thomas Manton. Works: volume 18. pp. 84-95. *Nichol's Edition.* 
+**Verse 3.** Sermon by Thomas Manton. Works: volume 18. pages 84-95. *Nichol's Edition.* 
 
 **Verses 3-5.** Children. Consider:
 

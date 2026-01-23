@@ -176,5 +176,5 @@ This appears to express of the Hebrew words, which our translators render, *like
 
 ## Works Upon The Fifty-Second Psalm
 
-Chandler's *"Life of David, "* contains an Exposition of this Psalm. Volume 1., pp. 140-143.
+Chandler's *"Life of David, "* contains an Exposition of this Psalm. Volume 1., pages 140-143.
 

@@ -174,5 +174,5 @@ And mine eye hath seen his desire upon mine enemies. He knew that yet he should 
 
 ## Works Upon The Fifty-Fourth Psalm
 
-In Chandler's *"Life of David, "* pp. 152-4, there is an Exposition of this Psalm.
+In Chandler's *"Life of David, "* pages 152-4, there is an Exposition of this Psalm.
 

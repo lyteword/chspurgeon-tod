@@ -298,5 +298,5 @@ Or—
 
 ## Works Upon The Fifty-Sixth Psalm
 
-In Chandler's *"Life of David, "* Volume 1., pp. 104-7, there is an Exposition of this Psalm.
+In Chandler's *"Life of David, "* Volume 1., pages 104-7, there is an Exposition of this Psalm.
 

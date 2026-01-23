@@ -574,7 +574,7 @@ S. Patris Bernardi, in Psalmum 90. (91). Qui habitat. *Sermones* (In the Paris e
 
 The Shield of the Righteous: or, the Ninety-first Psalme, expounded, with the addition of Doctrines and Verses. Verie necessarie and comfortable in these dayes of heauinesse, wherein the Pestilence rageth so sore in London, and other parts of this Kingdome. By Robert Horn, Minister of God's Word&mdash; London. 1628 (4to).
 
-The Righteous man's Habitation in the Time of the Plague and Pestilence; being a brief Exposition of the Ninety-first Psalm: (In the Works of William Bridge (1600-1670) Tegg's Edition, Volume one pg. 463-500.
+The Righteous man's Habitation in the Time of the Plague and Pestilence; being a brief Exposition of the Ninety-first Psalm: (In the Works of William Bridge (1600-1670) Tegg's Edition, Volume One, pages 463-500.
 
-In "Under the Shadow: *being additional leaves from the Note Book of the late Mary B. M. Duncan, * 1867", pp. 85-172, there is an Exposition of this Psalm.
+In "Under the Shadow: *being additional leaves from the Note Book of the late Mary B. M. Duncan, * 1867", pages 85-172, there is an Exposition of this Psalm.
 

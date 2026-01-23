@@ -526,7 +526,7 @@ A Treatise concerning the fruitful Sayings of David, The King and Prophet, in Th
 
 Written by that faithful servant of God M. Robert Rollok&mdash; And translated out of Latine into English by Charles Lumisden&mdash; Edinborgh&mdash;1600, *8vo.* contains a short exposition on Psalm 130.
 
-In "Select Works of Robert Rollock, " edited for the Wodrow Society by William M. Gunn, Esq., Volume 1 pp. 451-481, there are two expository Sermons on Psalm 130.
+In "Select Works of Robert Rollock, " edited for the Wodrow Society by William M. Gunn, Esq., Volume 1 pages 451-481, there are two expository Sermons on Psalm 130.
 
  *A Exposition On The Hundred And Thirtieth Psalm*. Gathered out of some of the Ancient Fathers and later writers by Alexander Roberts. Bachelor of Divinity and Preacher of the Word of God at Kings Lind in Norfolk. London&mdash;1610. *4to.* 
 
@@ -536,11 +536,11 @@ In "Select Works of Robert Rollock, " edited for the Wodrow Society by William M
 
  *A Godly and Fruitful Exposition on the 130 Psalme*, the sixth of the Penitentials, in A Sacred Septenarie or, A Godly And Fruitful Exposition On The Seven Psalms Of Repentance&mdash; By Mr. Archibald Symson, late Pastor of the church at *Dalkeeth* in *Scotland*. London&mdash;1638. *4to.* 
 
-In "Meditations And Disquisitions upon The Three last Psalmes of David. *By* Sir Richard Baker, *Knight* " *4to. 1639*, there is an Exposition of Psalm 130. It will be found in Higham's reprint *1882* of Sir R. Baker's Expositions of the Psalms, pp. 257-271.
+In "Meditations And Disquisitions upon The Three last Psalmes of David. *By* Sir Richard Baker, *Knight* " *4to. 1639*, there is an Exposition of Psalm 130. It will be found in Higham's reprint *1882* of Sir R. Baker's Expositions of the Psalms, pages 257-271.
 
  *A Practical Exposition upon Psalm 130*; wherein the Nature of the Forgiveness of Sin is declared; the Truth and Reality of it asserted; and the case of a Soul Distressed with the Guilt of Sin, and Relieved by a Discovery of Forgiveness with God, is at large Discoursed By John Owen, D. D., 4to.], 1668, 1669, 1680. There are modern reprints of this Exposition; and it is in Volume 6 of Owen's Works, edited by W. H. Goold, 1881.
 
-In *"The Whole Works of Robert Leighton*, D. D., Archbishop of Glasgow, 4 vols., 8y D., 1725", there are "Meditations on Psalm 130. "Volume 2. pp. 510-540.
+In *"The Whole Works of Robert Leighton*, D. D., Archbishop of Glasgow, 4 vols., 8y D., 1725", there are "Meditations on Psalm 130. "Volume 2. pages 510-540.
 
  *Forty Five Sermons upon The 130 Psalme.* 
 

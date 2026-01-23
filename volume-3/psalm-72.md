@@ -528,5 +528,5 @@ Finished are the prayers of David, the son of Jesse.
 
 ## Works Upon The Seventy-Second Psalm
 
-In Chandler's *Life of David, * Volume 2, pp. 440-44, there is an Exposition of this Psalm.
+In Chandler's *Life of David, * Volume 2, pages 440-44, there is an Exposition of this Psalm.
 

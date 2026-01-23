@@ -412,7 +412,7 @@ That rheumatic diseases do abound.
 
 ## Works Upon The Hundred And Twenty-First Psalm
 
-In "Letters on Spiritual Subjects&mdash;" by Samuel Eyles Pierce&mdash; London: 1862, Volume I., pp. 359-370, there are "Some Observations on the Hundred and Twenty first Psalm."
+In "Letters on Spiritual Subjects&mdash;" by Samuel Eyles Pierce&mdash; London: 1862, Volume I., pages 359-370, there are "Some Observations on the Hundred and Twenty first Psalm."
 
 In "Meditations on Twenty select Psalms, " by Sir Anthony Cope, Chamberlain to Queen Katherine Parr. Reprinted from the edition of 1547;&mdash; By William H. Cope, M. A. 1848, there is a Meditation on this psalm.
 

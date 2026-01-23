@@ -588,15 +588,15 @@ Waiting the coming of the Son of Man!
 
 In "The Expositor", volume 2. (1875), edited by the Rev. Samuel Cox, there is "An Apology for the Vindictive Psalm" (Ps 109:1-31), by Joseph Hammond, L. L. B. In volume 3 of the same magazine are four articles from the pen of the same writer, on "The Vindictive Psalms vindicated." "The Imprecatory Psalms." Six Lectures. By the Rev. R. A. Bertram. 1867. (12 mo.)
 
-In Dr. Thomas Randolph's Works, entitled "A View of our Blessed Saviour's Ministry&mdash; together with a Charge, Dissertations, Sermons, and Theological Lectures, " 2 vols., 8vo., Oxford, 1784, there is a comment on Ps 109:1-31, volume 2, p. 315.
+In Dr. Thomas Randolph's Works, entitled "A View of our Blessed Saviour's Ministry&mdash; together with a Charge, Dissertations, Sermons, and Theological Lectures, " 2 vols., 8vo., Oxford, 1784, there is a comment on Ps 109:1-31, volume 2, page 315.
 
-The Sermons of Charles Peters, A. M., 8vo., London, 1776, contain "The Curses of Psalm the 109th explained, with practical instructions, " pp. 348-378.
+The Sermons of Charles Peters, A. M., 8vo., London, 1776, contain "The Curses of Psalm the 109th explained, with practical instructions, " pages 348-378.
 
 W. Keate's Sermon, entitled, "The 109th, commonly called the Imprecating Psalm, considered, on a principle by which the Psalm explains itself." 4to., London, 1794.
 
 F. H. Dunwell. A Tract on the Commination Service of the Church of England. 12 mo. 1853.
 
-In the "Bibliotheca Sacra and Theological Review, " volume 1., 1844, pp. 97-110, there is an article on "The Imprecations in the Scriptures, " by B. B. Edwards, Professor in the Theological Seminary, Andover.
+In the "Bibliotheca Sacra and Theological Review, " volume 1., 1844, pages 97-110, there is an article on "The Imprecations in the Scriptures, " by B. B. Edwards, Professor in the Theological Seminary, Andover.
 
-There is also an article on "The Imprecatory Psalms", in "Bibliotheca Sacra and American Biblical Repository, " for July, 1856, pp. 551-563, by John J. Owen, D. D., Professor in the Free Academy, New York.
+There is also an article on "The Imprecatory Psalms", in "Bibliotheca Sacra and American Biblical Repository, " for July, 1856, pages 551-563, by John J. Owen, D. D., Professor in the Free Academy, New York.
 

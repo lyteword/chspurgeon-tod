@@ -320,7 +320,7 @@ David committed himself to him that judgeth righteously, and so in patience was 
 
 ## Works Upon The Thirty-Eighth Psalm
 
-"A Sacred Septenarie, "etc., by Archibald Symson, 1638, contains an Exposition of this Psalm. See Volume I, p. 74.
+"A Sacred Septenarie, "etc., by Archibald Symson, 1638, contains an Exposition of this Psalm. See Volume I, page 74.
 
 "Meditations and Disquisitions upon the Seven Psalmes of David, *commonly called the Penitential Psalmes."* By Sir Richard Baker, Knight: London: 1639, (4to.) contains *"Meditations upon the XXXVIII. Psalme."* 
 

@@ -434,5 +434,5 @@ Whose pleasure is in unison with God's."
 
 ## Works Upon The Eighty-Fifth Psalm
 
-In an old quarto volume of 788 pages, containing Expositions of several passages of Scripture, is a short Exposition of this Psalm (pp. 452-64) entitled *"A Taste of the Breathings, Pantings, Waitings, and Hopes of Israel after the true Saviour, and his effectual Redemption."* There is no Author's name, but some previous owner has written *"John Pennington"* on the title page: date 1656.
+In an old quarto volume of 788 pages, containing Expositions of several passages of Scripture, is a short Exposition of this Psalm (pages 452-64) entitled *"A Taste of the Breathings, Pantings, Waitings, and Hopes of Israel after the true Saviour, and his effectual Redemption."* There is no Author's name, but some previous owner has written *"John Pennington"* on the title page: date 1656.
 

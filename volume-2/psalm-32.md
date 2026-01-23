@@ -362,7 +362,7 @@ David's Learning, or Way to True Happiness: in a Commentarie upon *the 32 Psalme
 
  *Meditations on Psalm XXXII.* in Archbishop Leighton's Works.
 
-In the Works of John Donne: *Sermons on Psalm XXXII.* Vols. II., III. Alford's Edition.
+In the Works of John Donne: *Sermons on Psalm XXXII.* Volumes II., III. Alford's Edition.
 
 A Godly and Fruitful Exposition on the Thirty-second Psalme, the *Third of the Penitentials;* in *A Sacred Septenarie; or, a Godly and Fruitful Exposition on the Seven Psalmes of Repentance.* By Mr. Archibald Symson, late Pastor of the Church at Dalkeeth in Scotland. 1638.
 

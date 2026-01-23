@@ -212,5 +212,5 @@ II. The increase itself. This increase has many aspects. Let us view them in a c
 
 ## Works Upon The Sixty-Seventh Psalm
 
-In *"The Works of* John Boys, "1626, folio, pp. 42-45, there is an Exposition of this Psalm.
+In *"The Works of* John Boys, "1626, folio, pages 42-45, there is an Exposition of this Psalm.
 

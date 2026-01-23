@@ -210,7 +210,7 @@ From *the word of the Spirit*, the word of God. Ps 119:50: "This is my comfort i
 
 ## Works Upon The Forty-Third Psalm
 
-"Soul cordials against Sore Discomforts: in a Commentary or *Explanations and Applications of the whole Forty-third Psalm, "* pp. 312-562 of *"The Works of Dr. Nathanael Homes, "* 1652 (folio).
+"Soul cordials against Sore Discomforts: in a Commentary or *Explanations and Applications of the whole Forty-third Psalm, "* pages 312-562 of *"The Works of Dr. Nathanael Homes, "* 1652 (folio).
 
 In *"Sabbaths at Home."* by Henry March, there is an exposition of this Psalm. See *"Treasury of David, "* Volume II, Page 323.
 
