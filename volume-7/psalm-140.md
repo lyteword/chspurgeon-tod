@@ -166,7 +166,7 @@ The poison of the soul is only *sin*, and this is like to poison in many respect
 
 **Verse 9.** *As for the head of those that compass me about*, etc. God, he saith, had covered his head in the day of battle: now contrariwise ho showeth what should cover the head of his enemies, viz., it should come to them as with their lips they had maliciously spoken against him; for it may be thus rendered—"The head of my besieger, let the trouble of his lips cover it": for cursing, "let him be covered with cursing as with a cloak."— *John Mayer.* 
 
-**Verse 9.** *Those that compass me about.* For an explanation of this expression we would refer the reader to "The Treasury of David", vol. 1.p. 387, where he will find two very pertinent extracts from J. Stevenson and Dr. Shaw.
+**Verse 9.** *Those that compass me about.* For an explanation of this expression we would refer the reader to "The Treasury of David", volume 1.p. 387, where he will find two very pertinent extracts from J. Stevenson and Dr. Shaw.
 
 **Verse 9.** *The mischief of their own lips.* The pride and hauteur of the Jews in our Lord's day brought the Roman arms upon them, and caused them to fall into irremediable ruin. They invoked their own fate by exposing themselves to an invasion from Rome at all; but they did it still more in that terrific cry—"His blood be upon us and on our children."— *William Hill Tucker, in "The Psalms, with Notes, Shewing their Prophetic and Christian Character, "* 1840.
 

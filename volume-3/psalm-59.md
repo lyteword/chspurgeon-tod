@@ -348,5 +348,5 @@ You smiling, smooth, detested parasites."
 
 ## Works Upon The Fifty-Ninth Psalm
 
-In Chandler's *"Life of David, "* Vol. 1., pp. 85-89, there is an Exposition of this Psalm.
+In Chandler's *"Life of David, "* Volume 1., pp. 85-89, there is an Exposition of this Psalm.
 

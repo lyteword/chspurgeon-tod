@@ -366,7 +366,7 @@ Those who notice providence shall never be long without a providence notice. It 
 
 **Verses 17-20.** *Fools because of their transgression, and because of their iniquities, are afflicted. Their soul abhorreth all manner of meat* (they are so sick that they can relish, take down nothing, )and *they draw near unto the gates of death*, they are almost in, they were on the brink of hell; what course must be used for their cure? Truly this, *He sent his word, and healed them, and delivered them from their destructions.* No herb in the garden of the whole world can do these distressed creatures the least good. Friends may speak, and ministers may speak, yea, angels may speak, and all in vain; the wounds are incurable for all their words; but if God please to speak, the dying soul revives. This word is the only balm that can cure the wounded conscience: *he sendeth his word and healeth them.* Conscience is God's prisoner, he claps it in hold, he layeth it in fetters, that the iron enters the very soul; this he doth by his word, and truly he only who shuts up can let out; all the world cannot open the iron gate, knock off the shackles, and set the poor prisoner at liberty, till God speak the word.— *George Swinnock, * 1627-1673.
 
-**Verse 17.**, etc. A Rescue from Death, with a Return of Praise.— *R. Sibbes' Works, * Vol. 51; *Nichol's edition.* 
+**Verse 17.**, etc. A Rescue from Death, with a Return of Praise.— *R. Sibbes' Works, * Volume 51; *Nichol's edition.* 
 
 **Verses 17-21.** 
 

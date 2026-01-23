@@ -464,7 +464,7 @@ But these are reflections which must not be dwelt upon. When they begin to grow 
 
 (d) Distracting, —"I am", etc.— *G. R.* 
 
-**Verse 15.** The personal sufferings of Christ for the salvation of his people.— *Sermon by Robert Hawker.* Works, Vol. 4. pg 91.
+**Verse 15.** The personal sufferings of Christ for the salvation of his people.— *Sermon by Robert Hawker.* Works, Volume 4. pg 91.
 
 **Verse 16.** 
 

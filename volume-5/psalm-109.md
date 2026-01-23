@@ -214,7 +214,7 @@ This is the summing up of the entire imprecation, and fixes it upon the persons 
 
 **Whole Psalm.** We may consider Judas, at the same time, as the virtual head of the Jewish nation in their daring attempt to dethrone the Son of God. The doom pronounced, and the reasons for it, apply to the Jews as a nation, as well as to the leader of the band who took Jesus.— *Andrew A. Bonar.* 
 
-**Whole Psalm.** Is it possible that this perplexing and distressing Psalm presents us after all, not with David's maledictions upon his enemies, but with their maledictions upon him? Not only do I hold this interpretation to be quite legitimate, I hold it to be by far the more natural and reasonable interpretation.— *Joseph Hammond.* (In Dr. Cox's *Expositor, * Vol. 2. pg 225, this theory is well elaborated by Mr. Hammond, but we cannot for an instant accept it.— *C. H. S.* )
+**Whole Psalm.** Is it possible that this perplexing and distressing Psalm presents us after all, not with David's maledictions upon his enemies, but with their maledictions upon him? Not only do I hold this interpretation to be quite legitimate, I hold it to be by far the more natural and reasonable interpretation.— *Joseph Hammond.* (In Dr. Cox's *Expositor, * Volume 2. pg 225, this theory is well elaborated by Mr. Hammond, but we cannot for an instant accept it.— *C. H. S.* )
 
 **The Imprecations of the Psalm.** The language has been justified, not as the language of David, but as the language of Christ, exercising his office of Judge, or, in so far as he had laid aside that office during his earthly life, calling upon his Father to accomplish the curse. It has been alleged that this is the prophetic foreshadowing of the solemn words, "Woe unto that man by whom the Son of Man is betrayed! It had been good for that man if he had not been born" (Mt 26:24). The curse in the words of Chrysostom is, "a prophecy in the form of a curse", (profhteia en eidei arav). The strain which such a view compels us to put on much of the language ought to have led long since to its abandonment. Not even the words denounced by our Lord against the Pharisees can really be compared to the anathemas which are here strung together. Much less is there any pretence for saying that those words so full of deep and holy sorrow, addressed to the traitor in the gospels, are merely another expression of the appalling denunciations of the psalm. But terrible as these undoubtedly are, to be accounted for by the spirit of the Old Dispensation, not to be defended by that of the New, still let us learn to estimate them aright.— *J. J. Stewart Perowne.* 
 
@@ -586,9 +586,9 @@ Waiting the coming of the Son of Man!
 
 ## Works Upon The Hundred And Ninth Psalm
 
-In "The Expositor", vol. 2. (1875), edited by the Rev. Samuel Cox, there is "An Apology for the Vindictive Psalm" (Ps 109:1-31), by Joseph Hammond, L. L. B. In volume 3 of the same magazine are four articles from the pen of the same writer, on "The Vindictive Psalms vindicated." "The Imprecatory Psalms." Six Lectures. By the Rev. R. A. Bertram. 1867. (12 mo.)
+In "The Expositor", volume 2. (1875), edited by the Rev. Samuel Cox, there is "An Apology for the Vindictive Psalm" (Ps 109:1-31), by Joseph Hammond, L. L. B. In volume 3 of the same magazine are four articles from the pen of the same writer, on "The Vindictive Psalms vindicated." "The Imprecatory Psalms." Six Lectures. By the Rev. R. A. Bertram. 1867. (12 mo.)
 
-In Dr. Thomas Randolph's Works, entitled "A View of our Blessed Saviour's Ministry&mdash; together with a Charge, Dissertations, Sermons, and Theological Lectures, " 2 vols., 8vo., Oxford, 1784, there is a comment on Ps 109:1-31, vol. 2, p. 315.
+In Dr. Thomas Randolph's Works, entitled "A View of our Blessed Saviour's Ministry&mdash; together with a Charge, Dissertations, Sermons, and Theological Lectures, " 2 vols., 8vo., Oxford, 1784, there is a comment on Ps 109:1-31, volume 2, p. 315.
 
 The Sermons of Charles Peters, A. M., 8vo., London, 1776, contain "The Curses of Psalm the 109th explained, with practical instructions, " pp. 348-378.
 
@@ -596,7 +596,7 @@ W. Keate's Sermon, entitled, "The 109th, commonly called the Imprecating Psalm, 
 
 F. H. Dunwell. A Tract on the Commination Service of the Church of England. 12 mo. 1853.
 
-In the "Bibliotheca Sacra and Theological Review, " vol. 1., 1844, pp. 97-110, there is an article on "The Imprecations in the Scriptures, " by B. B. Edwards, Professor in the Theological Seminary, Andover.
+In the "Bibliotheca Sacra and Theological Review, " volume 1., 1844, pp. 97-110, there is an article on "The Imprecations in the Scriptures, " by B. B. Edwards, Professor in the Theological Seminary, Andover.
 
 There is also an article on "The Imprecatory Psalms", in "Bibliotheca Sacra and American Biblical Repository, " for July, 1856, pp. 551-563, by John J. Owen, D. D., Professor in the Free Academy, New York.
 

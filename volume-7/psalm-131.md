@@ -210,5 +210,5 @@ b) The contentment and weaning in the second verse. Would Israel be thus humble 
 
 ## Works Upon The Hundred And Thirty-First Psalm
 
-"Several *five* Sermons Upon Psalm 131, " in the Works of Manton, D. D. Vol. 5., folio, pp. 961-1007; they may also be found in 21. pp. 406-462 of the new edition of Manton's Works, published by Nisbet and Co., 1874.
+"Several *five* Sermons Upon Psalm 131, " in the Works of Manton, D. D. Volume 5., folio, pp. 961-1007; they may also be found in 21. pp. 406-462 of the new edition of Manton's Works, published by Nisbet and Co., 1874.
 

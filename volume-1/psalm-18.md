@@ -530,7 +530,7 @@ This is the winding up verse into which the writer throws a fulness of expressio
 
 **Verse 2.**The many excellences of Jehovah to his people. 
 
-**Verse 2.** God the all-sufficient portion of his people.— *C. Simeon's Works, * Vol. 5, Page 85. 
+**Verse 2.** God the all-sufficient portion of his people.— *C. Simeon's Works, * Volume 5, Page 85. 
 
 **Verse 3.** Prayer resolved upon; praise rendered; result anticipated. 
 

@@ -328,5 +328,5 @@ Why we have wept before."
 
  *Meditations upon the 30th Psalm of David.* By Sir Richard Baker. (See Page 10.)
 
- *In Chandler's Life of David* (Vol. II., pp. 8-15), there is an *Exposition of Psalm 30.* 
+ *In Chandler's Life of David* (Volume II., pp. 8-15), there is an *Exposition of Psalm 30.* 
 

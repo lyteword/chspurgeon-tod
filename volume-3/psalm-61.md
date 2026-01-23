@@ -154,7 +154,7 @@ Whole Psalm. The progressive *I wills.*
 
 **Verse 2.** *Higher than I.* Jesus greater than our highest efforts, attainments, desires, expectations, conceptions.
 
-**Verse 2.** God, the saint's rock. *John Owen's Two Sermons.* Works. Vol. 9, pp. 237-256.
+**Verse 2.** God, the saint's rock. *John Owen's Two Sermons.* Works. Volume 9, pp. 237-256.
 
 **Verse 2.** The heart's cry and desire.
 

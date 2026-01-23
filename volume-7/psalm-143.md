@@ -458,5 +458,5 @@ c) What renders it pleasing to God when done. Great faith. "For in thee do I tru
 
  *A Sacred Septenarie, * Or, *A Godly And Fruitfull Exposition on the Seven Psalms Of Repentance* by Mr. Archibald Symson&mdash; London, 1638 4to., contains an Exposition of this Psalm, pp. 276-308.
 
-There is an Exposition of Psalm 143., in Vol. 1., pp. 35-66, Of "Sermons chiefly designed for the Use of Families, " by John Fawcett, A. M. 2 Vols. 8vo, second edition, Carlisle; 1818.
+There is an Exposition of Psalm 143., in Volume 1., pp. 35-66, Of "Sermons chiefly designed for the Use of Families, " by John Fawcett, A. M. 2 Vols. 8vo, second edition, Carlisle; 1818.
 

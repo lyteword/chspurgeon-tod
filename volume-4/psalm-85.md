@@ -386,7 +386,7 @@ Whose pleasure is in unison with God's."
 
 (c) Where? Met and kissed—(1.) In the covenant. (2.) At the incarnation. (3.) At the cross. (4.) At the conversion of every sinner. (5.) At the completion of the saints in heaven. *G. R.* 
 
-**Verse 10.** The Pulpit, vol. 28, 1836, contains a sermon by R. W. Sibthorpe, in which the preacher,
+**Verse 10.** The Pulpit, volume 28, 1836, contains a sermon by R. W. Sibthorpe, in which the preacher,
 
 1\. Considers the harmony of the divine perfections in the redemption of a sinner.
 

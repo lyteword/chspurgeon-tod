@@ -506,5 +506,5 @@ Thirteen Sermons in the works of William Bridge (1600-1670), entitled, *"A Lifti
 
 Comfort and Counsel for Dejected Souls. By John Durant. 8vo. 1651.
 
-The Soul's Conflict with Itself. By Richard Sibbes. (Numerous old editions). In Sibbes' Works, Nichol's Puritan Series, vol. I.
+The Soul's Conflict with Itself. By Richard Sibbes. (Numerous old editions). In Sibbes' Works, Nichol's Puritan Series, volume I.
 

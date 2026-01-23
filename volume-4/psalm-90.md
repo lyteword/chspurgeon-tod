@@ -614,7 +614,7 @@ For all Time is no time, when the Time is past."
 
 Enarratio Psalmi 90. Per D. Doctorem Martinum Luth. In Schola Vuittembergensi, Anno, 1534, publice absoluta, edita vers Anno MD.
 
-41\.(In Vol. 4 of the Jena edition of Luther's Works, 1712 and other years, folio.)
+41\.(In Volume 4 of the Jena edition of Luther's Works, 1712 and other years, folio.)
 
 A Meditation of Man's Mortalitie. Containing an Exposition of the Ninetieth Psalme. By that Reverend and Religious Servant of God Mr. William Bradshaw, sometime Fellow of Sidney Colledge in Cambridge. Published since his decease by Thomas Gataker B. of D. and Pastor of Rotherhith. London&mdash;1621.
 

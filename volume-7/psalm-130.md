@@ -520,27 +520,27 @@ b) Because what he gives is worth waiting for.— *G. R.*
 
 ## Works Upon The Hundred And Thirtieth Psalm
 
-A Treatise concerning the fruitful Sayings of David, The King and Prophet, in The *Seven Penitential Psalms&mdash;* By the Right Reverend Father in God Ions Fisher, DD. and Bp. of *Rochester*. Printed in the Year 1714. This is a reprint in 12mo. of the Black Letter 4to. described on page 114 of Vol. 2. of "The Treasury of David." The work is more curious than useful.
+A Treatise concerning the fruitful Sayings of David, The King and Prophet, in The *Seven Penitential Psalms&mdash;* By the Right Reverend Father in God Ions Fisher, DD. and Bp. of *Rochester*. Printed in the Year 1714. This is a reprint in 12mo. of the Black Letter 4to. described on page 114 of Volume 2. of "The Treasury of David." The work is more curious than useful.
 
  *"An Exposition upon some select Psalms of David."&mdash;* 
 
 Written by that faithful servant of God M. Robert Rollok&mdash; And translated out of Latine into English by Charles Lumisden&mdash; Edinborgh&mdash;1600, *8vo.* contains a short exposition on Psalm 130.
 
-In "Select Works of Robert Rollock, " edited for the Wodrow Society by William M. Gunn, Esq., Vol. 1 pp. 451-481, there are two expository Sermons on Psalm 130.
+In "Select Works of Robert Rollock, " edited for the Wodrow Society by William M. Gunn, Esq., Volume 1 pp. 451-481, there are two expository Sermons on Psalm 130.
 
  *A Exposition On The Hundred And Thirtieth Psalm*. Gathered out of some of the Ancient Fathers and later writers by Alexander Roberts. Bachelor of Divinity and Preacher of the Word of God at Kings Lind in Norfolk. London&mdash;1610. *4to.* 
 
  *David's Tears*. By Sir John Hayward, Knight, Doctor of Lawe. London. Printed by John Bell, 1623. *4to.* On Psalms 6, 32, and 130.
 
- *The Saints' Comforts*. Being the substance of diverse Sermons. Preached on Psalm 130, the beginning *Ps 130:1-5*&mdash; By a Reverend Divine now with God. *Richard Sibbes.* London&mdash;1638. *18mo.* Reprinted in Vol. 6 of Sibbes' Works, Nichol's edition, 1863.
+ *The Saints' Comforts*. Being the substance of diverse Sermons. Preached on Psalm 130, the beginning *Ps 130:1-5*&mdash; By a Reverend Divine now with God. *Richard Sibbes.* London&mdash;1638. *18mo.* Reprinted in Volume 6 of Sibbes' Works, Nichol's edition, 1863.
 
  *A Godly and Fruitful Exposition on the 130 Psalme*, the sixth of the Penitentials, in A Sacred Septenarie or, A Godly And Fruitful Exposition On The Seven Psalms Of Repentance&mdash; By Mr. Archibald Symson, late Pastor of the church at *Dalkeeth* in *Scotland*. London&mdash;1638. *4to.* 
 
 In "Meditations And Disquisitions upon The Three last Psalmes of David. *By* Sir Richard Baker, *Knight* " *4to. 1639*, there is an Exposition of Psalm 130. It will be found in Higham's reprint *1882* of Sir R. Baker's Expositions of the Psalms, pp. 257-271.
 
- *A Practical Exposition upon Psalm 130*; wherein the Nature of the Forgiveness of Sin is declared; the Truth and Reality of it asserted; and the case of a Soul Distressed with the Guilt of Sin, and Relieved by a Discovery of Forgiveness with God, is at large Discoursed By John Owen, D. D., 4to.], 1668, 1669, 1680. There are modern reprints of this Exposition; and it is in Vol. 6 of Owen's Works, edited by W. H. Goold, 1881.
+ *A Practical Exposition upon Psalm 130*; wherein the Nature of the Forgiveness of Sin is declared; the Truth and Reality of it asserted; and the case of a Soul Distressed with the Guilt of Sin, and Relieved by a Discovery of Forgiveness with God, is at large Discoursed By John Owen, D. D., 4to.], 1668, 1669, 1680. There are modern reprints of this Exposition; and it is in Volume 6 of Owen's Works, edited by W. H. Goold, 1881.
 
-In *"The Whole Works of Robert Leighton*, D. D., Archbishop of Glasgow, 4 vols., 8y D., 1725", there are "Meditations on Psalm 130. "Vol. 2. pp. 510-540.
+In *"The Whole Works of Robert Leighton*, D. D., Archbishop of Glasgow, 4 vols., 8y D., 1725", there are "Meditations on Psalm 130. "Volume 2. pp. 510-540.
 
  *Forty Five Sermons upon The 130 Psalme.* 
 

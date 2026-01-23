@@ -544,5 +544,5 @@ An Exposition upon some select Psalms of David&mdash; By ROBERT ROLLOCK. 1600. 1
 
 Meditations and Disquisitions upon seven Consolatorie Psalmes of David&mdash; By Sir RICHARD BAKER, Knight. 1640. (pg 119-142.)
 
-Meditations on the Eighty-fourth Psalm, in "Things New and Old. A Monthly Magazine." Vol. IX. 1866.
+Meditations on the Eighty-fourth Psalm, in "Things New and Old. A Monthly Magazine." Volume IX. 1866.
 

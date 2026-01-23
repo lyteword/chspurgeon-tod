@@ -638,7 +638,7 @@ Or
 
 **Verse 18.** The covenant, in what respects we can keep it, in what frame of mind it must be kept, and what is the practical proof of so doing.
 
-**Verse 19.** "A Discourse upon God's Dominion." See Charnock's Works *Nicol's Edition, Vol. II., pp. 400-499.* 
+**Verse 19.** "A Discourse upon God's Dominion." See Charnock's Works *Nicol's Edition, Volume II., pp. 400-499.* 
 
 **Verse 19.** 
 

@@ -8,7 +8,7 @@ weight: 70
 
 ## Exposition
 
-(The Reader is referred for full to Ps 40:13-17, in *"Treasury of David, "Vol. 2, pp 267-268.* )
+(The Reader is referred for full to Ps 40:13-17, in *"Treasury of David, "Volume 2, pp 267-268.* )
 
 ### Verse 1
 

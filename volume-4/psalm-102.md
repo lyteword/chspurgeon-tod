@@ -590,7 +590,7 @@ Or,
 
 ## Works Upon The Hundred And Second Psalm
 
-Bishop Fisher's *Treatise on the Penitential Psalms.* (See "Treasury of David, "Vol. II., pg 114.) There is an edition in 12mo., printed in the year MDCCXIV., besides those referred to as above.
+Bishop Fisher's *Treatise on the Penitential Psalms.* (See "Treasury of David, "Volume II., pg 114.) There is an edition in 12mo., printed in the year MDCCXIV., besides those referred to as above.
 
 In *"Meditations on Twenty select Psalms*, by Sir Sir Anthony Cope, Chamberlain to Queen Katherine Parr. Reprinted from the edition of 1547;&mdash; By William H. Cope. M. A. 1848, "there is a Meditation on this Psalm.
 

@@ -318,5 +318,5 @@ Benjamin Grosvenor, D. D. (1675-1758), in "An Exhortation to the *Duty of Singin
 
 The Works of John Boys, D. D., "Deane of Canterburie, "1629, folio, pp. 834-40, contains an Exposition of Psalm 57.
 
-In Chandler's *"Life of David, "* Vol. 1., pp. 176-9, there is an Exposition of this Psalm.
+In Chandler's *"Life of David, "* Volume 1., pp. 176-9, there is an Exposition of this Psalm.
 

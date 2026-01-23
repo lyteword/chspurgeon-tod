@@ -426,7 +426,7 @@ b) In the church. These are the palaces of the Great King; "The ivory palaces wh
 
 ## Works Upon The Hundred And Twenty-Second Psalm
 
-In *"Chandler's Life of David, "* vol. 2. pp. 131-4, there is an Exposition of this Psalm.
+In *"Chandler's Life of David, "* volume 2. pp. 131-4, there is an Exposition of this Psalm.
 
  *Ecclesia Triumphans*: That is, the Joy of the English Church, for the Happie Coronation of the most vertuous and pious Prince.
 

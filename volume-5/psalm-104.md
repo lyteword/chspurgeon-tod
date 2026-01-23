@@ -954,7 +954,7 @@ March on and keep my heavenly way."
 
 **Verse 21.** Inarticulate prayers, or how faulty the expression may be and yet how real the prayer in the esteem of God.**Verse 22.** From the effect of sunrise on the beasts of prey, exhibit the influence of Divine Grace on our evil passions. *C. A. D.* 
 
-**Verse 23.** *"Early Closing."* A sermon preached on behalf of the "Early Closing Association, "by James Hamilton, D. D., 1850. In the "Pulpit, " Vol. 57.
+**Verse 23.** *"Early Closing."* A sermon preached on behalf of the "Early Closing Association, "by James Hamilton, D. D., 1850. In the "Pulpit, " Volume 57.
 
 **Verse 24. ** 
 

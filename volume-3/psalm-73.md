@@ -476,7 +476,7 @@ As he that walks in slippery places is every moment liable to fall, he cannot fo
 
 3\. The conclusion of the whole matter. See "Spurgeon's Sermons, "No. 467.
 
-**Verse 25.** God the best portion of the Christian. *Jonathan Edwards' Works, Vol. 2, pp. 104-7.* 
+**Verse 25.** God the best portion of the Christian. *Jonathan Edwards' Works, Volume 2, pp. 104-7.* 
 
 **Verse 25.** Heaven and earth ransacked to find a joy equal to the Lord himself. Let the preacher take up various joys and show the inferiority.
 

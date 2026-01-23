@@ -368,7 +368,7 @@ So let thy pardoning love be found."
 
 2\. Spiritual restoration. First step—Sacrifice of a broken spirit. Last step—Spirit of liberty. *Thy free spirit. F. W. Robertson.* 
 
-**Verse 6.** See T. Goodwin's Treatise, entitled, "An Unregenerate Man's Guiltiness before God, in respect of Sin and Punishment." Book 9 cap. 1-2. (Nichol's edition, Vol. X., p. 324 *et seq.* )
+**Verse 6.** See T. Goodwin's Treatise, entitled, "An Unregenerate Man's Guiltiness before God, in respect of Sin and Punishment." Book 9 cap. 1-2. (Nichol's edition, Volume X., p. 324 *et seq.* )
 
 **Verse 7.** Here is,
 
@@ -480,7 +480,7 @@ So let thy pardoning love be found."
 
 ## Works Upon The Fifty-First Psalm
 
-Exposition of the Fifty-first Psalm, by Martin Luther, in "Select works of Martin Luther, translated by Rev. Henry Cole." Vol. I., pp. 51-197.
+Exposition of the Fifty-first Psalm, by Martin Luther, in "Select works of Martin Luther, translated by Rev. Henry Cole." Volume I., pp. 51-197.
 
 "An Exposition upon the 51 Psalm, "in *"Certain Godly and learned Expositions upon divers parts of Scripture.* As they were preached and afterwards more briefly penned by that worthy man of God, Maister George Estey&mdash; Late preacher of the word of God in St. Edmund's Burie." 1603. (4to.)
 
@@ -500,7 +500,7 @@ Exposition of the Fifty-first Psalm, by Martin Luther, in "Select works of Marti
 
 "David's Broken Heart; or, an Exposition upon the whole Fifty-one *Psalm.* By that Reverend divine Doctor Samuel Page, late Pastour of Deptford Stroud, in Kent&mdash;1646." (4to.)
 
-Exposition of Psalm LI., in "Chandler's Life of David." Vol. 2 pg 254-273.
+Exposition of Psalm LI., in "Chandler's Life of David." Volume 2 pg 254-273.
 
 "The Portraiture of the Christian Penitent: attempted in a course of *Sermons upon Psalm LI*&mdash; By the Rev. Cha. De Coetlogon, A. M. 1775."
 

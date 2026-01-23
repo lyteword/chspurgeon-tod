@@ -338,7 +338,7 @@ Let this be the resolution of both saved and unsaved. *G. J. K.*
 
 ## Works Upon The Sixty-Third Psalm
 
-Chandler's *"Life of David"* contains an Exposition of this Psalm. Vol. 1, pp. 130-4.
+Chandler's *"Life of David"* contains an Exposition of this Psalm. Volume 1, pp. 130-4.
 
 "An Exposition of the 63 Psalm, "in eight Sermons, in *"Choice and Practical Expositions on four Select Psalms*&mdash; By Thomas Horton, D. D., 1675." (Folio.)
 

@@ -98,7 +98,7 @@ The machinery of prayer is not always visible, but it is most efficient. God inc
 
 **Title &mdash;** The words *Jonathelemrechokim* may be rendered, *concerning the mute dove among them that are afar off, * or *in far places. John Gill.* 
 
-**Title &mdash;** *Michtam.* See also Explanatory Notes on Psalm 16, in the "Treasury of David, "Vol. 1, pp., 222-223.
+**Title &mdash;** *Michtam.* See also Explanatory Notes on Psalm 16, in the "Treasury of David, "Volume 1, pp., 222-223.
 
 **Verse 1.** *Be merciful.* This is the second of the Psalms beginning with the miserere; the fifty-first being the first of them. *C. H. S.* 
 
@@ -298,5 +298,5 @@ Or—
 
 ## Works Upon The Fifty-Sixth Psalm
 
-In Chandler's *"Life of David, "* Vol. 1., pp. 104-7, there is an Exposition of this Psalm.
+In Chandler's *"Life of David, "* Volume 1., pp. 104-7, there is an Exposition of this Psalm.
 

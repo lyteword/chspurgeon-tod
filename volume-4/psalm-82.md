@@ -158,5 +158,5 @@ weight: 82
 
 ## Works Upon The Eighty-Second Psalm
 
-"The Beauty of Magistracy. An Exposition of Psalm 82. "By Thomas Hall, B. D. 1659-60. (In Swinnock's Works. Vol. 4. Nichol's Edition.)
+"The Beauty of Magistracy. An Exposition of Psalm 82. "By Thomas Hall, B. D. 1659-60. (In Swinnock's Works. Volume 4. Nichol's Edition.)
 
