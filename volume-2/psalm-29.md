@@ -14,25 +14,25 @@ weight: 29
 
 ### Verse 1
 
-> Give unto the LORD, O ye mighty, give unto the LORD glory and strength.
+> Give unto the Lord, O ye mighty, give unto the Lord glory and strength.
 
 *Give, * i.e., ascribe. Neither men nor angels can confer anything upon Jehovah, but they should recognise his glory and might, and ascribe it to him in their songs and in their hearts. *Unto the Lord, * and unto him alone, must honour be given. Natural causes, as men call them, are God in action, and we must not ascribe power to them, but to the infinite Invisible who is the true source of all. *O ye mighty.* Ye great ones of earth and of heaven, kings and angels, join in rendering worship to the blessed and only Potentate; ye lords among men need thus to be reminded, for ye often fail where humbler men are ardent; but fail no longer, bow your heads at once, and loyally do homage to the King of kings. How frequently do grandees and potentates think it beneath them to fear the Lord; but, when they have been led to extol Jehovah, their piety has been the greatest jewel in their crowns. *Give unto the Lord glory and strength, * both of which men are too apt to claim for themselves, although they are the exclusive prerogatives of the self existent God. Let crowns and swords acknowledge their dependence upon God. Not to your arms, O kings, give ye the glory, nor look for strength to your hosts of warriors, for all your pomp is but as a fading flower, and your might is as a shadow which declineth. When shall the day arrive when kings and princes shall count it their delight to glorify their God? "All worship be to God only, "let this be emblazoned on every coat of arms.
 
 ### Verse 2
 
-> Give unto the LORD the glory due unto his name; worship the LORD in the beauty of holiness.
+> Give unto the Lord the glory due unto his name; worship the Lord in the beauty of holiness.
 
 *Give unto the Lord the glory due unto his name.* A third time the admonition is given, for men are backward in glorifying God, and especially great men, who are often too much swollen with their own glory to spare time to give God his rightful praise, although nothing more is asked of them than is most just and right. Surely men should not need so much pressing to give what is due, especially when the payment is so pleasant. Unbelief and distrust, complaining and murmuring, rob God of his honour; in this respect, even the saints fail to give due glory to their King. *Worship the Lord, * bow before him with devout homage and sacred awe, and let your worship be such as he appoints. Of old, worship was cumbered with ceremonial, and men gathered around one dedicated building, whose solemn pomp was emblematic of *the beauty of holiness*; but now our worship is spiritual, and the architecture of the house and the garments of the worshippers are matters of no importance; the spiritual beauty of inward purity and outward holiness being far more precious in the eyes of our thrice holy God. O for grace ever to worship with holy motives and in a holy manner, as becometh saints! The call to worship in these two verses chimes in with the loud pealing thunder, which is the church bell of the universe ringing kings and angels, and all the sons of earth to their devotions.
 
 ### Verse 3
 
-> The voice of the LORD *is* upon the waters: the God of glory thundereth: the LORD *is* upon many waters.
+> The voice of the Lord *is* upon the waters: the God of glory thundereth: the Lord *is* upon many waters.
 
 *The voice of the Lord is upon the waters.* The thunder is not only poetically but instructively called "the voice of God, "since it peals from on high; it surpasses all other sounds, it inspires awe, it is entirely independent of man, and has been used on some occasions as the grand accompaniment of God's speech to Adam's sons. There is a peculiar terror in a tempest at sea, when deep calleth unto deep, and the raging sea echoes to the angry sky. No sight more alarming than the flash of lightning around the mast of the ship; and no sound more calculated to inspire reverent awe than the roar of the storm. The children of heaven have often enjoyed the tumult with humble joy peculiar to the saints, and even those who know not God have been forced into unwilling reverence while the storm has lasted. *The glory of God thundereth.* Thunder is in truth no mere electric phenomenon, but is caused by the interposition of God himself. Even the old heathen spake of Jupiter Tonans; but our modern wise men will have us believe in laws and forces, and anything or nothing so they may be rid of God. Electricity of itself can do nothing, it must be called and sent upon its errand; and until the almighty Lord commissions it, its bolt of fire is inert and powerless. As well might a rock of granite, or a bar of iron fly in the midst of heaven, as the lightning go without being sent by the great First Cause. *The Lord is upon many waters.* Still the Psalmist's ear hears no voice but that of Jehovah, resounding from the multitudinous and dark waters of the upper ocean of clouds, and echoing from the innumerable billows of the storm tossed sea below. The waters above and beneath the firmament are astonished at the eternal voice. When the Holy Spirit makes the divine promise to be heard above the many waters of our soul's trouble, then is God as glorious in the spiritual world as in the universe of matter. Above us and beneath us all is the peace of God when he gives us quiet.
 
 ### Verse 4
 
-> The voice of the LORD *is* powerful; the voice of the LORD *is* full of majesty.
+> The voice of the Lord *is* powerful; the voice of the Lord *is* full of majesty.
 
 *The voice of the Lord is powerful.* An irresistible power attends the lightning of which the thunder is the report. In an instant, when the Lord wills it, the force of electricity produces amazing results. A writer upon this subject, speaks of these results as including a light of the intensity of the sun in his strength, a heat capable of fusing the most compact metals, a force in a moment paralysing the muscles of the most powerful animals; a power suspending the all pervading gravity of the earth, and an energy capable of decomposing and recomposing the closest affinities of the most intimate combinations. Well does Thompson speak of "the unconquerable lightning, "for it is the chief of the ways of God in physical forces, and none can measure its power. As the voice of God in nature is so powerful, so is it in grace; the reader will do well to draw a parallel, and he will find much in the gospel which may be illustrated by the thunder of the Lord in the tempest. His voice, whether in nature or revelation, shakes both earth and heaven; see that ye refuse not him that speaketh. If his voice be thus mighty, what must his hand be! beware lest ye provoke a blow. *The voice of the Lord is powerful; the voice of the Lord is full of majesty.* The King of kings speaks like a king. As when a lion roareth, all the beasts of the forest are still, so is the earth hushed and mute while Jehovah thundereth marvellously.
 
@@ -42,7 +42,7 @@ As for the written word of God, its majesty is apparent both in its style, its m
 
 ### Verse 5
 
-> The voice of the LORD breaketh the cedars; yea, the LORD breaketh the cedars of Lebanon.
+> The voice of the Lord breaketh the cedars; yea, the Lord breaketh the cedars of Lebanon.
 
 *The voice of the Lord breaketh the cedars.*
 
@@ -76,7 +76,7 @@ The glorious gospel of the blessed God has more than equal power over the rocky 
 
 ### Verse 7
 
-> The voice of the LORD divideth the flames of fire.
+> The voice of the Lord divideth the flames of fire.
 
 *The voice of the Lord divideth the flames of fire.* As when sparks fly from the anvil by blows of a ponderous hammer, so the lightning attends the thundering strokes of Jehovah. "At first heard solemn over the verge of heaven,
 
@@ -98,13 +98,13 @@ The thunder seems to divide one flash from another, interposing its deepening ro
 
 ### Verse 8
 
-> The voice of the LORD shaketh the wilderness; the LORD shaketh the wilderness of Kadesh.
+> The voice of the Lord shaketh the wilderness; the Lord shaketh the wilderness of Kadesh.
 
 As the storm travelled, it burst over the desert. *The voice of the Lord shaketh the wilderness; the Lord shaketh the wilderness of Kadesh.* God courts not the applause of men—his grandest deeds are wrought where man's inquisitive glance is all unknown. Where no sound of man was heard, the voice of God was terribly distinct. The vast and silent plains trembled with affright. Silence did homage to the Almighty voice. Low lying plains must hear the voice of God as well as lofty mountains; the poor as well as the mighty must acknowledge the glory of the Lord. Solitary and barren places are to be gladdened by the gospel's heavenly sound. What a shaking and overturning power there is in the word of God! even the conservative desert quivers into progress when God decrees it.
 
 ### Verse 9
 
-> The voice of the LORD maketh the hinds to calve, and discovereth the forests: and in his temple doth every one speak of *his* glory.
+> The voice of the Lord maketh the hinds to calve, and discovereth the forests: and in his temple doth every one speak of *his* glory.
 
 *The voice of the Lord maketh the hinds to calve, * those timid creatures, in deadly fear of the tempest, drop their burdens in an untimely manner. Perhaps a better reading is, "the oaks to tremble, "especially as this agrees with the next sentence, *and discovereth the forests.* The dense shades of the forest are lit up with the lurid glare of the lightning, and even the darkest recesses are for a moment laid bare.
 
@@ -118,13 +118,13 @@ Our first parents sought a refuge among the trees, but the voice of the Lord soo
 
 ### Verse 10
 
-> The LORD sitteth upon the flood; yea, the LORD sitteth King for ever.
+> The Lord sitteth upon the flood; yea, the Lord sitteth King for ever.
 
 *The Lord sitteth upon the flood.* Flood follows tempest, but Jehovah is ready for the emergency. No deluge can undermine the foundation of his throne. He is calm and unmoved, however much the deep may roar and be troubled: his government rules the most unstable and boisterous of created things. Far out on the wild waste of waters, Jehovah "plants his footsteps in the sea, and rides upon the storm, " *Yea, the Lord sitteth King for ever.* Jesus has the government upon his shoulders eternally: our interests in the most stormy times are safe in his hands. Satan is not a king, but Jehovah Jesus is; therefore let us worship him, and rejoice evermore.
 
 ### Verse 11
 
-> The LORD will give strength unto his people; the LORD will bless his people with peace.
+> The Lord will give strength unto his people; the Lord will bless his people with peace.
 
 Power was displayed in the hurricane whose course this Psalm so grandly pictures; and now, in the cool calm after the storm, that power is promised to be the strength of the chosen. He who wings the unerring bolt, will give to his redeemed the wings of eagles; he who shakes the earth with his voice, will terrify the enemies of his saints, and give his children peace. Why are we weak when we have divine strength to flee to? Why are we troubled when the Lord's own peace is ours? Jesus the mighty God is our peace—what a blessing is this today! What a blessing it will be to us in that day of the Lord which will be in darkness and not light to the ungodly! Dear reader, is not this a noble Psalm to be sung in stormy weather? Can you sing amid the thunder? Will you be able to sing when the last thunders are let loose, and Jesus judges quick and dead? If you are a believer, the last verse is your heritage, and surely that will set you singing.
 
