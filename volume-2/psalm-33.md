@@ -12,13 +12,13 @@ weight: 33
 
 ### Verse 1
 
-> Rejoice in the LORD, O ye righteous: *for* praise is comely for the upright.
+> Rejoice in the Lord, O ye righteous: *for* praise is comely for the upright.
 
 *Rejoice in the Lord.* Joy is the soul of praise. To delight ourselves in God is most truly to extol him, even if we let no notes of song proceed from our lips. That God is, and that he is such a God, and our God, ours for ever and ever, should wake within us an unceasing and overflowing joy. To rejoice in temporal comforts is dangerous, to rejoice in self is foolish, to rejoice in sin is fatal, but to rejoice in God is heavenly. He who would have a double heaven must begin below to rejoice like those above. *O ye righteous.* This is peculiarly your duty, your obligations are greater, and your spiritual nature more adapted to the work, be ye then first in the glad service. Even the righteous are not always glad, and have need to be stirred up to enjoy their privileges. *For praise is comely for the upright.* God has an eye to things which are becoming. When saints wear their choral robes, they look fair in the Lord's sight. A harp suits a blood washed hand. No jewel more ornamental to a holy face than sacred praise. Praise is not comely from unpardoned professional singers; it is like a jewel of gold in a swine's snout. Crooked hearts make crooked music, but the upright are the Lord's delight. Praise is the dress of saints in heaven, it is meet that they should fit it on below.
 
 ### Verse 2
 
-> Praise the LORD with harp: sing unto him with the psaltery *and* an instrument of ten strings.
+> Praise the Lord with harp: sing unto him with the psaltery *and* an instrument of ten strings.
 
 *Praise the Lord with harp.* Men need all the help they can get to stir them up to praise. This is the lesson to be gathered from the use of musical instruments under the old dispensation. Israel was at school, and used childish things to help her to learn; but in these days, when Jesus gives us spiritual manhood, we can make melody without strings and pipes. We who do not believe these things to be expedient in worship, lest they should mar its simplicity, do not affirm them to be unlawful, and if any George Herbert or Martin Luther can worship God better by the aid of well tunes instruments, who shall gainsay their right? *We* do not need them, they would hinder than help our praise, but if others are otherwise minded, are they not living in gospel liberty? *Sing unto him.* This is the sweetest and best of music. No instrument like the human voice. As a help to singing the instrument is alone to be tolerated, for keys and strings do not praise the Lord. *With the psaltery and an instrument of ten strings.* The Lord must have a full octave, for all notes are his, and all music belongs to him. Where several pieces of music are mentioned, we are taught to praise God with all the powers which we possess.
 
@@ -30,7 +30,7 @@ weight: 33
 
 ### Verse 4
 
-> For the word of the LORD *is* right; and all his works *are done* in truth.
+> For the word of the Lord *is* right; and all his works *are done* in truth.
 
 *For the word of the Lord is right.* His ordinances both natural, moral, and spiritual, are right, and especially his incarnate Word, who is the Lord our righteousness. Whatever God has ordained must be good, and just, and excellent. There are no anomalies in God's universe, except what sin has made; his word of command made all things good. When we look at his word of promise, and remember its faithfulness, what reasons have we for joy and thankfulness! *And all his works are done in truth.* His work is the outflow of his word, and it is true to it. He neither doth nor saith anything ill; in deed and speech he agrees with himself and the purest truth. There is no lie in God's word, and no sham in his works; in creation, providence, and revelation, unalloyed truth abounds. To act truth as well as to utter it is divine. Let not children of God ever yield their principles in practice any more than in heart. What a God we serve! The more we know of him, the more our better natures approve his surpassing excellence; even his afflicting works are according to his truthful word.
 
@@ -46,13 +46,13 @@ God writes with a pen that never blots, speaks with a tongue that never slips, a
 
 ### Verse 5
 
-> He loveth righteousness and judgment: the earth is full of the goodness of the LORD.
+> He loveth righteousness and judgment: the earth is full of the goodness of the Lord.
 
 *He loveth righteousness and judgment.* The theory and practice of right he intensely loves. He doth not only approve the true and the just, but his inmost soul delights therein. The character of God is a sea, every drop of which should become a wellhead of praise for his people. The righteousness of Jesus is peculiarly dear to the Father, and for its sake he takes pleasure in those to whom it is imputed. Sin, on the other hand, is infinitely abhorrent to the Lord, and woe unto those who die in it; if he sees no righteousness in them, he will deal righteously with them, and judgment stern and final will be the result. *The earth is full of the goodness of the Lord.* Come hither, astronomers, geologists, naturalists, botanists, chemists, miners, yea, all of you who study the works of God, for all your truthful stories confirm this declaration. From the midge in the sunbeam to leviathan in the ocean all creatures own the bounty of the Creator. Even the pathless desert blazes with some undiscovered mercy, and the caverns of ocean conceal the treasures of love. Earth might have been as full of terror as of grace, but instead thereof it teems and overflows with kindness. He who cannot see it, and yet lives in it as the fish lives in the water, deserves to die. If earth be full of mercy, what must heaven be where goodness concentrates its beams?
 
 ### Verse 6
 
-> By the word of the LORD were the heavens made; and all the host of them by the breath of his mouth.
+> By the word of the Lord were the heavens made; and all the host of them by the breath of his mouth.
 
 *By the word of the Lord were the heavens made.* The angelic heavens, the sidereal heavens, and the firmament or terrestrial heavens, were all made to start into existence by a word; what if we say by *the* Word, "For without him was not anything made that is made." It is interesting to note the mention of the Spirit in the next clause, *and all the host of them by the breath of his mouth;* the *breath* is the same as is elsewhere rendered Spirit. Thus the three persons of the Godhead unite in creating all things. How easy for the Lord to make the most ponderous orbs, and the most glorious angels! A word, a breath could do it. It is as easy for God to create the universe as for a man to breathe, nay, far easier, for man breathes not independently, but borrows the breath in his nostrils from his Maker. It may be gathered from this verse that the constitution of all things is from the infinite wisdom, for his word may mean his appointment and determination. A wise and merciful Word has arranged, and a living Spirit sustains all the creation of Jehovah.
 
@@ -64,7 +64,7 @@ God writes with a pen that never blots, speaks with a tongue that never slips, a
 
 ### Verse 8
 
-> Let all the earth fear the LORD: let all the inhabitants of the world stand in awe of him.
+> Let all the earth fear the Lord: let all the inhabitants of the world stand in awe of him.
 
 *Let all the earth fear the Lord.* Not only Jews, but Gentiles. The psalmist was not a man blinded by national prejudice, he did not desire to restrict the worship of Jehovah to the seed of Abraham. He looks for homage even to far off nations. If they are not well enough instructed to be able to praise, at least let them fear. There is an inferior kind of worship in the trembling which involuntarily admits the boundless power of the thundering God. A defiant blasphemer is out of place in a world covered with tokens of the divine power and Godhead: the whole earth cannot afford a spot congenial for the erection of a synagogue of Atheism, nor a man in whom it is becoming to profane the name of God. *Let all the inhabitants of the world stand in awe of him.* Let them forsake their idols, and reverently regard the only living God. What is here placed as a wish may also be read as a prophecy: the adoration of God will yet be universal.
 
@@ -76,25 +76,25 @@ God writes with a pen that never blots, speaks with a tongue that never slips, a
 
 ### Verse 10
 
-> The LORD bringeth the counsel of the heathen to nought: he maketh the devices of the people of none effect.
+> The Lord bringeth the counsel of the heathen to nought: he maketh the devices of the people of none effect.
 
 *The Lord bringeth the counsel of the heathen to nought.* While his own will is done, he takes care to anticipate the wilfulness of his enemies. Before they come to action he vanquishes them in the council chamber; and when, well armed with craft, they march to the assault, he frustrates their knaveries, and makes their promising plots to end in nothing. Not only the folly of the heathen, but their wisdom too, shall yield to the power of the cross of Jesus: what a comfort is this to those who have to labour where sophistry, and philosophy, falsely so called, are set in opposition to the truth as it is in Jesus. *He maketh the devices of the people of none effect.* Their persecutions, slanders, falsehoods, are like puff balls flung against a granite wall—they produce no result at all; for the Lord overrules the evil, and brings good out of it. The cause of God is never in danger: infernal craft is outwitted by infinite wisdom, and Satanic malice held in check by boundless power.
 
 ### Verse 11
 
-> The counsel of the LORD standeth for ever, the thoughts of his heart to all generations.
+> The counsel of the Lord standeth for ever, the thoughts of his heart to all generations.
 
 *The counsel of the Lord standeth for ever.* He changes not his purpose, his decree is not frustrated, his designs are accomplished. God has a predestination according to the counsel of his will, and none of the devices of his foes can thwart his decree for a moment. Men's purposes are blown to and from like the thread of the gossamer or the down of the thistle, but the eternal purposes are firmer than the earth. *The thoughts of his heart to all generations.* Men come and go, sons follow their sires to the grave, but the undisturbed mind of God moves on in unbroken serenity, producing ordained results with unerring certainty. No man can expect his will or plan to be carried out from age to age; the wisdom of one period is the folly of another, but the Lord's wisdom is always wise, and his designs run on from century to century. His power to fulfil his purposes is by no means diminished by the lapse of years. He who was absolute over Pharaoh in Egypt is not one whit the less today the King of kings and Lord of lords; still do his chariot wheels roll onward in imperial grandeur, none being for a moment able to resist his eternal will.
 
 ### Verse 12
 
-> Blessed *is* the nation whose God *is* the LORD; *and* the people *whom* he hath chosen for his own inheritance.
+> Blessed *is* the nation whose God *is* the Lord; *and* the people *whom* he hath chosen for his own inheritance.
 
 *Blessed is the nation whose God is the Lord.* Israel was happy in the worship of the only true God. It was the blessedness of the chosen nation to have received a revelation from Jehovah. While others grovelled before their idols, the chosen people were elevated by a spiritual religion which introduced them to the invisible God, and led them to trust in him. All who confide in the Lord are blessed in the largest and deepest sense, and none can reverse the blessing. *And the people whom he hath chosen for his own inheritance.* Election is at the bottom of it all. The divine choice rules the day; none take Jehovah to be their God till he takes them to be his people. What an ennobling choice this is! We are selected to no mean estate, and for no ignoble purpose: we are made the peculiar domain and delight of the Lord our God. Being so blessed, let us rejoice in our portion, and show the world by our lives that we serve a glorious Master.
 
 ### Verse 13
 
-> The LORD looketh from heaven; he beholdeth all the sons of men.
+> The Lord looketh from heaven; he beholdeth all the sons of men.
 
 *The Lord looketh from heaven.* The Lord is represented as dwelling above and looking down below; seeing all things, but peculiarly observing and caring for those who trust in him. It is one of our choicest privileges to be always under our Father's eye, to be never out of sight of our best Friend. *He beholdeth all the sons of men.* All Adam's sons are as well watched as was Adam himself, their lone progenitor in the garden. Ranging from the frozen pole to the scorching equator, dwelling in hills and valleys, in huts and palaces, alike doth the divine eye regard all the members of the family of man.
 
@@ -124,7 +124,7 @@ God writes with a pen that never blots, speaks with a tongue that never slips, a
 
 ### Verse 18
 
-> Behold, the eye of the LORD *is* upon them that fear him, upon them that hope in his mercy;
+> Behold, the eye of the Lord *is* upon them that fear him, upon them that hope in his mercy;
 
 *Behold.* For this is a greater wonder than hosts and horses, a surer confidence than chariots or shields. *The eye of the Lord is upon them that fear him.* That eye of peculiar care is their glory and defence. None can take them at unawares, for the celestial watcher foresees the designs of their enemies, and provides against them. They who fear God need not fear anything else; let them fix their eye of faith on him, and his eye of love will always rest upon them. *Upon them that hope in his mercy.* This one would think to be a small evidence of grace, and yet it is a valid one. Humble hope shall have its share as well as courageous faith. Say, my soul, is not this an encouragement to thee? Dost thou not hope in the mercy of God in Christ Jesus? Then the Father's eye is as much upon thee as upon the elder born of the family. These gentle words, like soft bread, are meant for babes in grace, who need infant's food.
 
@@ -136,7 +136,7 @@ God writes with a pen that never blots, speaks with a tongue that never slips, a
 
 ### Verse 20
 
-> Our soul waiteth for the LORD: he *is* our help and our shield.
+> Our soul waiteth for the Lord: he *is* our help and our shield.
 
 *Our soul waits for the Lord.* Here the godly avow their reliance upon him whom the Psalm extols. To wait is a great lesson. To be quiet in expectation, patient in hope, single in confidence, is one of the bright attainments of a Christian. Our soul, our life, must hang upon God; we are not to trust him with a few gewgaws, but with all we have and are. *He is our help and our shield.* Our help in labour, our shield in danger. The Lord answereth all things to his people. He is their all in all. Note the three *"ours"* in the text. These holdfast words are precious. Personal possession makes the Christian man; all else is mere talk.
 
@@ -148,7 +148,7 @@ God writes with a pen that never blots, speaks with a tongue that never slips, a
 
 ### Verse 22
 
-> Let thy mercy, O LORD, be upon us, according as we hope in thee.
+> Let thy mercy, O Lord, be upon us, according as we hope in thee.
 
 Here is a large and comprehensive prayer to close with. It is an appeal for *mercy*, which even joyful believers need; and it is sought for in a proportion which the Lord has sanctioned. "According to your faith be it unto you, "is the Master's word, and he will not fall short of the scale which he has himself selected. Yet, Master, do more than this when hope is faint, and bless us far above what we ask or even think.
 
@@ -222,7 +222,7 @@ Truth, it is God! and God is everywhere!
 
 **Verse 5.** *The goodness of the Lord.* He might, if he had pleased, have made everything we tasted bitter, everything we saw loathsome, everything we touched a sting, every smell a stench, every sound a discord. *William Paley, D. D., * 1743-1805.
 
-**Verse 6.** *By the word of the Lord were the heavens made; and all the host of them by the breath of his mouth.* That the (hwd) is not *spirit, * but *breath, * is evident from the words *of his mouth* (compare Isa 11:4), and from the parallelism with *word.* Simple *word* is simple *breath;* both together, they stand in contrast to that exercise of strength, that labour, that use of means and instruments without which feeble man can bring nothing to perfection. Then there are the parallel passages, "All the while my breath is in me, and the Spirit of God is in my nostrils." Job 27:3. "The Spirit of God hath made me, and the breath of the Almighty hath given me life." Job 33:4. "Thou takest away their breath, they die, and return to their dust, thou sendest forth thy *breath, * they are created." Ps 104:29, 30. On the other hand, however, the exposition which would interpret (wyp xwr), without reference to the *Spirit of God, * cannot be a correct one. In the history of the creation, to which the verse before us, as well as verses seven and nine, generally refer, the creation is described as the work of the SPIRIT of God, and his WORD. First, the *Spirit of God* moved upon the face of the waters, then God *said.* We may also suppose that the Spirit and the power of God are here represented by the *figure* of breath, because that in man is the first sign of life. *E. W. Hengstenberg.* 
+**Verse 6.** *By the word of the Lord were the heavens made; and all the host of them by the breath of his mouth.* That the (hwd) is not *spirit, * but *breath, * is evident from the words *of his mouth* (compare Isa 11:4), and from the parallelism with *word.* Simple *word* is simple *breath;* both together, they stand in contrast to that exercise of strength, that labour, that use of means and instruments without which feeble man can bring nothing to perfection. Then there are the parallel passages, "All the while my breath is in me, and the Spirit of God is in my nostrils." Job 27:3. "The Spirit of God hath made me, and the breath of the Almighty hath given me life." Job 33:4. "Thou takest away their breath, they die, and return to their dust, thou sendest forth thy *breath, * they are created." Ps 104:29, 30. On the other hand, however, the exposition which would interpret (wyp xwr), without reference to the *Spirit of God, * cannot be a correct one. In the history of the creation, to which the verse before us, as well as verses seven and nine, generally refer, the creation is described as the work of the Spirit of God, and his Word. First, the *Spirit of God* moved upon the face of the waters, then God *said.* We may also suppose that the Spirit and the power of God are here represented by the *figure* of breath, because that in man is the first sign of life. *E. W. Hengstenberg.* 
 
 **Verse 6.** *By the word of the Lord.* May be understood of the hypostatic Word, as John teaches us. Joh 1:1. (*John Cocceius* ), 1603-1669. This is an illustration of the old saying, that while Grotius finds Christ nowhere, Cocceius finds Christ everywhere. *C. H. S.* 
 
@@ -242,7 +242,7 @@ Truth, it is God! and God is everywhere!
 
 **Verse 8.** *Let all the earth fear the Lord, * etc. Let them not fear another instead of him. Doth a wild beast rage? Fear God. Doth a serpent lie in wait? Fear God. Doth man hate thee? Fear God. Doth the devil fight against thee? Fear God. For the whole creation is under him whom thou art commanded to fear. *Augustine.* 
 
-**Verse 9.** *He spake, and it was done.* As we say in Latin, *Dictum factum, * SAID DONE, no delay having interposed. *Hugo Grotius.* 
+**Verse 9.** *He spake, and it was done.* As we say in Latin, *Dictum factum, * said done, no delay having interposed. *Hugo Grotius.* 
 
 **Verse 9.** *He spake, and it was done;* so that the creatures were not emanations from the divine nature, but effects of the divine will, the fruits of intelligence, and design, and counsel. *William Binnie, D. D.* 
 
@@ -312,7 +312,7 @@ Weak his force his lord to save.
 
 **Verse 18.** The weakest believer, the least of saints, hath ground to hope. The gospel is so ordered, the covenant so methodised, God hath made such ample provision, that every one may "have good hope through grace" 1Th 2:16; and all that bear this character are allowed, encouraged, nay, commanded to hope: their hoping is as mighty a pleasure to God, as it is a comfort to themselves. *Samuel Doolittle's* "Righteous Man's Hope in Death, "1693.
 
-**Verses 18-19.** During the siege of Rochelle, which was endured with unexampled bravery for nearly fifteenth months, the inhabitants were reduced by famine to the misery of being obliged to have recourse to the flesh of horses, asses, mules, dogs, cats, rats, and mice; and a single peck of corn is said to have been sold for a sum equivalent to about twenty-five pounds sterling of our money in the present day. There were numerous examples of great and liberal generosity among the inhabitants. Some dispensed their charity so secretly that their names were never discovered. Among the rest, the following example is narrated:—"The Sieur de la Goute, an honorary king's advocate, had a sister, the widow of a merchant named Prosni, who, being a very religious and benevolent woman, at the time when the famine became more severe than it had been, freely assisted the poor with her present surplus. Her sister-in-law, the wife of her brother, De la Goute, being differently inclined, reproved her for her conduct, asking her in anger, `What she would do when all should be expended?' Her reply was, `My sister, *the Lord will provide for me.'* The siege was continued, and the famine increased its fearful ravages; and poor widow Prosni, who had four children, found herself in a great strait—all her store of provisions being exhausted. She applied to her sister for relief, who, in the stead of comforting, reproached her for her improvidence; tauntingly adding that, as she had done mighty well to be so reduced under all her great faith and fine words, that *`the Lord will provide for her.'* so in good time he might provide for her. Wounded to the heart by these words, poor widow Prosni returned to her house in sad distress; resolving nevertheless to meet death patiently. On reaching her home, her children met her with gladdened hearts and joyous faces, and told her that a man, to them an entire stranger, had knocked at the door, it being late; and, on its being opened, he threw in a sack of about two bushels of wheat; and then, without saying a word, suddenly departed. The widow Prosni, scarcely able to believe her own eyes, with an overflowing, grateful heart towards her gracious benefactor, immediately ran to her sister-in-law as quickly as her famished condition would allow; and upon seeing her, exclaimed aloud, *`My sister, the Lord HATH provided for me; '* and, saying no more, returned home again. By means of this unexpected relief, conveyed to her so opportunely, she was enabled to support herself and family until the end of the siege, and she never knew to whom she was instrumentally indebted for this timely and merciful assistance." *The Biblical Treasury, Vol. 4* 
+**Verses 18-19.** During the siege of Rochelle, which was endured with unexampled bravery for nearly fifteenth months, the inhabitants were reduced by famine to the misery of being obliged to have recourse to the flesh of horses, asses, mules, dogs, cats, rats, and mice; and a single peck of corn is said to have been sold for a sum equivalent to about twenty-five pounds sterling of our money in the present day. There were numerous examples of great and liberal generosity among the inhabitants. Some dispensed their charity so secretly that their names were never discovered. Among the rest, the following example is narrated:—"The Sieur de la Goute, an honorary king's advocate, had a sister, the widow of a merchant named Prosni, who, being a very religious and benevolent woman, at the time when the famine became more severe than it had been, freely assisted the poor with her present surplus. Her sister-in-law, the wife of her brother, De la Goute, being differently inclined, reproved her for her conduct, asking her in anger, `What she would do when all should be expended?' Her reply was, `My sister, *the Lord will provide for me.'* The siege was continued, and the famine increased its fearful ravages; and poor widow Prosni, who had four children, found herself in a great strait—all her store of provisions being exhausted. She applied to her sister for relief, who, in the stead of comforting, reproached her for her improvidence; tauntingly adding that, as she had done mighty well to be so reduced under all her great faith and fine words, that *`the Lord will provide for her.'* so in good time he might provide for her. Wounded to the heart by these words, poor widow Prosni returned to her house in sad distress; resolving nevertheless to meet death patiently. On reaching her home, her children met her with gladdened hearts and joyous faces, and told her that a man, to them an entire stranger, had knocked at the door, it being late; and, on its being opened, he threw in a sack of about two bushels of wheat; and then, without saying a word, suddenly departed. The widow Prosni, scarcely able to believe her own eyes, with an overflowing, grateful heart towards her gracious benefactor, immediately ran to her sister-in-law as quickly as her famished condition would allow; and upon seeing her, exclaimed aloud, *`My sister, the Lord hath provided for me; '* and, saying no more, returned home again. By means of this unexpected relief, conveyed to her so opportunely, she was enabled to support herself and family until the end of the siege, and she never knew to whom she was instrumentally indebted for this timely and merciful assistance." *The Biblical Treasury, Vol. 4* 
 
 **Verse 20.** *Our soul waiteth for the Lord.* There is an emphasis on the word *soul* which should be attended to; for although this is a common mode of speech among the Hebrews, yet it expresses earnest affection; as if believers should say, We sincerely rely upon God with our whole heart, accounting him our shield and help. *John Calvin.* 
 
