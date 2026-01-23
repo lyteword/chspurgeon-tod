@@ -16,9 +16,9 @@ weight: 121
 
 ### Verse 2
 
-> My help *cometh* from the LORD, which made heaven and earth.
+> My help *cometh* from the Lord, which made heaven and earth.
 
-*My help cometh from the LORD, which made heaven and earth.* What we need is help, —help powerful, efficient, constant: we need a very present help in trouble. What a mercy that we have it in our God. Our hope is in Jehovah, for our help comes from him. Help is on the road, and will not fail to reach us in due time, for he who sends it to us was never known to be too late. Jehovah who created all things is equal to every emergency; heaven and earth are at the disposal of him who made them, therefore let us be very joyful in our infinite helper. He will sooner destroy heaven and earth than permit his people to be destroyed, and the perpetual hills themselves shall bow rather than he shall fail whose ways are everlasting. We are bound to look beyond heaven and earth to him who made them both: it is vain to trust the creatures: it is wise to trust the Creator.
+*My help cometh from the Lord, which made heaven and earth.* What we need is help, —help powerful, efficient, constant: we need a very present help in trouble. What a mercy that we have it in our God. Our hope is in Jehovah, for our help comes from him. Help is on the road, and will not fail to reach us in due time, for he who sends it to us was never known to be too late. Jehovah who created all things is equal to every emergency; heaven and earth are at the disposal of him who made them, therefore let us be very joyful in our infinite helper. He will sooner destroy heaven and earth than permit his people to be destroyed, and the perpetual hills themselves shall bow rather than he shall fail whose ways are everlasting. We are bound to look beyond heaven and earth to him who made them both: it is vain to trust the creatures: it is wise to trust the Creator.
 
 ### Verse 3
 
@@ -34,7 +34,7 @@ weight: 121
 
 ### Verse 5
 
-> The LORD *is* thy keeper: the LORD *is* thy shade upon thy right hand.
+> The Lord *is* thy keeper: the Lord *is* thy shade upon thy right hand.
 
 *The Lord is thy keeper.* Here the preserving One, who had been spoken of by pronouns in the two previous verses, is distinctly named—Jehovah is thy keeper. What a mint of meaning lies here: the sentence is a mass of bullion, and when coined and stamped with the king's name it will bear all our expenses between our birthplace on earth and our rest in heaven. Here is a glorious person—Jehovah, assuming a gracious office and fulfilling it in person, —Jehovah is thy keeper, in behalf of a favoured individual—thy, and a firm assurance of revelation that it is even so at this hour—Jehovah is thy keeper. Can we appropriate the divine declaration? If so, we may journey onward to Jerusalem and know no fear; yea, we may journey through the valley of the shadow of death and fear no evil. The Lord is thy shade upon thy right hand. A shade gives protection from burning heat and glaring light. We cannot bear too much blessing; even divine goodness, which is a right hand dispensation, must be toned down and shaded to suit our infirmity, and this the Lord will do for us. He will bear a shield before us, and guard the right arm with which we fight the foe. That member which has the most of labour shall have the most of protection. When a blazing sun pours down its burning beams upon our heads the Lord Jehovah himself will interpose to shade us, and that in the most honourable manner, acting as our right hand attendant, and placing us in comfort and safety. "The Lord at thy right hand shall smite through kings". How different this from the portion of the ungodly ones who have Satan standing at their right hand, and of those of whom Moses said, "their defence has departed from them". God is as near us as our shadow, and we are as safe as angels.
 
@@ -46,13 +46,13 @@ weight: 121
 
 ### Verse 7
 
-> The LORD shall preserve thee from all evil: he shall preserve thy soul.
+> The Lord shall preserve thee from all evil: he shall preserve thy soul.
 
 *The Lord shall preserve thee from all evil, * or keep thee from all evil. It is a great pity that our admirable translation did not keep to the word keep all through the psalm, for all along it is one. God not only keeps his own in all evil times but from all evil influences and operations, yea, from evils themselves. This is a far reaching word of covering: it includes everything and excludes nothing: the wings of Jehovah amply guard Iris own from evils great and small, temporary and eternal. There is a most delightful double personality in tiffs verse: Jehovah keeps the believer, not by agents, but by himself; and the person protected is definitely pointed out by the word thee, —it is not our estate or name which is shielded, but the proper personal man. To make this even more intensely real and personal another sentence is added, "The Lord shall preserve thee from all evil:" he shall preserve thy soul, —or Jehovah will keep thy soul. Soul keeping is the soul of keeping. If the soul be kept all is kept. The preservation of the greater includes that of the less so far as it is essential to the main design: the kernel shall be preserved, and in order thereto the shell shall be preserved also. God is the sole keeper of the soul. Our soul is kept from the dominion of sin, the infection of error, the crush of despondency, the puffing up of pride; kept from the world, the flesh, and the devil; kept for holier and greater things; kept in the love of God; kept unto the eternal kingdom and glory. What can harm a soul that is kept of the Lord?
 
 ### Verse 8
 
-> The LORD shall preserve thy going out and thy coming in from this time forth, and even for evermore.
+> The Lord shall preserve thy going out and thy coming in from this time forth, and even for evermore.
 
 *The Lord shall preserve thy going out and thy coming in from this time forth, and even for evermore.* When we go out in the morning to labour, and come home at eventide to rest, Jehovah shall keep us. When we go out in youth to begin life, and come in at the end to die, we shall experience the same keeping. Our exits and our entrances are under one protection. Three times have we the phrase, "Jehovah shall keep", as if the sacred Trinity thus sealed the word to make it sure: ought not all our fears to be slain by such a threefold flight of arrows? What anxiety can survive this triple promise? This keeping is eternal; continuing from this time forth, even for evermore. The whole church is thus assured of everlasting security: the final perseverance of the saints is thus ensured, and the glorious immortality of believers is guaranteed. Under the aegis of such a promise we may go on pilgrimage without trembling, and venture into battle without dread. None are so safe as those whom God keeps; none so much in danger as the self secure. To goings out and comings in belong peculiar dangers since every change of position turns a fresh quarter to the foe, and it is for these weak points that an especial security is provided: Jehovah will keep the door when it opens and closes, and this he will perseveringly continue to do so long as there is left a single man that trusteth in him, as long as a danger survives, and, in fact, as long as time endures. Glory be unto the Keeper of Israel, who is endeared to us under that title, since our growing sense of weakness makes us feel more deeply than ever our need of being kept. Over the reader we would breathe a benediction, couched in the verse of Keble.
 
@@ -412,9 +412,9 @@ That rheumatic diseases do abound.
 
 ## Works Upon The Hundred And Twenty-First Psalm
 
-In "Letters on Spiritual Subjects&mdash;" by SAMUEL EYLES PIERCE&mdash; London: 1862, Vol. I., pp. 359-370, there are "Some Observations on the Hundred and Twenty first Psalm."
+In "Letters on Spiritual Subjects&mdash;" by Samuel Eyles Pierce&mdash; London: 1862, Vol. I., pp. 359-370, there are "Some Observations on the Hundred and Twenty first Psalm."
 
-In "Meditations on Twenty select Psalms, " by Sir ANTHONY COPE, Chamberlain to Queen Katherine Parr. Reprinted from the edition of 1547;&mdash; By WILLIAM H. COPE, M. A. 1848, there is a Meditation on this psalm.
+In "Meditations on Twenty select Psalms, " by Sir Anthony Cope, Chamberlain to Queen Katherine Parr. Reprinted from the edition of 1547;&mdash; By William H. Cope, M. A. 1848, there is a Meditation on this psalm.
 
 See also List of Works upon the Gradual Psalms, in notes on.
 

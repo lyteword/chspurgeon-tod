@@ -26,13 +26,13 @@ Still, it is helpful to the heart to use the tongue, and we do well to address o
 
 ### Verse 2
 
-> Behold, as the eyes of servants *look* unto the hand of their masters, *and* as the eyes of a maiden unto the hand of her mistress; so our eyes *wait* upon the LORD our God, until that he have mercy upon us.
+> Behold, as the eyes of servants *look* unto the hand of their masters, *and* as the eyes of a maiden unto the hand of her mistress; so our eyes *wait* upon the Lord our God, until that he have mercy upon us.
 
 *Behold* —for it is worthy of regard among men, and O that the Majesty of heaven would also note it, and speedily send the mercy which our waiting spirits seek. See, O Lord, how we look to thee, and in thy mercy look on us. This Behold has, however, a call to us to observe and consider. Whenever saints of God have waited upon the Lord their example has been worthy of earnest consideration. Sanctification is a miracle of grace; therefore let us behold it. For God to have wrought in men the spirit of service is a great marvel, and as such let all men turn aside and see this great sight. "As the eyes of servants (or slaves) look unto the hand of their masters." They stand at the end of the room with their hands folded watching their lord's movements. Orientals speak less than we do, and prefer to direct their slaves by movements of their hands: hence, the domestic must fix his eyes on his master, or he might miss a sign, and so fail to obey it: even so, the sanctified man lifts his eyes unto God, and endeavours to learn the divine will from every one of the signs which the Lord is pleased to use. Creation, providence, grace; these are all motions of Jehovah's hand, and from each of them a portion of our duty is to be learned; therefore should we carefully study them, to discover the divine will. "And as the eyes of a maiden unto the hand of her mistress, "this second comparison may be used because Eastern women are even more thorough than the men in the training of their servants. It is usually thought that women issue more commands, and are more sensitive of disobedience, than the sterner sex. Among the Roman matrons female slaves had a sorry time of it, and no doubt it was the same among the generality of Eastern ladies. "Even so our eyes wait upon the Lord our God." Believers desire to be attentive to each and all of the directions of the Lord; even those which concern apparently little things are not little to us, for we know that even for idle words we shall be called to account, and we are anxious to give in that account with joy, and not with grief. True saints, like obedient servants, look to the Lord their God reverentially: they have a holy awe and inward fear of the great and glorious One. They watch, obediently, doing his commandments, guided by his eye. Their constant gaze is fixed attentively on all that comes from the Most High; they give earnest heed, and fear lest they should let anything slip through inadvertence or drowsiness. They look continuously, for there never is a time when they are off duty; at all times they delight to serve in all things: Upon the Lord they fix their eyes expectantly, looking for supply, succour, and safety from his hands, waiting that he may have mercy upon them. To him they look singly, they have no other confidence, and they learn to look submissively, waiting patiently for the Lord, seeking both in activity and suffering to glorify his name. When they are smitten with the rod they turn their eyes imploringly to the hand which chastens, hoping that mercy will soon abate the rigour of the affliction. There is much more in the figure than we can display in this brief comment; perhaps it will be most profitable to suggest the question.—Are we thus trained to service? Though we are sons, have we learned the full obedience of servants? Have we surrendered self, and bowed our will before the heavenly Majesty? Do we desire in all things to be at the Lord's disposal? If so, happy are we. Though we are made joint heirs with Christ, yet for the present we differ little from servants, and may be well content to take them for our model.
 
 ### Verse 3
 
-> Have mercy upon us, O LORD, have mercy upon us: for we are exceedingly filled with contempt.
+> Have mercy upon us, O Lord, have mercy upon us: for we are exceedingly filled with contempt.
 
 *Have mercy upon us, O Lord, have mercy upon us.* He hangs upon the word "mercy, "and embodies it in a vehement prayer: the very word seems to hold him, and he harps upon it. It is well for us to pray about everything, and turn everything into prayer; and especially when we are reminded of a great necessity we should catch at it as a keynote, and pitch our tune to it. The reduplication of the prayer before us is meant to express the eagerness of the Psalmist's spirit and his urgent need: what he needed speedily he begs for importunately. Note that he has left the first person singular for the plural. All the saints need mercy; they all seek it; they shall all have it, therefore we pray—"have mercy upon us". A slave when corrected looks to his master's hand that the punishment may cease, and even so we look to the Lord for mercy, and entreat for it with all our hearts. Our contemptuous opponents will have no mercy upon us; let us not ask it at their hands, but turn to the God of mercy, and seek his aid alone. "For we are exceedingly filled with contempt, "and this is an acid which eats into the soul. Observe the emphatic words. Contempt is bitterness, wormwood mingled with gall; he that feels it may well cry for mercy to his God. Filled with contempt, as if the bitter wine had been poured in till it was up to the brim. This had become the chief thought of their minds, the peculiar sorrow of their hearts. Excluding all other feelings, a sense of scorn monopolized the soul and made it unutterably wretched. Another word is added adverbially—exceedingly filled. Filled even to running over, as if pressed down and then heaped up. A little contempt they could bear, but now they were satiated with it, and weary of it. Do we wonder at the threefold mention of mercy when this master evil was in the ascendant? Nothing is more wounding, embittering, festering than disdain. When our companions make little of us we are far too apt to make little of ourselves and of the consolations prepared for us. Oh to be filled with communion, and then contempt will run off from us, and never be able to fill us with its biting vinegar.
 
@@ -126,7 +126,7 @@ Observe the covenant name, "Jehovah our God": it is sweet to wait upon a covenan
 
 **Whole Psalm.** Eyes and no eyes.
 
-1\. EYES.
+1\. Eyes.
 
 (a) Upward, in confidence, in prayer, in thought.
 
@@ -134,9 +134,9 @@ Observe the covenant name, "Jehovah our God": it is sweet to wait upon a covenan
 
 (c) Inward, producing a cry for mercy.
 
-2\. No EYES.
+2\. No Eyes.
 
-(a) NO sight of the excellence of the godly.
+(a) No sight of the excellence of the godly.
 
 (b) No sense of their own danger: "at ease."
 

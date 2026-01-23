@@ -12,13 +12,13 @@ weight: 124
 
 ### Verse 1
 
-> If *it had not been* the LORD who was on our side, now may Israel say;
+> If *it had not been* the Lord who was on our side, now may Israel say;
 
 *If it had not been the Lord who was on our side, now may Israel say.* The opening sentence is abrupt, and remains a fragment. By such a commencement attention was aroused as well as feeling expressed: and this is ever the way of poetic fire—to break forth in uncontrollable flame. The many words in italics in our authorized version will show the reader that the translators did their best to patch up the passage, which, perhaps, had better have been left in its broken grandeur, and it would then have run thus:—"Had it not been Jehovah! He was for us, oh let Israel say! Had it not been Jehovah! He who was for us when men rose against us." The glorious Lord became our ally; he took our part, and entered into treaty with us. If Jehovah were not our protector where should we be Nothing but his power and wisdom could have guarded us from the cunning and malice of our adversaries; therefore, let all his people say so, and openly give him the honour of his preserving goodness. Here are two "ifs, "and yet there is no "if" in the matter. The Lord was on our side, and is still our defender, and will be so from henceforth, even for ever. Let us with holy confidence exult in this joyful fact: We are far too slow in declaring our gratitude, hence the exclamation which should be rendered, "O let Israel say." We murmur without being stirred up to it, but our thanksgiving needs a spur, and it is well when some warm hearted friend bids us say what we feel. Imagine what would have happened if the Lord had left us, and then see what has happened because he has been faithful to us. Are not all the materials of a song spread before us? Let us sing unto the Lord.
 
 ### Verse 2
 
-> If *it had not been* the LORD who was on our side, when men rose up against us:
+> If *it had not been* the Lord who was on our side, when men rose up against us:
 
 *If it had not been the Lord who was on our side, when men rose up against us.* When all men combined, and the whole race of men seemed set upon stamping out the house of Israel, what must have happened if the covenant Lord had not interposed? When they stirred themselves, and combined to make an assault upon our quietude and safety, what should we have done in their rising if the Lord had not also risen? No one who could or would help was near, but the bare arm of the Lord sufficed to preserve his own against all the leagued hosts of adversaries. There is no doubt as to our deliverer, we cannot ascribe our salvation to any second cause, for it would not have been equal to the emergency; nothing less than omnipotence and omniscience could have wrought our rescue. We set every other claimant on one side, and rejoice because the Lord was on our side.
 
@@ -42,7 +42,7 @@ weight: 124
 
 ### Verse 6
 
-> Blessed *be* the LORD, who hath not given us *as* a prey to their teeth.
+> Blessed *be* the Lord, who hath not given us *as* a prey to their teeth.
 
 Blessed be the Lord, who hath not given us as a prey to *their teeth.* Leaving the metaphor of a boiling flood, he compares the adversaries of Israel to wild beasts who desired to make the godly their prey. Their teeth are prepared to tear, and they regard the godly as their victims. The Lord is heartily praised for not permitting his servants to be devoured when they were between the jaws of the raging ones. It implies that none can harm us till the Lord permits: we cannot be their prey unless the Lord gives us up to them, and that our loving Lord will never do. Hitherto he has refused permission to any foe to destroy us, blessed be his name. The more imminent the danger the more eminent the mercy which would not permit the soul to perish in it. God be blessed for ever for keeping us from the curse. Jehovah be praised for checking the fury of the foe, and saving his own. The verse reads like a merely negative blessing, but no boon can be more positively precious. He has given us to his Son Jesus, and he will never give us to our enemies.
 
@@ -56,7 +56,7 @@ The snare is broken, and we are escaped. The song is worth repeating; it is well
 
 ### Verse 8
 
-> Our help *is* in the name of the LORD, who made heaven and earth.
+> Our help *is* in the name of the Lord, who made heaven and earth.
 
 *Our help, * our hope for the future, our ground of confidence in all trials present and to come. Is in the name of the Lord. Jehovah's revealed character is our foundation of confidence, his person is our sure fountain of strength. Who made heaven and earth. Our Creator is our preserver. He is immensely great in his creating work; he has not fashioned a few little things alone, but all heaven and the whole round earth are the works of his hands. When we worship the Creator let us increase our trust in our Comforter. Did he create all that we see, and can he not preserve us from evils which we cannot see Blessed be his name, he that has fashioned us will watch over us; yea, he has done so, and rendered us help in the moment of jeopardy. He is our help and our shield, even he alone. He will to the end break every snare. He made heaven for us, and he will keep us for heaven; he made the earth, and he will succour us ripen it until the hour cometh for our departure. Every work of his hand preaches to us the duty and the delight of reposing upon him only. All nature cries, "Trust ye in the Lord for ever, for in the Lord Jehovah there is everlasting strength." "Wherefore comfort one another with these words." The following versification of the sense rather than the words of this psalm is presented to the reader with much diffidence:
 
@@ -124,7 +124,7 @@ To him that made both heaven and earth.
 
 **Verses 1, 2, 8.** These three things will I bear on my heart, O Lord: "The Lord was on our side, "this for the past: "The snare is broken, " for the present; "Our help is in the name of the Lord, "this for the future. I will not and I cannot be fainthearted, whether in my contest with Satan, in my intercourse with the world, or in the upheavings of my wicked heart, so long as I hold this "threefold cord" in my hand, or rather, am held by it.— *Alfred Edersheim.* 
 
-**Verse 2.** *If it had not been the LORD*, etc. This repetition is not in vain. For whilst we are in danger, our fear is without measure; but when it is once past, we imagine it to have been less than it was indeed. And this is the delusion of Satan to diminish and obscure the grace of God. David therefore with this repetition stirreth up the people to more thankfulness unto God for his gracious deliverance, and amplifies the dangers which they had passed. Whereby we are taught how to think of our troubles and afflictions past, lest the sense and feeling of God's grace vanish out of our minds.— *Martin Luther.* 
+**Verse 2.** *If it had not been the Lord*, etc. This repetition is not in vain. For whilst we are in danger, our fear is without measure; but when it is once past, we imagine it to have been less than it was indeed. And this is the delusion of Satan to diminish and obscure the grace of God. David therefore with this repetition stirreth up the people to more thankfulness unto God for his gracious deliverance, and amplifies the dangers which they had passed. Whereby we are taught how to think of our troubles and afflictions past, lest the sense and feeling of God's grace vanish out of our minds.— *Martin Luther.* 
 
 **Verse 2.** *Men rose up against us.* It may seem strange that these wicked and wretched enemies, monsters rather than men, should be thus moderately spoken of, and have no other name than this of men given them, which of all others they least deserved, as having in them nothing of man but outward show and shape, being rather beasts, yea, devils in the form and fashion of men, than right men. But hereby the church would show that she did leave the further censuring of them unto God their righteous Judge; and would also further amplify their wickedness, who being men, did yet in their desires and dispositions bewray a more than beastly immanity and inhumanity.— *Daniel Dyke* (—1614?) in *"Comfortable Sermons upon the 124th Psalme, "* 1617.
 
@@ -204,7 +204,7 @@ To bark or bite without thee?"
 
 **Verse 7.** *The snare is broken, and we are escaped.* Our life lieth open always to the snares of Satan, and we as silly birds are like at every moment to be carried away, notwithstanding the Lord maketh a way for us to escape; yea, when Satan seemeth to be most sure of us, by the mighty power of God the snares are broken and we are delivered. Experience we have hereof in those who are inwardly afflicted and with heaviness of spirit grievously oppressed, that when they seem to be in utter despair, and ready now, as you would say, to perish, yet even at the last pinch, and in the uttermost extremity cometh the sweet comfort of God's Holy Spirit and raiseth them up again. When we are most ready to perish, then is God most ready to help. "Except the Lord had holpen me, "saith David, "my soul had almost dwelt in silence." And this again do we mark for the comfort of the weak conscience. It is Satan's subtlety whereby commonly he disquiets many, that because carnal corruption is in them he would therefore bear them in hand that they are none of Christ's. In this he plays the deceiver; he tries us by the wrong rule of perfect sanctification; this is the square that ought to be laid to Christ's members triumphant in heaven, and not to those who are militant on earth. Sin remaining in me will not prove that therefore I am not in Christ, otherwise Christ should have no members upon earth; but grace working that new disposition which nature could never effect proves undoubtedly that we are in Christ Jesus.— *Thomas Stint.* 
 
-**Verse 8.** *Our help is in the name of the LORD, who made heaven and earth.* He hath made the earth where the snare lies, so that he can rightfully destroy the snare as laid unlawfully in his domain; he hath made the heaven, the true sphere of the soaring wings of those souls which he has delivered, so that they may fly upwards from their late prison, rejoicing. He came down to earth himself, the Lord Jesus in whose name is our help, that lie might break the snare; be returned to heaven, that we might fly "as the doves to their windows" (Isa 60:8), following where lie showed the way.— *Richard Rolle*, of Hampole (1340), in *"Neale and Littledale."* 
+**Verse 8.** *Our help is in the name of the Lord, who made heaven and earth.* He hath made the earth where the snare lies, so that he can rightfully destroy the snare as laid unlawfully in his domain; he hath made the heaven, the true sphere of the soaring wings of those souls which he has delivered, so that they may fly upwards from their late prison, rejoicing. He came down to earth himself, the Lord Jesus in whose name is our help, that lie might break the snare; be returned to heaven, that we might fly "as the doves to their windows" (Isa 60:8), following where lie showed the way.— *Richard Rolle*, of Hampole (1340), in *"Neale and Littledale."* 
 
 **Verse 8.** *Our help is in the name of the Lord.* The fairest fruits of our by past experience is to glorify God by confidence in him for time to come, as here.— *David Dickson.* 
 
@@ -218,7 +218,7 @@ To bark or bite without thee?"
 
 ## Hints to the Village Preacher
 
-**Verse 1.** *The LORD who was on our side.* Who is he? Why on our side? How does he prove it? What are we bound to do?
+**Verse 1.** *The Lord who was on our side.* Who is he? Why on our side? How does he prove it? What are we bound to do?
 
 **Verses 1-3**. Regard the text,
 
