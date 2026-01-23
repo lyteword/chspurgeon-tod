@@ -4,15 +4,15 @@ weight: 150
 
 # Psalm 150
 
-*We have now reached the last summit of the mountain chain of Psalms. It rises high into the clear azure, and its brow is bathed in the sunlight of the eternal world of worship, it is a rapture. The poet prophet is full of inspiration and enthusiasm. He slays not to argue, to teach, to explain; but cries with burning words, "Praise him, Praise him, Praise ye the LORD."*
+*We have now reached the last summit of the mountain chain of Psalms. It rises high into the clear azure, and its brow is bathed in the sunlight of the eternal world of worship, it is a rapture. The poet prophet is full of inspiration and enthusiasm. He slays not to argue, to teach, to explain; but cries with burning words, "Praise him, Praise him, Praise ye the Lord."*
 
 ## Exposition
 
 ### Verse 1
 
-> Praise ye the LORD. Praise God in his sanctuary: praise him in the firmament of his power.
+> Praise ye the Lord. Praise God in his sanctuary: praise him in the firmament of his power.
 
-*Praise ye the LORD.* Hallelujah! The exhortation is to all things in earth or in heaven. Should they not all declare the glory of him for whose glory they are, and were created? Jehovah, the one God, should be the one object of adoration. To give the least particle of his honour to another is shameful treason; to refuse to render it to him is heartless robbery. Praise God in his sanctuary. Praise El, or the strong one, in his holy place. See how power is mentioned with holiness in this change of names. Praise begins at home. "In God's own house pronounce his praise." The holy place should be filled with praise, even as of old the high priest filled the *sanctum sanctorum* with the smoke of sweet smelling incense. In his church below and in his courts above hallelujahs should be continually presented. In the person of Jesus God finds a holy dwelling or sanctuary, and there he is greatly to be praised. He may also be said to dwell in holiness, for all his ways are right and good; for this we ought to extol him with heart and with voice. Whenever we assemble for holy purposes our main work should be to present praises unto the Lord our God. Praise him in the firmament of his power. It is a blessed thing that in our God holiness and power are united. Power without righteousness would be oppression, and righteousness without power would be too weak for usefulness; but put the two together in an infinite degree and we have God. What an expanse we have in the boundless firmament of divine power! Let it all be filled with praise. Let the heavens, so great and strong, echo with the praise of the thrice holy Jehovah, while the sanctuaries of earth magnify the Almighty One.
+*Praise ye the Lord.* Hallelujah! The exhortation is to all things in earth or in heaven. Should they not all declare the glory of him for whose glory they are, and were created? Jehovah, the one God, should be the one object of adoration. To give the least particle of his honour to another is shameful treason; to refuse to render it to him is heartless robbery. Praise God in his sanctuary. Praise El, or the strong one, in his holy place. See how power is mentioned with holiness in this change of names. Praise begins at home. "In God's own house pronounce his praise." The holy place should be filled with praise, even as of old the high priest filled the *sanctum sanctorum* with the smoke of sweet smelling incense. In his church below and in his courts above hallelujahs should be continually presented. In the person of Jesus God finds a holy dwelling or sanctuary, and there he is greatly to be praised. He may also be said to dwell in holiness, for all his ways are right and good; for this we ought to extol him with heart and with voice. Whenever we assemble for holy purposes our main work should be to present praises unto the Lord our God. Praise him in the firmament of his power. It is a blessed thing that in our God holiness and power are united. Power without righteousness would be oppression, and righteousness without power would be too weak for usefulness; but put the two together in an infinite degree and we have God. What an expanse we have in the boundless firmament of divine power! Let it all be filled with praise. Let the heavens, so great and strong, echo with the praise of the thrice holy Jehovah, while the sanctuaries of earth magnify the Almighty One.
 
 ### Verse 2
 
@@ -46,9 +46,9 @@ There is enough in our holy faith to create and to justify the utmost degree of 
 
 ### Verse 6
 
-> Let every thing that hath breath praise the LORD. Praise ye the LORD.
+> Let every thing that hath breath praise the Lord. Praise ye the Lord.
 
-*Let everything that hath breath praise the Lord.* "Let all breath praise him": that is to say, all living beings. He gave them breath, let them breathe his praise. His name is in the Hebrew composed rather of breathings than of letters, to show that all breath comes from him: therefore let it be used for him. Join all ye living things in the eternal song. Be ye least or greatest, withhold not your praises. What a day will it be when all things in all places unite to glorify the one only living and true God! This will be the final triumph of the church of God. Praise ye the LORD. Once more, Hallelujah! Thus is the Psalm rounded with the note of praise; and thus is the Book of Psalms ended by a glowing word of adoration. Reader, wilt not thou at this moment pause a while, and worship the Lord thy God? Hallelujah!
+*Let everything that hath breath praise the Lord.* "Let all breath praise him": that is to say, all living beings. He gave them breath, let them breathe his praise. His name is in the Hebrew composed rather of breathings than of letters, to show that all breath comes from him: therefore let it be used for him. Join all ye living things in the eternal song. Be ye least or greatest, withhold not your praises. What a day will it be when all things in all places unite to glorify the one only living and true God! This will be the final triumph of the church of God. Praise ye the Lord. Once more, Hallelujah! Thus is the Psalm rounded with the note of praise; and thus is the Book of Psalms ended by a glowing word of adoration. Reader, wilt not thou at this moment pause a while, and worship the Lord thy God? Hallelujah!
 
 ## Explanatory Notes & Quaint Sayings
 
@@ -106,7 +106,7 @@ There is enough in our holy faith to create and to justify the utmost degree of 
 
 **Verse 6.** *Praise ye the Lord.* As the life of the faithful, and the history of the church, so also the Psalter, with all its cries from the depths, runs out into a Hallelujah.— *E. W. Hengstenberg.* 
 
-**Verse 6.** *Praise ye the LORD.* When we have said all we are able to say for God's praise, we are but to begin anew; for this are we taught by the renewing of the exhortation, in the close of sundry Psalms, and here also at the end of all the Psalms: *"Praise ye the LORD."* — *David Dickson.* 
+**Verse 6.** *Praise ye the Lord.* When we have said all we are able to say for God's praise, we are but to begin anew; for this are we taught by the renewing of the exhortation, in the close of sundry Psalms, and here also at the end of all the Psalms: *"Praise ye the Lord."* — *David Dickson.* 
 
 **Verse 6.** *Let all breath praise Jah! Hallelujah.* The very ambiguity of *"all breath"* gives extraordinary richness of meaning to this closing sentence. From the simple idea of wind instruments, mentioned in the context, it leads us, by a beautiful transition, to that of vocal, articulate, intelligent praise, uttered by the breath of living men, as distinguished from mere lifeless instruments. Then, lastly, by a natural association, we ascend to the idea expressed in the common version, *"everything that hath breath", * not merely all that lives, but all that has a voice to praise God. There is nothing in the Psalter more majestic or more beautiful than this brief but most significant *finale, * in which solemnity of tone predominates, without however in the least disturbing the exhilaration which the close of the Psalter seems intended to produce; as if in emblematical allusion to the triumph which awaits the church and all its members, when through much tribulation they shall enter into rest.— *Joseph Addison Alexander.* 
 
@@ -200,5 +200,5 @@ c) All human ability cannot place a worthy offering at his feet.
 
 3\. As an exhortation, it is plain, pertinent, pure in its piety, perfect in its charity.— *J. F.* 
 
- *HALLELUJAH!* 
+*Hallelujah!* 
 
