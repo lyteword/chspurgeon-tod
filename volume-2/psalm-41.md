@@ -14,7 +14,7 @@ weight: 41
 
 ### Verse 1
 
-> Blessed *is* he that considereth the poor: the LORD will deliver him in time of trouble.
+> Blessed *is* he that considereth the poor: the Lord will deliver him in time of trouble.
 
 *Blessed is he that considereth the poor.* This is the third Psalm opening with a benediction, and there is a growth in it beyond the first two. To search the word of God comes first, pardoned sin is second, and now the forgiven sinner brings forth fruit unto God available for the good of others. The word used is as emphatic as in the former cases, and so is the blessing which follows it. The poor intended, are such as are poor in substance, weak in bodily strength, despised in repute, and desponding in spirit. These are mostly avoided and frequently scorned. The worldly proverb bequeaths the hindmost to one who has no mercy. The sick and the sorry are poor company, and the world deserts them as the Amalekite left his dying servant. Such as have been made partakers of divine grace receive a tenderer nature, and are not hardened against their own flesh and blood; they undertake the cause of the downtrodden, and turn their minds seriously to the promotion of their welfare. They do not toss them a penny and go on their way, but enquire into their sorrows, sift out their cause, study the best ways for their relief, and practically come to their rescue: such as these have the mark of the divine favour plainly upon them, and are as surely the sheep of the Lord's pasture as if they wore a brand upon their foreheads. They are not said to have considered the poor years ago, but they still do so. Stale benevolence, when boasted of, argues present churlishness. First and foremost, yea, far above all others put together in tender compassion for the needy is our Lord Jesus, who so remembered our low estate, that though he was rich, for our sakes he became poor. All his attributes were charged with the task of our uplifting. He weighed our case and came in the fulness of wisdom to execute the wonderful work of mercy by which we are redeemed from our destructions. Wretchedness excited his pity, misery moved his mercy, and thrice blessed is he both by his God and his saints for his attentive care and wise action towards us. He still considereth us; his mercy is always in the present tense, and so let our praises be.
 
@@ -22,7 +22,7 @@ The Lord will deliver him in time of trouble. The compassionate lover of the poo
 
 ### Verse 2
 
-> The LORD will preserve him, and keep him alive; *and* he shall be blessed upon the earth: and thou wilt not deliver him unto the will of his enemies.
+> The Lord will preserve him, and keep him alive; *and* he shall be blessed upon the earth: and thou wilt not deliver him unto the will of his enemies.
 
 *The Lord will preserve him, and keep him alive.* His noblest life shall be immortal, and even his mortal life shall be sacredly guarded by the power of Jehovah. Jesus lived on till his hour came, nor could the devices of crafty Herod take away his life till the destined hour had struck; and even then no man took his life from him, but he laid it down of himself, to take it again. Here is the portion of all those who are made like their Lord, they bless and they shall be blessed, they preserve and shall be preserved, they watch over the lives of others and they themselves shall be precious in the sight of the Lord. The miser like the hog is of no use till he is dead—then let him die; the righteous like the ox is of service during life—then let him live. *And he shall be blessed upon the earth.* Prosperity shall attend him. His cruse of oil shall not be dried up because he fed the poor prophet. He shall cut from his roll of cloth and find it longer at both ends.
 
@@ -34,7 +34,7 @@ If temporal gains be not given him, spirituals shall be doubled to him. His litt
 
 ### Verse 3
 
-> The LORD will strengthen him upon the bed of languishing: thou wilt make all his bed in his sickness.
+> The Lord will strengthen him upon the bed of languishing: thou wilt make all his bed in his sickness.
 
 *The Lord will strengthen him upon the bed of languishing.* The everlasting arms shall stay up his soul as friendly hands and downy pillows stay up the body of the sick. How tender and sympathising is this image; how near it brings our God to our infirmities and sicknesses! Whoever heard this of the old heathen Jove, or of the gods of India or China? This is language peculiar to the God of Israel; he it is who deigns to become nurse and attendant upon good men. If he smites with one hand he sustains with the other. Oh, it is blessed fainting when one falls upon the Lord's own bosom, and is borne up thereby! Grace is the best of restoratives; divine love is the noblest stimulant for a languishing patient; it makes the soul strong as a giant, even when the aching bones are breaking through the skin. No physician like the Lord, no tonic like his promise, no wine like his love. *Thou wilt make all his bed in his sickness.* What, doth the Lord turn bed maker to his sick children? Herein is love indeed. Who would not consider the poor if such be the promised reward? A bed soon grows hard when the body is weary with tossing to and fro upon it, but grace gives patience, and God's smile gives peace, and the bed is made soft because the man's heart is content; the pillows are downy because the head is peaceful. Note that the Lord will make *all* his bed, from head to foot. What considerate and indefatigable kindness! Our dear and ever blessed Lord Jesus, though in all respects an inheritor of this promise, for our sakes condescended to forego the blessing, and died on a cross and not upon a bed; yet, even there, he was after awhile upheld and cheered by the Lord his God, so that he died in triumph.
 
@@ -46,7 +46,7 @@ Here we have a controversy between the pleader and his God. He has been a tender
 
 ### Verse 4
 
-> I said, LORD, be merciful unto me: heal my soul; for I have sinned against thee.
+> I said, Lord, be merciful unto me: heal my soul; for I have sinned against thee.
 
 *I said* —said it in earnest prayer— *Lord, be merciful unto me*. Prove now thy gracious dealings with my soul in adversity, since thou didst aforetime give me grace to act liberally in my prosperity. No appeal is made to justice; the petitioner but hints at the promised reward, but goes straightforward to lay his plea at the feet of mercy. How low was our Redeemer brought when such petitions could come from his reverend mouth, when his lips like lilies dropped such sweet smelling but bitter myrrh! *Heal my soul.* My time of languishing is come, now do as thou hast said, and strengthen me, especially in my soul. We ought to be far more earnest for the soul's healing than for the body's ease. We hear much of the cure of souls, but we often forget to care about it. *For I have sinned against thee.* Here was the root of sorrow. Sin and suffering are inevitable companions. Observe that by the psalmist sin was felt to be mainly evil because directed against God. This is of the essence of true repentance. The immaculate Saviour could never have used such language as this unless there be here a reference to the sin which he took upon himself by imputation; and for our part we tremble to apply words so manifestly indicating personal rather than imputed sin. Applying the petition to David and other sinful believers, how strangely evangelical is the argument: heal me, not for I am innocent, but *I have sinned*. How contrary is this to all self righteous pleading! How consonant with grace! How inconsistent with merit! Even the fact that the confessing penitent had remembered the poor, is but obliquely urged, but a direct appeal is made to mercy on the ground of great sin. O trembling reader, here is a divinely revealed precedent for thee, be not slow to follow it.
 
@@ -82,7 +82,7 @@ Here we have a controversy between the pleader and his God. He has been a tender
 
 ### Verse 10
 
-> But thou, O LORD, be merciful unto me, and raise me up, that I may requite them.
+> But thou, O Lord, be merciful unto me, and raise me up, that I may requite them.
 
 *But thou, O Lord, be merciful unto me.* How the hunted and affrighted soul turns to her God! How she seems to take breath with a "but, thou!" How she clings to the hope of mercy from God when every chance of pity from man is gone! *And raise me up.* Recover me from my sickness, give me to regain my position. Jesus was raised up from the grave; his descent was ended by an ascent. *That I may requite them.* This as it reads is a truly Old Testament sentence, and quite aside from the spirit of Christianity, yet we must remember that David was a person in magisterial office, and might without any personal revenge, desire to punish those who had insulted his authority and libelled his public character. Our great Apostle and High Priest had no personal animosities, but even he by his resurrection has requited the powers of evil, and avenged on death and hell all their base attacks upon his cause and person. Still the strained application of every sentence of this Psalm to Christ is not to our liking, and we prefer to call attention to the better spirit of the gospel beyond that of the old dispensation.
 
@@ -104,7 +104,7 @@ Though death and hell obstruct the way, "
 
 ### Verse 13
 
-> Blessed *be* the LORD God of Israel from everlasting, and to everlasting. Amen, and Amen.
+> Blessed *be* the Lord God of Israel from everlasting, and to everlasting. Amen, and Amen.
 
 The Psalm ends with a doxology. *Blessed be the Lord, * i.e., let him be glorified. The blessing at the beginning from the mouth of God is returned from the mouth of his servant. We cannot add to the Lord's blessedness, but we can pour out our grateful wishes, and these he accepts, as we receive little presents of flowers from children who love us. Jehovah is the personal name of our God. *God of Israel* is his covenant title, and shows his special relation to his elect people. *From everlasting and to everlasting*. The strongest way of expressing endless duration. *We* die, but the glory of God goes on and on without pause. *Amen and amen.* So let it surely, firmly, and eternally be. Thus the people joined in the Psalm by a double shout of holy affirmation; let us unite in it with all out hearts. This last verse may serve for the prayer of the universal church in all ages, but none can sing it so sweetly as those who have experienced as David did the faithfulness of God in times of extremity.
 
@@ -324,7 +324,7 @@ God presented Israel with the Law, a Pentateuch, and grateful Israel responded w
 
 ## Works Upon The Forty-First Psalm
 
-"David's Evidence; or, the Assurance of God's Love: declared in seven Sermons upon the three last verses of the Forty-first Psalme. By WILLIAM BURTON. Minister of the Word at Reading in Berkshire&mdash;1602." 4to.
+"David's Evidence; or, the Assurance of God's Love: declared in seven Sermons upon the three last verses of the Forty-first Psalme. By William Burton. Minister of the Word at Reading in Berkshire&mdash;1602." 4to.
 
 The ancient Rabbins saw in the Five Books of the Psalter the image of the Five Books of the Law. This way of looking at the Psalms as a second Pentateuch, the echo of the first, passed over into the Christian church, and found favour with some early fathers. It has commended itself to the acceptance of good recent expositors, like Dr. Delitzsch, who calls the Psalter "the congregation's five fold word to the Lord, even as the *Thora* (the Law) is the Lord's five fold word to the Congregation." This mat be mere fancy, but its existence from ancient times shows that the five fold division attracted early notice. *William Binnie, D. D.* 
 
