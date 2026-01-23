@@ -26,19 +26,19 @@ The Psalm opens with the first precept. It is alas! too common for believers in 
 
 ### Verse 3
 
-> Trust in the LORD, and do good; *so* shalt thou dwell in the land, and verily thou shalt be fed.
+> Trust in the Lord, and do good; *so* shalt thou dwell in the land, and verily thou shalt be fed.
 
 *Trust in the Lord.* Here is the second precept, and one appropriate to the occasion. Faith cures fretting. Sight is cross-eyed, and views things only as they seem, hence her envy: faith has clearer optics to behold things as they really are, hence her peace. *And do good.* True faith is actively obedient. Doing good is a fine remedy for fretting. There is a joy in holy activity which drives away the rust of discontent. *So shalt thou dwell in the land.* In "the land" which floweth with milk and honey; the Canaan of the covenant. Thou shalt not wander in the wilderness of murmuring, but abide in the promised land of content and rest. "We which have believed do enter into rest." Very much of our outward depends upon the inward: where there is heaven in the heart there will be heaven in the house. *And verily thou shalt be fed, * or *shepherded.* To integrity and faith necessaries are guaranteed. The good shepherd will exercise his pastoral care over all believers. In truth they shall be fed, and fed on truth. The promise of God shall be their perpetual banquet; they shall neither lack in spirituals nor in temporals. Some read this as an exhortation, *"Feed on truth; "* certainly this is good cheer, and banishes for ever the hungry heart burnings of envy.
 
 ### Verse 4
 
-> Delight thyself also in the LORD; and he shall give thee the desires of thine heart.
+> Delight thyself also in the Lord; and he shall give thee the desires of thine heart.
 
 There is an ascent in this third precept. He who was first bidden not to fret, was then commanded actively to trust, and now is told with holy desire to delight in God. *Delight thyself also in the Lord.* Make Jehovah the joy and rejoicing of thy spirit. Bad men delight in carnal objects; do not envy them if they are allowed to take their fill in such vain idols; look thou to thy better delight, and fill thyself to the full with thy more sublime portion. In a certain sense imitate the wicked; they delight in their portion—take care to delight in yours, and so far from envying you will pity them. There is no room for fretting if we remember that God is ours, but there is every incentive to sacred enjoyment of the most elevated and ecstatic kind. Every name, attribute, word, or deed of Jehovah, should be delightful to us, and in meditating thereon our soul should be as glad as is the epicure who feeds delicately with a profound relish for his dainties. *And he shall give thee the desires of thine heart.* A pleasant duty is here rewarded with another pleasure. Men who delight in God desire or ask for nothing but what will please God; hence it is safe to give them *carte blanche.* Their will is subdued to God's will, and now they may have what they will. Our innermost desires are here meant, not our casual wishes; there are many things which nature might desire which grace would never permit us to ask for; these deep, prayerful, *asking* desires are those to which the promise is made.
 
 ### Verse 5
 
-> Commit thy way unto the LORD; trust also in him; and he shall bring *it* to pass.
+> Commit thy way unto the Lord; trust also in him; and he shall bring *it* to pass.
 
 *Commit thy way unto the Lord.* Roll the whole burden of life upon the Lord. Leave with Jehovah not thy present fretfulness merely, but all thy cares; in fact, submit the whole tenor of thy way to him. Cast away anxiety, resign thy will, submit thy judgment, leave all with the God of all. What a medicine is this for expelling envy! What a high attainment does this fourth precept indicate! How blessed must he be who lives every day in obedience to it! *Trust also in him; and he shall bring it to pass.* Our destiny shall be joyfully accomplished if we confidently entrust all to our Lord. We may serenely sing—
 
@@ -84,7 +84,7 @@ The ploughman sows and harrows, and then leaves the harvest to God. What can he 
 
 ### Verse 7
 
-> Rest in the LORD, and wait patiently for him: fret not thyself because of him who prospereth in his way, because of the man who bringeth wicked devices to pass.
+> Rest in the Lord, and wait patiently for him: fret not thyself because of him who prospereth in his way, because of the man who bringeth wicked devices to pass.
 
 *Rest in the Lord.* This fifth is a most divine precept, and requires much grace to carry it out. To hush the spirit, to be silent before the Lord, to wait in holy patience the time for clearing up the difficulties of Providence—that is what every gracious heart should aim at. "Aaron held his peace:" "I opened not my mouth, because thou didst it." A silent tongue in many cases not only shows a wise head, but a holy heart. *And wait patiently for him.* Time is nothing to him; let it be nothing to thee. God is worth waiting for. "He never is before his time, he never is too late." In a story we wait for the end to clear up the plot; we ought not to prejudge the great drama of life, but stay till the closing scene, and see to what a finis the whole arrives. *Fret not thyself because of him who prospereth in his way, because of the man who bringeth wicked devices to pass.* There is no good, but much evil, in worrying your heart about the present success of graceless plotters: be not enticed into premature judgments—they dishonour God, they weary yourself. Determine, let the wicked succeed as they may, that you will treat the matter with indifference, and never allow a question to be raised as to the righteousness and goodness of the Lord. What if wicked devices succeed and your own plans are defeated! there is more of the love of God in your defeats than in the successes of the wicked.
 
@@ -96,7 +96,7 @@ The ploughman sows and harrows, and then leaves the harvest to God. What can he 
 
 ### Verse 9
 
-> For evildoers shall be cut off: but those that wait upon the LORD, they shall inherit the earth.
+> For evildoers shall be cut off: but those that wait upon the Lord, they shall inherit the earth.
 
 *For evil doers shall be cut off.* Their death shall be a penal judgment; not a gentle removal to a better state, but an execution in which the axe of justice will be used. *But those that wait upon the Lord* —those who in patient faith expect their portion in another life— *they shall inherit the earth.* Even in this life they have the most of real enjoyment, and in the ages to come theirs shall be the glory and the triumph. Passion, according to Bunyan's parable, has his good things first, and they are soon over; Patience has his good things last, and they last for ever.
 
@@ -148,13 +148,13 @@ Here is the portrait of a proud oppressor armed to the teeth.
 
 ### Verse 17
 
-> For the arms of the wicked shall be broken: but the LORD upholdeth the righteous.
+> For the arms of the wicked shall be broken: but the Lord upholdeth the righteous.
 
 *For the arms of the wicked shall be broken.* Their power to do mischief shall be effectually taken away, for the arms which they lifted up against God shall be crushed even to the bone. God often makes implacable men incapable men. What is a more contemptible sight than toothless malice, armless malevolence! *But the Lord upholdeth the righteous.* Their cause and course shall be safe, for they are in good keeping. The sword of two edges smites the wicked and defends the just.
 
 ### Verse 18
 
-> The LORD knoweth the days of the upright: and their inheritance shall be for ever.
+> The Lord knoweth the days of the upright: and their inheritance shall be for ever.
 
 *The Lord knoweth the days of the upright.* His foreknowledge made him laugh at the proud, but in the case of the upright he sees a brighter future, and treats them as heirs of salvation. Ever is this our comfort, that all events are known to our God, and that nothing in our future can take him at unawares. No arrow can pierce us by accident, no danger smite us by stealth; neither in time nor eternity can any unforeseen ill occur to us. Futurity shall be but a continual development of the good things which the Lord has laid up in store for us. *And their inheritance shall be for ever.* Their inheritance fades not away. It is entailed, so that none cam deprive them of it, and preserved, so that none shall destroy it. Eternity is the peculiar attribute of the believer's portion: what they have on earth is safe enough, but what they shall have in heaven is theirs without end.
 
@@ -166,7 +166,7 @@ Here is the portrait of a proud oppressor armed to the teeth.
 
 ### Verse 20
 
-> But the wicked shall perish, and the enemies of the LORD *shall be* as the fat of lambs: they shall consume; into smoke shall they consume away.
+> But the wicked shall perish, and the enemies of the Lord *shall be* as the fat of lambs: they shall consume; into smoke shall they consume away.
 
 *But the wicked shall perish.* Whatever phantom light may mock their present, their future is black with dark, substantial night. Judgment has been given against them, they are but reserved for execution. Let them flaunt their scarlet and fine linen, and fare sumptuously every day; the sword of Damocles is above their heads, and if their wits were a little more awake, their mirth would turn to misery. *The enemies of the Lord shall be as the fat of lambs.* As the sacrificial fat was all consumed upon the altar, so shall the ungodly utterly vanish from the place of their honour and pride. How can it be otherwise? If the stubble dares to contend with the flame, to what end can it hope to come? *They shall consume.* As dry wood, as heaps of leaves, as burning coals, they shall soon be gone, and gone altogether, for *into smoke shall they consume away. Sic transit gloria mundi.* A puff is the end of all their puffing. Their fuming ends in smoke. They made themselves fat, and perished in their own grease. Consumers of the good they tried to be, and consumed they shall be.
 
@@ -184,13 +184,13 @@ Here is the portrait of a proud oppressor armed to the teeth.
 
 ### Verse 23
 
-> The steps of a *good* man are ordered by the LORD: and he delighteth in his way.
+> The steps of a *good* man are ordered by the Lord: and he delighteth in his way.
 
 *The steps of a good man are ordered by the Lord.* All his course of life is graciously ordained, and in lovingkindness all is fixed, settled, and maintained. No reckless fate, no fickle chance rules us; our every step is the subject of divine decree. *He delighteth in his way.* As parents are pleased with the tottering footsteps of their babes. All that concerns a saint is interesting to his heavenly Father. God loves to view the holy strivings of a soul pressing forward to the skies. In the trials and the joys of the faithful, Jesus has fellowship with them, and delights to be their sympathising companion.
 
 ### Verse 24
 
-> Though he fall, he shall not be utterly cast down: for the LORD upholdeth *him with* his hand.
+> Though he fall, he shall not be utterly cast down: for the Lord upholdeth *him with* his hand.
 
 *Though he fall.* Disasters and reverses may lay him low; he may, like Job, be stripped of everything; like Joseph, be put in prison; like Jonah, be cast into the deep. *He shall not be utterly cast down.* He shall not be altogether prostrate. He shall be brought on his knees, but not on his face; or, if laid prone for a moment, he shall be up again ere long. No saint shall fall finally or fatally. Sorrow may bring us to the earth, and death may bring us to the grave, but lower we cannot sink, and out of the lowest of all we shall arise to the highest of all. *For the Lord upholdeth him with his hand.* Condescendingly, with his own hand, God upholds his saints; he does not leave them to mere delegated agency, he affords personal assistance. Even in our falls the Lord gives a measure of sustaining. Where grace does not keep from going down, it shall save from keeping down. Job had double wealth at last, Joseph reigned over Egypt, Jonah was safely landed. It is not that the saints are strong, or wise, or meritorious, that therefore they rise after every fall, but because God is their helper, and therefore none can prevail against them.
 
@@ -218,7 +218,7 @@ Here we have the seventh precept, which takes a negative and positive form, and 
 
 ### Verse 28
 
-> For the LORD loveth judgment, and forsaketh not his saints; they are preserved for ever: but the seed of the wicked shall be cut off.
+> For the Lord loveth judgment, and forsaketh not his saints; they are preserved for ever: but the seed of the wicked shall be cut off.
 
 *For the Lord loveth judgment.* The awarding of honour to whom honour is due is God's delight, especially when the upright man has been traduced by his fellow men. It must be a divine pleasure to right wrongs, and to defeat the machinations of the unjust. The great Arbiter of human destinies is sure to deal out righteous measure both to rich and poor, to good and evil, for such judgment is his delight. *And forsaketh not his saints.* This would not be right, and, therefore, shall never be done. God is as faithful to the objects of his love as he is just towards all mankind. *They are preserved for ever.* By covenant engagements their security is fixed, and by suretyship fulfilments that safety is accomplished; come what may, the saints are preserved in Christ Jesus, and because he lives, they shall live also. A king will not lose his jewels, nor will Jehovah lose his people. As the manna in the golden pot, which else had melted, was preserved in the ark of the covenant beneath the mercyseat, so shall the faithful be preserved in the covenant by the power of Jesus their propitiation. *But the seed of the wicked shall be cut off.* Like the house of Jeroboam and Ahab, of which not a dog was left. Honour and wealth ill gotten seldom reach the third generation; the curse grows ripe before many years have passed, and falls upon the evil house. Among the legacies of wicked men the surest entail is a judgment on their family.
 
@@ -248,13 +248,13 @@ Here we have the seventh precept, which takes a negative and positive form, and 
 
 ### Verse 33
 
-> The LORD will not leave him in his hand, nor condemn him when he is judged.
+> The Lord will not leave him in his hand, nor condemn him when he is judged.
 
 *The Lord will not leave him in his hand.* God often appears to deliver his servants, and when he does not do so in this life as to their bodies, he gives their souls such joy and peace that they triumphantly rise beyond their tormentors' power. We may be in the enemy's hand for awhile, as Job was, but we cannot be left there. *Nor condemn him when he is judged.* Time shall reverse the verdict of haste, or else eternity shall clear away the condemnation of time. In due season just men will be justified. Temporary injustices are tolerated, in the order of Providence, for purposes most wise; but the bitter shall not always be called sweet, nor light for ever be traduced as darkness; the right shall appear in due season; the fictitious and pretentious shall be unmasked, and the real and true shall be revealed. If we have done faithfully, we may appeal from the petty sessions of society to the solemn assize of the great day.
 
 ### Verse 34
 
-> Wait on the LORD, and keep his way, and he shall exalt thee to inherit the land: when the wicked are cut off, thou shalt see *it*.
+> Wait on the Lord, and keep his way, and he shall exalt thee to inherit the land: when the wicked are cut off, thou shalt see *it*.
 
 *Wait on the Lord.* We have here the eighth precept, and it is a lofty eminence to attain to. Tarry the Lord's leisure. Wait in obedience as a servant, in hope as an heir, in expectation as a believer. This little word "wait" is easy to say, but hard to carry out, yet faith must do it. *And keep his way.* Continue in the narrow path; let no haste for riches or ease cause unholy action. Let your motto be, "On, on, on." Never flag, or dream of turning aside. "He that endureth to the end, the same shall be saved." *And he shall exalt thee to inherit the land.* Thou shalt have all of earthly good which is really good, and of heavenly good there shall be no stint. Exaltation shall be the lot of the excellent. *When the wicked are cut off, thou shalt see it.* A sight how terrible and how instructive! What a rebuke for fretfulness! what an incentive to gratitude! My soul, be still, as you foresee the end, the awful end of the Lord's enemies.
 
@@ -284,13 +284,13 @@ A second time David turns to his diary, and this time in poetic imagery tells us
 
 ### Verse 39
 
-> But the salvation of the righteous *is* of the LORD: *he is* their strength in the time of trouble.
+> But the salvation of the righteous *is* of the Lord: *he is* their strength in the time of trouble.
 
 *But the salvation of the righteous is of the Lord.* Sound doctrine this. The very marrow of the gospel of free grace. By salvation is meant deliverance of every kind; not only *the* salvation which finally lands us in glory, but all the minor rescues of the way; these are all to be ascribed unto the Lord, and to him alone. Let him have glory from those to whom he grants salvation. *He is their strength in the time of trouble.* While trouble overthrows the wicked, it only drives the righteous to their strong Helper, who rejoices to uphold them.
 
 ### Verse 40
 
-> And the LORD shall help them, and deliver them: he shall deliver them from the wicked, and save them, because they trust in him.
+> And the Lord shall help them, and deliver them: he shall deliver them from the wicked, and save them, because they trust in him.
 
 *And the Lord shall help them.* In all future time Jehovah will stand up for his chosen. Our Great Ally will bring up his forces in the heat of the battle. *He shall deliver them from the wicked.* As he rescued Daniel from the lions, so will he preserve his beloved from their enemies; they need not therefore fret, nor be discouraged. *And save them, because they trust in him.* Faith shall ensure they safety of the elect. It is the mark of the sheep by which they shall be separated from the goats. Not their merit, but their believing, shall distinguish them. Who would not try the walk of faith? Whoever truly believes in God will be no longer fretful against the apparent irregularities of this present life, but will rest assured that what is mysterious is nevertheless just, and what seems hard, is, beyond a doubt, ordered in mercy. So the Psalm ends with a note which is the death knell of the unhallowed disquietude with which the Psalm commenced. Happy they who can thus sing themselves out of ill frames into gracious conditions.
 
@@ -356,7 +356,7 @@ But if we would be thus delivered, observe: 1. That we must not unthankfully fre
 
 **Verse 4.** Note thy part and God's part. Do thou *delight, * and he will *give. C. H. S.* 
 
-**Verse 4.** How much grace and love breathes in these words, *Delight thyself also in the Lord! Trust* in him was recommended before, and now, this being added also, how plain is it that your ease and rest is the thing designed! Is it fit to receive so much kindness with neglect? Again, *he delights in you;* I speak to such of whom this may be supposed. And it is indefinitely said, "His delights were with the sons of men, "Pr 8:31. Think what he is, and what you are; and at once, both wonder and yield. And what else have you to delight in? what thing will you name that shall supply the place of GOD, or be to you in the stead of him? Moreover, who should delight in him but you—his friends, his sons, those of his own house? Think what life and vigour it will infuse into you, and that "the joy of the Lord will be your strength, "Ne 8:10. How pleasantly will you hold on your course, and discharge all the other duties of this your present state? You must serve him. Dare you think of throwing off his yoke? How desirable is it then to take delight in him whom I must serve; which only makes that service acceptable to him, and easy to myself! Further, this is a pleasure none can rob you of; a joy that cannot be taken from you. Other objects of your delight are vanishing daily. Neither men nor devils can ever hinder you delighting in God, if your hearts be so inclined. And were you never brought to take pleasure in any person or thing to which you had a former aversion? One that had wronged you might yet possibly win you by after kindness. Give a reason why you should be more difficult towards the blessed God that never wronged you, and whose way towards you hath constantly imported so much good will! And consider that your condition on earth is such as exposes you to many sufferings and hardships, which, by your not delighting in him, you can never be sure to avoid (for they are things common to men), but which, by your delighting in him, you may be easily able to endure. Besides all this, seriously consider that you must die. You can make no shift to avoid that. How easily tolerable and pleasant will it be to think, then, of going to him with whom you have lived in a delightful communion before! And how dreadful to appear before him to whom your own heart shall accuse you to have been (against all his importunities and allurements) a disaffected stranger! *John Howe's "Treatise of Delight in God."* 
+**Verse 4.** How much grace and love breathes in these words, *Delight thyself also in the Lord! Trust* in him was recommended before, and now, this being added also, how plain is it that your ease and rest is the thing designed! Is it fit to receive so much kindness with neglect? Again, *he delights in you;* I speak to such of whom this may be supposed. And it is indefinitely said, "His delights were with the sons of men, "Pr 8:31. Think what he is, and what you are; and at once, both wonder and yield. And what else have you to delight in? what thing will you name that shall supply the place of God, or be to you in the stead of him? Moreover, who should delight in him but you—his friends, his sons, those of his own house? Think what life and vigour it will infuse into you, and that "the joy of the Lord will be your strength, "Ne 8:10. How pleasantly will you hold on your course, and discharge all the other duties of this your present state? You must serve him. Dare you think of throwing off his yoke? How desirable is it then to take delight in him whom I must serve; which only makes that service acceptable to him, and easy to myself! Further, this is a pleasure none can rob you of; a joy that cannot be taken from you. Other objects of your delight are vanishing daily. Neither men nor devils can ever hinder you delighting in God, if your hearts be so inclined. And were you never brought to take pleasure in any person or thing to which you had a former aversion? One that had wronged you might yet possibly win you by after kindness. Give a reason why you should be more difficult towards the blessed God that never wronged you, and whose way towards you hath constantly imported so much good will! And consider that your condition on earth is such as exposes you to many sufferings and hardships, which, by your not delighting in him, you can never be sure to avoid (for they are things common to men), but which, by your delighting in him, you may be easily able to endure. Besides all this, seriously consider that you must die. You can make no shift to avoid that. How easily tolerable and pleasant will it be to think, then, of going to him with whom you have lived in a delightful communion before! And how dreadful to appear before him to whom your own heart shall accuse you to have been (against all his importunities and allurements) a disaffected stranger! *John Howe's "Treatise of Delight in God."* 
 
 **Verse 4.** We have in the former part extended the meaning of the words *Delight thyself in the Lord, * beyond what they seem at first sight literally to signify; so as not to understand them merely as requiring that very single act of *delight* to be immediately and directly terminated on God himself; but to take them as comprehending all *the sum of all holy and religious converse with God, i.e., * as it is delightful, or as it is seasoned (intermingled, and as it were besprinkled) with delight; and upon the same account, of all out other converse, so far as it is influenced by religion. And I doubt not, to such as shall attentively have considered what hath been said, it will be thought very reasonable to take them in that latitude; whereof the very letter of the text (as may be alleged for further justification hereof) is most fitly capable. For the particle which we read *in* the Lord, hath not that signification alone, but signifies also *with, * or *by, * or *besides, * or *before, * or *in presence of, * as if it had been said, "Come and sit down with God, retire thyself to him, and solace thyself in the delights which are to be found in his presence and converse, in walking with him, and transacting thy course as before him, and in his sight." As a man may be said to delight himself with a friend that puts himself under his roof, and, besides personal converse with himself, freely enjoys the pleasure of all the entertainments, accommodations, and provisions which he is freely willing to communicate with him, and hath the satisfaction which a sober person would take in observing the rules and order of a well governed house. *John Howe.* 
 
@@ -738,7 +738,7 @@ Luther closes his Exposition of the Psalm with the words, Oh, shame on our faith
 
 James Smith.
 
-**Verse 8.** A SERMON FOR THE FRETFUL.
+**Verse 8.** A sermon for the fretful.
 
 1\. *Cease* from present anger. It is madness, it is sin; it shuts out our prayers; it will grow into malice; it may lead to worse.
 
