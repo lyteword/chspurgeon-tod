@@ -12,7 +12,7 @@ weight: 35
 
 ### Verse 1
 
-> Plead *my cause*, O LORD, with them that strive with me: fight against them that fight against me.
+> Plead *my cause*, O Lord, with them that strive with me: fight against them that fight against me.
 
 *"Plead my cause, O Lord, with them that strive with me."* Plead against those who plead against me; strive with my strivers; contend with my contenders. If they urge their suit in the law-court, Lord, meet them there, and beat them at their own weapons. Every saint of God shall have this privilege: the accuser of the brethren shall be met by the Advocate of the saints. *"Fight against them that fight against me."* If my adversaries try force as well as fraud, be a match for them; oppose thy strength to their strength. Jesus does this for all his beloved—for them he is both intercessor and champion; whatever aid they need they shall receive from him, and in whatever manner they are assaulted they shall be effectually defended. Let us not fail to leave our case into the Lord's hand. Vain is the help of man, but ever effectual is the interposition of heaven. What is here asked for as a boon, may be regarded as a promise, to all the saints; in judgment they shall have a divine advocate, in warfare a divine protection.
 
@@ -36,13 +36,13 @@ weight: 35
 
 ### Verse 5
 
-> Let them be as chaff before the wind: and let the angel of the LORD chase *them*.
+> Let them be as chaff before the wind: and let the angel of the Lord chase *them*.
 
 *"Let* *them be as chaff before the wind."* They were swift enough to attack, let them be as swift to flee. Let their own fears and the alarms of their consciences unman them so that the least breeze of trouble shall carry them hither and thither. Ungodly men are worthless in character, and light in their behaviour, being destitute of solidity and fixedness; it is but just that those who make themselves chaff should be treated as such. When this imprecation is fulfilled in graceless men, they will find it an awful thing to be for ever without rest, without peace of mind, or stay of soul, hurried from fear to fear, and from misery to misery. *"And* *let the angel-of the Lord chase them."* Fallen angels shall haunt them, good angels shall afflict them. To be pursued by avenging spirits will be the lot of those who delight in persecution. Observe the whole scene as the Psalmist sketches it: the furious foe is first held at bay, then turned back, then driven to headlong flight, and chased by fiery messengers from whom there is no escape, while his pathway becomes dark and dangerous, and his destruction overwhelming.
 
 ### Verse 6
 
-> Let their way be dark and slippery: and let the angel of the LORD persecute them.
+> Let their way be dark and slippery: and let the angel of the Lord persecute them.
 
 *"Let their way be dark and slippery."* What terrors are gathered here! No light, no foothold, and a fierce avenger at their heels! What a doom is appointed for the enemies of God! They may rage and rave today, but how altered will be their plight ere long! *"And let the angel of the Lord persecute them."* He will follow them hot-foot, as we say, never turning aside, but like a trusty pursuivant serving the writ of vengeance upon them, and arresting them in the name of unflinching justice. Woe, woe, woe, unto those who touch the people of God; their destruction is both swift and sure.
 
@@ -60,13 +60,13 @@ In this verse the Psalmist brings forward the gravamen of his charge against the
 
 ### Verse 9
 
-> And my soul shall be joyful in the LORD: it shall rejoice in his salvation.
+> And my soul shall be joyful in the Lord: it shall rejoice in his salvation.
 
 *"And my soul shall be joyful in the Lord."* Thus rescued, David ascribes all the honour to the Judge of the right; to his own valorous arm he offers no sacrifice of boasting. He turns away from his adversaries to his God, and finds a deep unbroken joy in Jehovah, and in that joy his spirit revels. *"It shall rejoice in his salvation."* We do not triumph in the destruction of others, but in the salvation given to us of God. Prayer heard should always suggest praise. It were well if we were more demonstrative in our holy rejoicings. We rob God by suppressing grateful emotions.
 
 ### Verse 10
 
-> All my bones shall say, LORD, who *is* like unto thee, which deliverest the poor from him that is too strong for him, yea, the poor and the needy from him that spoileth him?
+> All my bones shall say, Lord, who *is* like unto thee, which deliverest the poor from him that is too strong for him, yea, the poor and the needy from him that spoileth him?
 
 As if the tongue were not enough to bless God with, David makes every limb vocal *—"All my bones shall say, Lord, who is like unto thee*?" His whole anatomy he would make resonant with gratitude. Those bones which were to have been broken by my enemies shall now praise God; every one of them shall bring its tribute, ascribing unrivalled excellence to Jehovah the Saviour of his people. Even if worn to skin and bone, yet my very skeleton shall magnify the Lord, *"which deliverest the poor from him that is too strong for him, yea, the poor and the needy from him that spoileth him."* God is the champion, the true knight-errant of all oppressed ones. Where there is so much condescension, justice, kindness, power, and compassion, the loftiest songs should be rendered. Come, dear reader, have you not been delivered from sin, Satan, and death, and will not you bless the Redeemer? You were poor and weak, but in due time Christ sought you, and set you free. O magnify the Lord today, and speak well of his name.
 
@@ -140,7 +140,7 @@ He earnestly prays that as they have no cause for their enmity, they may have no
 
 ### Verse 22
 
-> *This* thou hast seen, O LORD: keep not silence: O Lord, be not far from me.
+> *This* thou hast seen, O Lord: keep not silence: O Lord, be not far from me.
 
 *"This thou hast seen, O Lord."* Here is comfort. Our heavenly Father knows all our sorrow. Omniscience is the saint's candle which never goes out. A father will not long endure to see his child abused. Shall not God avenge his own elect? *"Keep not silence."* Rebuke thine enemies and mine, O Lord. A word will do it. Clear my character, comfort my heart. *"O Lord, be not far from me."* Walk the furnace with me. Stand in the pillory at my side. The sweet presence of God is the divine cordial of the persecuted; his painful absence would be their deepest misery.
 
@@ -152,7 +152,7 @@ He earnestly prays that as they have no cause for their enmity, they may have no
 
 ### Verse 24
 
-> Judge me, O LORD my God, according to thy righteousness; and let them not rejoice over me.
+> Judge me, O Lord my God, according to thy righteousness; and let them not rejoice over me.
 
 The appeal is here repeated; the plaintiff feels that the joy of his accusers will be short-lived as soon as impartial justice rules. The oppressors' wrong, the proud man's contumely, the fool's grimace—all, all will cease when the righteous Lord sits down upon the judgment seat.
 
@@ -170,7 +170,7 @@ Here is the eternal result of all the laborious and crafty devices of the Lord's
 
 ### Verse 27
 
-> Let them shout for joy, and be glad, that favour my righteous cause: yea, let them say continually, Let the LORD be magnified, which hath pleasure in the prosperity of his servant.
+> Let them shout for joy, and be glad, that favour my righteous cause: yea, let them say continually, Let the Lord be magnified, which hath pleasure in the prosperity of his servant.
 
 *"Let them shout for joy, and be glad, that favour my righteous cause."* Even those who could not render him active aid, but in their hearts favoured him, David would have the Lord reward most abundantly. Men of tender heart set great store by the good wishes and prayers of the Lord's people. Jesus also prizes those whose hearts are with his cause. The day is coming when shouts of victory shall be raised by all who are on Christ's side, for the battle will turn, and the foes of truth shall be routed. *"Yea, let them say continually, Let the Lord be magnified."* He would have their gladness contributory to the divine glory; they are not to shout to David's praise, but for the honour of Jehovah. Such acclamations may fitly be continued throughout time and eternity. *"Which hath pleasure in the prosperity of his servant."* They recognised David as the Lord's servant, and saw with pleasure the Lord's favour to him. We can have no nobler title than "servant of God, " and no greater reward than for our Master to delight in our prosperity. What true prosperity may be we are not always best able to judge. We must leave that in Jesus' hand; he will not fail to rule all things for our highest good.
 
