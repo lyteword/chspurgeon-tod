@@ -12,7 +12,7 @@ weight: 38
 
 ### Verse 1
 
-> O LORD, rebuke me not in thy wrath: neither chasten me in thy hot displeasure.
+> O Lord, rebuke me not in thy wrath: neither chasten me in thy hot displeasure.
 
 *O Lord, rebuke me not in thy wrath.* Rebuked I must be, for I am an erring child and thou a careful Father, but throw not too much anger into the tones of thy voice; deal gently although I have sinned grievously. The anger of others I can bear, but not thine. As thy love is most sweet to my heart, so thy displeasure is most cutting to my conscience. *Neither chasten me in thy hot displeasure.* Chasten me if thou wilt, it is a Father's prerogative, and to endure it obediently is a child's duty; but, O turn not the rod into a sword, smite not so as to kill. True, my sins might well inflame thee, but let thy mercy and longsuffering quench the glowing coals of thy wrath. O let me not be treated as an enemy or dealt with as a rebel. Bring to remembrance thy covenant, thy fatherhood, and my feebleness, and spare the servant.
 
@@ -102,7 +102,7 @@ Sorrow and anguish hide themselves from the observation of man, but God spies th
 
 ### Verse 15
 
-> For in thee, O LORD, do I hope: thou wilt hear, O Lord my God.
+> For in thee, O Lord, do I hope: thou wilt hear, O Lord my God.
 
 David committed himself to him that judgeth righteously, and so in patience was able to possess his soul. Hope in God's intervention, and belief in the power of prayer, are two most blessed stays to the soul in time of adversity. Turning right away from the creature to the sovereign Lord of all, and to him as our own covenant God, we shall find the richest solace in waiting upon him. Reputation like a fair pearl may be cast into the mire, but in due time when the Lord makes up his jewels, the godly character shall shine with unclouded splendour. Rest then, O slandered one, and let not thy soul be tossed to and fro with anxiety.
 
@@ -138,7 +138,7 @@ David committed himself to him that judgeth righteously, and so in patience was 
 
 ### Verse 21
 
-> Forsake me not, O LORD: O my God, be not far from me.
+> Forsake me not, O Lord: O my God, be not far from me.
 
 *Forsake me not, O Lord.* Now is the time I need thee most. When sickness, slander, and sin, all beset a saint, he requires the especial aid of heaven, and he shall have it too. He is afraid of nothing while God is with him, and God is with him evermore. *Be not far from me.* Withhold not the light of thy near and dear love. Reveal thyself to me. Stand at my side. Let me feel that though friendless besides, I have a most gracious and all sufficient friend in thee.
 
@@ -150,7 +150,7 @@ David committed himself to him that judgeth righteously, and so in patience was 
 
 ## Explanatory Notes & Quaint Sayings
 
-**Title &mdash;** The first word, MIZMOR, or Psalm, is the designation of forty-four sacred poems, thirty-two of which are ascribed to David. The English reader must observe, that this word is not the same in the original Hebrew as that which forms the general title of the book of Psalms; the latter expressing a Hymn of Praise. The word *Psalm, * however, as used both in the context and in the titles of the individual compositions, is uniformly *Mizmor* in the original; a term which accurately defines their poetical character. To explain its proper meaning I must have recourse to the beautiful and accurate definition of Bishop Lowth. "The word *Mizmor* signifies a composition, which in a peculiar manner is cut up into sentences, short, frequent, and measured by regular intervals."&mdash; He adds that *Zamar* means to cut or prune, as applied to the removing superfluous branches from trees; and, after mentioning the secondary sense of the word, "to sing with a voice or instrument, "gives it as his opinion, that *Mizmar* may be more properly referred to the primary sense of the root, so as to mean a poem cut up into short sentences, and pruned from all superfluity of words, which is the peculiar characteristic of the Hebrew poetry. *John Jebb.* 
+**Title &mdash;** The first word, *mizmor*, or Psalm, is the designation of forty-four sacred poems, thirty-two of which are ascribed to David. The English reader must observe, that this word is not the same in the original Hebrew as that which forms the general title of the book of Psalms; the latter expressing a Hymn of Praise. The word *Psalm, * however, as used both in the context and in the titles of the individual compositions, is uniformly *Mizmor* in the original; a term which accurately defines their poetical character. To explain its proper meaning I must have recourse to the beautiful and accurate definition of Bishop Lowth. "The word *Mizmor* signifies a composition, which in a peculiar manner is cut up into sentences, short, frequent, and measured by regular intervals."&mdash; He adds that *Zamar* means to cut or prune, as applied to the removing superfluous branches from trees; and, after mentioning the secondary sense of the word, "to sing with a voice or instrument, "gives it as his opinion, that *Mizmar* may be more properly referred to the primary sense of the root, so as to mean a poem cut up into short sentences, and pruned from all superfluity of words, which is the peculiar characteristic of the Hebrew poetry. *John Jebb.* 
 
 **Title &mdash;** The title that David gives this Psalm is worth your notice. *A Psalm of David to bring to remembrance.* David was on his deathbed as he thought, and he said it shall be a Psalm of remembrance, to bring sin to remembrance, to confess to God my uncleannesses with Bathsheba, to bring to my remembrance the evils of my life. Whenever God brings thee under affliction, thou art then in a fit plight to confess sin to God, and call to remembrance thy sins. *Christopher Love.* 
 
@@ -320,7 +320,7 @@ David committed himself to him that judgeth righteously, and so in patience was 
 
 ## Works Upon The Thirty-Eighth Psalm
 
-"A Sacred Septenarie, "etc., by ARCHIBALD SYMSON, 1638, contains an Exposition of this Psalm. See Vol. I, p. 74.
+"A Sacred Septenarie, "etc., by Archibald Symson, 1638, contains an Exposition of this Psalm. See Vol. I, p. 74.
 
-"Meditations and Disquisitions upon the Seven Psalmes of David, *commonly called the Penitential Psalmes."* By Sir RICHARD BAKER, Knight: London: 1639, (4to.) contains *"Meditations upon the XXXVIII. Psalme."* 
+"Meditations and Disquisitions upon the Seven Psalmes of David, *commonly called the Penitential Psalmes."* By Sir Richard Baker, Knight: London: 1639, (4to.) contains *"Meditations upon the XXXVIII. Psalme."* 
 
