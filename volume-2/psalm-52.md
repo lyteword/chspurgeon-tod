@@ -26,7 +26,7 @@ weight: 52
 
 > Thou lovest evil more than good; *and* lying rather than to speak righteousness. Selah.
 
-*Thou lovest evil more than good.* He loved not good at all. If both had been equally profitable and pleasant, he would have preferred evil. *And lying rather than to speak righteousness.* He was more at home at lying than at truth. He spake not the truth except by accident, but he delighted heartily in falsehood. *SELAH.* Let us pause and look at the proud blustering liar. Doeg is gone, but other dogs bark at the Lord's people. Saul's cattle master is buried, but the devil still has his drovers, who fain would hurry the saints like sheep to the slaughter.
+*Thou lovest evil more than good.* He loved not good at all. If both had been equally profitable and pleasant, he would have preferred evil. *And lying rather than to speak righteousness.* He was more at home at lying than at truth. He spake not the truth except by accident, but he delighted heartily in falsehood. *Selah.* Let us pause and look at the proud blustering liar. Doeg is gone, but other dogs bark at the Lord's people. Saul's cattle master is buried, but the devil still has his drovers, who fain would hurry the saints like sheep to the slaughter.
 
 ### Verse 4
 
@@ -38,7 +38,7 @@ weight: 52
 
 > God shall likewise destroy thee for ever, he shall take thee away, and pluck thee out of *thy* dwelling place, and root thee out of the land of the living. Selah.
 
-*God shall likewise destroy thee for ever.* Fain would the persecutor destroy the church, and therefore God shall destroy him, pull down his house, pluck up his roots, and make an end of him. *He shall take thee away.* God shall extinguish his coal and sweep him away like the ashes of the hearth; he would have quenched the truth, and God shall quench him. *And pluck thee out of thy dwelling place, * like a plant torn from the place where it grew, or a captive dragged from his home. Ahimelech and his brother priests were cut off from their abode, and so should those be who compassed and contrived their murder. *And root thee out of the land of the living.* The persecutor shall be eradicated, stubbed up by the root, cut up root and branch. He sought the death of others and death shall fall upon him. He troubled the land of the living, and he shall be banished to that land where the wicked cease from troubling. Those who will not "let live" have no right to "live." God will turn the tables on malicious men, and mete to them a portion with their own measure. "SELAH." Pause again, and behold the divine justice proving itself more than a match for human sin.
+*God shall likewise destroy thee for ever.* Fain would the persecutor destroy the church, and therefore God shall destroy him, pull down his house, pluck up his roots, and make an end of him. *He shall take thee away.* God shall extinguish his coal and sweep him away like the ashes of the hearth; he would have quenched the truth, and God shall quench him. *And pluck thee out of thy dwelling place, * like a plant torn from the place where it grew, or a captive dragged from his home. Ahimelech and his brother priests were cut off from their abode, and so should those be who compassed and contrived their murder. *And root thee out of the land of the living.* The persecutor shall be eradicated, stubbed up by the root, cut up root and branch. He sought the death of others and death shall fall upon him. He troubled the land of the living, and he shall be banished to that land where the wicked cease from troubling. Those who will not "let live" have no right to "live." God will turn the tables on malicious men, and mete to them a portion with their own measure. "Selah." Pause again, and behold the divine justice proving itself more than a match for human sin.
 
 ### Verse 6
 
@@ -176,5 +176,5 @@ This appears to express of the Hebrew words, which our translators render, *like
 
 ## Works Upon The Fifty-Second Psalm
 
-CHANDLER'S *"Life of David, "* contains an Exposition of this Psalm. Vol. 1., pp. 140-143.
+Chandler's *"Life of David, "* contains an Exposition of this Psalm. Vol. 1., pp. 140-143.
 
