@@ -30,7 +30,7 @@ weight: 80
 
 ### Verse 4
 
-> O LORD God of hosts, how long wilt thou be angry against the prayer of thy people?
+> O Lord God of hosts, how long wilt thou be angry against the prayer of thy people?
 
 *"O Lord God of Hosts, how long wilt thou be angry against the prayer of thy people?"* How long shall the smoke of thy wrath drown the smoking incense of our prayers? Prayer would fain enter thy holy place, but thy wrath battles with it, and prevents its entrance. That God should be angry with us when sinning seems natural enough, but that he should be angry even with our prayers is a bitter grief. With many a pang may the pleader ask, "How long?" Commander of all the hosts of thy creatures, able to save thy saints in their extremity, shall they for ever cry to thee in vain?
 
@@ -120,7 +120,7 @@ So will not we go back from thee. Under the leadership of one whom God had chose
 
 ### Verse 19
 
-> Turn us again, O LORD God of hosts, cause thy face to shine; and we shall be saved.
+> Turn us again, O Lord God of hosts, cause thy face to shine; and we shall be saved.
 
 *Turn us again, O Lord God of Hosts.* Here we have another advance in the title and the incommunicable name of Jehovah, the I AM is introduced. Faith's day grows brighter as the hours roll on; and her prayers grow more full and mighty. Cause thy face to shine; and we shall be saved. Even we who were so destroyed. No extremity is too great for the power of God. He is able to save at the last point, and that too by simply turning his smiling face upon his afflicted. Men can do little with their arm, but God can do all things with a glance. Oh, to live for ever in the light of Jehovah's countenance.
 
@@ -268,5 +268,5 @@ Now, can you watch such a scene, and not think of that Shepherd who leadeth Jose
 
 Hieronymi Savonarolae Ferrariensis Meditationes in Psalmos— *Miserere—In Te Domine Speravi, et Qui Regis Israel* (12mo. Leyden: 1633).
 
-A Few Words on the Eightieth Psalm. By CHARLOTTE ELIZABETH. 1835.
+A Few Words on the Eightieth Psalm. By Charlotte Elizabeth. 1835.
 

@@ -28,7 +28,7 @@ Sudden passion is evil, but bursts of holy joy are most precious. God has chosen
 
 ### Verse 2
 
-> The LORD loveth the gates of Zion more than all the dwellings of Jacob.
+> The Lord loveth the gates of Zion more than all the dwellings of Jacob.
 
 The Lord loveth the gates of Zion more than all the *dwellings of Jacob.* The gates are put for the city itself. The love of God is greatest to his own elect nation, descended from his servant Jacob, yet the central seat of his worship is dearer still; no other supposable comparison could have so fully displayed the favour which Jehovah bore to Jerusalem, —he loves Jacob best and Zion better than the best. At this hour the mystical teaching of these words is plain, God delights in the prayers and praises of Christian families and individuals, but he has a special eye to the assemblies of the faithful, and he has a special delight in their devotions in their church capacity. The great festivals, when the crowds surrounded the temple gates, were fair in the Lord's eyes, and even such is the general assembly and church of the first born, whose names are written in heaven. This should lead each separate believer to identify himself with the church of God; where the Lord reveals his love the most, there should each believer most delight to be found. Our own dwellings are very dear to us, but we must not prefer them to the assemblies of the saints; we must say of the church—
 
@@ -66,7 +66,7 @@ Many understand the sense of these verses to be that all men are proud of their 
 
 ### Verse 6
 
-> The LORD shall count, when he writeth up the people, *that* this *man* was born there. Selah.
+> The Lord shall count, when he writeth up the people, *that* this *man* was born there. Selah.
 
 *The Lord shall count, when he writeth up the people, that this man was born there.* At the great census which the Lord himself shall take, he will number the nations without exception and make an exact registry of them, whether they were by their natural descent Babylonians or Tyrians, or other far off heathen. May it be our happy lot to be numbered with the Lord's chosen both in life and death, in the church roll below, and in the church roll above. Jehovah's census of his chosen will differ much from ours; he will count many whom we should have disowned, and he will leave out many whom we should have reckoned. His registration is infallible. Let us pray then for that adoption and regeneration which will secure us a place among the heaven born. It was thought to be a great honour to have one's name written in the golden book of the Republic of Venice, kings and princes paid dearly for the honour, but the book of life confers far rarer dignity upon all whose names are recorded therein.
 

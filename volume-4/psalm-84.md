@@ -18,13 +18,13 @@ weight: 84
 
 ### Verse 2
 
-> My soul longeth, yea, even fainteth for the courts of the LORD: my heart and my flesh crieth out for the living God.
+> My soul longeth, yea, even fainteth for the courts of the Lord: my heart and my flesh crieth out for the living God.
 
 *My soul longeth, * it pines, and faints to meet with the saints in the Lord's house. The desire was deep and insatiable—the very soul of the man was yearning for his God. Yea, even fainteth; as though it could not long hold out, but was exhausted with delay. He had a holy lovesickness upon him, and was wasted with an inward consumption because he was debarred the worship of the Lord in the appointed place. For the courts of the Lord. To stand once again in those areas which were dedicated to holy adoration was the soul longing of the psalmist. True subjects love the courts of their king. My heart and my flesh crieth out for the living God. It was God himself that he pined for, the only living and true God. His whole nature entered into his longing. Even the clay cold flesh grew warm through the intense action of his fervent spirit. Seldom, indeed, does the flesh incline in the right direction, but in the matter of Sabbath services our weary body sometimes comes to the assistance of our longing heart, for it desires the physical rest as much as the soul desires the spiritual repose. The psalmist declared that he could not remain silent in his desires, but began to cry out for God and his house; he wept, he sighed, he pleaded for the privilege. Some need to be whipped to church, while here is David crying for it. He needed no clatter of bells from the belfry to ring him in, he carried his bell in his own bosom: holy appetite is a better call to worship than a full chime.
 
 ### Verse 3
 
-> Yea, the sparrow hath found an house, and the swallow a nest for herself, where she may lay her young, *even* thine altars, O LORD of hosts, my King, and my God.
+> Yea, the sparrow hath found an house, and the swallow a nest for herself, where she may lay her young, *even* thine altars, O Lord of hosts, my King, and my God.
 
 *Yea, the sparrow hath found an house.* He envied the sparrows which lived around the house of God, and picked up the stray crumbs in the courts thereof; he only wished that he, too, could frequent the solemn assemblies and bear away a little of the heavenly food. And the swallow a nest for herself, where she may lay her young. He envied also the swallows whose nests were built under the eaves of the priest's houses, who there found a place for their young, as well as for themselves. We rejoice not only in our personal religious opportunities, but in the great blessing of taking our children with us to the sanctuary. The church of God is a house for us and a nest for our little ones. Even thine altars, O Lord of hosts. To the very altars these free birds drew near, none could restrain them nor would have wished to do so, and David wished to come and go as freely as they did. Mark how he repeats the blessed name of Jehovah of Hosts; he found in it a sweetness which helped him to bear his inward hunger. Probably David himself was with the host, and, therefore, he dwelt with emphasis upon the title which taught him that the Lord was in the tented field as well as within the holy curtains. My King and my God. Here he utters his loyalty from afar. If he may not tread the courts, yet he loves the King. If an exile, he is not a rebel. When we cannot occupy a seat in God's house, he shall have a seat in our memories and a throne in our hearts. The double "my" is very precious; he lays hold upon his God with both his hands, as one resolved not to let him go till the favour requested be at length accorded.
 
@@ -56,7 +56,7 @@ weight: 84
 
 ### Verse 8
 
-> O LORD God of hosts, hear my prayer: give ear, O God of Jacob. Selah.
+> O Lord God of hosts, hear my prayer: give ear, O God of Jacob. Selah.
 
 *O Lord God of hosts, hear my prayer.* Give me to go up to thy house, or if I may not do so, yet let my cry be heard. Thou listenest to the united supplications of thy saints, but do not shut out my solitary petition, unworthy though I be. Give ear, O God of Jacob. Though Jehovah of hosts, thou art also the covenant God of solitary pleaders like Jacob; regard thou, then, my plaintive supplication. I wrestle here alone with thee, while the company of thy people have gone on before me to happier scenes, and I beseech thee bless me; for I am resolved to hold thee till thou speak the word of grace into my soul. The repetition of the request for an answer to his prayer denotes his eagerness for a blessing. What a mercy it is that if we cannot gather with the saints, we can still speak to their Master. Selah. A pause was needed after a cry so vehement, a prayer so earnest.
 
@@ -74,13 +74,13 @@ weight: 84
 
 ### Verse 11
 
-> For the LORD God *is* a sun and shield: the LORD will give grace and glory: no good *thing* will he withhold from them that walk uprightly.
+> For the Lord God *is* a sun and shield: the Lord will give grace and glory: no good *thing* will he withhold from them that walk uprightly.
 
 *For the Lord God is a sun and shield.* Pilgrims need both as the weather may be, for the cold would smite them were it not for the sun, and foes are apt to waylay the sacred caravan, and would haply destroy it if it were without a shield. Heavenly pilgrims are not left uncomforted or unprotected. The pilgrim nation found both sun and shield in that fiery cloudy pillar which was the symbol of Jehovah's presence, and the Christian still finds both light and shelter in the Lord his God. A sun for happy days and a shield for dangerous ones. A sun above, a shield around. A light to show the way and a shield to ward off its perils. Blessed are they who journey with such a convoy; the sunny and shady side of life are alike happy to them. The Lord will give grace and glory. Both in due time, both as needed, both to the full, both with absolute certainty. The Lord has both grace and glory in infinite abundance; Jesus is the fulness of both, and, as his chosen people, we shall receive both as a free gift from the God of our salvation. What more can the Lord give, or we receive, or desire. No good thing will he withhold from them that walk uprightly. Grace makes us walk uprightly and this secures every covenant blessing to us. What a wide promise! Some apparent good may be withheld, but no real good, no, not one. "All things are yours, and ye are Christ's, and Christ is God's." God has all good, there is no good apart from him, and there is no good which he either needs to keep back or will on any account refuse us, if we are but ready to receive it. We must be upright and neither lean to this or that form of evil: and this uprightness must be practical, —we must *walk* in truth and holiness, then shall we be heirs of all things, and as we come of age all things shall be in our actual possession; and meanwhile, according to our capacity for receiving shall be the measure of the divine bestowal. This is true, not of a favoured few, but of all the saints for evermore.
 
 ### Verse 12
 
-> O LORD of hosts, blessed *is* the man that trusteth in thee.
+> O Lord of hosts, blessed *is* the man that trusteth in thee.
 
 *O Lord of hosts, blessed is the man that trusteth in thee.* Here is the key of the Psalm. The worship is that of faith, and the blessedness is peculiar to believers. No formal worshipper can enter into this secret. A man must know the Lord by the life of real faith, or he can have no true rejoicing in the Lord's worship, his house, his Son, or his ways. Dear reader, how fares it with thy soul?
 
@@ -448,7 +448,7 @@ Not only does their faith bring forth water out of the sand and rocks of the des
 
 **Verse 8.** Pleas for answers to prayer in the titles here used.
 
-1\. He is JEHOVAH, the living, all wise, all powerful, faithful, gracious, and immutable God.
+1\. He is Jehovah, the living, all wise, all powerful, faithful, gracious, and immutable God.
 
 2\. He is God of hosts, having abundant agencies under his control; he can send angels, restrain devils, actuate good men, overrule bad men, and govern all other agents.
 

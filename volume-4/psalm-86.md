@@ -12,7 +12,7 @@ weight: 86
 
 ### Verse 1
 
-> Bow down thine ear, O LORD, hear me: for I *am* poor and needy.
+> Bow down thine ear, O Lord, hear me: for I *am* poor and needy.
 
 *Bow down thine ear, O Lord, hear me.* In condescension to my littleness, and in pity to my weakness, "bow down thine ear, O Lord." When our prayers are lowly by reason of our humility, or feeble by reason of our sickness, or without wing by reason of our despondency, the Lord will bow down to them, the infinitely exalted Jehovah will have respect unto them. Faith, when she has the loftiest name of God on her tongue, and calls him Jehovah, yet dares to ask from him the most tender and condescending acts of love. Great as he is he loves his children to be bold with him. For I am poor and needy—doubly a son of poverty, because, first, poor and without supply for my needs, and next needy, and so full of wants, though unable to supply them. Our distress is a forcible reason for our being heard by the Lord God, merciful, and gracious, for misery is ever the master argument with mercy. Such reasoning as this would never be adopted by a proud man, and when we hear it repeated in the public congregation by those great ones of the earth who count the peasantry to be little better than the earth they tread upon, it sounds like a mockery of the Most High. Of all despicable sinners those are the worst who use the language of spiritual poverty while they think themselves to be rich and increased in goods.
 
@@ -42,9 +42,9 @@ weight: 86
 
 ### Verse 6
 
-> Give ear, O LORD, unto my prayer; and attend to the voice of my supplications.
+> Give ear, O Lord, unto my prayer; and attend to the voice of my supplications.
 
-*Give ear, O LORD, unto my prayer.* Even the glory which his spirit had beheld did not withdraw him from his prayer, but rather urged him to be more fervent in it; hence he implores the Lord to hear his requests. Attend to the voice of my supplications. Here are repetitions, but not vain repetitions. When a child cries it repeats the same note, but it is equally in earnest every time, and so was it with the suppliant here. Note the expression, "the voice of my supplications", as if they were not all voice but were partly made up of inarticulate noise, yet amid much that was superfluous there really was a distinct voice, an inner meaning, a living sense which was the heart's intention. This he would have the Lord sift out from the chaff, and hear amid the mingled din. May our prayers never be voiceless; may the soul's intent always give them a live core of meaning.
+*Give ear, O Lord, unto my prayer.* Even the glory which his spirit had beheld did not withdraw him from his prayer, but rather urged him to be more fervent in it; hence he implores the Lord to hear his requests. Attend to the voice of my supplications. Here are repetitions, but not vain repetitions. When a child cries it repeats the same note, but it is equally in earnest every time, and so was it with the suppliant here. Note the expression, "the voice of my supplications", as if they were not all voice but were partly made up of inarticulate noise, yet amid much that was superfluous there really was a distinct voice, an inner meaning, a living sense which was the heart's intention. This he would have the Lord sift out from the chaff, and hear amid the mingled din. May our prayers never be voiceless; may the soul's intent always give them a live core of meaning.
 
 ### Verse 7
 
@@ -74,9 +74,9 @@ Thou art God alone. Alone wast thou God before thy creatures were; alone in godh
 
 ### Verse 11
 
-> Teach me thy way, O LORD; I will walk in thy truth: unite my heart to fear thy name.
+> Teach me thy way, O Lord; I will walk in thy truth: unite my heart to fear thy name.
 
-*Teach me thy way, O LORD.* Instruct me thus at all times, let me live in thy school; but teach me now especially since I am in trouble and perplexity. Be pleased to shew me the way which thy wisdom and mercy have prepared for my escape; behold I lay aside all wilfulness, and only desire to be informed as to thy holy and gracious mind. Not *my* way give me, but *thy* way teach me, I would follow thee and not be wilful. I will walk in thy truth. When taught I will practise what I know, truth shall not be a mere doctrine or sentiment to me, but a matter of daily life. The true servant of God regulates his walk by his master's will, and hence he never walks deceitfully, for God's way is ever truth. Providence has a way for us, and it is our wisdom to keep in it. We must not be as the bullock which needs to be driven and urged forward because it likes not the road, but be as men who voluntarily go where their trusted friend and helper appoints their path. Unite my heart to fear thy name. Having taught me one way, give me one heart to walk therein, for too often I feel a heart and a heart, two natures contending, two principles struggling for sovereignty. Our minds are apt to be divided between a variety of objects, like trickling streamlets which waste their force in a hundred runnels; our great desire should be to have all our life floods poured into one channel and to have that channel directed towards the Lord alone. A man of divided heart is weak, the man of one object is *the* man. God who created the bands of our nature can draw them together, tighten, strengthen, and fasten them, and so braced and inwardly knit by his uniting grace, we shall be powerful for good, but not otherwise. To fear God is both the beginning, the growth, and the maturity of wisdom, therefore should we be undividedly given up to it, heart, and soul.
+*Teach me thy way, O Lord.* Instruct me thus at all times, let me live in thy school; but teach me now especially since I am in trouble and perplexity. Be pleased to shew me the way which thy wisdom and mercy have prepared for my escape; behold I lay aside all wilfulness, and only desire to be informed as to thy holy and gracious mind. Not *my* way give me, but *thy* way teach me, I would follow thee and not be wilful. I will walk in thy truth. When taught I will practise what I know, truth shall not be a mere doctrine or sentiment to me, but a matter of daily life. The true servant of God regulates his walk by his master's will, and hence he never walks deceitfully, for God's way is ever truth. Providence has a way for us, and it is our wisdom to keep in it. We must not be as the bullock which needs to be driven and urged forward because it likes not the road, but be as men who voluntarily go where their trusted friend and helper appoints their path. Unite my heart to fear thy name. Having taught me one way, give me one heart to walk therein, for too often I feel a heart and a heart, two natures contending, two principles struggling for sovereignty. Our minds are apt to be divided between a variety of objects, like trickling streamlets which waste their force in a hundred runnels; our great desire should be to have all our life floods poured into one channel and to have that channel directed towards the Lord alone. A man of divided heart is weak, the man of one object is *the* man. God who created the bands of our nature can draw them together, tighten, strengthen, and fasten them, and so braced and inwardly knit by his uniting grace, we shall be powerful for good, but not otherwise. To fear God is both the beginning, the growth, and the maturity of wisdom, therefore should we be undividedly given up to it, heart, and soul.
 
 ### Verse 12
 
@@ -110,7 +110,7 @@ Thou art God alone. Alone wast thou God before thy creatures were; alone in godh
 
 ### Verse 17
 
-> Shew me a token for good; that they which hate me may see *it*, and be ashamed: because thou, LORD, hast holpen me, and comforted me.
+> Shew me a token for good; that they which hate me may see *it*, and be ashamed: because thou, Lord, hast holpen me, and comforted me.
 
 *Shew to me a token for good.* Let me be assured of thy mercy by being delivered out of trouble.
 
@@ -124,7 +124,7 @@ And filled with blank confusion know,
 
 My comfort and my help in thee."
 
-What bodes good to me shall make them quail and blush. Disappointed and defeated, the foes of the good man would feel ashamed of what they had designed. "Because thou, LORD, hast holpen me, and comforted me." God doth nothing by halves, those whom he helps he also consoles, and so makes them not merely safe but joyful. This makes the foes of the righteous exceedingly displeased, but it brings to the Lord double honour. Lord, deal thou thus with us evermore, so will we glorify thee, world without end. Amen.
+What bodes good to me shall make them quail and blush. Disappointed and defeated, the foes of the good man would feel ashamed of what they had designed. "Because thou, Lord, hast holpen me, and comforted me." God doth nothing by halves, those whom he helps he also consoles, and so makes them not merely safe but joyful. This makes the foes of the righteous exceedingly displeased, but it brings to the Lord double honour. Lord, deal thou thus with us evermore, so will we glorify thee, world without end. Amen.
 
 ## Explanatory Notes & Quaint Sayings
 

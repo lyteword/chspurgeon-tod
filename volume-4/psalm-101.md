@@ -4,15 +4,15 @@ weight: 101
 
 # Psalm 101
 
-**Title &mdash;** *A Psalm of David. This is just such a psalm as the man after God's own heart would compose when he was about to become king in Israel. It is David all over, straight forward, resolute, devout; there is no trace of policy or vacillation, the Lord has appointed him to be king, and he knows it, therefore he purposes in all things to behave as becomes a monarch who me the Lord himself has chosen. If we call this THE PSALM or PIOUS RESOLUTIONS, we shall perhaps remember it all the more readily. After songs of praise a psalm of practice not only makes variety, but comes in most fittingly. We never praise the Lord better than when we do those things which are pleasing in his sight.*
+**Title &mdash;** *A Psalm of David. This is just such a psalm as the man after God's own heart would compose when he was about to become king in Israel. It is David all over, straight forward, resolute, devout; there is no trace of policy or vacillation, the Lord has appointed him to be king, and he knows it, therefore he purposes in all things to behave as becomes a monarch who me the Lord himself has chosen. If we call this The Psalm of Pious Resolutions, we shall perhaps remember it all the more readily. After songs of praise a psalm of practice not only makes variety, but comes in most fittingly. We never praise the Lord better than when we do those things which are pleasing in his sight.*
 
 ## Exposition
 
 ### Verse 1
 
-> I will sing of mercy and judgment: unto thee, O LORD, will I sing.
+> I will sing of mercy and judgment: unto thee, O Lord, will I sing.
 
-*I will sing of mercy and judgment.* He would extol both the love and the severity, the sweets and the bitters, which the Lord had mingled in Iris experience; he would admire the justice and the goodness of the Lord. Such a song would fitly lead up to godly resolutions as to his own conduct, for that which we admire in our superiors we naturally endeavour to imitate. Mercy and judgment would temper the administration of David, because he had adoringly perceived them in the dispensations of his God. Everything in God's dealings with us may fittingly become the theme of song, and we have not viewed it aright until we feel we can sing about it. We ought as much to bless the Lord for the judgment with which he chastens our sin, as for the mercy with which he forgives it; there is as much love in the blows of his hand as in the kisses of his mouth. Upon a retrospect of their lives instructed saints scarcely know which to be most grateful for—the comforts which have, or the afflictions which nave purged them. Unto thee, O LORD, will I sing. Jehovah shall have all our praise. The secondary agents of either the mercy or the judgment must hold a very subordinate place in oue memory, and the Lord alone must be hymned by our heart. Our soul's sole worship must be the lauding of the Lord. The psalmist forsakes the minor key, which was soon to rule him in the one hundred and second psalm, and resolves that, come what may, he will sing, and sing to the Lord too, whatever others might do.
+*I will sing of mercy and judgment.* He would extol both the love and the severity, the sweets and the bitters, which the Lord had mingled in Iris experience; he would admire the justice and the goodness of the Lord. Such a song would fitly lead up to godly resolutions as to his own conduct, for that which we admire in our superiors we naturally endeavour to imitate. Mercy and judgment would temper the administration of David, because he had adoringly perceived them in the dispensations of his God. Everything in God's dealings with us may fittingly become the theme of song, and we have not viewed it aright until we feel we can sing about it. We ought as much to bless the Lord for the judgment with which he chastens our sin, as for the mercy with which he forgives it; there is as much love in the blows of his hand as in the kisses of his mouth. Upon a retrospect of their lives instructed saints scarcely know which to be most grateful for—the comforts which have, or the afflictions which nave purged them. Unto thee, O Lord, will I sing. Jehovah shall have all our praise. The secondary agents of either the mercy or the judgment must hold a very subordinate place in oue memory, and the Lord alone must be hymned by our heart. Our soul's sole worship must be the lauding of the Lord. The psalmist forsakes the minor key, which was soon to rule him in the one hundred and second psalm, and resolves that, come what may, he will sing, and sing to the Lord too, whatever others might do.
 
 ### Verse 2
 
@@ -52,25 +52,25 @@ weight: 101
 
 ### Verse 8
 
-> I will early destroy all the wicked of the land; that I may cut off all wicked doers from the city of the LORD.
+> I will early destroy all the wicked of the land; that I may cut off all wicked doers from the city of the Lord.
 
 *I will early destroy all the wicked of the land.* At the very outset of his government he would promptly deal out justice to the worthless, he would leave them no rest, but make them leave their wickedness or feel the lash of the law. The righteous magistrate "beareth not the sword in vain." To favour sin is to discourage virtue; undue leniency to the bad is unkindness to the good. When our Lord comes in judgment, this verse will be fulfilled on a large scale; till then he sinks the judge in the Saviour, and bids men leave their sins and find pardon. Under the gospel we also are bidden to suffer long, and to be kind, even to the unthankful and the evil; but the office of the magistrate is of another kind, and he must have a sterner eye to justice than would be proper in private persons. Is he not to be a terror to evil doers? That I may cut off all the wicked doers from the city of the Lord. Jerusalem was to be a holy city, and the psalmist meant to be doubly careful in purging it from ungodly men. Judgment must begin at the house of God. Jesus reserves his scourge of small cords for sinners inside the temple. How pure ought the church to be, and how diligently should all those who hold office therein labour to keep out and chase out men of unclean lives. Honourable offices involve serious responsibilities; to trifle with them will bring our own souls into guilt, and injure beyond calculation the souls of others. Lord, come to us, that we, in our several positions in life, may walk before thee with perfect hearts.
 
 ### Verse 8
 
-> I will early destroy all the wicked of the land; that I may cut off all wicked doers from the city of the LORD.
+> I will early destroy all the wicked of the land; that I may cut off all wicked doers from the city of the Lord.
 
-*That I may cut off all wicked doers from the city of the LORD.* As the kingdom of David was only a faint image of the kingdom of Christ, we ought to set Christ before our view; who, although he may bear with many hypocrites, yet as he will be the judge of the world, will at length call them all to on account, and separate the sheep from the goats. And if it seems to us that he tarries too long, we should think of that morning which will suddenly dawn, that all filthiness being purged away, true purity may shine forth.— *John Calvin.*
+*That I may cut off all wicked doers from the city of the Lord.* As the kingdom of David was only a faint image of the kingdom of Christ, we ought to set Christ before our view; who, although he may bear with many hypocrites, yet as he will be the judge of the world, will at length call them all to on account, and separate the sheep from the goats. And if it seems to us that he tarries too long, we should think of that morning which will suddenly dawn, that all filthiness being purged away, true purity may shine forth.— *John Calvin.*
 
 ### Verse 8
 
-> I will early destroy all the wicked of the land; that I may cut off all wicked doers from the city of the LORD.
+> I will early destroy all the wicked of the land; that I may cut off all wicked doers from the city of the Lord.
 
 *Early.* From some incidental notices of Scripture (2Sa 15:2 Ps 101:8 Je 21:12), it has been inferred that judges ordinarily held their sessions in the morning. In a climate like that of Palestine, such a custom would be natural and convenient. It is doubtful, however, whether this passage expresses anything more than the promptness and zeal which a righteous judge exercises in the discharge of his duty.— *E. P. Barrows*, in *"Biblical Geography and Antiquities".*
 
 ### Verse 8
 
-> I will early destroy all the wicked of the land; that I may cut off all wicked doers from the city of the LORD.
+> I will early destroy all the wicked of the land; that I may cut off all wicked doers from the city of the Lord.
 
 The holy vow "to destroy all the wicked of the lands": and to "cut off all wicked doers from the city of the Lord, "must begin at our own hearts as his sanctuary, the temple of the Holy Ghost.— *Alfred Edersheim.*
 
@@ -250,5 +250,5 @@ As mercy is here set in the first place; so shall the sentence of mercy and abso
 
 ## Works Upon The Hundred And First Psalm
 
-In CHANDLER's *"Life of David"*, Vol. II, pp. 16-20, there is an Exposition of this Psalm. "King David's Vow for Reformation of Himselfe, his Family, his Kingdome. Delivered in twelve sermons before the Prince his Highhesse vpon Psalme 101. By GEORGE HAKEWl LL, Dr. in Diuinity. London 1622."
+In Chandler's *"Life of David"*, Vol. II, pp. 16-20, there is an Exposition of this Psalm. "King David's Vow for Reformation of Himselfe, his Family, his Kingdome. Delivered in twelve sermons before the Prince his Highhesse vpon Psalme 101. By George Hakewl LL, Dr. in Diuinity. London 1622."
 

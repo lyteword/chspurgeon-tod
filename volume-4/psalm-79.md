@@ -36,7 +36,7 @@ weight: 79
 
 ### Verse 5
 
-> How long, LORD? wilt thou be angry for ever? shall thy jealousy burn like fire?
+> How long, Lord? wilt thou be angry for ever? shall thy jealousy burn like fire?
 
 *"How long, Lord?"* Will there be no end to these chastisements? They are most sharp and overwhelming; wilt thou much longer continue them? *"Wilt thou be angry for ever?"* Is thy mercy gone so that thou wilt for ever smite? *"Shall thy jealousy burn like fire?"* There was great cause for the Lord to be jealous, since idols had been set up, and Israel had gone aside from his worship, but the psalmist begs the Lord not to consume his people utterly as with fire, but to abate their woes.
 
@@ -266,5 +266,5 @@ III. Resolution formed.
 
 ## Works Upon The Seventy-Ninth Psalm
 
-"Prodromus, or the Literal Destruction of Jerusalem as it is *described in the 79th Psalm&mdash;1613"* (By JOHN DUNSTER.)
+"Prodromus, or the Literal Destruction of Jerusalem as it is *described in the 79th Psalm&mdash;1613"* (By John Dunster.)
 
