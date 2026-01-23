@@ -102,7 +102,7 @@ From *the word of the Spirit*, the word of God. Ps 119:50: "This is my comfort i
 
 **Verse 4.** *Then will I go unto the altar of God.* He would with cheerfulness run and offer up the sacrifice of thanksgiving to his gracious deliverer; he would take his own soul as the burnt offering, and kindle and burn it up with the fire of a vigorous love and raised affections terminating upon God, the flames whereof should ascend to him alone&mdash;*Unto God my exceeding joy, * or, as the Hebrew is more exactly translated, *unto God the gladness of his joy* —that which gave a relish to every other comfort, which was the soul and life of his pleasures, and could only make them real and lasting; it was God who raised his joy to fulness of satisfaction and contentment. *William Dunlop.* 
 
-**Verse 4.** *Then will I go&mdash; unto God.* The expression of *going to God* implies SUBMISSION and FRIENDSHIP
+**Verse 4.** *Then will I go&mdash; unto God.* The expression of *going to God* implies submission and friendship:
 
 1\. *Submission.* I will go and pay my homage to him, as my Sovereign; I will go and hear what he says; I will go and receive his orders.
 
@@ -212,5 +212,5 @@ From *the word of the Spirit*, the word of God. Ps 119:50: "This is my comfort i
 
 "Soul cordials against Sore Discomforts: in a Commentary or *Explanations and Applications of the whole Forty-third Psalm, "* pp. 312-562 of *"The Works of Dr. Nathanael Homes, "* 1652 (folio).
 
-In *"Sabbaths at Home."* by HENRY MARCH, there is an exposition of this Psalm. See *"Treasury of David, "* Vol. II, Page 323.
+In *"Sabbaths at Home."* by Henry March, there is an exposition of this Psalm. See *"Treasury of David, "* Vol. II, Page 323.
 
