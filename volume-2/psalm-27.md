@@ -12,7 +12,7 @@ weight: 27
 
 ### Verse 1
 
-> The LORD *is* my light and my salvation; whom shall I fear? the LORD *is* the strength of my life; of whom shall I be afraid?
+> The Lord *is* my light and my salvation; whom shall I fear? the Lord *is* the strength of my life; of whom shall I be afraid?
 
 *The Lord is my light and my salvation.* Here is personal interest, *"my light, ""my salvation; "* the soul is assured of it, and therefore, declaring it boldly. *"My light; "* —into the soul at the new birth divine light is poured as the precursor of salvation; where there is not enough light to see our own darkness and to long for the Lord Jesus, there is no evidence of salvation. Salvation finds us in the dark, but it does not leave us there; it gives light to those who sit in the valley of the shadow of death. After conversion our God is our joy, comfort, guide, teacher, and in every sense our light; he is light within, light around, light reflected from us, and light to be revealed to us. Note, it is not said merely that the Lord gives light, but that he *"is"* light; nor that he gives salvation, but that he is salvation; he, then, who by faith has laid hold upon God has all covenant blessings in his possession. Every light is not the sun, but the sun is the father of all lights. This being made sure as a fact, the argument drawn from it is put in the form of a question, *Whom shall I fear?* A question which is its own answer. The powers of darkness are not to be feared, for the Lord, our light, destroys them; and the damnation of hell is not to be dreaded by us, for the Lord is our salvation. This is a very different challenge from that of boastful Goliath, for it is based upon a very different foundation; it rests not upon the conceited vigour of an arm of flesh, but upon the real power of the omnipotent I AM. *The Lord is the strength of my life.* Here is a third glowing epithet, to show that the writer's hope was fastened with a threefold cord which could not be broken. We may well accumulate terms of praise where the Lord lavishes deeds of grace. Our life derives all its strength from him who is the author if it; and if he deigns to make us strong we cannot be weakened by all the machinations of the adversary. *Of whom shall I be afraid?* The bold question looks into the future as well as the present. "If God be for us, "who can be against us, either now or in time to come?
 
@@ -30,7 +30,7 @@ Though an host should encamp against me, my heart shall *not fear.* Before the a
 
 ### Verse 4
 
-> One *thing* have I desired of the LORD, that will I seek after; that I may dwell in the house of the LORD all the days of my life, to behold the beauty of the LORD, and to enquire in his temple.
+> One *thing* have I desired of the Lord, that will I seek after; that I may dwell in the house of the Lord all the days of my life, to behold the beauty of the Lord, and to enquire in his temple.
 
 *One thing.* Divided aims tend to distraction, weakness, disappointment. The man of one book is eminent, the man of one pursuit is successful. Let all our affections be bound up in one affection, and that affection set upon heavenly things. *Have I desired* —what we cannot at once attain, it is well to desire. God judges us very much by the desire of our hearts. He who rides a lame horse is not blamed by his master for want of speed, if he makes all the haste he can, and would make more if he could; God takes the will for the deed with his children. *Of the Lord.* This is the right target for desires, this is the well into which to dip our buckets, this is the door to knock at, the bank to draw upon; desire of men, and lie upon the dunghill with Lazarus: desire of the Lord, and to be carried of angels into Abraham's bosom. Our desires of the Lord should be sanctified, humble, constant, submissive, fervent, and it is well if, as with the psalmist, they are all molten into one mass. Under David's painful circumstances we might have expected him to desire repose, safety, and a thousand other good things, but no, he has set his heart on the pearl, and leaves the rest. *That will I seek after.* Holy desires must lead to resolute action. The old proverb says, "Wishers and woulders are never good housekeepers, "and "wishing never fills a sack." Desires are seed which must be sown in the good soil of activity, or they will yield no harvest. We shall find our desires to be like clouds without rain, unless followed up by practical endeavours. *That I may dwell in the house of the Lord all the days of my life.* For the sake of communion with the King, David longed to dwell always in the palace; so far from being wearied with the services of the Tabernacle, he longed to be constantly engaged in them, as his life long pleasure. He desired above all things to be one of the household of God, a home born child, living at home with his Father. This is our dearest wish, only we extend it to those days of our immortal life which have not yet dawned. We pine for our Father's house above, the home of our souls; if we may but dwell there for ever, we care but little for the goods or ills of this poor life. "Jerusalem the golden" is the one and only goal of our heart's longings. *To behold the beauty of the Lord.* An exercise both for earthly and heavenly worshippers. We must not enter the assemblies of the saints in order to see and be seen, or merely to hear the minister; we must repair to the gatherings of the righteous, intent upon the gracious object of learning more of the loving Father, more of the glorified Jesus, more of the mysterious Spirit, in order that we may the more lovingly admire, and the more reverently adore our glorious God. What a word is that, *"the beauty of the Lord!"* Think of it, dear reader! Better far—behold it by faith! What a sight will that be when every faithful follower of Jesus shall behold "the King in his beauty!" Oh, for that infinitely blessed vision! *And to enquire in his temple.* We should make our visits to the Lord's house enquirers' meetings. Not seeking sinners alone, but assured saints should be enquirers. We must enquire as to the will of God and how we may do it; as to our interest in the heavenly city, and how we may be more assured of it. We shall not need to make enquiries in heaven, for there we shall know even as we are known; but meanwhile we should sit at Jesus' feet, and awaken all our faculties to learn of him.
 
@@ -42,19 +42,19 @@ This verse gives an excellent reason for the psalmist's desire after communion w
 
 ### Verse 6
 
-> And now shall mine head be lifted up above mine enemies round about me: therefore will I offer in his tabernacle sacrifices of joy; I will sing, yea, I will sing praises unto the LORD.
+> And now shall mine head be lifted up above mine enemies round about me: therefore will I offer in his tabernacle sacrifices of joy; I will sing, yea, I will sing praises unto the Lord.
 
 *And now shall mine head be lifted up above mine enemies round about me.* He is quite sure of it. Godly men of old prayed in faith, nothing wavering, and spoke of their answer to their prayers as a certainty. David was by faith so sure of a glorious victory over all those who beset him, that he arranged in his own heart what he would do when his foes lay all prostrate before him; that arrangement was such as gratitude suggested. *Therefore will I offer in his tabernacle sacrifices of joy.* That place for which he longed in his conflict, should see his thankful joy in his triumphant return. He does not speak of jubilations to be offered in his palace, and feastings in his banqueting halls, but holy mirth he selects as most fitting for so divine a deliverance. *I will sing.* This is the most natural mode of expressing thankfulness. *Yea, I will sing praises unto the Lord.* The vow is confirmed by repetition, and explained by addition, which addition vows all the praise unto Jehovah. Let who will be silent, the believer when his prayer is heard, must and will make his praise to be heard also; and let who will sing unto the vanities of the world, the believer reserves his music for the Lord alone.
 
 ### Verse 7
 
-> Hear, O LORD, *when* I cry with my voice: have mercy also upon me, and answer me.
+> Hear, O Lord, *when* I cry with my voice: have mercy also upon me, and answer me.
 
 *Hear, O Lord, when I cry with my voice.* The pendulum of spirituality swings from prayer to praise. The voice which in the last verse was tuned to music is here turned to crying. As a good soldier, David knew how to handle his weapons, and found himself much at home with the weapon of "all prayer." Note his anxiety to be heard. Pharisees care not a fig for the Lord's hearing them, so long as they are heard of men, or charm their own pride with their sounding devotions; but with a genuine man, the Lord's ear is everything. The *voice* may be profitably used even in private prayer; for though it is unnecessary, it is often helpful, and aids in preventing distractions. *Have mercy also upon me.* Mercy is the hope of sinners and the refuge of saints. All acceptable petitioners dwell much upon this attribute. *And answer me.* We may expect answers to prayer, and should not be easy without them any more than we should be if we had written a letter to a friend upon important business, and had received no reply.
 
 ### Verse 8
 
-> *When thou saidst*, Seek ye my face; my heart said unto thee, Thy face, LORD, will I seek.
+> *When thou saidst*, Seek ye my face; my heart said unto thee, Thy face, Lord, will I seek.
 
 In this verse we are taught that if we would have the Lord hear our voice, we must be careful to respond to *his* voice. The true heart should echo the will of God as the rocks among the Alps repeat in sweetest music the notes of the peasant's horn. Observe, that the command was in the plural, to all the saints, *Seek ye;* but the man of God turned it into the singular by a personal application, *Thy face, Lord, will I seek.* The voice of the Lord is very effectual where all other voices fail. *When thou saidst, * then my *heart*, my inmost nature was moved to an obedient reply. Note the promptness of the response—no sooner said than done; as soon as God said *"seek, "* the heart said, *"I will seek."* Oh, for more of this holy readiness! Would to God that we were more plastic to the divine hand, more sensitive of the touch of God's Spirit.
 
@@ -66,13 +66,13 @@ In this verse we are taught that if we would have the Lord hear our voice, we mu
 
 ### Verse 10
 
-> When my father and my mother forsake me, then the LORD will take me up.
+> When my father and my mother forsake me, then the Lord will take me up.
 
 *When my father and my mother forsake me.* These dear relations will be the last to desert me, but if the milk of human kindness should dry up even from their breasts, there is a Father who never forgets. Some of the greatest of the saints have been cast out by their families, and persecuted for righteousness' sake. *Then the Lord will take me up.* Will espouse my cause, will uplift me from my woes, will carry me in his arms, will elevate me above my enemies, will at last receive me to his eternal dwelling place.
 
 ### Verse 11
 
-> Teach me thy way, O LORD, and lead me in a plain path, because of mine enemies.
+> Teach me thy way, O Lord, and lead me in a plain path, because of mine enemies.
 
 *Teach me thy way, O Lord.* He does not pray to be indulged with his own way, but to be informed as to the path in which the righteous Jehovah would have him walk. This prayer evinces an humble sense of personal ignorance, great teachableness of spirit, and cheerful obedience of heart. *Lead me in a plain path.* Help is here sought as well as direction; we not only need a map of the way, but a guide to assist us in the journey. A path is here desired which shall be open, honest, straightforward, in opposition to the way of cunning, which is intricate, tortuous, dangerous. Good men seldom succeed in fine speculations and doubtful courses; plain simplicity is the best spirit for an heir of heaven: let us leave shifty tricks and political expediencies to the citizens of the world—the New Jerusalem owns plain men for its citizens. Esau was a cunning hunter, Jacob was a plain man, dwelling in tents. *Because of mine enemies.* These will catch us if they can, but the way of manifest, simple honesty is safe from their rage. It is wonderful to observe how honest simplicity baffles and outwits the craftiness of wickedness. Truth is wisdom. "Honesty is the best policy."
 
@@ -84,15 +84,15 @@ In this verse we are taught that if we would have the Lord hear our voice, we mu
 
 ### Verse 13
 
-> *I had fainted*, unless I had believed to see the goodness of the LORD in the land of the living.
+> *I had fainted*, unless I had believed to see the goodness of the Lord in the land of the living.
 
 Faintness of heart is a common infirmity; even he who slew Goliath was subject to its attacks. Faith puts its bottle of cordial to the lip of the soul, and so prevents fainting. Hope is heaven's balm for present sorrow. In this land of the dying, it is our blessedness to be looking and longing for our fair portion in the land of the living, whence the goodness of God has banished the wickedness of man, and where holy spirits charm with their society those persecuted saints who were vilified and despised among men. We must believe to see, not see to believe; we must wait the appointed time, and stay our soul's hunger with foretastes of the Lord's eternal goodness which shall soon be our feast and our song.
 
 ### Verse 14
 
-> Wait on the LORD: be of good courage, and he shall strengthen thine heart: wait, I say, on the LORD.
+> Wait on the Lord: be of good courage, and he shall strengthen thine heart: wait, I say, on the Lord.
 
-*Wait on the Lord.* Wait at his door with prayer; wait at his foot with humility; wait at his table with service; wait at his window with expectancy. Suitors often win nothing but the cold shoulder from earthly patrons after long and obsequious waiting; he speeds best whose patron is in the skies. *Be of good courage.* A soldier's motto. Be it mine. Courage we shall need, and for the exercise of it we have as much reason as necessity, if we are soldiers of King Jesus. *And he shall strengthen thine heart.* He can lay the plaister right upon the weak place. Let the heart be strengthened, and the whole machine of humanity is filled with power; a strong heart makes a strong arm. What strength is this which God himself gives to the heart? Read the "Book of Martyrs, "and see its glorious deeds of prowess; go to God rather, and get such power thyself. *Wait, I say, on the Lord.* David, in the words *"I say, "* sets his own private seal to the word which, as an inspired man, he had been moved to write. It is *his* testimony as well as the command of God, and indeed he who writes these scanty notes has himself found it so sweet, so reviving, so profitable to draw near to God, that on his own account he also feels bound to write, *"Wait, * I SAY, *on the Lord."*
+*Wait on the Lord.* Wait at his door with prayer; wait at his foot with humility; wait at his table with service; wait at his window with expectancy. Suitors often win nothing but the cold shoulder from earthly patrons after long and obsequious waiting; he speeds best whose patron is in the skies. *Be of good courage.* A soldier's motto. Be it mine. Courage we shall need, and for the exercise of it we have as much reason as necessity, if we are soldiers of King Jesus. *And he shall strengthen thine heart.* He can lay the plaister right upon the weak place. Let the heart be strengthened, and the whole machine of humanity is filled with power; a strong heart makes a strong arm. What strength is this which God himself gives to the heart? Read the "Book of Martyrs, "and see its glorious deeds of prowess; go to God rather, and get such power thyself. *Wait, I say, on the Lord.* David, in the words *"I say, "* sets his own private seal to the word which, as an inspired man, he had been moved to write. It is *his* testimony as well as the command of God, and indeed he who writes these scanty notes has himself found it so sweet, so reviving, so profitable to draw near to God, that on his own account he also feels bound to write, *"Wait, * I say, *on the Lord."*
 
 ## Explanatory Notes & Quaint Sayings
 
@@ -334,7 +334,7 @@ Love Jesus! and of conquest rest secure.
 
 ## Works Upon The Twenty-Seventh Psalm
 
- *Excellent Encouragements against Afflictions, containing David's Triumph over Distress; or an Exposition of Psalm 27*. By THOMAS PIERSON, M. A. (Reprinted in Nichol's Series of Puritan Commentaries.)
+ *Excellent Encouragements against Afflictions, containing David's Triumph over Distress; or an Exposition of Psalm 27*. By Thomas Pierson, M. A. (Reprinted in Nichol's Series of Puritan Commentaries.)
 
- *Meditations upon the 27th Psalm of David*. By SIR RICHARD BAKER.
+ *Meditations upon the 27th Psalm of David*. By Sir Richard Baker.
 
