@@ -12,25 +12,25 @@ weight: 30
 
 ### Verse 1
 
-> I will extol thee, O LORD; for thou hast lifted me up, and hast not made my foes to rejoice over me.
+> I will extol thee, O Lord; for thou hast lifted me up, and hast not made my foes to rejoice over me.
 
 *I will extol thee.* I will have high and honourable conceptions of thee, and give them utterance in my best music. Others may forget thee, murmur at thee, despise thee, blaspheme thee, but "I will extol thee, "for I have been favoured above all others. I will extol thy name, thy character, thine attributes, thy mercy to me, thy great forbearance to my people; but, especially will I speak well of thyself; "I will extol thee, "O Jehovah; this shall be my cheerful and constant employ. *For thou hast lifted me up.* Here is an antithesis, "I will exalt thee, for thou hast exalted me." I would render according to the benefits received. The Psalmist's praise was reasonable. He had a reason to give for the praise that was in his heart. He had been drawn up like a prisoner from a dungeon, like Joseph out of the pit, and therefore he loved his deliverer. Grace has uplifted us from the pit of hell, from the ditch of sin, from the Slough of Despond, from the bed of sickness, from the bondage of doubts and fears: have we no song to offer for all this? How high has our Lord lifted us? Lifted us up into the children's place, to be adopted into the family; lifted us up into union with Christ, "to sit together with him in heavenly places." Lift high the name of our God, for he has lifted us up above the stars. *And hast not made my foes to rejoice over me.* This was the judgment which David most feared out of the three evils; he said, let me fall into the hand of the Lord, and not into the hand of man. Terrible indeed were our lot if we were delivered over to the will of our enemies. Blessed be the Lord, we have been preserved from so dire a fate. The devil and all our spiritual enemies have not been permitted to rejoice over us; for we have been saved from the fowler's snare. Our evil companions, who prophesied that we should go back to our old sins, are disappointed. Those who watched for our halting, and would fain say, "Aha! Aha! So would we have it!" have watched in vain until now. O happy they whom the Lord keeps so consistent in character that the lynx eyes of the world can see no real fault in them. Is this our case? let us ascribe all the glory to him who has sustained us in our integrity.
 
 ### Verse 2
 
-> O LORD my God, I cried unto thee, and thou hast healed me.
+> O Lord my God, I cried unto thee, and thou hast healed me.
 
 *O Lord my God, I cried unto thee, and thou hast healed me.* David sent up prayers for himself and for his people when visited with the pestilence. He went at once to head quarters, and not roundabout to fallible means. God is the best physician, even for our bodily infirmities. We do very wickedly and foolishly when we forget God. It was a sin in Asa that he trusted to physicians and not to God. If we must have a physician, let it be so, but still let us go to our God first of all; and, above all, remember that there can be no power to heal in medicine of itself; the healing energy must flow from the divine hand. If our watch is out of order, we take it to the watchmaker; if our body or soul be in an evil plight, let us resort to him who created them, and has unfailing skill to put them in right condition. As for our spiritual diseases, nothing can heal these evils but the touch of the Lord Christ: if we do but touch the hem of his garment, we shall be made whole, while if we embrace all other physicians in our arms, they can do us no service. *"O Lord my God."* Observe the covenant name which faith uses— *"my God."* Thrice happy is he who can claim the Lord himself to be his portion. Note how David's faith ascends the scale; he sang "O Lord" in the first verse, but it is "O Lord my God, "in the second. Heavenly heart music is an ascending thing, like the pillars of smoke which rose from the altar of incense. *I cried unto thee*. I could hardly pray, but I cried; I poured out my soul as a little child pours out its desires. I cried to my God: I knew to whom to cry; I did not cry to my friends, or to any arm of flesh. Hence the sure and satisfactory result— *Thou hast healed me*. I know it. I am sure of it. I have the evidence of spiritual health within me now: glory be to thy name! Every humble suppliant with God who seeks release from the disease of sin, shall speed as well as the Psalmists did, but those who will not so much as seek a cure, need not wonder if their wounds putrefy and their soul dies.
 
 ### Verse 3
 
-> O LORD, thou hast brought up my soul from the grave: thou hast kept me alive, that I should not go down to the pit.
+> O Lord, thou hast brought up my soul from the grave: thou hast kept me alive, that I should not go down to the pit.
 
 *O Lord, thou hast brought up my soul from the grave.* Mark, it is not "I hope so; "but it is, *"Thou hast; thou hast; thou hast"* —three times over. David is quite sure, beyond a doubt, that God has done great things for him, whereof he is exceeding glad. He had descended to the brink of the sepulchre, and yet was restored to tell of the forbearance of God; nor was this all, he owned that nothing but grace had kept him from the lowest hell, and this made him doubly thankful. To be spared from the grave is much; to be delivered from the pit is more; hence there is growing cause for praise, since both deliverances are alone traceable to the glorious right hand of the Lord, who is the only preserver of life, and the only Redeemer of our souls from hell.
 
 ### Verse 4
 
-> Sing unto the LORD, O ye saints of his, and give thanks at the remembrance of his holiness.
+> Sing unto the Lord, O ye saints of his, and give thanks at the remembrance of his holiness.
 
 *Sing unto the Lord, O ye saints of his.* "Join my song; assist me to express my gratitude." He felt that he could not praise God enough himself, and therefore he would enlist the hearts of others. *Sing unto the Lord, O ye saints of his.* David would not fill his choir with reprobates, but with sanctified persons, who could sing from their hearts. He calls to you, ye people of God, because ye are *saints:* and if sinners are wickedly silent, let your holiness constrain *you* to sing. You are *his* saints—chosen, blood bought, called, and set apart for God; sanctified on purpose that you should offer the daily sacrifice of praise. Abound ye in this heavenly duty. *Sing unto the Lord.* It is a pleasing exercise; it is a profitable engagement. Do not need to be stirred up so often to so pleasant a service. *And give thanks*. Let your songs be grateful songs, in which the Lord's mercies shall live again in joyful remembrance. The very remembrance of the past should tune our harps, even if present joys be lacking. *At the remembrance of his holiness.* Holiness is an attribute which inspires the deepest awe, and demands a reverent mind; but still give thanks at the remembrance of it. "Holy, holy, holy!" is the song of seraphim and cherubim; let us join it—not dolefully, as though we trembled at the holiness of God, but cheerfully, as humbly rejoicing in it.
 
@@ -48,7 +48,7 @@ weight: 30
 
 ### Verse 7
 
-> LORD, by thy favour thou hast made my mountain to stand strong: thou didst hide thy face, *and* I was troubled.
+> Lord, by thy favour thou hast made my mountain to stand strong: thou didst hide thy face, *and* I was troubled.
 
 *Lord, by thy favour thou hast made my mountain to stand strong.* He ascribed his prosperity to the Lord's favour—so far good, it is well to own the hand of the Lord in all our stability and wealth. But observe that the good in a good man is not unmingled good, for this was alloyed with carnal security. His state he compares to a mountain, a molehill would have been nearer—we never think too little of ourselves. He boasted that his mountain stood strong, and yet he had before, in Psalm 29, spoken of Sirion and Lebanon as moving like young unicorns. Was David's state more firm than Lebanon? Ah, vain conceit, too common to us all! How soon the bubble bursts when God's people get conceit into their heads, and fancy that they are to enjoy immutability beneath the stars, and constancy upon this whirling orb. How touchingly and teachingly God corrected his servant's mistake: *Thou didst hide thy face, and I was troubled*. There was no need to come to blows, a hidden face was enough. This proves, first, that David was a genuine saint, for no hiding of God's face on earth would trouble a sinner; and, secondly, that the joy of the saint is dependent upon the presence of his Lord. No mountain, however firm, can yield us rest when our communion with God is broken, and his face is concealed. However, in such a case, it is well to be troubled. The next best thing to basking in the light of God's countenance, is to be thoroughly unhappy when that bliss is denied us.
 
@@ -62,7 +62,7 @@ A constant weeper be!"
 
 ### Verse 8
 
-> I cried to thee, O LORD; and unto the LORD I made supplication.
+> I cried to thee, O Lord; and unto the Lord I made supplication.
 
 *I cried to thee, O Lord.* Prayer is the unfailing resource of God's people. If they are driven to their wit's end, they may still go to the mercyseat. When an earthquake makes our mountain tremble, the throne of grace still stands firm, and we may come to it. Let us never forget to pray, and let us never doubt the success of prayer. The hand which wounds can heal: let us turn to him who smites us, and he will be entreated of us. Prayer is better solace than Cain's building a city, or Saul's seeking for music. Mirth and carnal amusements are a sorry prescription for a mind distracted and despairing: prayer will succeed where all else fails.
 
@@ -74,7 +74,7 @@ In this verse we learn the form and method of David's prayer. It was an argument
 
 ### Verse 10
 
-> Hear, O LORD, and have mercy upon me: LORD, be thou my helper.
+> Hear, O Lord, and have mercy upon me: Lord, be thou my helper.
 
 *Hear, O Lord, and have mercy upon me.* A short and comprehensive petition, available at all seasons, let us use it full often. It is the publican's prayer; be it ours. If God hears prayer, it is a great act of mercy; our petitions do not merit a reply. *Lord, be thou my helper.* Another compact, expressive, ever fitting prayer. It is suitable to hundreds of the cases of the Lord's people; it is well becoming in the minister when he is going to preach, to the sufferer upon the bed of pain, to the toiler in the field of service, to the believer under temptation, to the man of God under adversity; when God helps, difficulties vanish. He is the help of his people, a very present help in trouble. The two brief petitions of this verse are commended as ejaculations to believers full of business, denied to those longer seasons of devotion which are the rare privilege of those whose days are spent in retirement.
 
@@ -86,7 +86,7 @@ Observe the contrast, God takes away the mourning of his people; and what does h
 
 ### Verse 12
 
-> To the end that *my* glory may sing praise to thee, and not be silent. O LORD my God, I will give thanks unto thee for ever.
+> To the end that *my* glory may sing praise to thee, and not be silent. O Lord my God, I will give thanks unto thee for ever.
 
 *To the end* —namely, with this view and intent— *that my glory* —that is, my tongue or my soul— *may sing praise to thee, and not be silent.* It would be a shameful crime, if, after receiving God's mercies, we should forget to praise him. God would not have our tongues lie idle while so many themes for gratitude are spread on every hand. He would have no dumb children in the house. They are all to sing in heaven, and therefore they should all sing on earth. Let us sing with the poet:
 
@@ -326,7 +326,7 @@ Why we have wept before."
 
 ## Works Upon The Thirtieth Psalm
 
- *Meditations upon the XXX Psalme of David.* By Sir RICHARD BAKER. (See Page 10.)
+ *Meditations upon the 30th Psalm of David.* By Sir Richard Baker. (See Page 10.)
 
  *In Chandler's Life of David* (Vol. II., pp. 8-15), there is an *Exposition of Psalm 30.* 
 
