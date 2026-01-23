@@ -6,31 +6,31 @@ weight: 34
 
 **Title &mdash;** *Psalm of David, when he changed his behaviour before Abimelech; who drove him away, and he departed. Of this transaction, which reflects no credit upon David's memory, we have a brief account in 1Sa 21:1-15. Although the gratitude of the psalmist prompted him thankfully to record the goodness of the Lord in vouchsafing an undeserved deliverance, yet he weaves none of the incidents of the escape into the narrative, but dwells only on the grand fact of his being heard in the hour of peril. We may learn from his example not to parade our sins before others, as certain vainglorious professors are wont to do who seem as proud of their sins as old Greenwich pensioners of their battles and their wounds. David played the fool with singular dexterity, but he was not so real a fool as to sing of his own exploits of folly. In the original, the title does not teach us that the psalmist composed this poem at the time of his escape from Achish, the king or Abimelech of Gath, but that it is intended to commemorate that event, and was suggested by it. It is well to mark our mercies with well carved memorials. God deserves our best handiwork. David in view of the special peril from which he was rescued, was at great pains with this Psalm, and wrote it with considerable regularity, in almost exact accordance with the letters of the Hebrew alphabet. This is the second alphabetical Psalm, the twenty-fifth being the first.* 
 
-**Division &mdash;** *The Psalm is split into two great divisions at the close of Ps 34:10, when the Psalmist having expressed his praise to God turns in direct address to men. The first ten verses are A HYMN, and the last twelve A SERMON. For further assistance to the reader we may subdivide thus: In Ps 34:1-3, David vows to bless the Lord, and invites the praise of others; from Ps 34:4-7 he relates his experience, and in Ps 34:8-10 exhorts the godly to constancy of faith. In Ps 34:1-14, he gives direct exhortation, and follows it up by didactic teaching from Ps 34:15-22 to the close.* 
+**Division &mdash;** *The Psalm is split into two great divisions at the close of Ps 34:10, when the Psalmist having expressed his praise to God turns in direct address to men. The first ten verses are a hymn, and the last twelve a sermon. For further assistance to the reader we may subdivide thus: In Ps 34:1-3, David vows to bless the Lord, and invites the praise of others; from Ps 34:4-7 he relates his experience, and in Ps 34:8-10 exhorts the godly to constancy of faith. In Ps 34:1-14, he gives direct exhortation, and follows it up by didactic teaching from Ps 34:15-22 to the close.* 
 
 ## Exposition
 
 ### Verse 1
 
-> I will bless the LORD at all times: his praise *shall* continually *be* in my mouth.
+> I will bless the Lord at all times: his praise *shall* continually *be* in my mouth.
 
 *I will bless the Lord at all times.* He is resolved and fixed, *I will*; he is personally and for himself determined, let others so as they may; he is intelligent in head and inflamed in heart—he knows to whom the praise is due, and what is due, and for what and when. To Jehovah, and not to second causes our gratitude is to be rendered. The Lord hath by right a monopoly in his creatures praise. Even when a mercy may remind us of our sin with regard to it, as in this case David's deliverance from the Philistine monarch was sure to do, we are not to rob God of his meed of honour because our conscience justly awards a censure to our share in the transaction. Though the hook was rusty, yet God sent the fish, and we thank him for it. *At all times*, in every situation, under every circumstance, before, in and after trials, in bright days of glee, and dark nights of fear. He would never have done praising, because never satisfied that he had done enough; always feeling that he fell short of the Lord's deservings. Happy is he whose fingers are wedded to his harp. He who praises God for mercies shall never want a mercy for which to praise. To bless the Lord is never unseasonable. *His praise shall continually be in my mouth, * not in my heart merely, but in my mouth too. Our thankfulness is not to be a dumb thing; it should be one of the daughters of music. Our tongue is our glory, and it ought to reveal the glory of God. What a blessed mouthful is God's praise! How sweet, how purifying, how perfuming! If men's mouths were always thus filled, there would be no repining against God, or slander of neighbours. If we continually rolled this dainty morsel under our tongue, the bitterness of daily affliction would be swallowed up in joy. God deserves blessing with the heart, and extolling with the mouth—good thoughts in the closet, and good words in the world.
 
 ### Verse 2
 
-> My soul shall make her boast in the LORD: the humble shall hear *thereof*, and be glad.
+> My soul shall make her boast in the Lord: the humble shall hear *thereof*, and be glad.
 
 *My soul shall make her boast in the Lord.* Boasting is a very natural propensity, and if it were used as in this case, the more it were indulged the better. The exultation of this verse is no mere tongue bragging, *"the soul"* is in it, the boasting is meant and felt before it is expressed. What scope there is for holy boasting in Jehovah! His person, attributes, covenant, promises, works, and a thousand things besides, are all incomparable, unparalleled, matchless; we may cry them up as we please, but we shall never be convicted of vain and empty speech in so doing. Truly he who writes these words of comment has nothing of his own to boast of, but much to lament over, and yet none shall stop him of his boast in God so long as he lives. *The humble shall hear thereof, and be glad.* They are usually grieved to hear boastings; they turn aside from vauntings and lofty speeches, but boasting in the Lord is quite another matter; by this the most lowly are consoled and encouraged. The confident expressions of tried believers are a rich solace to their brethren of less experience. We ought to talk of the Lord's goodness on purpose that others may be confirmed in their trust in a faithful God.
 
 ### Verse 3
 
-> O magnify the LORD with me, and let us exalt his name together.
+> O magnify the Lord with me, and let us exalt his name together.
 
 *O magnify the Lord with me.* Is this request addressed to the humble? If so it is most fitting. Who can make God great but those who feel themselves to be little? He bids them help him to make the Lord's fame greater among the sons of men. Jehovah is infinite, and therefore cannot really be made greater, but his name grows in manifested glory as he is made known to his creatures, and thus he is said to be magnified. It is well when the soul feels its own inability adequately to glorify the Lord, and therefore stirs up others to the gracious work; this is good both for the man himself and for his companions. No praise can excel that which lays us prostrate under a sense of our own nothingness, while divine grace like some topless Alp rises before our eyes and sinks us lower and lower in holy awe. *Let us exalt his name together.* Social, congregated worship is the outgrowth of one of the natural instincts of the new life. In heaven it is enjoyed to the full, and earth is like heaven where it abounds.
 
 ### Verse 4
 
-> I sought the LORD, and he heard me, and delivered me from all my fears.
+> I sought the Lord, and he heard me, and delivered me from all my fears.
 
 *I sought the Lord, and he heard me.* It must have been in a very confused manner that David prayed, and there must have been much of self sufficiency in his prayer, or he would not have resorted to methods of such dubious morality as pretending to be mad and behaving as a lunatic; yet his poor limping prayer had an acceptance and brought him succour: the more reason for then celebrating the abounding mercy of the Lord. We may seek God even when we have sinned. If sin could blockade the mercyseat it would be all over with us, but the mercy is that there are gifts even for the rebellious, and an advocate for men who sin. *And delivered me from all my fears.* God makes a perfect work of it. He clears away both our fears and their causes, all of them without exception. Glory be to his name, prayer sweeps the field, slays all the enemies and even buries their bones. Note the egoism of this verse and of those preceding it; we need not blush to speak of ourselves when in so doing we honestly aim at glorifying God, and not at exalting ourselves. Some are foolishly squeamish upon this point, but they should remember that when modesty robs God it is most immodest.
 
@@ -42,37 +42,37 @@ weight: 34
 
 ### Verse 6
 
-> This poor man cried, and the LORD heard *him*, and saved him out of all his troubles.
+> This poor man cried, and the Lord heard *him*, and saved him out of all his troubles.
 
 *This poor man cried.* Here he returns to his own case. He was poor indeed, and so utterly friendless that his life was in great jeopardy; but he cried in his heart to the protector of his people and found relief. His prayer was a cry, for brevity and bitterness, for earnestness and simplicity, for artlessness and grief; it was a poor man's cry, but it was none the less powerful with heaven, for *the Lord heard him, * and to be heard of God is to be delivered; and so it is added that the Lord *saved him out of all his troubles.* At once and altogether David was clean rid of all his woes. The Lord sweeps our griefs away as men destroy a hive of hornets, or as the winds clear away the mists. Prayer can clear us of troubles as easily as the Lord made riddance of the frogs and flies of Egypt when Moses entreated him. This verse is the psalmist's own personal testimony: he being dead yet speaketh. Let the afflicted reader take heart and be of good courage.
 
 ### Verse 7
 
-> The angel of the LORD encampeth round about them that fear him, and delivereth them.
+> The angel of the Lord encampeth round about them that fear him, and delivereth them.
 
 *The angel of the Lord.* The covenant angel, the Lord Jesus, at the head of all the bands of heaven, surrounds with his army the dwellings of the saints. Like hosts entrenched so are the ministering spirits encamped around the Lord's chosen, to serve and succour, to defend and console them. *Encampeth round about them that fear him.* On every side the watch is kept by warriors of sleepless eyes, and the Captain of the host is one whose prowess none can resist. *And delivereth them.* We little know how many providential deliverances we owe to those unseen hands which are charged to bear us up lest we dash our foot against a stone.
 
 ### Verse 8
 
-> O taste and see that the LORD *is* good: blessed *is* the man *that* trusteth in him.
+> O taste and see that the Lord *is* good: blessed *is* the man *that* trusteth in him.
 
 *O taste and see.* Make a trial, an inward, experimental trial of the goodness of God. You cannot see except by tasting for yourself; but if you taste you shall see, for this, like Jonathan's honey, enlightens the eyes. *That the Lord is good.* You can only know this really and personally by experience. There is the banquet with its oxen and fatlings; its fat things full of marrow, and wine on the lees well refined; but their sweetness will be all unknown to you except you make the blessings of grace your own, by a living, inward, vital participation in them. *Blessed is the man that trusteth in him.* Faith is the soul's taste; they who test the Lord by their confidence always find him good, and they become themselves blessed. The second clause of the verse, is the argument in support of the exhortation contained in the first sentence.
 
 ### Verse 9
 
-> O fear the LORD, ye his saints: for *there is* no want to them that fear him.
+> O fear the Lord, ye his saints: for *there is* no want to them that fear him.
 
 *O fear the Lord, ye his saints.* Pay to him humble childlike reverence, walk in his laws, have respect to his will, tremble to offend him, hasten to serve him. Fear not the wrath of men, neither be tempted to sin through the virulence of their threats; fear God and fear nothing else. *For there is no want to them that fear him.* Jehovah will not allow his faithful servants to starve. He may not give luxuries, but the promise binds him to supply necessaries, and he will not run back from his word. Many whims and wishes may remain unfulfilled, but real wants the Lord will supply. The fear of the Lord or true piety is not only the duty of those who avow themselves to be saints, that is, persons set apart and consecrated for holy duties, but it is also their path of safety and comfort. Godliness hath the promise of the life which now is. If we were to die like dogs, and there were no hereafter, yet were it well for our own happiness' sake to fear the Lord. Men seek a patron and hope to prosper; he prospers surely who hath the Lord of Hosts to be his friend and defender.
 
 ### Verse 10
 
-> The young lions do lack, and suffer hunger: but they that seek the LORD shall not want any good *thing*.
+> The young lions do lack, and suffer hunger: but they that seek the Lord shall not want any good *thing*.
 
 *The young lions do lack, and suffer hunger.* They are fierce, cunning, strong, in all the vigour of youth, and yet they sometimes howl in their ravenous hunger, and even so crafty, designing, and oppressing men, with all their sagacity and unscrupulousness, often come to want; yet simple minded believers, who dare not act as the greedy lions of earth, are fed with food convenient for them. To trust God is better policy than the craftiest politicians can teach or practice. *But they that seek the Lord shall not want any good thing.* No really good thing shall be denied to those whose first and main end in life is to seek the Lord. Men may call them fools, but the Lord will prove them wise. They shall win where the world's wiseacres lose their all, and God shall have the glory of it.
 
 ### Verse 11
 
-> Come, ye children, hearken unto me: I will teach you the fear of the LORD.
+> Come, ye children, hearken unto me: I will teach you the fear of the Lord.
 
 *Come, ye children.* Though a warrior and a king, the psalmist was not ashamed to teach children. Teachers of youth belong to the true peerage; their work is honourable, and their reward shall be glorious. Perhaps the boys and girls of Gath had made sport of David in his seeming madness, and if so, he here aims by teaching the rising race to undo the mischief which he had done aforetime. Children are the most hopeful persons to teach—wise men who wish to propagate their principles take care to win the ear of the young. *Hearken unto me: I will teach you the fear of the Lord.* So far as they can be taught by word of mouth, or learned by the hearing of the ear, we are to communicate the faith and fear of God, inculcating upon the rising generation the principles and practices of piety. This verse may be the address of every Sabbath school teacher to his class, of every parent to his children. It is not without instruction in the art of teaching. We should be winning and attractive to the youngsters, bidding them "come, "and not repelling them with harsh terms. We must get them away, apart from toys and sports, and try to occupy their minds with better pursuits; for we cannot well teach them while their minds are full of other things. We must drive at the main point always, and keep the fear of the Lord ever uppermost in our teachings, and in so doing we may discreetly cast our own personality into the scale by narrating our own experiences and convictions.
 
@@ -96,33 +96,33 @@ Life spent in happiness is the desire of all, and he who can give the young a re
 
 ### Verse 15
 
-> The eyes of the LORD *are* upon the righteous, and his ears *are open* unto their cry.
+> The eyes of the Lord *are* upon the righteous, and his ears *are open* unto their cry.
 
 *The eyes of the Lord are upon the righteous.* He observes them with approval and tender consideration; they are so dear to him that he cannot take his eyes off them; he watches each one of them as carefully and intently as if there were only that one creature in the universe. *His ears are open unto their cry.* His eyes and ears are thus both turned by the Lord towards his saints; his whole mind is occupied about them: if slighted by all others they are not neglected by him. Their cry he hears at once, even as a mother is sure to hear her sick babe; the cry may be broken, plaintive, unhappy, feeble, unbelieving, yet the Father's quick ear catches each note of lament or appeal, and he is not slow to answer his children's voice.
 
 ### Verse 16
 
-> The face of the LORD *is* against them that do evil, to cut off the remembrance of them from the earth.
+> The face of the Lord *is* against them that do evil, to cut off the remembrance of them from the earth.
 
 *The face of the Lord is against them that do evil.* God is not indifferent to the deeds of sinners, but he sets his face against them, as we say, being determined that they shall have no countenance and support, but shall be thwarted and defeated. He is determinately resolved that the ungodly shall not prosper; he sets himself with all his might to overthrow them. *To cut off the remembrance of them from the earth.* He will stamp out their fires, their honour shall be turned into shame, their names forgotten or accursed. Utter destruction shall be the lot of all the ungodly.
 
 ### Verse 17
 
-> *The righteous* cry, and the LORD heareth, and delivereth them out of all their troubles.
+> *The righteous* cry, and the Lord heareth, and delivereth them out of all their troubles.
 
 *The righteous cry.* Like Israel in Egypt, they cry out under the heavy yoke of oppression, both of sin, temptation, care, and grief. *And the Lord heareth*; he is like the night watchman, who no sooner hears the alarm bell than he flies to relieve those who need him. *And delivereth them out of all their troubles.* No net of trouble can so hold us that the Lord cannot free us. Our afflictions may be numerous and complicated, but prayer can set us free from them all, for the Lord will show himself strong on our behalf.
 
 ### Verse 18
 
-> The LORD *is* nigh unto them that are of a broken heart; and saveth such as be of a contrite spirit.
+> The Lord *is* nigh unto them that are of a broken heart; and saveth such as be of a contrite spirit.
 
 *The Lord is nigh unto them that are of a broken heart.* Near in friendship to accept and console. Broken hearts think God far away, when he is really most near them; their eyes are holden so that they see not their best friend. Indeed, he is with them, and in them, but they know it not. They run hither and thither, seeking peace in their own works, or in experiences, or in proposals and resolutions, whereas the Lord is nigh them, and the simple act of faith will reveal him. *And saveth such as be of a contrite spirit.* What a blessed token for good is a repentant, mourning heart! Just when the sinner condemns himself, the Lord graciously absolves him. If we chasten our own spirits the Lord will spare us. He never breaks with the rod of judgment those who are already sore with the rod of conviction. Salvation is linked with contrition.
 
 ### Verse 19
 
-> Many *are* the afflictions of the righteous: but the LORD delivereth him out of them all.
+> Many *are* the afflictions of the righteous: but the Lord delivereth him out of them all.
 
-*Many are the afflictions of the righteous.* Thus are they made like Jesus their covenant Head. Scripture does not flatter us like the story books with the idea that goodness will secure us from trouble; on the contrary, we are again and again warned to expect tribulation while we are in this body. Our afflictions come from all points of the compass, and are as many and as tormenting as the mosquitoes of the tropics. It is the earthly portion of the elect to find thorns and briars growing in their pathway, yea, to lie down among them, finding their rest broken and disturbed by sorrow. BUT, blessed *but, * how it takes the sting out of the previous sentence! *But the Lord delivereth him out of them all.* Through troops of ills Jehovah shall lead his redeemed scatheless and triumphant. There is an end to the believer's affliction, and a joyful end too. None of his trials can hurt so much as a hair of his head, neither can the furnace hold him for a moment after the Lord bids him come forth of it. Hard would be the lot of the righteous if this promise, like a bundle of camphire, were not bound up in it, but this sweetens all. The same Lord who sends the afflictions will also recall them when his design is accomplished, but he will never allow the fiercest of them to rend and devour his beloved.
+*Many are the afflictions of the righteous.* Thus are they made like Jesus their covenant Head. Scripture does not flatter us like the story books with the idea that goodness will secure us from trouble; on the contrary, we are again and again warned to expect tribulation while we are in this body. Our afflictions come from all points of the compass, and are as many and as tormenting as the mosquitoes of the tropics. It is the earthly portion of the elect to find thorns and briars growing in their pathway, yea, to lie down among them, finding their rest broken and disturbed by sorrow. But, blessed *but, * how it takes the sting out of the previous sentence! *But the Lord delivereth him out of them all.* Through troops of ills Jehovah shall lead his redeemed scatheless and triumphant. There is an end to the believer's affliction, and a joyful end too. None of his trials can hurt so much as a hair of his head, neither can the furnace hold him for a moment after the Lord bids him come forth of it. Hard would be the lot of the righteous if this promise, like a bundle of camphire, were not bound up in it, but this sweetens all. The same Lord who sends the afflictions will also recall them when his design is accomplished, but he will never allow the fiercest of them to rend and devour his beloved.
 
 ### Verse 20
 
@@ -138,7 +138,7 @@ Life spent in happiness is the desire of all, and he who can give the young a re
 
 ### Verse 22
 
-> The LORD redeemeth the soul of his servants: and none of them that trust in him shall be desolate.
+> The Lord redeemeth the soul of his servants: and none of them that trust in him shall be desolate.
 
 *The Lord redeemeth the soul of his servants* —with price and with power, with blood and with water. All providential helps are a part of the redemption by power, hence the Lord is said still to redeem. All thus ransomed belong to him who bought them—this is the law of justice and the verdict of gratitude. Joyfully will we serve him who so graciously purchases us with his blood, and delivers us by his power. *And none of them that trust in him shall be desolate.* Faith is the mark of the ransomed, and wherever it is seen, though in the least and meanest of the saints, it ensures eternal salvation. Believer, thou shalt never be deserted, forsaken, given up to ruin. God, even thy God, is thy guardian and friend, and bliss is thine.
 
@@ -268,7 +268,7 @@ The man that trusts in him lives still in bliss.
 
 **Verse 18.** *The Lord is nigh unto them that are of a broken heart.* God is *nigh unto them* (with reverence be it spoken), God takes so much complacency in the company of such, that he cannot endure to have them far from him; he must have them always under his eyes; as for these *broken* ones, he will be sure not to leave them long, nor go far from them, but will be ready at hand to set their bones, to bind up their wounds to keep them from festering. It may be he may put them to much pain before he brings the cure to perfection, but it is to prevent future aches. He is a foolish cruel chirurgeon, who, for fear of putting his patient to some pain, never searcheth the wound, but skins it over presently; and a wise man will not think him unmerciful that puts him to exquisite pain, so he may make a thorough cure of it. Thus God doth by his patients sometimes, when the nature of their distemper calls for it. But, however, he will be sure not to be out of the way when they want him most. It is possible that they may look upon themselves as forgotten by God, they may not know their Physician when he is by them, and they may take their Friend for an enemy; they may think God far off when he is near; but when their eyes are opened and their distemper is pretty well worn off, they will, with shame and thankfulness, acknowledge their error; nay, they do from their souls confess, that they do not deserve the least look of kindness from God, but to be counted strangers and enemies; but God will let them know that he loves to act like himself, that is, like a God of love, mercy, and goodness; and that they are the persons that he hath set his heart upon; he will have them in his bosom, never leave them nor forsake them; and though these contrite ones many times look upon themselves as lost, yet God will save them, and they shall sing a song of thankfulness amongst his delivered ones. *James Janeway.* 
 
-**Verse 18.** *The Lord is nigh unto them, * etc. Consider the ADVANTAGES of this broken heart; as I. A broken heart is acceptable and wellpleasing to God, "A broken and a contrite heart, O God thou wilt not despise." Ps 51:17. II. It makes up many defects in your service and duties, "The sacrifices of God are a broken spirit." Ps 51:17. III. It makes the soul a fit receptacle for God to dwell in, "For thus saith the high and lofty One that inhabiteth eternity, whose name is holy; I dwell in the high and holy place, with him also that is of a contrite and humble spirit, to revive the spirit of the humble, and to revive the heart of the contrite ones." Isa 57:15. IV. It brings God near to men, *"The Lord is nigh unto them that are of a broken heart, and saveth such as be of a contrite spirit."* Ps 34:18. And V. It lays you open to Christ's sweet healing, "I will bind up that which was broken, and will strengthen that which was sick." Eze 34:16. And, oh, who would not be broken that they might find Christ's soft hand healing them, and find the proof of that sweet word, "For I will restore health unto thee, and I will heal thee of thy wounds, saith the Lord." Jer 30:17. Yea, VI. It puts you in the right road to heaven, where all your wounds and bruises will be cured; for there is a tree Re 22:2 the leaves whereof are for the healing of the nations; there is no complaining there of wounds or bruises, but all are perfectly healed. *John Spalding, in "Synaxis Sacra, or a Collection of Sermons, "* etc., 1703.
+**Verse 18.** *The Lord is nigh unto them, * etc. Consider the advantages of this broken heart; as I. A broken heart is acceptable and wellpleasing to God, "A broken and a contrite heart, O God thou wilt not despise." Ps 51:17. II. It makes up many defects in your service and duties, "The sacrifices of God are a broken spirit." Ps 51:17. III. It makes the soul a fit receptacle for God to dwell in, "For thus saith the high and lofty One that inhabiteth eternity, whose name is holy; I dwell in the high and holy place, with him also that is of a contrite and humble spirit, to revive the spirit of the humble, and to revive the heart of the contrite ones." Isa 57:15. IV. It brings God near to men, *"The Lord is nigh unto them that are of a broken heart, and saveth such as be of a contrite spirit."* Ps 34:18. And V. It lays you open to Christ's sweet healing, "I will bind up that which was broken, and will strengthen that which was sick." Eze 34:16. And, oh, who would not be broken that they might find Christ's soft hand healing them, and find the proof of that sweet word, "For I will restore health unto thee, and I will heal thee of thy wounds, saith the Lord." Jer 30:17. Yea, VI. It puts you in the right road to heaven, where all your wounds and bruises will be cured; for there is a tree Re 22:2 the leaves whereof are for the healing of the nations; there is no complaining there of wounds or bruises, but all are perfectly healed. *John Spalding, in "Synaxis Sacra, or a Collection of Sermons, "* etc., 1703.
 
 **Verse 18.** *"The Lord is nigh unto them, "* etc. We are apt to overlook men, in proportion as they are humbled beneath us; God regards them in that proportion. Vessels of honour are made of that clay which is *"broken"* into the smallest parts. *George Horne.* 
 
@@ -402,5 +402,5 @@ The position of prayer in the economy of grace, or the natural history of mercy 
 
 ## Works Upon The Thirty-Fourth Psalm
 
-Meditations upon the XXXIV. Psalme, in Sir RICHARD BAKER'S Works.
+Meditations upon the XXXIV. Psalme, in Sir Richard Baker's Works.
 
