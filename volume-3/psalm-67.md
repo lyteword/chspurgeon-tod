@@ -108,7 +108,7 @@ These words are no vain repetition, but are a chorus worthy to be sung again and
 
 **Verses 6-7.** The promise refers directly to the visible fertility of the renewed earth at the time of Israel's recovery, but it includes a fuller reference to higher things; for the true increase yielded by any of God's works is the revenue of praise which redounds to his holy name. Such, then, is the promise I have to bring before you. In its widest sense, the lower creation is now made subject to vanity, because of man's sin; but in the kingdom of Christ this curse will be removed, and all God's works will yield their full increase—a tribute of unmingled honour and praise to his name. Let us consider (1.) The preparation for this increase. (2.) The increase itself. (3.) The blessing of God, which will crown it.
 
-I. THE PREPARATIONS FOR THIS INCREASE. What are the means? What is the way of its accomplishment? Whence does it proceed? Our Psalm is full of instruction. Consider—
+I. The preparations for this increase. What are the means? What is the way of its accomplishment? Whence does it proceed? Our Psalm is full of instruction. Consider—
 
 1\. *Its fountain:* the free mercy of God. The Psalm begins, *God be merciful unto us, and bless us; and cause his face to shine upon us.* Whatever the details and steps of the work of redemption, all must be traced up to this original fountain, the sovereign grace and mercy of our God&mdash; The eternal, free, unchangeable, inexhaustible mercy of our God revealed through his dear Son Jesus Christ; this is the fountain head of the blessed increase here foretold&mdash;
 
@@ -116,7 +116,7 @@ I. THE PREPARATIONS FOR THIS INCREASE. What are the means? What is the way of it
 
 3\. *The immediate precursor of this increase is the return of our Lord* from heaven, the coming of Christ to judge the earth and reign over all nations. The Psalm calls all nations to rejoice in this: *O let the nations be glad and sing for joy: for thou shalt judge the people righteously, and govern the nations upon earth.*&mdash; The world craves, and will crave more and more for righteous government. The Lord has promised to supply this natural want of the human heart, though he take vengeance on his hardened enemies. Even in the coming of the Lord to judgment, goodness will so finally triumph that the nations are to be glad and sing for joy&mdash; It is the Lord judging the people and governing the nations, and all the people praising him, that prepares directly and immediately for the promised blessedness. *Then shall the earth yield her increase.* 
 
-II. THE INCREASE ITSELF. This increase has many aspects. Let us view them in a climax of benefits.
+II. The increase itself. This increase has many aspects. Let us view them in a climax of benefits.
 
 1\. *Natural fertility.* The first sentence of curse and barrenness, of thorns and thistles, was pronounced on Adam's fall, and renewed on Cain's murder. It seems to have been specially removed after the deluge&mdash; Even now, two thirds of our world are ocean, incapable of increase; half of the rest, and perhaps more, is almost desert, and of the remainder the largest part is very imperfectly tilled. There is room, even in the latter, for a vast increase, when the whole earth might become like the garden of the Lord.
 
@@ -212,5 +212,5 @@ II. THE INCREASE ITSELF. This increase has many aspects. Let us view them in a c
 
 ## Works Upon The Sixty-Seventh Psalm
 
-In *"The Works of* JOHN BOYS, "1626, folio, pp. 42-45, there is an Exposition of this Psalm.
+In *"The Works of* John Boys, "1626, folio, pp. 42-45, there is an Exposition of this Psalm.
 

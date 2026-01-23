@@ -12,7 +12,7 @@ weight: 70
 
 ### Verse 1
 
-> *Make haste*, O God, to deliver me; make haste to help me, O LORD.
+> *Make haste*, O God, to deliver me; make haste to help me, O Lord.
 
 This is the second Psalm which is a repetition of another, the former being Psalm 53, which was a rehearsal of Psalm 14. The present differs from the Fortieth Psalm at the outset, for that begins with, "Be pleased, "and this, in our version, more urgently with, Make haste; or, as in the Hebrew, with an abrupt and broken cry, *O God, to deliver me; O Lord, to help me hasten.* It is not forbidden us, in hours of dire distress, to ask for speed on God's part in his coming to rescue us. The only other difference between this and verse 13 of Psalm 40, is the putting of *Elohim* in the beginning of the verse for *Jehovah, * but why this is done we know not; perhaps, the guesses of the critics are correct, but perhaps they are not. As we have the words of this Psalm twice in the letter, let them be doubly with us in spirit. It is most meet that we should day by day cry to God for deliverance and help; our frailty and our many dangers render this a perpetual necessity.
 
@@ -36,9 +36,9 @@ Anger against enemies must not make us forget our friends, for it is better to p
 
 ### Verse 5
 
-> But I *am* poor and needy: make haste unto me, O God: thou *art* my help and my deliverer; O LORD, make no tarrying.
+> But I *am* poor and needy: make haste unto me, O God: thou *art* my help and my deliverer; O Lord, make no tarrying.
 
-*But I am poor and needy.* Just the same plea as in the preceding Psalm, Ps 69:29: it seems to be a favourite argument with tried saints; evidently our poverty is our wealth, even as our weakness is our strength. May we learn well this riddle. Make haste unto me, O God. This is written instead of "yet the Lord thinketh upon me, "in Psalm 40: and there is a reason for the change, since the key note of the Psalm frequently dictates its close. Psalm 40 sings of God's thoughts, and, therefore, ends therewith; but the peculiar note of Psalm 70 is "Make haste, "and, therefore, so it concludes. Thou art my help and my deliverer. My help in trouble, my deliverer out of it. O Lord, make no tarrying. Here is the name of "Jehovah" instead of "my God." We are warranted in using all the various names of God, for each has its own beauty and majesty, and we must reverence each by its holy use as well as by abstaining from taking it in vain. I have presumed to close this recapitulatory exposition with an original hymn, suggested by the watchword of this Psalm, "MAKE HASTE."
+*But I am poor and needy.* Just the same plea as in the preceding Psalm, Ps 69:29: it seems to be a favourite argument with tried saints; evidently our poverty is our wealth, even as our weakness is our strength. May we learn well this riddle. Make haste unto me, O God. This is written instead of "yet the Lord thinketh upon me, "in Psalm 40: and there is a reason for the change, since the key note of the Psalm frequently dictates its close. Psalm 40 sings of God's thoughts, and, therefore, ends therewith; but the peculiar note of Psalm 70 is "Make haste, "and, therefore, so it concludes. Thou art my help and my deliverer. My help in trouble, my deliverer out of it. O Lord, make no tarrying. Here is the name of "Jehovah" instead of "my God." We are warranted in using all the various names of God, for each has its own beauty and majesty, and we must reverence each by its holy use as well as by abstaining from taking it in vain. I have presumed to close this recapitulatory exposition with an original hymn, suggested by the watchword of this Psalm, "make haste."
 
 Make haste, O God, my soul to bless!
 

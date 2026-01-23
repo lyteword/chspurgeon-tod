@@ -124,7 +124,7 @@ Bleat out afresh, ye hills; ye mossy rocks
 
 Retain the sound; the broad responsive low
 
-Ye valleys raise; for the GREAT SHEPHERD reigns,
+Ye valleys raise; for the Great Shepherd reigns,
 
 And his *unsuffering* kingdom yet will come."
 
@@ -266,7 +266,7 @@ Sixthly. The experiences which the saints of all ages have had of the answer of 
 
 **Verse 13.** The hills, where not tilled, were bushy and green, and sprinkled with numerous flocks; the valleys broad and covered with a rich crop of wheat; the fields full of reapers and gleaners in the midst of the harvest, with asses and camels receiving their loads of sheaves, and feeding unmuzzled and undisturbed upon the ripe grain. *Edward Robinson.* 
 
-**Verse 13.** It may seem strange, that he should first tell us, that *they shout for joy, * and then add the feebler expression, that *they sing;* interposing, too, the insensitive particle, pa, *aph, they shout for joy, YEA, they also sing.* The verb, however, admits of being taken in the future tense, *they shall sing;* and this denotes a continuation of joy, that they would rejoice, not only one year, but through the endless succession of the seasons. I may add, what is well known, that in Hebrew the order of expression is frequently inverted in this way. *John Calvin.* 
+**Verse 13.** It may seem strange, that he should first tell us, that *they shout for joy, * and then add the feebler expression, that *they sing;* interposing, too, the insensitive particle, pa, *aph, they shout for joy, yea, they also sing.* The verb, however, admits of being taken in the future tense, *they shall sing;* and this denotes a continuation of joy, that they would rejoice, not only one year, but through the endless succession of the seasons. I may add, what is well known, that in Hebrew the order of expression is frequently inverted in this way. *John Calvin.* 
 
 **Verse 13.** *They also sing. They ardently sing:* such is the real meaning of pa; primarily "heat" or "warmth, "thence "ardour, passion, anger, "and thence again "the nostrils, "as the supposed seat of this feeling. *John Mason Good.* 
 

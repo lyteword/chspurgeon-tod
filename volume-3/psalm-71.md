@@ -32,7 +32,7 @@ Thou hast given commandment to save me. Nature is charged to be tender with God'
 
 ### Verse 5
 
-> For thou *art* my hope, O Lord GOD: *thou art* my trust from my youth.
+> For thou *art* my hope, O Lord God: *thou art* my trust from my youth.
 
 *For thou art my hope, O Lord God.* God who gives us grace to hope in him, will assuredly fulfil our hope, and, therefore, we may plead it in prayer. His name is "Jehovah, the hope of Israel" (Jer 17:13); and, as he cannot be a false or failing hope, we may expect to see our confidence justified. Thou art my trust from my youth. David had proved his faith by notable exploits when he was a youth and ruddy; it was to him a cheering recollection, and he felt persuaded that the God of his youth would not forsake him in his age. They are highly favoured who can like David, Samuel, Josiah, Timothy, and others say, "Thou art my trust from my youth."
 
@@ -98,7 +98,7 @@ The holy faith of the persecuted saint comes to the front in these three verses.
 
 ### Verse 16
 
-> I will go in the strength of the Lord GOD: I will make mention of thy righteousness, *even* of thine only.
+> I will go in the strength of the Lord God: I will make mention of thy righteousness, *even* of thine only.
 
 *I will go in the strength of the Lord God.* Our translators give us a good sense, but not the sense in this place, which is on this wise, "I will come with the mighty deeds of the Lord Jehovah." He would enter into those deeds by admiring study, and then, wherever he went, he would continue to rehearse them. He should ever be a welcome guest who can tell us of the mighty acts of the Lord, and help us to put our trust in him. The authorised version may be used by us as a resolve in all our exertions and endeavours. In our own strength we must fail; but, when we hear the voice which saith, "Go in this thy might, "we may advance without fear. Though hell itself were in the way, the believer would pursue the path of duty, crying: I will go in the strength of the Lord God: I will make mention of thy *righteousness, even of thine only.* Man's righteousness is not fit to be mentioned—filthy rags are best hidden; neither is there any righteousness under heaven, or in heaven, comparable to the divine. As God himself fills all space, and is, therefore, the only God, leaving no room for another, so God's righteousness, in Christ Jesus, fills the believer's soul, and he counts all other things but dross and dung "that he may win Christ, and be found in him, not having his own righteousness which is of the law, but the righteousness which is of God by faith." What would be the use of speaking upon any other righteousness to a dying man? and all are dying men. Let those who will cry up man's natural innocence, the dignity of the race, the purity of philosophers, the loveliness of untutored savages, the power of sacraments, and the infallibility of pontiffs; this is the true believer's immovable resolve: "I will make mention of thy righteousness, even of thine only." For ever dedicated to thee, my Lord, be this poor, unworthy tongue, whose glory it shall be to glorify thee.
 
@@ -362,7 +362,7 @@ Into a seraph's song.
 
 **Verse 19.** *O God, who is like unto thee?* Either for greatness or goodness, for power or for mercy, for justice, truth, and faithfulness; for the perfections of his nature, or the works of his hands; and to be praised, reverenced, and adored, as he is. *John Gill.* 
 
-**Verse 19.** *Who is like unto thee!* Krmk ym, *Mi camocha.* God is alone: who can resemble him? He is eternal; he can have none *before, * and there can be none *after;* for, in the infinite *unity* of *trinity, * he is that eternal, unlimited, impartible, incomprehensible, and uncompounded, ineffable Being, whose *essence* is hidden from all created intelligences, and whose *counsels* cannot be fathomed by any creature that even his own hand can form. "WHO IS LIKE UNTO THEE!" will excite the wonder, amazement, praise, and adoration of angels and men to all eternity. *Adam Clarke.* 
+**Verse 19.** *Who is like unto thee!* Krmk ym, *Mi camocha.* God is alone: who can resemble him? He is eternal; he can have none *before, * and there can be none *after;* for, in the infinite *unity* of *trinity, * he is that eternal, unlimited, impartible, incomprehensible, and uncompounded, ineffable Being, whose *essence* is hidden from all created intelligences, and whose *counsels* cannot be fathomed by any creature that even his own hand can form. "Who is like unto Thee!" will excite the wonder, amazement, praise, and adoration of angels and men to all eternity. *Adam Clarke.* 
 
 **Verse 20.** *Thou shalt quicken me again, * etc. Here Jerome triumphs over the Jews, challenging them when this was ever verified in David, for he was never dead and quickened again; and, therefore, this must needs be expounded of him as that in Psalm 16: *"Thou wilt not leave my soul in the grave; "* and to *"the depths of the earth, "* here, answer those words, Eph 4:9, "Now that he ascended, what is it but that he also descended first into the lower parts of the earth?" Yet, this may also be applied to David, being figuratively understood, as a like speech of Hannah, 1 Samuel 2. *John Mayer.* 
 

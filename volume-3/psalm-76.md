@@ -76,7 +76,7 @@ The fear of man is a snare, but the fear of God is a great virtue, and has great
 
 ### Verse 11
 
-> Vow, and pay unto the LORD your God: let all that be round about him bring presents unto him that ought to be feared.
+> Vow, and pay unto the Lord your God: let all that be round about him bring presents unto him that ought to be feared.
 
 *Vow, and pay unto the Lord your God.* Well may we do so in memory of such mercies and judgments. To vow or not is a matter of choice, but to discharge our vows is our bounden duty. He who would defraud God, his own God, is a wretch indeed. He keeps his promises, let not his people fail in theirs. He is their faithful God and deserves to have a faithful people. Let all that be round about him bring presents unto him that ought *to be feared.* Let surrounding nations submit to the only living God, let his own people with alacrity present their offerings, and let his priests and Levites be leaders in the sacred sacrifice. He who deserves to be praised as our God does, should not have mere verbal homage, but substantial tribute. Dread Sovereign, behold I give myself to thee.
 

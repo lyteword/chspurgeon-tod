@@ -72,7 +72,7 @@ weight: 77
 
 ### Verse 11
 
-> I will remember the works of the LORD: surely I will remember thy wonders of old.
+> I will remember the works of the Lord: surely I will remember thy wonders of old.
 
 *I will remember the works of the Lord.* Fly back my soul, away from present turmoil, to the grandeurs of history, the sublime deeds of Jehovah, the Lord of Hosts; for he is the same and is ready even now to defend his servants as in days of yore. Surely I will remember thy wonders of old. Whatever else may glide into oblivion, the marvellous works of the Lord in the ancient days must not be suffered to be forgotten. Memory is a fit handmaid for faith. When faith has its seven years of famine, memory like Joseph in Egypt opens her granaries.
 

@@ -176,7 +176,7 @@ The holy poet here reviews his inward struggle and awards himself censure for hi
 
 ### Verse 28
 
-> But *it is* good for me to draw near to God: I have put my trust in the Lord GOD, that I may declare all thy works.
+> But *it is* good for me to draw near to God: I have put my trust in the Lord God, that I may declare all thy works.
 
 *But it is good for me to draw near to God.* Had he done so at first he would not have been immersed in such affliction; when he did so he escaped from his dilemma, and if he continued to do so he would not fall into the same evil again. The greater our nearness to God, the less we are affected by the attractions and distractions of earth. Access into the most holy place is a great privilege, and a cure for a multitude of ills. It is good for all saints, it is good for me in particular; it is always good, and always will be good for me to approach the greatest good, the source of all good, even God himself. I have put my trust in the Lord God. He dwells upon the glorious name of the Lord Jehovah, and avows it as the basis of his faith. Faith is wisdom; it is the key of enigmas, the clue of mazes, and the pole star of pathless seas. Trust and you will know. That I may declare all thy works. He who believes shall understand, and so be able to teach. Asaph hesitated to utter his evil surmisings, but he has no diffidence in publishing abroad a good matter. God's ways are the more admired the more they are known. He who is ready to believe the goodness of God shall always see fresh goodness to believe in, and he who is willing to declare the works of God shall never be silent for lack of wonders to declare.
 
@@ -216,7 +216,7 @@ But virtue in distress, and vice in triumph,
 
 Make atheists of mankind. *Dryden.* 
 
-**Verse 1.** *God is good.* There is a beauty in the name appropriated by the Saxon nations to the Deity, unequalled except by his most reverential Hebrew appellation. They called him "GOD, "which is literally "THE GOOD." The same word thus signifying the Deity, and his most endearing quality. *Turner.* 
+**Verse 1.** *God is good.* There is a beauty in the name appropriated by the Saxon nations to the Deity, unequalled except by his most reverential Hebrew appellation. They called him "God, "which is literally "The Good." The same word thus signifying the Deity, and his most endearing quality. *Turner.* 
 
 **Verse 1.** *God is good.* Let the devil and his instruments say what they will to the contrary, I will never believe them; I have said it before, and I see no reason to reverse my sentence: *Truly God is good.* Though sometimes he may hide his face for awhile, yet he doth that in faithfulness and love; there is kindness in his very scourges, and love bound up in his rods; he is good to Israel: do but mark it first or last: "The true Israelite, in whom there is no guile, shall be refreshed by his Saviour." The Israelite that wrestles with tears with God, and values his love above the whole world, that will not be put off without his Father's blessing, shall have it with a witness: "He shall reap in joy though he may at present sow in tears. Even to such as are of a clean heart." The false hearted hypocrite, indeed, that gives God only his tongue and lip, cap and knee, but reserves his heart and love for sin and the world, that hath much of compliment, but nothing of affection and reality, why let such a one never expect, while in such a state, to taste those reviving comforts that I have been treating of; while he drives such a trade, he must not expect God's company. *James Janeway.* 1636-1674.
 
@@ -518,7 +518,7 @@ Doctrine 2. That it is the comfort of a Christian, in his saddest condition, tha
 
 ## Works Upon The Seventy-Third Psalm
 
-Certain Comfortable Expositions of the Constant Martyr of Christ JOHN HOOPER, Bishop of Gloucester and Worcester, 1555, written in the time of his Tribulation and Imprisonment, upon the Twenty-third, Sixty-second, Seventy-third, and Seventy-seventh Psalm of the prophet David. (In Parker Society's publications, and also in the "British Reformers" series of the Religious Tract Society.)
+Certain Comfortable Expositions of the Constant Martyr of Christ John Hooper, Bishop of Gloucester and Worcester, 1555, written in the time of his Tribulation and Imprisonment, upon the Twenty-third, Sixty-second, Seventy-third, and Seventy-seventh Psalm of the prophet David. (In Parker Society's publications, and also in the "British Reformers" series of the Religious Tract Society.)
 
-David Restored; or, And Antidote against the Prosperity of the *Wicked and the Afflictions of the Just, shewing the different ends of both.* In a most seasonable discourse upon the Seventy-third Psalm. By the Right Reverend Father in God EDWARD PARRY. Late Lord Bishop of Killaloe. 1660.
+David Restored; or, And Antidote against the Prosperity of the *Wicked and the Afflictions of the Just, shewing the different ends of both.* In a most seasonable discourse upon the Seventy-third Psalm. By the Right Reverend Father in God Edward Parry. Late Lord Bishop of Killaloe. 1660.
 

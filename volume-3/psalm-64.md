@@ -60,7 +60,7 @@ weight: 64
 
 ### Verse 10
 
-> The righteous shall be glad in the LORD, and shall trust in him; and all the upright in heart shall glory.
+> The righteous shall be glad in the Lord, and shall trust in him; and all the upright in heart shall glory.
 
 *The righteous shall be glad in the Lord.* Admiring his justice and fully acquiescing in its displays, they shall also rejoice at the rescue of injured innocence yet, their joy shall not be selfish or sensual, but altogether in reference to the Lord. And shall trust in him. Their observation of providence shall increase their faith; since he who fulfils his threatenings will not forget his promises. And all the upright in heart shall glory. The victory of the oppressed shall be the victory of all upright men; the whole host of the elect shall rejoice in the triumph of virtue. While strangers fear, the children are glad in view of their Father's power and justice. That which alarms the evil, cheers the good. Lord God of mercy, grant to us to be preserved from all our enemies, and saved in thy Son with an everlasting salvation.
 

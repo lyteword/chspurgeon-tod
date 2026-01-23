@@ -32,7 +32,7 @@ weight: 54
 
 > Behold, God *is* mine helper: the Lord *is* with them that uphold my soul.
 
-*Behold, God is mine helper.* He saw enemies everywhere, and now to his joy as he looks upon the band of his defenders he sees one whose aid is better than all the help of men; he is overwhelmed with joy at recognizing his divine champion, and cries, Behold. And is not this a theme for pious exultation in all time, that the great God protects us, his own people: what matters the number or violence of our foes when HE uplifts the shield of his omnipotence to guard us, and the sword of his power to aid us? Little care we for the defiance of the foe while we have the defence of God. The Lord is with them that uphold my soul. The reigning Lord, the great Adonai is in the camp of my defenders. Here was a greater champion than any of the three mighties, or than all the valiant men who chose David for their captain. The psalmist was very confident, he felt so thoroughly that his heart was on the Lord's side that he was sure God was on *his* side. He asked in the first verse for deliverance, and here he returns thanks for upholding: while we are seeking one mercy which we have not, we must not be unmindful of another which we have. It is a great mercy to have some friends left us, but a greater mercy still to see the Lord among them, for like so many cyphers our friends stand for nothing till the Lord sets himself as a great unit in the front of them.
+*Behold, God is mine helper.* He saw enemies everywhere, and now to his joy as he looks upon the band of his defenders he sees one whose aid is better than all the help of men; he is overwhelmed with joy at recognizing his divine champion, and cries, Behold. And is not this a theme for pious exultation in all time, that the great God protects us, his own people: what matters the number or violence of our foes when He uplifts the shield of his omnipotence to guard us, and the sword of his power to aid us? Little care we for the defiance of the foe while we have the defence of God. The Lord is with them that uphold my soul. The reigning Lord, the great Adonai is in the camp of my defenders. Here was a greater champion than any of the three mighties, or than all the valiant men who chose David for their captain. The psalmist was very confident, he felt so thoroughly that his heart was on the Lord's side that he was sure God was on *his* side. He asked in the first verse for deliverance, and here he returns thanks for upholding: while we are seeking one mercy which we have not, we must not be unmindful of another which we have. It is a great mercy to have some friends left us, but a greater mercy still to see the Lord among them, for like so many cyphers our friends stand for nothing till the Lord sets himself as a great unit in the front of them.
 
 ### Verse 5
 
@@ -42,7 +42,7 @@ weight: 54
 
 ### Verse 6
 
-> I will freely sacrifice unto thee: I will praise thy name, O LORD; for *it is* good.
+> I will freely sacrifice unto thee: I will praise thy name, O Lord; for *it is* good.
 
 *I will freely sacrifice unto thee.* Spontaneously will I bring my freewill offerings. So certain is he of deliverance that he offers a vow by anticipation. His overflowing gratitude would load the altars of God with victims cheerfully presented. The more we receive, the more we ought to render. The spontaneousness of our gifts is a great element in their acceptance; the Lord loveth a cheerful giver. I will praise thy name, O Lord. As if no amount of sacrifice could express his joyful feelings, he resolves to be much in vocal thanksgiving. The name which he invoked in prayer (Ps 54:1), he will now magnify in praise. Note how roundly he brings it out: O Jehovah. This is ever the grand name of the revealed God of Israel, a name which awakens the most sublime sentiments, and so nourishes the most acceptable praise. None can praise the Lord so well as those who have tried and proved the preciousness of his name in seasons of adversity. The psalmist adds, for it is good, and surely we may read this with a double nominative, God's name is good, and so is his praise. It is of great use to our souls to be much in praise; we are never so holy or so happy as when our adoration of God abounds. Praise is good in itself, good to us, and good to all around us. If David's enemies are described in Ps 54:3 as not setting God before them, he here declares that he is of a different mind from them, for he resolves to have the Lord in perpetual remembrance in his sacrifices and praises.
 
@@ -174,5 +174,5 @@ And mine eye hath seen his desire upon mine enemies. He knew that yet he should 
 
 ## Works Upon The Fifty-Fourth Psalm
 
-In CHANDLER'S *"Life of David, "* pp. 152-4, there is an Exposition of this Psalm.
+In Chandler's *"Life of David, "* pp. 152-4, there is an Exposition of this Psalm.
 

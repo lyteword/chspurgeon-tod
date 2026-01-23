@@ -72,9 +72,9 @@ The machinery of prayer is not always visible, but it is most efficient. God inc
 
 ### Verse 10
 
-> In God will I praise *his* word: in the LORD will I praise *his* word.
+> In God will I praise *his* word: in the Lord will I praise *his* word.
 
-*In God will I praise his word.* Now comes the thanksgiving. He is a wretch who, having obtained help, forgets to return a grateful acknowledgment. The least we can do is to praise him from whom we receive such distinguished favours. Does David here mean "by God's grace I will praise him"? If so, he shows us that all our emotions towards God must be in God, produced by him and presented as such. Or does he mean, "that which in God is most the object of my praise is his word, and the faithfulness with which he keeps it"? If so, we see how attached our hearts should be to the sure word of promise, and especially to *him* who is the WORD incarnate. The Lord is to be praised under every aspect, and in all his attributes and acts, but certain mercies peculiarly draw out our admiration towards special portions of the great whole. That praise which is never special in its direction cannot be very thoughtful, and it is to be feared cannot be very acceptable. In the Lord will I praise his word. He delights to dwell on his praise, he therefore repeats his song. The change by which he brings in the glorious name of Jehovah is doubtless meant to indicate that under every aspect he delights in his God and in his word.
+*In God will I praise his word.* Now comes the thanksgiving. He is a wretch who, having obtained help, forgets to return a grateful acknowledgment. The least we can do is to praise him from whom we receive such distinguished favours. Does David here mean "by God's grace I will praise him"? If so, he shows us that all our emotions towards God must be in God, produced by him and presented as such. Or does he mean, "that which in God is most the object of my praise is his word, and the faithfulness with which he keeps it"? If so, we see how attached our hearts should be to the sure word of promise, and especially to *him* who is the Word incarnate. The Lord is to be praised under every aspect, and in all his attributes and acts, but certain mercies peculiarly draw out our admiration towards special portions of the great whole. That praise which is never special in its direction cannot be very thoughtful, and it is to be feared cannot be very acceptable. In the Lord will I praise his word. He delights to dwell on his praise, he therefore repeats his song. The change by which he brings in the glorious name of Jehovah is doubtless meant to indicate that under every aspect he delights in his God and in his word.
 
 ### Verse 11
 
@@ -124,7 +124,7 @@ The machinery of prayer is not always visible, but it is most efficient. God inc
 
 **Verse 3.** *What time, * etc. Literally, *What day.* As "Man *daily* oppresseth me" (Ps 56:1), so "Every *day, * when I am afraid, I trust in thee." *A. R. Fausset.* 
 
-**Verse 3.** It is a good maxim with which to go into a world of danger; a good maxim to go to sea with; a good maxim in a storm; a good maxim when in danger on the land; a good maxim when we are sick; a good maxim when we think of death and the judgment— *What time I am afraid, I WILL TRUST IN THEE. Albert Barnes.* 
+**Verse 3.** It is a good maxim with which to go into a world of danger; a good maxim to go to sea with; a good maxim in a storm; a good maxim when in danger on the land; a good maxim when we are sick; a good maxim when we think of death and the judgment— *What time I am afraid, I will trust in Thee. Albert Barnes.* 
 
 **Verse 3.** *I will trust in thee.* Faith and fear stand together; and so fear and love. *John Richardson, * -1654.
 
@@ -298,5 +298,5 @@ Or—
 
 ## Works Upon The Fifty-Sixth Psalm
 
-In CHANDLER'S *"Life of David, "* Vol. 1., pp. 104-7, there is an Exposition of this Psalm.
+In Chandler's *"Life of David, "* Vol. 1., pp. 104-7, there is an Exposition of this Psalm.
 

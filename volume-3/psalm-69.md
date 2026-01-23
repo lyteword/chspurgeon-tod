@@ -44,7 +44,7 @@ They that would destroy me, being mine enemies wrongfully, are *mighty.* It was 
 
 ### Verse 6
 
-> Let not them that wait on thee, O Lord GOD of hosts, be ashamed for my sake: let not those that seek thee be confounded for my sake, O God of Israel.
+> Let not them that wait on thee, O Lord God of hosts, be ashamed for my sake: let not those that seek thee be confounded for my sake, O God of Israel.
 
 *Let not them that wait on thee, O Lord God of hosts, be ashamed for my sake.* If he were deserted, others who were walking in the same path of faith would be discouraged and disappointed. Unbelievers are ready enough to catch at anything which may turn humble faith into ridicule, therefore, O God of all the armies of Israel, let not my case cause the enemy to blaspheme—such is the spirit of this verse. Our blessed Lord ever had a tender concern for his people, and would not have his own oppression of spirit become a source of discouragement to them. Let not those that seek thee be confounded for my sake, O God of *Israel.* He appealed to the Lord of hosts by his power to help him, and now to the God of Israel by his covenant faithfulness to come to the rescue. If the captain of the host fail, how will it fare with the rank and file? If David flee, what will his followers do? If the king of believers shall find his faith unrewarded, how will the feeble ones hold on their way? Our Lord's behaviour during his sharpest agonies is no cause of shame to us; he wept, for he was man, but he murmured not, for he was sinless man; he cried, "My Father, if it be possible, let this cup pass from me; "for he was human, but he added, "Nevertheless, not as I will, but as thou wilt, "for his humanity was without taint of rebellion. In the depths of tribulation no repining word escaped him, for there was no repining in his heart. The Lord of martyrs witnessed a good confession. He was strengthened in the hour of peril, and came off more than a conqueror, as we also shall do, if we hold fast our confidence even to the end.
 
@@ -90,7 +90,7 @@ The ruler's scoff, the drunkard's song."
 
 ### Verse 13
 
-> But as for me, my prayer *is* unto thee, O LORD, *in* an acceptable time: O God, in the multitude of thy mercy hear me, in the truth of thy salvation.
+> But as for me, my prayer *is* unto thee, O Lord, *in* an acceptable time: O God, in the multitude of thy mercy hear me, in the truth of thy salvation.
 
 *But as for me, my prayer is unto thee, O Lord.* He turned to Jehovah in prayer as being the most natural thing for the godly to do in their distress. To whom should a child turn but to his father. He did not answer them; like a sheep before her shearers he was dumb to them, but he opened his mouth unto the Lord his God, for he would hear and deliver. In an acceptable time. It was a time of rejection with man, but of acceptance with God. Sin ruled on earth, but grace reigned in heaven. There is to each of us an accepted time, and woe to us if we suffer it to glide away unimproved. God's time must be our time, or it will come to pass that, when time closes, we shall look in vain for space for repentance. Our Lord's prayers were well timed, and always met with acceptance.
 
@@ -110,7 +110,7 @@ O God, in the multitude of thy mercy hear me. Even the perfect one makes his app
 
 ### Verse 16
 
-> Hear me, O LORD; for thy lovingkindness *is* good: turn unto me according to the multitude of thy tender mercies.
+> Hear me, O Lord; for thy lovingkindness *is* good: turn unto me according to the multitude of thy tender mercies.
 
 *Hear me, O Lord.* Do not refuse thy suppliant Son. It is to the covenant God, the ever living Jehovah, that he appeals with strong crying. For thy lovingkindness is good. By the greatness of thy love have pity upon thine afflicted. It is always a stay to the soul to dwell upon the preeminence and excellence of the Lord's mercy. It has furnished sad souls much good cheer to take to pieces that grand old Saxon word, which is here used in our version, *lovingkindness.* Its composition is of two most sweet and fragrant things, fitted to inspire strength into the fainting, and make desolate hearts sing for joy. Turn unto me according to the multitude of thy tender mercies. If the Lord do but turn the eye of pity, and the hand of power, the mourner's spirit revives. It is the gall of bitterness to be without the comfortable smile of God; in our Lord's case his grief culminated in "Lama Sabachthani, "and his bitterest cry was that in which he mourned an absent God. Observe how he dwells anew upon divine tenderness, and touches again that note of abundance, "The multitude of thy compassions."
 
@@ -226,7 +226,7 @@ Those who choose evil shall have their choice. Men who hate divine mercy shall n
 
 ### Verse 31
 
-> *This* also shall please the LORD better than an ox *or* bullock that hath horns and hoofs.
+> *This* also shall please the Lord better than an ox *or* bullock that hath horns and hoofs.
 
 *This also shall please the Lord better than an ox or bullock that hath horns and hoofs.* No sacrifice is so acceptable to God, who is a Spirit, as that which is spiritual. He accepted bullocks under a dim and symbolical dispensation; but in such offerings, in themselves considered, he had no pleasure. "Will I eat the flesh of bulls, or drink the blood of goats?" Here he puts dishonour upon mere outward offerings by speaking of the horns and hoofs, the offal of the victim. The *opus operatum, * which our ritualists think so much of, the Lord puffs at. The horning and hoofing are nothing to him, though to Jewish ritualists these were great points, and matters for critical examination; our modern rabbis are just as precise as to the mingling of water with their wine, the baking of their wafers, the cut of their vestments, and the performance of genuflections towards the right quarter of the compass. O fools, and slow of heart to perceive all that the Lord has declared. "Offer unto God thanksgiving" is the everlasting rubric of the true directory of worship. The depths of grief into which the suppliant had been plunged gave him all the richer an experience of divine power and grace in his salvation, and so qualified him to sing more sweetly "the song of loves." Such music is ever most acceptable to the infinite Jehovah.
 
@@ -238,7 +238,7 @@ Those who choose evil shall have their choice. Men who hate divine mercy shall n
 
 ### Verse 33
 
-> For the LORD heareth the poor, and despiseth not his prisoners.
+> For the Lord heareth the poor, and despiseth not his prisoners.
 
 *For the Lord heareth the poor.* The examples of David and David's Lord, and tens of thousands of the saints, all go to prove this. Monarchs of the nations are deaf to the poor, but the Sovereign of the Universe has a quick ear for the needy. None can be brought lower than was the Nazarene, but see how highly he is exalted: descend into what depths we may, the prayer hearing God can bring us up again. And despiseth not his prisoners. Poor men have their liberty, but these are bound; however, they are God's prisoners, and, therefore, prisoners of hope. The captive in the dungeon is the lowest and least esteemed of men, but the Lord seeth not as man seeth; he visited those who are bound with chains, and proclaims a jail delivery for his afflicted. God despises no man, and no prayer that is honest and sincere. Distinctions of rank are nothing with him; the poor have the gospel preached to them, and the prisoners are loosed by his grace. Let all poor and needy ones hasten to seek his face, and to yield him their love.
 

@@ -127,7 +127,7 @@ Not thus would Jesus pray, but the rough soldier David so poured out the anguish
 
 ### Verse 16
 
-> As for me, I will call upon God; and the LORD shall save me.
+> As for me, I will call upon God; and the Lord shall save me.
 
 *As for me, I will call upon God.* The psalmist would not endeavour to meet the plots of his adversaries by counterplots, or imitate their incessant violence, but in direct opposition to their godless behaviour would continually resort to his God. Thus Jesus did, and it has been the wisdom of all believers to do the same. As this exemplifies the contrast of their character, so it will foretell the contrast of their end—the righteous shall ascend to their God, the wicked shall sink to ruin. And the Lord shall save me. Jehovah will fulfil my desire, and glorify himself in my deliverance. The psalmist is quite sure. He knows that he will pray, and is equally clear that he will be heard. The covenant name is the pledge of the covenant promise.
 
@@ -163,7 +163,7 @@ The psalmist cannot forget the traitor's conduct, and returns again to consider 
 
 ### Verse 22
 
-> Cast thy burden upon the LORD, and he shall sustain thee: he shall never suffer the righteous to be moved.
+> Cast thy burden upon the Lord, and he shall sustain thee: he shall never suffer the righteous to be moved.
 
 *Thy burden, * or what thy God lays upon thee, lay thou it upon the Lord. His wisdom casts it on thee, it is thy wisdom to cast it on him. He cast thy lot for thee, cast thy lot on him. He gives thee thy portion of suffering, accept it with cheerful resignation, and then take it back to him by thine assured confidence. He shall sustain thee. Thy bread shall be given thee, thy waters shall be sure. Abundant nourishment shall fit thee to bear all thy labours and trials. As thy days so shall thy strength be. He shall never suffer the righteous to be moved. He may move like the boughs of a tree in the tempest, but he shall never be moved like a tree torn up by the roots. He stands firm who stands in God. Many would destroy the saints, but God has not suffered it, and never will. Like pillars, the godly stand immoveable, to the glory of the Great Architect.
 
@@ -427,7 +427,7 @@ Yet war was in his heart, and dark deceit. *Moschus (B. C. 250.)*
 
 **Verse 22.** *Cast thy burden* upon him in the same way that the ship in a storm casts her burden on the anchor, which anchor holds on to its sure fixing place. And to my mind, that is the more beautiful sense of the two—a sense which once entered into, may be followed out in these glorious verses:
 
-And I see the good ship riding, all in a perilous road; The low reef booming on her lee; the swell of ocean poured Sea after sea, from stem to stern; the mainmast by the board; The bulwarks down; the rudder gone; the boats stove by the chains. But courage still, brave mariners, the ANCHOR yet remains: And he will flinch—no, never an inch—until ye pitch sky high; Then he moves his head, as if he said, "Fear nought; for here am I!" *—J. M. Neale's Commentary.* 
+And I see the good ship riding, all in a perilous road; The low reef booming on her lee; the swell of ocean poured Sea after sea, from stem to stern; the mainmast by the board; The bulwarks down; the rudder gone; the boats stove by the chains. But courage still, brave mariners, the anchor yet remains: And he will flinch—no, never an inch—until ye pitch sky high; Then he moves his head, as if he said, "Fear nought; for here am I!" *—J. M. Neale's Commentary.* 
 
 **Verse 23.** *Shalt bring them down.* Indicating a violent death, like that of the slain ox, which is said to *descend, * when it falls under the stroke. The *pit* of *putrefaction* is meant, in which the corpse decays, nor does it here merely denote the sepulchre, but the ignominious condition of a corpse cast forth, as when it is thrown into a pit. *Hermann Venema.* 
 
@@ -585,7 +585,7 @@ And I see the good ship riding, all in a perilous road; The low reef booming on 
 
 **Verse 22.** (*last clause* ). Who are the righteous? What is meant by their being moved? Whose permission is needful to accomplish it? Will he give it? "Never." Why not?
 
-**Verse 23.** (*last clause* ). The grand "I WILL." Sum up the Psalm.—
+**Verse 23.** (*last clause* ). The grand "I will." Sum up the Psalm.—
 
 1\. When I pray, Ps 55:1-3.
 
@@ -603,5 +603,5 @@ And I see the good ship riding, all in a perilous road; The low reef booming on 
 
 ## Works Upon The Fifty-Fifth Psalm
 
-In CHANDLER'S *"Life of David, "* Vol. 2., pp. 305-315, there is an Exposition of this Psalm.
+In Chandler's *"Life of David, "* Vol. 2., pp. 305-315, there is an Exposition of this Psalm.
 

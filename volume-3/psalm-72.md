@@ -146,7 +146,7 @@ God's church is no mean thing; its beginnings are small, but its increase is of 
 
 ### Verses 18-19
 
-> Blessed *be* the LORD God, the God of Israel, who only doeth wondrous things.
+> Blessed *be* the Lord God, the God of Israel, who only doeth wondrous things.
 
 > And blessed *be* his glorious name for ever: and let the whole earth be filled *with* his glory; Amen, and Amen.
 
@@ -524,9 +524,9 @@ Finished are the prayers of David, the son of Jesse.
 
 4\. Should be continued till they are no more needed.
 
-**HERE ENDETH THE SECOND BOOK OF THE PSALMS.** 
+**Here endeth the Second Book of the Psalms.** 
 
 ## Works Upon The Seventy-Second Psalm
 
-In CHANDLER'S *Life of David, * Vol. 2, pp. 440-44, there is an Exposition of this Psalm.
+In Chandler's *Life of David, * Vol. 2, pp. 440-44, there is an Exposition of this Psalm.
 

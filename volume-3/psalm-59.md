@@ -200,7 +200,7 @@ And surround the city."
 
 **Verse 8.** God sees and smiles, he looks and laughs at these giants; he sits in heaven far above their reach; neither doth he much trouble himself about the matter; no more should we, but trust in him, and know that there is a counsel in heaven, that will dash the mould of all contrary counsels upon the earth, as the stone cut out of the mountain did the four great monarchies. Da 2:34. And therefore though the wicked, in the pride of his heart, doth persecute the poor; though they belch out with their mouth, and seek to double murder the innocent, by detraction and by deadly practice, yet God both hears and jeers at their madness, and will bring all their purposes to nought with little ado; nay, the very cruelty of his enemies will move God to make haste. The saints fare the better for the insolence and outrages of their enemies, whose ruin is thereby accelerated; and somewhat God will do the sooner for his people, lest the enemy exalt himself. Ps 140:8. *Abraham Wright.* 
 
-**Verse 8.** (*last clause* ). In the close of the verse, mention is made of *all nations, * to intimate, that though they might equal the whole world in numbers, they would prove a mere mockery with all their influence and resources. Or the words may be read—EVEN AS *thou hast all the nations in derision.* One thing is obvious, that David ridicules the vain boasting of his enemies, who thought no undertaking too great to be accomplished by their numbers. *John Calvin.* 
+**Verse 8.** (*last clause* ). In the close of the verse, mention is made of *all nations, * to intimate, that though they might equal the whole world in numbers, they would prove a mere mockery with all their influence and resources. Or the words may be read—even as *thou hast all the nations in derision.* One thing is obvious, that David ridicules the vain boasting of his enemies, who thought no undertaking too great to be accomplished by their numbers. *John Calvin.* 
 
 **Verses 8-9.** 
 
@@ -348,5 +348,5 @@ You smiling, smooth, detested parasites."
 
 ## Works Upon The Fifty-Ninth Psalm
 
-In CHANDLER'S *"Life of David, "* Vol. 1., pp. 85-89, there is an Exposition of this Psalm.
+In Chandler's *"Life of David, "* Vol. 1., pp. 85-89, there is an Exposition of this Psalm.
 
