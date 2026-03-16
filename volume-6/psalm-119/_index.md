@@ -146,4 +146,24 @@ As to the remaining word "way," that occurs but twice as a characteristic word, 
 
 {{< cards >}}
   {{< card link="./verses-1-8" title="Verses 1 to 8" icon="book-open" >}}
+  {{< card link="./verses-9-16" title="Verses 9 to 16" icon="book-open" >}}
+  {{< card link="./verses-17-24" title="Verses 17 to 24" icon="book-open" >}}
+  {{< card link="./verses-25-32" title="Verses 25 to 32" icon="book-open" >}}
+  {{< card link="./verses-33-40" title="Verses 33 to 40" icon="book-open" >}}
+  {{< card link="./verses-41-48" title="Verses 41 to 48" icon="book-open" >}}
+  {{< card link="./verses-49-56" title="Verses 49 to 56" icon="book-open" >}}
+  {{< card link="./verses-57-64" title="Verses 57 to 64" icon="book-open" >}}
+  {{< card link="./verses-65-72" title="Verses 65 to 72" icon="book-open" >}}
+  {{< card link="./verses-73-80" title="Verses 73 to 80" icon="book-open" >}}
+  {{< card link="./verses-81-88" title="Verses 81 to 88" icon="book-open" >}}
+  {{< card link="./verses-89-96" title="Verses 89 to 96" icon="book-open" >}}
+  {{< card link="./verses-97-104" title="Verses 97 to 104" icon="book-open" >}}
+  {{< card link="./verses-105-112" title="Verses 105 to 112" icon="book-open" >}}
+  {{< card link="./verses-113-120" title="Verses 113 to 120" icon="book-open" >}}
+  {{< card link="./verses-121-128" title="Verses 121 to 128" icon="book-open" >}}
+  {{< card link="./verses-129-136" title="Verses 129 to 136" icon="book-open" >}}
+  {{< card link="./verses-137-144" title="Verses 137 to 144" icon="book-open" >}}
+  {{< card link="./verses-145-152" title="Verses 145 to 152" icon="book-open" >}}
+  {{< card link="./verses-153-160" title="Verses 153 to 160" icon="book-open" >}}
+  {{< card link="./verses-161-168" title="Verses 161 to 168" icon="book-open" >}}
 {{< /cards >}}

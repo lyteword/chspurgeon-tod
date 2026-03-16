@@ -1,0 +1,1198 @@
+# Verses 97-104
+
+## Exposition Verse 97
+
+**Verse 97.** \---"_O how love I thy law_!" It is a note of exclamation. He
+loves so much that he must express his love, and in making the attempt he
+perceives that it is inexpressible---and therefore cries, "_O how I love_!" We
+not only reverence but love the law, we obey it out of love, and even when it
+chides us for disobedience we love it none the less. The law is God's law, and
+therefore it is our love. We love it for its holiness, and pine to be holy; we
+love it for its wisdom, and study to be wise; we love it for its perfection,
+and long to be perfect. Those who know the power of the gospel perceive an
+infinite loveliness in the law as they see it fulfilled and embodied in Christ
+Jesus.
+
+"_It is my meditation all the day_." This was both the effect of his love and
+the cause of it. He meditated in God's word because he loved it, and then
+loved it the more because he meditated in it. He could not have enough of it,
+so ardently did he love it: all the day was not too long for his converse with
+it. His morning prayer, his noonday thought, his evensong were all out of Holy
+Writ; yea, in his worldly business he still kept his mind saturated with the
+law of the Lord. It is said of some men that the more you know them the less
+you admire them; but the reverse is true of God's word. Familiarity with the
+word of God breeds affection, and affection seeks yet greater familiarity.
+When "thy law," and "my meditation" are together all the day, the day grows
+holy, devout, and happy, and the heart lives with God. David turned away from
+all else; for in the preceding verse he tells us that he had seen an end of
+all perfection; but he turned in unto the law and tarried there the whole day
+of his life on earth, growing henceforth wiser and holier.
+
+### Explanatory Notes and Quaint Sayings
+
+**Verse 97.** \---"_O how love I thy law_!" He speaketh not of his knowing,
+reading, hearing, speaking, or outward practising of the law, but of _love_ to
+the law; this is more than all the former; all the former may be without this,
+but this cannot be without the former. We may know, read, hear, speak, yea,
+preach the law, and all God's word, as also outwardly perform outward works
+prescribed and commanded by the law, and yet not love it; but where this love
+is there cannot but be all the former. Love is the principal affection of all
+other; like a queen commanding and overruling all the rest; all the rest
+depend upon it; yea, sometimes also the judgment itself. As the love is set,
+whether rightly or wrongly, towards good or evil, so are all the affections
+swayed; yea, judgment itself sometimes blinded by love, erreth, as the love
+itself erreth, and so words and all actions are accordingly. Doth not daily
+experience daily teach the truth hereof? Moreover, besides this observation of
+this word, in respect of other, and in a kind of opposition unto other; let us
+observe two other things therein; 1. The first person; 2. The present tense.
+He saith not, O how is thy word to be loved, namely, by others; but O, how do
+_I myself_ love thy law or thy word! Neither doth he say, O, how have I loved
+thy law in times past, or how will I love it hereafter, how unfeignedly do I
+purpose to love it, when I shall be advanced unto and settled in my kingdom;
+or, how would I love it if I were so advanced unto and settled, or were I in
+this or that estate, or had this or that which I yet have not, or that others
+have; the prophet, I say, speaketh not in such a manner; but he speaketh, as
+in the first person, so also in the present tense, saying, O how do I (now,
+such as I am) love they law! Both these things are very worthy of our
+observation, and they be the greater in respect of the person of the prophet;
+for albeit the name of the writer of this psalm be not expressed in the title
+thereof (as in many other psalms), yet the stream of most interpreters
+carrieth it to David. The matter also and style of the psalm, compared with
+the matter and style of other psalms which are David's, do both savour of
+David, and argue it was written by David...Whether David were now in full and
+quiet possession of his kingdom, (though not without many adversaries), or
+whether he was only known to be the heir-apparent, appointed to succeed Saul
+(as most do think), or whether he were for a time in flight from the cruel and
+rebellious insurrection of his unnatural son Absalom, yet is it a great matter
+that here he speaketh of his great love towards the law of God. If he were in
+full and quiet possession of his kingdom, then had he many other things that
+he might have loved, and wherewith the hearts of such princes are commonly
+taken up, yea, also stolen away from those things that are much more worthy of
+love. What need I speak of the daily experience, whereby the truth hereof is
+manifest in far more mean persons that princes are? If David were in exile or
+flight, a man would think that his wife and children, and other friends, as
+also his country, would have so occupied and fully possessed his heat, that
+there should have been a little place for other things therein; but that
+rather he should have said, Oh, how love I those things! Oh, how is my heart
+troubled with thought of them, and care for them in my great love towards
+them! Moreover, that neither any troubles on the one side, wherewith David was
+continually exercised; nor his honours, riches, or pleasures, either in
+possession or in hope on the other side, did extinguish, or cool, or abate his
+love, is it not a thing of great note?
+
+The next word to be observed is that word "_how_ :" "Oh _how_ love I thy law!"
+This noteth the manner of measure of his love. It is a word of admiration, or
+a note of comparison; so is it taken in divers other places...it noteth a kind
+of excess or excellency, even such as cannot be well expressed. The prophet
+seemeth to speak with a kind of sighing, as being so ravished with love
+towards the law of God, that he was even sick of love, as the church saith
+(Sng 2:5; 5:8), she was sick of love towards Christ: so seemeth the prophet to
+be sick of love towards the word of God. This word "_how_ ," also imports a
+comparison, and notes a greater love in David towards the word than towards
+riches or any other thing; in which respect he saith afterward in this very
+Psalm (Psa 119:127), that he loveth the Lord's commandments "_above gold, yea,
+above fine gold_ ;" yea, as whosoever so loveth not Christ, that in respect of
+Christ, and for Christ's sake, he forsaketh father, and mother, and brethren,
+and sisters, wife and children, and his own life also (much more riches and
+other things not to be compared to life) is not worthy of him: so he that doth
+not love the word above all other things; yea, he that hateth not all other
+things below here, ill respect of the word, is not worthy of the word. Christ
+himself loved the word of God more than he loved any riches; for did he not
+for the performance of the word submit himself to such want, that the foxes
+had holes, and the birds had nests, but he had not whereon to lay his head?
+and that, although he were the heir of all things, yet he was ministered unto
+by certain women? He loved the word of God more than he loved his mother,
+brethren, and sisters...Yea, Christ loved the word of God more than he loved
+his own life; for did he not lay down his life to fulfil the word of God?...If
+Christ Jesus himself loved the word more than all other things, yea, more than
+his life, which was more than the life of all angels, was there not great
+reason why David should love it in like manner? Had not David as much need of
+it as Christ?...
+
+"_It is my meditation_." The noun "_meditation_ " seemeth to be more than if
+he had said only that he meditated. For he seemeth to mean that though he did
+often think upon other matters, yet he made nothing his "meditation" but that
+which he here speaketh of, and that this was his only, or his chief and
+principal meditation and set study.
+
+The object of David's meditation is not only to be understood of the bare
+letter of the word, as if he did always meditate of some text or other of the
+word before written; but also of the matters contained in the word; as of the
+justice, power, wisdom, mercy and goodness of God; of the frailty, corruption,
+and wickedness that is in man naturally, of the sins that God forbiddeth, and
+of the virtues that God commandeth in the word, and other the like. For he
+that meditates of these things, though he meditate not of any one text of the
+word, yet he may be truly said to meditate of the word.
+
+"_All the day_." We are not to imagine that the prophet did nothing else but
+meditate on the word; but this, first of all; that no day passed over his head
+wherein he did not meditate on the word; yea, that he took every occasion of
+meditating on the word. He was never weary of meditating. Though he had many
+other things wherein to employ himself, yet he forgot not the meditation of
+the word. His mind was not by any other employment alienated from the
+meditation of the word, but the more thereby provoked thereunto. As a man that
+hath laboured never so much one day in his calling, is not to be wearied
+thereby, but that he laboureth afresh the next day, and so day after day: so
+was it with the prophet touching this act of meditation. Secondly, when he
+saith he meditated on the word continually, or all the day, he meaneth that he
+did nothing at any time of the day without meditation on the word for doing
+thereof. Therefore we may safely say that continual meditation of the word is
+more necessary than continual praying, as being necessary before the doing of
+everything, and in the very doing of everything; yea, even before the said
+duty of prayer, and in the very act thereof, this work of meditation of the
+word is always necessary; as without which, we know not either for what to
+pray, or in what sort and manner to pray: it is God's word only that can and
+must teach us both what to pray for and also how to pray.
+
+\---_Thomas Stoughton_ , _in_ "_Two Profitable Treatises_ ," 1616.
+
+**Verse 97.** \---"_O how love I thy law_!" Who without love attempts anything
+in the law of God, does it coldly, and quickly gives it up. For the mind
+cannot give itself earnestly and perseveringly to things which are not loved.
+Only he who loves the law makes it his meditation all the day.
+
+\---_Wolfgang Musculus_.
+
+**Verse 97.** \---"_O how love I thy law_!" Were I to enjoy Hezekiah's grant,
+and to have fifteen years added to my life, I would be much more frequent in
+my applications to the throne of grace. Were I to renew my studies, I would
+take my leave of those accomplished trifles---the historians, the orators, the
+poets of antiquity---and devote my attention to the Scriptures of truth. I
+would sit with much greater assiduity at my Divine Master's feet, and desire
+to know nothing but "_Jesus Christ, and him crucified_." This wisdom, whose
+fruits are peace in life, consolation in death, and everlasting salvation
+after death---this I would trace---this I would seek---this I would explore
+through the spacious and delightful fields of the Old and New Testament.
+
+\---_James Hervey_ , 1714-1758.
+
+Verse 97.---This most precious jewel is to be preferred above all treasure. If
+thou be hungry, it is meat to satisfy thee; if thou be thirsty, it is drink to
+refresh thee; if thou be sick, it is a present remedy; if thou be weak, it is
+a staff to lean unto; if thine enemy assault thee, it is a sword to fight
+withal; if thou be in darkness, it is a lantern to guide thy feet; if thou be
+doubtful of the way, it is a bright shining star to direct thee; if thou be in
+displeasure with God, it is the message of reconciliation; if thou study to
+save thy soul, receive the word engrafted, for that is able to do it: it is
+the word of life. Whose loveth salvation will love this word, love to read it,
+love to hear it; and such as will neither read nor hear it, Christ saith
+plainly, they are not of God. For the spouse gladly heareth the voice of the
+bridegroom; and "_my sheep hear my voice_ ," saith the Prince of pastors (John
+10:27).
+
+\---_Edwin Sundys_ , 1519-1587.
+
+**Verse 97.** \---"_O how love I thy law_!" As faith worketh by love unto God,
+so it worketh by love unto his word. Love me, love my word: love a king, love
+his laws. So it did on David; so it should do on us: "O how love I thy law!"
+saith David. "_O how love I thy law_!" should every one of us say; not only
+because it is a good law, but chiefly because it is God's law.
+
+\---_Richard Capel_ , 1586-1656.
+
+**Verse 97.** \---"_O how love I thy law_!" He calls God himself to be judge
+of his love to the word; witnessing thereby that it was no counterfeit love,
+but complete and sincere love which he bore unto it. The like protestation was
+used by S. Peter: "_Thou knowest, O Lord, that I love thee!_ "
+
+\---_William Cowper_.
+
+**Verse 97.** \---"_Thy law_." In every one of these eight verses the Bible is
+spoken of as the Lord's, as, indeed, all through the Psalm. Who is the author
+of Scripture? God. What is the matter of Scripture? God; it was not fit that
+any should write of God, but God himself. What is the end of Scripture? God.
+Why was the Scripture written, but that we might everlastingly enjoy the
+blessed God? As Caesar wrote his own commentaries; so God, when there was none
+above him of whom he could write, he wrote of himself; by histories, laws,
+prophecies, and promises, and many other doctrines, hath he set himself forth
+to be the Creator, Preserver, Deliverer, and Glorifier of mankind; and all
+this is done in a perfect manner.
+
+\---_Thomas Manton_.
+
+**Verse 97.** \---"_It is my meditation_." Holy Scripture is not a book for
+the slothful: it is not a book which can be interpreted without, and apart
+from, and by the deniers of, that Holy Spirit by whom it came. Rather is it a
+field, upon the surface of which, if sometimes we gather manna easily and
+without labour, and given, as it were, freely to our hands, yet of which also,
+many portions are to be cultivated with pains and toil ere they will yield
+food for the use of man. This bread of life also is to be eaten in the
+wholesome sweat of our brow.
+
+\---_Richard Chenevix Trench_ , (1807-1886).
+
+### Hints to Preachers
+
+**Verses 97-104.** \---The profitableness of holy meditation.
+
+Its theme--- "_thy law_ ," (Psa 119:97),
+
+Its effect--- "_wisdom_ " (Psa 119:98-100),
+
+Practically shown in daily life (Psa 119:101-102),
+
+Its sweetness (Psa 119:103), and
+
+Hallowing influence (Psa 119:104).
+
+\---_Outlines Upon Keywords of the Psalm_ , _by Pastor C. A. Davis_.
+
+**Verse 97.** \---
+
+  1. Unusual Exclamation.
+
+  2. Unusual Application.
+
+\---_W. D._
+
+**Verse 97.** \---Indescribable love and insatiable thought. The action and
+reaction of affection and meditation.
+
+**Verse 97.** \---
+
+  1. The object of love: "_thy law_."
+
+  2. The degree of that love: "_oh, how love I_ ," etc.
+
+  3. The evidence of that love: "_it is my meditation_ ," etc.
+
+\---_G. R._
+
+**Verse 97.** \---Love to the law.
+
+  1. An ardent confession of love.
+
+  2. An unanswerable evidence of love.
+
+\---_C. A. D._
+
+**Verse 97.** (_first clause_).---Vehemency of love for God's word.
+
+  1. Its recognisable marks.
+
+a. Profound reverence for the authority of the word.
+
+b. Admiration for its holiness.
+
+c. Jealousy. For its honour; God's servant feels acute pain when men show it
+any slight.
+
+d. Respect for its wholeness; he would not divorce precepts from promises, nor
+ignore a single statement in it.
+
+e. Indefatigability in its study.
+
+f. Eager desire to obey it.
+
+g. Forwardness in praising it.
+
+h. Activity in spreading it abroad.
+
+  2. Its reasonableness.
+
+a. The word well deserves it.
+
+b. It is a proof of true intelligence.
+
+c. It is not less than a regard for our own interest demands.
+
+  3. Its requisiteness to the true worship of God. Men sneeringly call such an affection bibliolatry, as though it were the worship of a book. In truth, it is an essential element in the due worship of God. For---
+
+a. Without it there cannot be the faith which honours God.
+
+b. It is involved in that love to God which constitutes the very essence of
+worship.
+
+c. It is itself an act of homage, that a worshipper dare not withhold.
+
+\---_J. F._
+
+**Verses 97-100.** \---Spiritual wisdom.
+
+  1. God's word the source of surpassing wisdom---excelling that of "_mine enemies_ ," "_my teachers_ ," "_the ancients_."
+
+  2. The three methods of acquiring this wisdom---love, meditation, practice.
+
+  3. The one Giver of this wisdom: "_Thou_ :" Psa 119:98.
+
+\---_C. A. D._
+
+## Exposition Verse 98
+
+**Verse 98.** \---"_Thou through thy commandments hast made me wiser than mine
+enemies_." The commands were his book, but God was his teacher. The letter can
+make us knowing, but only the divine Spirit can make us wise. Wisdom is
+knowledge put to practical use. Wisdom comes to us through obedience: "_If any
+man will do his will he shall know of the doctrine_."(Jhn 7:17) We learn not
+only from promise, and doctrine, and sacred history, but also from precept and
+command; in fact, from the commandments we gather the most practical wisdom
+and that which enables us best to cope with our adversaries. A holy life is
+the highest wisdom and the surest defence. Our enemies are renowned for
+subtlety, from the first father of them, the old serpent, down to the last
+cockatrice that has been hatched from the egg; and it would be vain for us to
+try to be a match with them in the craft and mystery of cunning, "_for the
+children of this world are in their generation wiser than the children of
+light_ " (Luk 16:8). We must go to another school and learn of a different
+instructor, and then by uprightness we shall baffle fraud, by simple truth we
+shall vanquish deep laid scheming, and by open candour we shall defeat
+slander. A thoroughly straightforward man, devoid of all policy, is a terrible
+puzzle to diplomatists; they suspect him of a subtle duplicity through which
+they cannot see, while he, indifferent to their suspicions, holds on the even
+tenor of his way, and baffles all their arts. Yes, "honesty is the best
+policy." He who is taught of God has a practical wisdom such as malice cannot
+supply to the crafty; while harmless as a dove he also exhibits more than a
+serpent's wisdom.
+
+"_For they are ever with me_." He was always studying or obeying the
+commandments; they were his choice and constant companions. If we wish to
+become proficient we must be indefatigable. If we keep the wise law ever near
+us we shall become wise, and when our adversaries assail us we shall be
+prepared for them with that ready wit which lies in having the word of God at
+our fingers' ends. As a soldier in battle must never lay aside his shield, so
+must we never have the word of God out of our minds; it must be ever with us.
+
+### Explanatory Notes and Quaint Sayings
+
+**Verse 98.** \---"_Thou through thy commandments hast made me wiser than mine
+enemies_." Now he praiseth the word for the singular profit and fruit which he
+reaped by it; to wit, that he learned wisdom by it. And this he amplifies, by
+comparing himself with three sorts of men; his enemies, his teachers, and the
+ancients. And this he doth, not of vain glory (for bragging is far from him
+who is governed by the Spirit of grace); but to commend the word of the Lord,
+and to allure others to love it, by declaring to them what manifold good he
+found in it.
+
+"_Wiser than mine enemies_." But how can this be, seeing that our Saviour
+saith that the men of this world are wiser in their own generation than the
+children of God? The answer is, our Saviour doth not call worldlings wise men
+simply; but _wiser in their own generation_ ; that is, wise in things
+pertaining to this life. Or as Jeremy calls them, "_wise to do evil_ ;" (Jer
+4:22) and when they have so done, wise to conceal and cloak it. All which in
+very deed is but folly; and therefore David, who by the light of God's word
+saw that it was so, could not be moved to follow their course. Well; there is
+a great controversy between the godly and the wicked: either of them in their
+judgment accounts the other to be fools; but it is the light of God's word
+which must decide it.
+
+\---_William Cowper_.
+
+**Verse 98.** \---"_Wiser than mine enemies_." They are wiser than their
+enemies as to security against their attempts, and that enmity and opposition
+that they carry on against them; they are far more safe by walking under the
+convert of God's protection than their enemies can possibly be, who have all
+manner of worldly advantages. A godly wise man is careful to keep in with God:
+he is more prepared and furnished, can have a higher hope, more expectation of
+success, than others have; or, if not, he is well enough provided for, though
+all things fall out never so cross to his desires. As to success, who hath
+made wiser provision, think you, he that hath made God his friend, or he that
+is borne up with worldly props and dependencies? they that are guided by the
+Spirit of God, or they that are guided by Satan? those that make it their
+business to walk with God step by step, or those that not only forsake him,
+but provoke him to his face? those that break with men, and keep in with God,
+or those that break with God? Surely, a child of God hath more security by
+piety than his enemies can have by secular policy, whereby they think to
+overreach and ruin him. The safety of a child of God lieth in two things: 1.
+God is his friend. 2. As long as God hath work for him to do, he will maintain
+him, and bear him out in it.
+
+\---_Thomas Manton_.
+
+**Verse 98.** \---"_They are ever with me_." The meaning of the last clause is
+not merely "_it is ever with me, but it is for ever to me_ ," _i.e._ , mine,
+my inalienable, indefeasible possession.
+
+\---_Joseph Addison Alexander_.
+
+**Verse 98.** \---"_They are ever with me_." God gives knowledge to whom he
+pleaseth; but those that meditate most, thrive most. This may imply also that
+the word should be a ready help. Such as derive their wisdom from without
+cannot have their counsellors always with them to give advice. But, when a man
+hath gotten the word in his heart, he finds a ready help: he hath a seasonable
+word to direct him in all difficulties, in all straits, and in all
+temptations, to teach him what to do against the burden of the present
+exigence; to teach him what to do and what to hope for.
+
+\---_Thomas Manton_.
+
+**Verse 98.** \---"_They are ever with me_." A good man, wherever he goes,
+carries his Bible along with him, if not in his hands, yet in his head and in
+his heart.
+
+\---_Matthew Henry_.
+
+**Verses 98-100.** \---Three sorts of men he mentions, "_enemies_ ,"
+"_teachers_ ," "_ancients_ ;" the enemies excel in policy, teachers in
+doctrine, and ancients in counsel; and yet by the word was David made wiser
+than all these. Malice sharpens the wit of enemies, and teacheth them the arts
+of opposition; teachers are furnished with learning because of their office;
+and ancients grow wise by experience; yet David, by the study of the word,
+excelled all these.
+
+\---_Thomas Manton_.
+
+### Hints to Preachers
+
+**Verse 98.** \---Constant communion with truth the student's road to
+proficiency.
+
+**Verse 98.** \---The truly wise man.
+
+  1. The source of his wisdom. The word of "_the only wise God_ ," here described as
+
+a. Thy commandments.
+
+b. Thy testimonies.
+
+c. Thy precepts.
+
+  2. The increase of his wisdom. It arises from
+
+a. The abiding indwelling of the word: "_ever with me_ ," Psa 119:98.
+
+b. Meditation upon the word, Psa 119:99.
+
+c. Obedience to the word, Psa 119:100.
+
+  3. The measure of his wisdom.
+
+a. Wiser than his enemies, whose wisdom was "_not from above, but earthly,
+sensual, devilish_."
+
+b. Wiser than his teachers, whose wisdom was "_of this world_."
+
+c. Wiser than the ancients, whose wisdom was that of unsanctified age and
+experience.
+
+\---_W. H. J. Page_ , _of Chelsea_ , 1882.
+
+## Exposition Verse 99
+
+**Verse 99.** \---"_I have more understanding than all my teachers_." That
+which the Lord had taught him had been useful in the camp, and now he finds it
+equally valuable in the schools. Our teachers are not always to be trusted; in
+fact, we may not follow any of them implicitly, for God holds us to account
+for our personal judgments. It behooves us then to follow closely the chart of
+the Word of God, that we may be able to save the vessel when even the pilot
+errs. If our teachers should be in all things sound and safe, they will be
+right glad for us to excel them, and they will ever be ready to own that the
+teaching of the Lord is better than any teaching which they can give us.
+Disciples of Christ who sit at his feet are often better skilled in divine
+things than doctors of divinity.
+
+"_For thy testimonies are my meditation_." This is the best mode of acquiring
+understanding. We may hear the wisest teachers and remain fools, but if we
+meditate upon the sacred word we must become wise. There is more wisdom in the
+testimonies of the Lord than in all the teachings of men if they were all
+gathered into one vast library. The one book outweighs all the rest.
+
+David does not hesitate to speak the truth in this place concerning himself,
+for he is quite innocent of self consciousness. In speaking of his
+understanding he means to extol the law and the Lord, and not himself. There
+is not a grain of boasting in these bold expressions, but only a sincere
+childlike desire to set forth the excellence of the Lord's word. He who knows
+the truths taught in the Bible will be guilty of no egotism if he believes
+himself to be possessed of more important truth than all the agnostic
+professors buried and unburied.
+
+### Explanatory Notes and Quaint Sayings
+
+**Verse 99.** \---"_I have more understanding than all my teachers_." Even
+where the preacher is godly, partaker of that grace himself, whereof he is an
+ambassador to others, it falls out oftentimes that greater measure of light
+and grace is communicated by his ministry to another than is given to himself;
+as Augustine first illuminated and converted by Ambrose did far excel, both in
+knowledge and spiritual grace, him that taught him. And herein God wonderfully
+shows his glory, that, whosoever be the instrument, he is the dispenser of
+light and glory, giving more by the instrument than it hath in itself. And
+this is so far from being to a godly teacher a matter of grief, that it is
+rather a matter of glory.
+
+\---_William Cowper_.
+
+**Verse 99.** \---"_I have more understanding than all my teachers_." It is no
+reflection upon my teachers, but rather an honour to them, for me to improve
+so as to excel them, and no longer to need them. By _meditation_ we preach to
+ourselves, and so we come to _understand more than our teachers_ , for we come
+to understand our hearts, which they cannot.
+
+\---_Matthew Henry_.
+
+### Hints to Preachers
+
+**Verse 99.** \---The surest way to excellence.
+
+  1. A good subject: "_thy testimonies_."
+
+  2. A good method: "_are my meditations_."
+
+## Exposition Verse 100
+
+**Verse 100.** \---"_I understand more than the ancients, because I keep thy
+precepts_." The men of old age, and the men of old time, were outdone by the
+holier and more youthful learner. He had been taught to observe in heart and
+life the precepts of the Lord, and this was more than the most venerable
+sinner had ever learned, more than the philosopher of antiquity had so much as
+aspired to know. He had the word with him, and so outstripped his foes; he
+meditated on it, and so outran his friends; he practised it, and so outshone
+his elders. The instruction derived from Holy Scripture is useful in many
+directions, superior from many points of view, unrivalled everywhere and in
+every way. As our soul may make her boast in the Lord, so may we boast in his
+word. "There is none like it: give it me," said David as to Goliath's sword,
+and we may say the same as to the word of the Lord. If men prize antiquity
+they have it here. The ancients are had in high repute, but what did they all
+know compared with that which we perceive in the divine precepts? "The old is
+better" says one: but the oldest of all is the best of all, and what is that
+but the word of the Ancient of days?
+
+### Explanatory Notes and Quaint Sayings
+
+**Verse 100.** \---"_I understand...because l keep_." Would we know the Lord?
+Let us keep his commandments. "_By thy precepts_ ," saith David, that is, by
+the observance of thy precepts, "_I get understanding_." "_If any man do my
+will_ " (saith our blessed Saviour, John 7:17), "_he shall know my doctrine_."
+Β _ούλει θεόλογος γενὲσθαι? τὰς εντολάς φυλασσε_ , saith Nazienzen: Wouldst
+thou be a divine? do the commandments; for action is (as it were) the basis of
+contemplation. It is St. Gregory's observation concerning the two disciples
+who, whilst Christ talked with them, knew him not; but in performing an act of
+hospitality towards him, to wit, breaking bread with him, they knew him, that
+they were enlightened, not by hearing him, but by doing divine precepts,
+_Quisquis ergo vult audita intelligere; festinet ea quae jam audire potuit,
+opere implere_ ; Whosoever therefore will understand, let him first make haste
+to do what he heareth.
+
+\---_Nathanael Hardy_ , 1618-1670.
+
+**Verse 100.** \---"_I understand more than the ancients_." The ordinary
+answer of ignorant people is, "What! must we be wiser than our forefathers?"
+And yet those same people would be richer than their forefathers were. The
+_maximum quod sic_ of a Christian is this,---he must grow in grace, till his
+head reach up to heaven, till grace is perfected in glory.
+
+\---_Christopher Love_ , 1618-1651.
+
+**Verse 100.** \---"_More than the ancients_." Understanding gotten by the
+precepts of the word is better than understanding gotten by long experience.
+It is better in four regards. First, It is _more exact._ Our experience
+reacheth but to a few things; but the word of God reacheth to all cases that
+concern true happiness. The word is the result of God's wisdom, who is the
+Ancient of days; therefore exceeds the wisdom of the ancients, or experience
+of any men, or all men. Secondly, as it is more exact, so a _more sure_ way of
+learning wisdom, whereas experience is more uncertain. Many have much
+experience, yet have not a heart to see and to gather wisdom from what they
+feel: Deu 29:2-4. Thirdly, it is a _safer and cheaper_ way of learning, to
+learn by rule, than to come home by weeping cross, and to learn wisdom by our
+own smart. Experience is too expensive a way; and, if we had nothing else to
+guide us, into how many thousand miseries should we run! Fourthly, it is
+_shorter_. The way by age and experience is a long way; and so, for a long
+time, all a man's younger age must needs be miserable and foolish. Now, here
+you may come betimes to be wise by studying the word of God. It concerns a
+man, not only to be wise at length, but to be wise betimes. The foolish
+virgins were wise too late: but never were any wise too soon.
+
+\---_Condensed from Thomas Manton_.
+
+**Verse 100.** \---If this way [the Word of God] were thus perfect in David's
+time, what is it by the addition of so many parcels of Scripture since? If it
+then gave wisdom to the simple (Psa 19:7); if it made David, being brought up
+but as a shepherd, _wiser than_ his enemies, than _his ancients_ , than his
+teachers; as an angel of God in discerning right from wrong (2Sa 14:17); able
+to guide the people by the skilfulness of his hands (Psa 78:72); what kind of
+wisdom is there, which we may not now gather from thence? What depth of
+natural philosophy have we in Genesis and Job! What flowers of rhetoric in the
+prophets! What force of logic in Saint Paul's epistles! what art of poetry in
+the psalms! What excellent moral precepts, not only for private life, but for
+the regulation of families and commonwealth in the Proverbs and Ecclesiastes!
+To which may be added in a second rank as very useful, though apocryphal, the
+Book of Wisdom and Ecclesiasticus. What reasonable and just laws have we in
+Leviticus and Deuteronomy, which moved the great Ptolemy to hire the
+Septuagints to translate them into Greek: what unmatchable antiquity, variety,
+and wonderful events, and certainty of story, in the books of Moses, Joshua,
+the Judges, Samuel, the Kings, and Chronicles, together with Ruth and Esther,
+Ezra and Nehemiah, and, since Christ, in the sacred Gospels and Acts of the
+Apostles. And, lastly, what profound mysteries have we in the prophecies of
+Ezekiel and Daniel, and the Revelation of Saint John. But in this it
+infinitely exceeds the wisdom of all human writings, that it is alone "_able
+to make a man wise unto salvation_ " (2Ti 3:15). Upon these considerations,
+Charles the Fifth of France, surnamed _The Wise_ , not only caused the Bible
+to be translated into French, but was himself very studious in the Holy
+Scriptures. And Alphonsus, King of Arragon, is said to have read over the
+whole Bible fourteen several times, with Lyra's notes upon it; though he were
+otherwise excellently well learned, yet was the law of God his delight, "_more
+desired of him than gold, yea, than much fine gold, sweeter also than honey
+and the honeycomb_."
+
+\---_George Hakewell_ , 1579-1649.
+
+### Hints to Preachers
+
+**Verse 100.** \---Antiquity no security for truth as contrasted with
+revelation: old age no proof of wisdom as contrasted with holy living: open
+confession no evidence of boasting as contrasted with sullen pride.
+
+**Verse 100.** \---Obedience the high road to understanding.
+
+\---_W. B. H._
+
+**Verse 100.** \---Obedience the key of knowledge. John 7:17.
+
+## Exposition Verse 101
+
+**Verse 101.** \---"_I have refrained my feet from every evil way, that I
+might keep thy word_." There is no treasuring up the holy word unless there is
+a casting out of all unholiness: if we keep the good word we must let go the
+evil. David had zealously watched his steps and put a check upon his conduct,
+---he had refrained his feet. No one evil way could entice him, for he knew
+that if he went astray but in one road he had practically left the way of
+righteousness, therefore he avoided every false way. The bypaths were smooth
+and flowery, but he knew right well that they were evil, and so he turned his
+feet away, and held on along the strait and thorny pathway which leads to God.
+It is a pleasure to look back upon self conquests,--- "_I have refrained_ ,"
+and a greater delight still to know that we did this out of no mere desire to
+stand well with our fellows, but with the one motive of keeping the law of the
+Lord. Sin avoided that obedience may be perfected is the essence of this
+verse; or it may be that the Psalmist would teach us that there is no real
+reverence for the book where there is not carefulness to avoid every
+transgression of its precepts. How can we keep God's word if we do not keep
+our own works from becoming vile?
+
+### Explanatory Notes and Quaint Sayings
+
+**Verse 101.** \---"_I have refrained my feet_ ," etc. 1. We have David's
+practice: "_I have refrained my feet from every evil way_." 2. His end or
+motive: "_That I might keep thy word_ ;" that he might be exact and punctual
+with God in a course of obedience.
+
+First, In his practice. You may note the seriousness of it: _I have refrained
+my feet._ By the _feet_ are meant the affections: "_Keep thy foot when thou
+goest to the house of God_ ," Ecc 5:1. Our affections which are the rigorous
+bent of the soul, do engage us to practice; therefore fitly resembled by the
+feet, by which we walk to any place that we do desire: so that, "_I have
+refrained my feet_ ," the meaning is, I keep a close and strict band over my
+affections, that they might not lead me to sin. Then you may note the extent
+of it; he doth not only say, I refrained from evil, but universally, "_from
+every evil way_." But how could David say this in truth of heart, if conscious
+of his offence in the matter of Uriah? Answer: This was the usual frame and
+temper of his soul, and the course of his life; and such kind of assertions
+concerning the saints are to be interpreted, _voce et canatu, licet non semper
+eventu._ This was his errand and drift, his purpose and endeavour, his usual
+course, though he had his failings.
+
+Secondly, What was his end and motive in this? "_That I might keep thy word_
+;" that I might be exact and punctual with God in a course of obedience, and
+adhere to his word universally, impartially.
+
+\---_Thomas Manton_.
+
+**Verse 101.** \---"_I have refrained my feet_ ," etc. Where there is real
+holiness, there is a holy hatred, detestation, and indignation against all
+ungodliness and wickedness, and that upon holy accounts: "_I have refrained my
+feet from every evil way_." But why? "_That I may keep thy word_." "_Through
+thy precepts I get understanding: therefore I hate every false way_ ;" Psa
+119:104. The good that he got by divine precepts stirred up his hatred against
+every false way: Psa 119:128, "_Therefore I esteem all thy precepts concerning
+all things to be right; and I hate every false way_." His high esteem of every
+precept raised up in him a holy indignation against every evil way. A holy man
+knows that all sin strikes at the holiness of God, the glory of God, the
+nature of God, the being of God, and the law of God; and therefore his heart
+rises against all; he looks upon every sin as the Scribes and Pharisees that
+accused Christ; and as that Judas that betrayed Christ; and as that Pilate
+that condemned Christ; and as those soldiers that scourged Christ; and as
+those spears that pierced Christ; and therefore his heart cries out for
+justice upon all.
+
+\---_Thomas Brooks_.
+
+**Verse 101.** \---"_Refrained...that I might keep_." By doing what is right
+we come both to know right and to be better able to do it.
+
+\--- "_Plain Commentary_."
+
+**Verse 101.** \---"_I have refrained my feet_ ," etc. The word "_refrained_ "
+warns us that we are naturally borne by our feet into the path of every kind
+of sin, and are hurried along it by the rush of human passions, so that even
+the wise and understanding need to check, recall, and retrace their steps, in
+order that they may keep God's word, and not become castaways. And further
+note that the Hebrew verb here translated "_refrained_ " is even stronger in
+meaning, and denotes "I _fettered_ , or _imprisoned_ , my feet," whereby we
+may learn that no light resistance is enough to prevent them from leading us
+astray.
+
+\---_Agellius and Genebrardus_ , _in_ "_Neale and Littledale_."
+
+### Hints to Preachers
+
+**Verse 101.** \---Self restraint needful to piety.
+
+## Exposition Verse 102
+
+**Verse 102.** \---"_I have not departed from thy judgments: for thou hast
+taught me_." They are well taught whom God teaches. What we learn from the
+Lord we never forget. God's instruction has a practical effect---we follow his
+way when he teaches us; and it has an abiding effect,---we do not depart from
+holiness. Read this verse in connection with the preceding and you get the
+believer's "I have," and his "I have not:" he is good both positively and
+negatively. What he did, namely, "refrained his feet," preserved him from
+doing that which otherwise he might have done, namely, "_departed from thy
+judgments_." He who is careful not to go an inch aside will not leave the
+road. He who never touches the intoxicating cup will never be drunk. He who
+never utters an idle word will never be profane. If we begin to depart a
+little we can never tell where we shall end. The Lord brings us to persevere
+in holiness by abstinence from the beginning of sin; but whatever be the
+method he is the worker of our perseverance, and to him be all the glory.
+
+### Explanatory Notes and Quaint Sayings
+
+**Verse 102.** \---By "_misphallim_ ," "_judgments_ ," is meant God's law; for
+thereby he will judge the world. And the word "_departed not_ " intimateth
+both his exactness and constancy: his exactness, that he did not go a hair's
+breadth from his direction; "_Ye shall observe to do therefore as the Lord
+your God hath commanded you: ye shall not turn aside to the right hand or to
+the left_ " (Deu 5:32); and his constancy is implied in it, for then we are
+said to depart from God and his law, when we fall off from him in judgment and
+practice. Jer 32:40.
+
+\---_Thomas Manton_.
+
+**Verse 102.** \---"_Thou hast taught me_." God teacheth two ways:---
+
+  1. By common illumination.
+
+  2. By special operation.
+
+  3. By common illumination, barely enlightening the mind to know or understand what he propounds by his messengers: so God showed it to the heathen: Rom 1:20. But then,
+
+  4. By way of special operation, effectually inclining the will to embrace and prosecute duties so known: "_I will put my law in their inward parts, and write it in their hearts_ :" Jer 31:33. This way of teaching is always effectual and persuasive. Now, in this sense they are taught of God, so that they do not only get an ear to hear, but a heart to understand, learn, and practise.
+
+This teaching is the ground of constancy, because,
+
+  1. They that are thus taught of God see things more clearly than others do; God is the most excellent teacher.
+
+  2. They know things more surely, and with certainty of demonstration, whereas others have but dubious conjectures, and loose and wavering opinions about the things of God.
+
+  3. This teaching is so efficacious and powerful, as that the effect followeth: "_Teach me thy way, O Lord; I will walk in thy truth_ " (Psa 86:11).
+
+  4. God reneweth this teaching, and is always at hand to guide us, and give counsel to us, which is the cause of our standing.
+
+\---_Thomas Manton_.
+
+**Verse 102.** \---"_For thou hast taught me_." Lest it should seem that David
+ascribed the praise of godliness to himself, or that it came from any goodness
+in him that he did refrain his feet from every evil way, he gives here all the
+glory to God, protesting, that because God did teach him, therefore he
+declined not. Wherefrom we learn, that if at any time we stand, or if when we
+have fallen we rise and repent, it is ever to be imputed to God that teacheth
+us; for there is no evil so abominable, but it would soon become plausible to
+us, if God should leave us to ourselves. David was taught by his ordinary
+teachers, and he did reverence them; but that he profited by them he ascribes
+unto God. Paul may plant, and Apollos water; God must give the increase.
+
+\---_William Cowper_.
+
+### Hints to Preachers
+
+**Verse 102.** \---Divine teaching necessary to secure perseverance, and
+effectual to that end.
+
+**Verse 102.** \---Consider,
+
+  1. The path appointed for men to walk in: "_Thy judgments_."
+
+a. Right path.
+
+b. Clean path.
+
+c. Pleasant path.
+
+d. Safe path.
+
+e. The end---eternal glory.
+
+  2. The persistent pursuit of it: "_I have not departed_."
+
+a. Persecution would drive from it.
+
+b. Pleasures would allure from it.
+
+c. The flesh would weary in it.
+
+d. But the true believer determines to hold on his way to the end.
+
+e. And carefully watches his steps lest they depart.
+
+  3. The preserving power that holds the traveller to it: "_For thou hast taught me_."
+
+a. The traveller walks with God, and receives instruction by the special
+illumination of the Holy Spirit.
+
+b. The choice property of this teaching is, not only that it makes wise, but
+that it captivates the soul, strengthens it, and holds it to a holy obedience.
+
+\---_J. F._
+
+## Exposition Verse 103
+
+**Verse 103.** \---"_How sweet are thy words into my taste_." He had not only
+heard the words of God, but fed upon them: they affected his palate as well as
+his ear. God's words are many and varied, and the whole of them make up what
+we call "the word:" David loved them each one, individually, and the whole of
+them as a whole; he tasted an indescribable sweetness in them. He expresses
+the fact of their sweetness, but as he cannot express the degree of their
+sweetness he cries, "How sweet!" Being God's words they were divinely sweet to
+God's servant; he who put the sweetness into them had prepared the taste of
+his servant to discern and enjoy it. David makes no distinction between
+promises and precepts, doctrines and threatenings; they are all included in
+God's words, and all are precious in his esteem. Oh for a deep love to all
+that the Lord has revealed, whatever form it may take.
+
+"_Yea, sweeter than honey to my mouth_." When he did not only eat but also
+speak the word, by instructing others, he felt an increased delight in it. The
+sweetest of all temporal things fall short of the infinite deliciousness of
+the eternal word: honey itself is outstripped in sweetness by the word of the
+Lord. When the Psalmist fed on it he found it sweet; but when he bore witness
+of it it became sweeter still. How wise it will be on our part to keep the
+word on our palate by meditation and on our tongue by confession. It must be
+sweet to our taste when we think of it, or it will not be sweet to our mouth
+when we talk of it.
+
+### Explanatory Notes and Quaint Sayings
+
+**Verse 103.** \---"_How sweet are thy words unto my taste_!" Even the words
+of a fellow creature of earth, how inexpressibly sweet sometimes, how beyond
+all calculation precious! All gold and silver would be despised in comparison
+with them. They come freighted with love, and the heart is enriched with them
+as though the breath of God had come into it. But does not this rainbow of
+earthly joy die gradually out? Do not the enrapturing words sooner or later
+become exsiccated in the memory, and may they not meet with contemptuous
+treatment as reminders of an earthly illusion? Indeed they do; indeed they
+may.
+
+Nevertheless the heart may find its happiness, its true and undying happiness,
+_in words_. At this moment there is nothing in the whole world so much to be
+desired as certain words. Words of love. Words expressive of infinite love.
+Treasures, pleasures, honours of earth, what are they? My unsatisfied soul
+cries out, Give me words. Words whereby I may know the love that God has
+towards me. Words declaring the unchangeable attachment of the Saviour. Words
+purifying my heart. Emboldening me in prayer. Exhibiting to me the blissful
+future. Words that shall give life to my dead powers, and change me from glory
+to glory, as by the Spirit of the Lord.
+
+\---_George Bowen_ , _in_ "_Daily Meditations_ ," 1873.
+
+**Verse 103.** \---How sweet are thy words unto my taste!" etc. There is given
+to the regenerated a new, supernatural sense, a certain divine, spiritual
+taste. This is in its whole nature diverse from any of the other five senses,
+and something is perceived by a true saint in the exercise of this new sense
+of mind, in spiritual and divine things, as entirely different from anything
+that is perceived in them by natural men, as the sweet taste of honey is
+diverse from the ideas men get of honey by looking on it or feeling of it. Now
+the beauty of holiness is that which is perceived by this spiritual sense, so
+diverse from all that natural men perceive in them; or, this kind of beauty is
+the quality that is the immediate object of this spiritual sense; this is the
+sweetness that is the proper object of this spiritual taste. The Scripture
+often represents the beauty and sweetness of holiness as the grand object of a
+spiritual taste and a spiritual appetite. This was the sweet food of the holy
+soul of Jesus Christ, John 4:32, 34. "_I have meat to eat that ye know not
+of...My meat is to do the will of him that sent me, and to finish his work_."
+I know of no part of the Holy Scriptures where the nature and evidence of true
+and sincere godliness are so fully and largely insisted on and delineated, as
+in the 119th Psalm. The Psalmist declares his design in the first verses of
+the psalm, keeps his eye on it all along, and pursues it to the end. The
+excellency of holiness is represented as the immediate object of a spiritual
+taste and delight. _God's law_ , that grand expression and emanation of the
+holiness of God's nature, and prescription of holiness to the creature, is all
+along represented as the great object of the love, the complacence, and
+rejoicing of the gracious nature, which prizes God's commandments _above gold,
+yea, the finest gold_ , and to which they are _sweeter than honey, and the
+honeycomb_ ; and that upon account of their holiness. The same psalmist
+declares that this is the sweetness that a spiritual taste relishes in God's
+law: Psa 19:7-10.
+
+\---_Jonathan Edwards_ , 1703-1758.
+
+**Verse 103.** \---"_How sweet are thy words unto my taste_!" Why does he not
+rather say, How pleasant are thy words to my ears? than that they are sweet to
+his taste and his mouth? I answer: It is most meet that when God speaks by the
+mouth of his ministers we should be hearers, and the words of God should be
+the most joyous of all to our ears. But it is also the practice of the godly
+to converse about the words of God, and their words are so sweet to their own
+taste that they are more pleased and delighted than by any honey from the
+comb. And this is most necessary when either there is a scarcity of teachers,
+as with David in the wilderness or dwelling among the Philistines; or when
+those who hold the office of teaching, adulterate and vitiate the pure word of
+God.
+
+\---_Wolfgang Musculus_.
+
+**Verse 103.** \---That which is here called "_word_ ," I take rather for
+"_judgments_ ," partly because in the proper tongue the word is left out, and
+partly because he had used this word "_judgments_ " in the verse immediately
+going before. But some will say, How can the judgments of God be "_sweet_ ,"
+which are so troublesome, fearful, and grievous? I answer, that the godly have
+no greater joy than when they feel either the mercies of God accomplished
+towards them that fear him, or his judgments showered upon the reprobates.
+
+\---_Richard Greenham_.
+
+**Verse 103.** \---"_Unto my taste_." "_To my mouth_." That is, I take as
+great pleasure in talking, conferring, and persuading, thy judgments, as my
+mouth, or the mouth of any that loveth honey, is delighted therewith.
+
+\---_Richard Greenham_.
+
+**Verse 103.** \---"_Sweeter_." As there are always among violets some that
+are very much sweeter than others, so among texts there are some that are more
+precious to us than others.
+
+\---_Henry Ward Beecher_ , 1879.
+
+**Verse 103.** \---An affectionate wife often says, "My husband! your words
+are sweeter to me than honey; yes, they are sweeter than the sugar cane."
+"Alas! my husband is gone," says the widow: "how sweet were his words! Honey
+dropped from his mouth: his words were ambrosia."
+
+\---_Joseph Roberts_.
+
+### Hints to Preachers
+
+**Verse 103.** \---Experience in religion the source of enjoyment in it; or,
+
+  1. Tasting the word: its sweetness.
+
+  2. Declaring the word with the mouth: its greater sweetness.
+
+**Verse 103.** \---
+
+  1. The word is positively sweet: "_sweet to my taste_."
+
+  2. Comparatively sweet: "_sweeter than honey_."
+
+  3. Superlatively sweet: "_how sweet_ ," etc.
+
+\---_G. R._
+
+**Verse 103.** \---The comparison, setting forth the precious property of
+sweetness in the word: "_Sweeter than honey_." "_Better than honey_ ," would
+not do as well. It is:
+
+  1. The purest sweetness; even precepts and rebukes.
+
+  2. Uncloying sweetness.
+
+  3. Always a beneficial sweetness.
+
+  4. A specially grateful sweetness---in affliction, in the hour of death.
+
+\---_J. F._
+
+**Verse 103.** \---Spiritual delicacy.
+
+  1. The taste needed to relish it.
+
+  2. The life that alone is nourished by it.
+
+  3. The rare enjoyment derived from it.
+
+\---_G. A. D._
+
+**Verse 103.** \---
+
+  1. It is sweet.
+
+  2. Let us enjoy it.
+
+  3. The best effects will follow. George Herbert says:---
+
+> O Book! infinite sweetness! let my heart  
+>  Suck every letter, and a honey gain,  
+>  Precious for any grief in any part;  
+>  To clear the breast, to mollify all pain.
+
+**Verse 103.** \---If we would taste the honey of God, we must have the palate
+of faith.
+
+\---_A. R. Fausset_.
+
+## Exposition Verse 104
+
+**Verse 104.** \---"_Through thy precepts I get understanding_." God's
+direction is our instruction. Obedience to the divine will begets wisdom of
+mind and action. As God's way is always best, those who follow it are sure to
+be justified by the result. If the Lawgiver were foolish his law would be the
+same, and obedience to such a law would involve us in a thousand mistakes; but
+as the reverse is the case, we may count ourselves happy to have such a wise,
+prudent, and beneficial law to be the rule of our lives. We are wise if we
+obey and we grow wise by obeying!
+
+"_Therefore I hate every false way_." Because he had understanding, and
+because of the divine precepts, he detested sin and falsehood. Every sin is a
+falsehood; we commit sin because we believe a lie, and in the end the
+flattering evil turns a liar to us and we find ourselves betrayed. True hearts
+are not indifferent about falsehood, they grow warm in indignation: as they
+love the truth, so they hate the lie. Saints have a universal horror of all
+that is untrue, they tolerate no falsehood or folly, they set their faces
+against all error of doctrine or wickedness of life. He who is a lover of one
+sin is in league with the whole army of sins; we must have neither truce nor
+parley with even one of these Amalekites, for the Lord hath war with them from
+generation to generation, and so must we. It is well to be a good hater. And
+what is that? A hater of no living being, but a hater of "_every false way_."
+The way of self will, of self righteousness, of worldliness, of pride, of
+unbelief, of hypocrisy,---these are all false ways, and therefore not only to
+be shunned, but to be abhorred.
+
+This final verse of the strophe marks a great advance in character, and shows
+that the man of God is growing stronger, bolder, and happier than aforetime.
+He has been taught of the Lord, so that he discerns between the precious and
+the vile, and while he loves the truth fervently he hates falsehood intensely.
+May all of us reach this state of discrimination and determination, so that we
+may greatly glorify God.
+
+### Explanatory Notes and Quaint Sayings
+
+**Verse 104.** \---"_Through thy precepts I get understanding: therefore I
+hate every false way_." In this sentence the prophet seems to invert the order
+set down in Psa 119:101. He had said, "_I have refrained my feet from every
+evil way, that I might keep thy word_ ," where the avoiding of evil is made
+the means of profiting by the word; here his profiting by the word is made the
+cause of avoiding evil. In the one verse you have an account of his beginning
+with God; in the other, of his progress.
+
+\---_Thomas Manton_.
+
+**Verse 104.** \---"_I hate every false way_." David saith, "_I hate every
+false way_ ;" I hate not only the way when I have been misled into it, but I
+hate to go in it; and he professes at the Psa 119:163, "_I hate and abhor
+lying, but thy law do I love_." To abstain from and forbear lying is a sign of
+a gracious heart, much more to hate and abhor it. A godly man not only doth
+that which is good, but he delights to do it, his soul cleaves to it; he is in
+his clement when he is doing it, nothing comes more suitably to him than the
+business of his duty, he loveth to do it, yea, he loveth it when he cannot do
+it: Rom 7:22. Paul complained much that his corruptions clogged, hindered and
+shackled him; he was in lime twigs as to the doing of good, yet (saith he) "_I
+delight in the law of God after the inward man_ ;" that is, the inward man
+delightfully moves after the law of God, when I am basely moved by my corrupt
+heart, and stirred by temptation against it. Now, as a godly man not only
+chooseth to do the holy will of God, but delights and rejoiceth to do it, and
+hath sweet content in doing it; so likewise a godly man not only refuseth to
+do the will of the flesh, or to follow the course of the world, but hates to
+do it, and is never so discontented with himself as when through carelessness
+and neglect of his watch he hath been overtaken and hath fallen. A carnal man
+may forbear the doing of evil, and do what is materially good, but he never
+abhors what is evil, nor delights in what is good. Though he abstain from
+acting those things which God forbids, yet he doth not say, with Job, "_God
+forbid, I should act them_." ...To delight in good is better than the doing of
+it, and to abhor evil is better than abstaining from it. And if we compare the
+nature of sin with the new nature of a godly man, we may see clear grounds why
+his abstinence from sin is joined with an abhorrence of it.
+
+\---_Joseph Caryl_.
+
+**Verse 104.** \---"_Through thy; precepts I get understanding_." Spiritual
+understanding is connected with the taste of spiritual sweetness. (Compare Pro
+2:10-11.) "The sweetness of the lips"---as the wise man observes---
+"increaseth learning. The heart of the wise teacheth his mouth, and addeth
+learning to his lips." Pro 16:21, 23. Thus having learned "_the principles of
+the doctrine of Christ_ ," we are encouraged to "_go on to perfection_
+"---"_growing in grace and in the knowledge of Christ_." For the connexion
+between "grace and knowledge" is clearly manifested.
+
+\---_Charles Bridges_.
+
+**Verse 104.** \---"_I hate every false way_." Universality in this is a sure
+sign of sincerity. Herod spits out some sins, when he rolls others as sweet
+morsels in his mouth. A hypocrite ever leaves the devil some nest egg to sit
+upon, though he take many away. Some men will not buy some commodities,
+because they cannot have them at their own price, but they lay out the same
+money on others; so hypocrites forbear some sins, yea, are displeased at them;
+because they cannot have them without disgrace or disease, or some other
+disadvantage; but they lay out the same love upon other sins which will suit
+better with their designs. Some affirm that what the sea loseth in one place
+it gains in another; so what ground the corruption of the unconverted loseth
+one way, it gains another. There is in him some one lust especially which is
+his favourite; some king sin, like Agag, which must be spared when others are
+destroyed. "_In this the Lord be merciful to thy servant_ ," saith Naaman. But
+now the regenerate laboureth to cleanse himself from all pollutions, both of
+flesh and spirit. 2Co 7:1.
+
+\---_George Swinnock_.
+
+**Verse 104.** \---"_I hate_." The Scriptures place religion very much in the
+affection of _love_ ; love to God, and the Lord Jesus Christ; love to the
+people of God, and to mankind. The texts in which this is manifest, both in
+the Old Testament and the New, are innumerable. The contrary affection of
+_hatred_ also, as having sin for its object, is spoken of in Scripture as no
+inconsiderable part of true religion. It is spoken of as that by which true
+religion may be known and distinguished. Pro 8:13. "_The fear of the Lord is
+to hate evil_." Accordingly, the saints are called upon to give evidence of
+their sincerity by this, Psa 97:10. "Ye that love the Lord, _hate_ evil." And
+the Psalmist often mentions it as an evidence of his sincerity: Psa 101:2-3,
+"I will walk within my house with a perfect heart. I will set no wicked thing
+before mine eyes: I _hate_ the work of them that turn aside." So Psa 119:128,
+and the present place. Again, Psa 139:21: "Do not I _hate_ them, O Lord, that
+hate thee?"
+
+\---_Jonathan Edwards_.
+
+**Verse 104.** \---"_I hate_." Hatred is a stabbing, murdering affection, it
+purposes sin with a hot heart to death, as an avenger of blood, that is to
+say, of the blood of the soul which sin would spill, and of the blood of
+Christ which sin hath shed. Hate sin perfectly and perpetually and then you
+will not spare it but kill it presently. Till sin be hated it cannot be
+mortified; you will not cry against it, as the Jews did against Christ,
+Crucify it! Crucify it! but shew indulgence to it as David did to Absalom and
+say, Deal gently with the young man,---with this or that lust, for my sake.
+Mercy to sin is cruelty to the soul.
+
+\---_Edward Reyner_ , 1600-1670.
+
+**Verse 104.** \---"_False way_." It is not said, "evil way," but "false way:"
+or, as it is in the original, every path of lying and falsehood. Falsehood is
+either in point of opinion or practice. If you take it in the first sense, for
+falsehood in opinion, or error in judgment, or false doctrine, or false
+worship, this sentence holds good. Those that get understanding by the word
+are established against error, and not only established against error, or
+against the embracing or possession of it, but they hate it.
+
+\---_Thomas Manton_.
+
+**Verse 104.** \---"_False way_." All sin is a _lie_. By it we attempt to
+cheat God. By it we actually cheat our souls: Pro 14:12. There is no delusion
+like the folly of believing that a course of sin will conduce to our
+happiness.
+
+\---_William S. Plumer_.
+
+### Hints to Preachers
+
+**Verse 104.** \---The influence of the precepts.
+
+  1. Upon the understanding.
+
+  2. Upon the affections.
+
+  3. Upon the life.
+
+**Verse 104.** \---
+
+  1. The intellectual effect of the Scriptures: "_I get understanding_."
+
+  2. Their moral effect: "_I hate_ ," etc.
+
+\---_G. R._
+
+**Verse 104.** \---The understanding derived from God's precepts begets holy
+hatred.
+
+  1. To the false ways of conventional morality.
+
+  2. To the false ways of a formal religiousness.
+
+  3. To the false ways of an erring theology.
+
+  4. To the false ways of hypocritical practice.
+
+  5. To the false ways of sinful suggestions.
+
+  6. To the false ways of one's own deceitful heart.
+
+\---_J. F._
+
