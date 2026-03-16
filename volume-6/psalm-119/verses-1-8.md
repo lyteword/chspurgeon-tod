@@ -1,4 +1,4 @@
-### Verses 1-8
+# Verses 1-8
 
 > Blessed *are* the undefiled in the way, who walk in the law of the Lord. 
 
@@ -24,7 +24,7 @@ The changes are rung upon the words "*way*"&mdash;"*undefiled in the way*," "*wa
 
 The change from statements about others and about the Lord to more personal dealing with God begins in the third verse, and becomes more and more clear as we advance, till in the later verses the communion becomes most intense and soul-moving. O that every reader may feel the glow which is poured over the verses as they proceed: he will then begin as a reader, but he will soon bow as a suppliant; his study will become an oratory, and his contemplation will warm into adoration. The one subject is the Bible, that we can all take with us, but we shall fail unless the Spirit who is the Inspirer of the sacred law shall hide it in our hearts, and shed abroad within us a fervent love to us precepts and statutes. So may it be.
 
-#### Exposition Verse 1
+## Exposition Verse 1
 
 > Blessed *are* the undefiled in the way, who walk in the law of the Lord. 
 
@@ -57,7 +57,7 @@ The blessedness which is thus set before us we must aim at, but we must not thin
 
 It must, however, be our plan to keep the word of the Lord much upon our minds; for this discourse upon blessedness has for its pole-star the testimony of the Lord, and only by daily communion with the Lord by his word can we hope to learn his way, to be purged from defilement, and to be made to walk in his statutes. We set out upon this exposition with blessedness before us; we see the way to it, and we know where the law of it is to be found: let us pray that as we pursue our meditation we may grow into the habit and walk of obedience, and so feel the blessedness of which we read.
 
-#### Explanatory Notes and Quaint Sayings
+### Explanatory Notes and Quaint Sayings
 
 The first eight verses commence with Aleph, and may be alphabetically
 rendered thus:
@@ -110,7 +110,7 @@ The end of everything being the good of that thing, and the prosperity of everyt
 
 **Verse 1.** "*Who walk in the law of the* Lord." Who walk towards heaven in heaven's way, avoiding the corruptions that are in the world through lust.&mdash;*John Trapp*, 1601-1669.
 
-#### Hints to Preachers
+### Hints to Preachers
 
 The subject of each portion is indicated in its first verse. Each section may serve as the subject for a discourse.
 
@@ -122,7 +122,7 @@ The subject of each portion is indicated in its first verse. Each section may se
 
 Verses 1-3. I. Positive and Negative Beatitudes of Being. II. Six Conditions of Peace with God. 1. Purity. 2. Obedience. 3. Fidelity. 4. Seeking. 5. Integrity. 6. Following. &mdash;*William Durban of Chester*, 1882.
 
-#### Exposition Verse 2
+## Exposition Verse 2
 
 > Blessed *are* they that keep his testimonies, *and that* seek him with the whole heart. 
 
@@ -147,7 +147,7 @@ If those who *seek* the Lord are blessed, what shall be said of those who actual
 > The love of Jesus&mdash;what it is, 
 > None but his loved ones know." 
 
-#### Explanatory Notes and Quaint Sayings
+### Explanatory Notes and Quaint Sayings
 
 **Verse 2.** The doubling of the sentence, *Blessed... Blessed*, in the first verse and second, is to let us see the certainty of the blessing belonging to the godly. The word of God is as true in itself when it is once spoken, as when it is many times repeated: the repetition of it is for confirmation of our weak faith. That which Isaac spake of Jacob,&mdash;"*I have blessed him, and he shall be blessed*," is the most sure decree of God upon all his children. Satan would fain curse Israel, by the mouth of such as Balaam was; but he shall not be able to curse, because God hath blessed.&mdash;*William Cowper*.
 
@@ -165,7 +165,7 @@ If those who *seek* the Lord are blessed, what shall be said of those who actual
 
 **Verse 2.** Observe the verbs seek, do, walk, all making up the subject to whom the blessedness belongs.&mdash;*Henry Hammond*, 1605-1660.
 
-#### Hints to Preachers
+### Hints to Preachers
 
 **Verse 2.** "*Blessed are they that keep his testimonies, and that seek him with the whole heart*." 1. The Sacred Quest: "*...seek him...*." He has been sought among the trees, the hills, the planets, the stars. He has been sought in his own defaced image, man. He has been sought amid the mysterious wheels of Providence. But these quests have often been prompted simply by intellect, or compelled by conscience, and have therefore resulted but in a cold faint light. He has been sought in the word which this psalm so highly extols, when it has led up the smoke covered and gleaming peaks of Sinai. It has been followed, when it has led beneath the olives of Gethsemane to witness a mysterious struggle in blood sweating and anguish; to Calvary, where, in the place of a skull, life and immortality are brought to light. The sacred quest but there begins. 2. The Conduct of the Quest. Seekers might be mistakenly dejected by so literal an interpretation of the "*whole heart*." We do not hesitate to say a stream is in its whole volume flowing towards the sea while there are little side creeks in which the water eddies backward; or to say the tide is coming despite receding waves; or that spring is upon us despite hailstorm and biting wind. Indication of, a. Unity b. Intensity. c. Determination. No one conducts this quest aright who is not prompted to or sustained in it by the gracious Spirit. 3. Blessedness both in the pursuit and issue. a. Blessedness in the bitterness of penitence. The door handle touched by him drops of myrrh. The rising sun sends kindling beams upon the highest peaks. b. Blessedness in the happy findings of salvation and adoption. c. Blessedness in the perpetual pursuit. &mdash;*William Anderson, of Reading*, 1882.
 
@@ -179,13 +179,13 @@ If those who *seek* the Lord are blessed, what shall be said of those who actual
 
 **Psa 119:2, 4-5, 8.** "*Blessed are they that keep...*." "*Thou hast commanded us to keep*." "*O that my ways were directed to keep*." "*I will keep*." Blessedness of keeping God's precepts&mdash;displayed (Psa 119:2), commanded (Psa 119:4), for (Psa 119:5), resolved upon (Psa 119:8).&mdash;*C. A. D.*
 
-#### Exposition Verse 3
+## Exposition Verse 3
 
 **Verse 3.** *They also do no iniquity.* Blessed indeed would those men be of whom this could be asserted without reserve and without explanation: we shall have reached the region of pure blessedness when we altogether cease from sin. Those who follow the word of God do no iniquity, the rule is perfect, and if it be constantly followed no fault will arise. Life, to the outward observer, at any rate, lies much in doing, and he who in his doings never swerves from equity, both towards God and man, has hit upon the way of perfection, and we may be sure that his heart is right. See how a whole heart leads to the avoidance of evil, for the Psalmist says, "*That seek him with the whole heart. They also do no iniquity*." We fear that no man can claim to be absolutely without sin, and yet we trust there are many who do not designedly, wilfully, knowingly, and continuously do anything that is wicked, ungodly, or unjust. Grace keeps the life righteous as to act even when the Christian has to bemoan the transgressions of the heart. Judged as men should be judged by their fellows, according to such just rules as men make for men, the true people of God do no iniquity: they are honest, upright, and chaste, and touching justice and morality they are blameless. Therefore are they happy.
 
 *They walk in his ways.* They attend not only to the great main highway of the law, but to the smaller paths of the particular precepts. As they will perpetrate no sin of commission, so do they labour to be free from every sin of omission. It is not enough to them to be blameless, they wish also to be actively righteous. A hermit may escape into solitude that he may do no iniquity, but a saint lives in society that he may serve his God by walking in his ways. We must be positively as well as negatively right: we shall not long keep the second unless we attend to the first, for men will be walking one way or another, and if they do not follow the path of God's law they will soon do iniquity. The surest way to abstain from evil is to be fully occupied in doing good. This verse describes believers as they exist among us: although they have their faults and infirmities, yet they hate evil, and will not permit themselves to do it; they love the ways of truth, right and true godliness, and habitually they walk therein. They do not claim to be absolutely perfect except in their desires, and there they are pure indeed, for they pant to be kept from all sin, and to be led into all holiness.
 
-#### Explanatory Notes and Quaint Sayings
+### Explanatory Notes and Quaint Sayings
 
 **Verse 3.** *They also do no iniquity.* If it be demanded here, How is it that they who walk in God's ways work no iniquity? Is there any man who lives, and sins not? And if they be not without sin, how then are they to be blessed? The answer is, as the apostle says of our knowledge, "*We know but in part*:" so is it true of our felicity on earth, we are blessed but in a part. It is the happiness of angels that they never sinned; it is the happiness of triumphant saints, that albeit they have been sinners, yet now they sin no more; but the happiness of saints militant is, that our sins are forgiven us; and that albeit sin remains in us, yet it reigns not over us; it is done in us, but not by our allowance: "*I do the evil which I would not*." "*Not I, but sin that dwells in me*,"&mdash;*Romans 7:17.*
 
@@ -209,13 +209,13 @@ To the *doing of iniquity*, these three things must concur; first, a purpose to 
 
 **Verse 3.** *They walk in* his *ways.* Habitually, constantly, characteristically. They are not *merely* honest, upright, and just in their dealings with men; but they walk in the ways of God; they are *religious.*&mdash;*Albert Barnes*, 1798-1870.
 
-#### Hints to Preachers
+### Hints to Preachers
 
 **Verse 3.** *They also do no iniquity.* They work no iniquity 1. Purpose of heart; 2. Delight; 3. Perseverance; 4. Nor at all when heart is fully sanctified unto God; Christ dwelling in it by faith casting out sin.&mdash;*Adam Clarke*.
 
 **Verse 3.** The relation between negative and positive virtue. Or with God the best preventive of iniquity.
 
-#### Exposition Verse 4
+## Exposition Verse 4
 
 **Verse 4.** *Thou hast commanded us to keep thy precepts diligently.* So that when we have done all we are unprofitable servants, we have done only that which it was our duty to have done, seeing we have our Lord's command for it. God's precepts require *careful* obedience: there is no keeping them by accident. Some give to God a careless service, a sort of hit or miss obedience, but the Lord has not commanded such service, nor will he accept it. His law demands the love of all our heart, soul, mind, and strength; and a careless religion has none of these. We are also called to *zealous* obedience. We are to keep the precepts abundantly: the vessels of obedience should be filled to the brim, and the command carried out to the full of its meaning. As a man diligent in business arouses himself to do as much trade as he can, so must we be eager to serve the Lord as much as possible. Nor must we spare pains to do so, for a diligent obedience will also be *laborious and self denying*. Those who are diligent in business rise up early and sit up late, and deny themselves much of comfort and repose. They are not soon tired, or if they are they persevere even with aching brow and weary eye. So should we serve the Lord. Such a Master deserves diligent servants; such service he demands, and will be content with nothing less. How seldom do men render it, and hence many through their negligence miss the double blessing spoken of in this Psalm.
 
@@ -225,7 +225,7 @@ God has not commanded us to be diligent in *making* precepts, but in *keeping* t
 
 The Psalmist began with the third person: he is now coming near home, and has already reached the first person plural, according to our version; we shall soon hear him crying out personally and for himself. As the heart glows with love to holiness, we long to have a personal interest in it. The word of God is a heart affecting book, and when we begin to sing its praises it soon comes home to us, and sets us praying to be ourselves conformed to its teachings.
 
-#### Explanatory Notes and Quaint Sayings
+### Explanatory Notes and Quaint Sayings
 
 **Verse 4.** "*Thou hast commanded us to keep thy precepts diligently*." It is not a matter *ἁδιάφορος* and left to the discretion of men, either to hear, or to neglect sacred discourses, theological readings, and expositions of the Sacred Book; but God has commanded, and not commanded cursorily when speaking of another matter, but מְאֹד, earnestly and greatly he has commanded us to keep his precepts. There should be infixed in our mind the words found in Deu 6:6, "*My words shall be in thy heart*:" in Mat 17:5, "*Hear ye him*." in John 5:39, "*Search the Scriptures*." Above all things, students of theology should remember the Pauline rule in 1Ti 4, "*Give attention to reading*." (1Tit 4:13)&mdash;*Solomon Gesner*.
 
@@ -241,7 +241,7 @@ The Psalmist began with the third person: he is now coming near home, and has al
 
 **Verse 4-5.** It is very observable concerning David, that when he prayeth so earnestly, "*O that my ways were directed to keep thy statutes*," he premises this as the reason, *Thou hast commanded us to keep thy statutes diligently* thereby intimating that the ground of his obedience to God's precepts was the stamp of divine authority enjoining him. To this purpose it is that he saith in Psa 119:94, "*I have sought thy precepts*," thereby implying that what he sought in his obedience was the fulfilling of God's will. Indeed, that only and properly is obedience which is done *intuitu voluntatis divinae*, with a respect to and eye upon the divine will. As that is only a divine faith which believeth a truth, not because of human reason but divine revelation, so that only is a true obedience which conforms to the command, not because it may consist with any selfish ends, but because it carrieth in it an impression of Christ's authority.&mdash;*Nathanael Hardy*.
 
-#### Hints to Preachers
+### Hints to Preachers
 
 1. Take notice of the law giver: "*Thou"* Not thy equal one that will be baffled, but the great God. 2. He hath interposed authority: "*hast commanded*" 3. The nature of this obedience, or thing commanded: "*To keep thy precepts*."&mdash;*Thomas Manton*.
 
@@ -253,7 +253,7 @@ The Psalmist began with the third person: he is now coming near home, and has al
 
 **Verse 4-6.** A willing recognition (Psa 119:4). As ardent as (Psa 119:5). A happy consequence (Psa 119:6). &mdash;*W. D.*
 
-#### Exposition Verse 5
+## Exposition Verse 5
 
 **Verse 5.** "*O that my ways were directed to keep thy statutes!* "Divine commands should direct us in the subject of our prayers. We cannot of ourselves keep God's statutes as he would have them kept, and yet we long to do so: what resort have we but prayer? We must ask the Lord to work our works in us, or we shall never work out his commandments. This verse is a sigh of regret because the Psalmist feels that he has not kept the precepts diligently, it is a cry of weakness appealing for help to one who can aid, it is a request of bewilderment from one who has lost his way and would fain be directed in it, and it is a petition of faith from one who loves God and trusts in him for grace.
 
@@ -265,7 +265,7 @@ One would hardly have expected a prayer for direction; rather should we have loo
 
 The longing of the text is prompted by admiration of the blessedness of holiness, by a contemplation of the righteous man's beauty of character, and by a reverent awe of the command of God. It is a personal application to the writer's own case of the truths which he had been considering. "O that *my* ways," etc. It were well if all who hear and read the word would copy this example and turn all that they hear into prayer. We should have more keepers of the statutes if we had more who sighed and cried after the grace to do so.
 
-#### Explanatory Notes and Quaint Sayings
+### Explanatory Notes and Quaint Sayings
 
 **Verse 5.** In tracing the connection of this verse with the preceding, we cannot forbear to remark how accurately the middle path is preserved, as keeping us at an equal: distance from the idea of self sufficiency to "*keep the Lord's statutes*," and self justification in neglecting them. The first attempt to render spiritual obedience will quickly convince us of our utter helplessness. We might as soon create a world as create in our hearts one pulse of spiritual life. And yet our inability does not cancel our obligation. It is the weakness of a heart that "*cannot be subject to the law of God*," for no other reason than because it is "*carnal*," and therefore "*enmity against God*." Our inability is our sin, our guilt, our condemnation, and instead of excusing our condition, stops our mouth, and leaves us destitute of any plea of defence before God. Thus our obligation remains in full force. We are bound to obey the commands of God, whether we can or not. What, then, remains for us, but to return the mandate to heaven, accompanied with an earnest prayer, that the Lord would write upon our hearts those statutes to which he requires obedience in his word? "*Thou hast commanded us to keep thy statutes diligently*." We acknowledge, Lord, our obligation, but we feel our impotency. Lord, help us; we look unto thee. "*O that my ways were directed to keep thy statutes*."&mdash;*Charles Bridges*, 1849.
 
@@ -277,7 +277,7 @@ The longing of the text is prompted by admiration of the blessedness of holiness
 
 **Verse 5.** "*O that my ways were directed*," etc. The original word כון, *kun*, is sometimes rendered to *establish*, and, accordingly, it may seem as if the prophet were soliciting for himself the virtue of perseverance. I am rather inclined to understand it as signifying *to direct* for, although God is plainly instructing us in his law, the obtuseness of our understanding and the perversity of our hearts constantly need the direction of his Spirit.&mdash;*John Calvin*.
 
-#### Hints to Preachers
+### Hints to Preachers
 
 **Verse 5.** The prayer of the gracious. 1. Suggested by each preceding clause of blessing. 2. By a consciousness of failure. 3. By a loving clinging to the Lord.
 
@@ -285,7 +285,7 @@ The longing of the text is prompted by admiration of the blessedness of holiness
 
 **Verse 5.** Longing to obey. 1. *It is a noble aspiration.* There is nothing grander than the desire to do this except the doing of it. 2. *It is a spiritual aspiration.* Not the offspring of our carnal nature. It is the heart of God in the new creature. 3. *It is a practicable aspiration.* We sometimes sigh for the impossible. But this may be attained by divine grace. 4. *It is an intense aspiration.* It is the "Oh!" of a burning wish. 5. *It is an influential aspiration.* It does not evaporate in sighs. It is a mighty incentive implanted by grace which will not let us rest without holiness.&mdash;*W. J.*
 
-#### Exposition Verse 6
+## Exposition Verse 6
 
 **Verse 6.** "*Then shall I not be ashamed*." He had known shame, and here he rejoices in the prospect of being freed from it. Sin brings shame, and when sin is gone, the reason for being ashamed is banished.  What a deliverance this is, for to some men death is preferable to shame!
 
@@ -297,7 +297,7 @@ It is worthy of remark that David promises himself no immunity from shame till h
 
 To a poor sinner who is buried in despair, it may seem a very unlikely thing that he should ever be delivered from shame. He blushes, and is confounded, and feels that he can never lift up his face again. Let him read these words: "*Then shall I not be ashamed*." David is not dreaming, nor picturing an impossible case. Be assured, dear friend, that the Holy Spirit can renew in you the image of God, so that you shall yet look up without fear. O for sanctification to direct us in God's way, for then shall we have boldness both towards God and his people, and shall no more crimson with confusion.
 
-#### Explanatory Notes and Quaint Sayings
+### Explanatory Notes and Quaint Sayings
 
 **Verse 6.** "*Then shall I not be ashamed*." No one likes *to be ashamed* or *to blush*: therefore all things which bring shame after them must be avoided: Ezr 9:6; Jer 3:25; Dan 9:7, 9. As the workman keeps his eye fixed on his pattern, and the scholar on the copy of his writing master; so the godly man ever and anon turns his eyes to the word of his God.&mdash;*Martin Geier*.
 
@@ -330,7 +330,7 @@ To a poor sinner who is buried in despair, it may seem a very unlikely thing tha
 
 **Verse 6.** Such is the mercy of God in Christ to his children, that lie accepts their weak endeavours, joined with sincerity and perseverance in his service, as if they were a full obedience... O, who would not serve such a Lord? You hear servants sometimes complain of their masters as so rigid and strict, that they can never please them; no, not when they do their utmost: but this cannot be charged upon God.  Be but so faithful as to do thy best, and God is so gracious that he will pardon thy worst. David knew this gospel indulgence when he said, *Then shall I not be ashamed, when I have respect unto all thy commandments*, when my eye is to all thy commandments. The traveller hath his eye on or towards the place he is going to, though he be as yet short of it; there he would be, and he is putting on all he can to reach it: so stands the saint's heart to all the commands of God; he presseth on to come nearer and nearer to full obedience; such a soul shall never be put to shame.&mdash;*William Gurnall*, 1617-1679.
 
-#### Hints to Preachers
+### Hints to Preachers
 
 **Verse 6.** See "Spurgeon's Sermons," No. 1443; "A Clear Conscience."
 
@@ -340,7 +340,7 @@ To a poor sinner who is buried in despair, it may seem a very unlikely thing tha
 
 **Verse 6.** Topic:&mdash;Self respect depends on respect for one greater than self.&mdash;*W. D.*
 
-#### Exposition Verse 7
+## Exposition Verse 7
 
 **Verse 7.** "*I will praise thee*." From prayer to praise is here, a long or a difficult journey. Be sure that he who prays for holiness will one day praise for happiness. Shame having vanished, silence is broken, and the formerly silent man declares, "*I will praise thee*." He cannot but promise praise while he seeks sanctification. Mark how well he knows upon what head to set the crown. "I will praise *thee*." He would himself be praiseworthy, but he counts God alone worthy of praise. By the sorrow and shame of sin he measures his obligations to the Lord who would teach him the art of living so that he should clean escape from his former misery.
 
@@ -348,7 +348,7 @@ To a poor sinner who is buried in despair, it may seem a very unlikely thing tha
 
 "*When I shall have learned thy righteous judgments*." We must learn to praise, learn that we may praise, and praise when we have learned. If we are ever to learn, the Lord must teach us, and especially upon such a subject as his judgments, for they are a great deep. While these are passing before our eyes, and we are learning from them, we ought to praise God, for the original is not, "*when I have learned*," but, "*in my learning*." While yet I am a scholar I will be a chorister: my upright heart shall praise thine uprightness, my purified judgment shall admire thy judgments. God's providence is a book full of teaching, and to those whose hearts are right it is a music book, out of which they chant to Jehovah's praise. God's word is full of the record of his righteous providence, and as we read it we feel compelled to burst forth into expressions of holy delight and ardent praise. When we both read of God's judgments and become joyful partakers in them, we are doubly moved to song&mdash;song in which there is neither formality, nor hypocrisy, nor lukewarmness, for the heart is upright in the presentation of its praise.
 
-#### Explanatory Notes and Quaint Sayings
+### Explanatory Notes and Quaint Sayings
 
 **Verse 7.** "*I will praise thee... when I shall have learned*," etc. There is no way to please God entirely and sincerely until we have learned both to know and do his will. Practical praise is the praise God looks after.&mdash;*Thomas Manton*.
 
@@ -362,7 +362,7 @@ To a poor sinner who is buried in despair, it may seem a very unlikely thing tha
 
 **Verse 7.** "*Judgments of thy righteousness*" are the decisions concerning right and wrong which give expression to and put in execution the righteousness of God.&mdash;*Franz Delitzsch*.
 
-#### Hints to Preachers
+### Hints to Preachers
 
 **Verse 7.** The best of praise, the best of learning, the best of blendings, *viz.*, praise and holiness.
 
@@ -372,7 +372,7 @@ To a poor sinner who is buried in despair, it may seem a very unlikely thing tha
 
 **Verse 7.**  1. Deficiency confessed: "*When I shall have learned*." This is essential to growth. It is an admission all can truly make. 2. Progress anticipated. He gave his heart to the work of learning. He sought divine help. 3. Praise promised. He promised it to God alone. He vowed it should be sincere: "*with upright heart*."&mdash;*W. Williams, of Lambeth*, 1882.
 
-#### Exposition Verse 8
+## Exposition Verse 8
 
 **Verse 8.** "*I will keep thy statutes*." A calm resolve. When praise calms down into solid resolution it is well with the soul. Zeal which spends itself in singing, and leaves no practical residuum of holy living, is little worth: "*I will praise*" should be coupled with "*I will keep*." This firm resolve is by no means boastful, like Peter's "*though I should die with thee, yet will I not forsake thee*," for it is followed by a humble prayer for divine help,
 
@@ -384,7 +384,7 @@ The peculiar dread which tinges this prayer with a sombre hue is the fear of utt
 
 There is rather a descent from the mount of benediction with which the first verse began to the almost wail of this eighth verse, yet this is spiritually a growth, for from admiration of goodness we have come to a burning longing after God and communion with him, and an intense horror lest it should not be enjoyed. The sigh of Psa 119:5 is now supplanted by an actual prayer from the depths of a heart conscious of its undesert, and its entire dependence upon divine love. The two, "*I wills*" needed to be seasoned with some such lowly petition, or it might have been thought that the good man's dependence was in some degree fixed upon his own determination. He presents his resolutions like a sacrifice, but he cries to heaven for the fire.
 
-#### Explanatory Notes and Quaint Sayings
+### Explanatory Notes and Quaint Sayings
 
 **Verse 8.** This verse, being the last of this portion, is the result of his meditation concerning the utility and necessity of the keeping the law of God there take notice: 1. Of his resolution, "*I will keep thy statutes*." 2. Of his prayer, "*O forsake me not utterly*." It is his purpose to keep the law; yet because he is conscious to himself of many infirmities, he prays against desertion. In the prayer more is intended than is expressed. "*O forsake me not*," he means, strengthen me in this work; and if thou shouldest desert me, yet but for a while, Lord, not for ever; if in part, not in whole. Four points we may observe hence: 1. That it is a great advantage to come to a resolution as to a course of godliness. 2. Those that resolve upon a course of obedience have need to fly to God's help. 3. Though we fly to God's help, yet sometimes God may withdraw, and seem to forsake us. 4. Though God seem to forsake us, and really doth so in part; yet we should pray that it may not be a total and utter desertion.&mdash;*Thomas Manton*.
 
@@ -398,7 +398,7 @@ There is rather a descent from the mount of benediction with which the first ver
 
 **Verse 8.** "*O forsake me not utterly*." This prayer reads like the startled cry of one who was half afraid that he had been presumptuous in expressing the foregoing resolve. He desired to keep the divine statutes, and like Peter he vowed that he would do so; but remembering his own weakness, he recoils from his own venturesomeness, and feels that he must pray. 'I have made a solemn vow, but what if I have uttered it in my own strength? What if God should leave me to myself?' He is filled with terror at the thought. He breaks out with an "*O*." He implores and beseeches the Lord not to test him by leaving him even for an instant entirely to himself. To be forsaken of God is the worst ill that the most melancholy saint ever dreams of. Thank God, it will never fall to our lot; for no promise can be more express than that which saith, "*I will never leave thee, nor forsake thee*." This promise does not prevent our praying, but excites us to it. Because God will not forsake his own, therefore do we cry to him in the agony of our feebleness, "*O forsake me not utterly*."&mdash;*C. H. S.*
 
-#### Hints to Preachers
+### Hints to Preachers
 
 **Verse 8.**  1. A hopeful resolve for life. 2. A dreadful fear. 3. A series of considerations removing the fear.
 
