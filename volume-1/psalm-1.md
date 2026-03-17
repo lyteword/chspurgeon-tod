@@ -152,7 +152,7 @@ May the Lord cleanse our hearts and our ways, that we may escape the doom of the
 
 **Verse 3 &mdash;** Influence of religion upon prosperity.— *Blair.* The nature, causes, signs, and results of true prosperity. *"Fruit in his season;"* virtues to be exhibited at certain seasons— patience in affliction; gratitude in prosperity; zeal in opportunity, etc. *"His leaf also shall not wither;"* the blessing of retaining an unwithered profession. 
 
-**Verses 3, 4 &mdash;** See No. 280 of "Spurgeon's Sermons." "The Chaff Driven Away." Sin puts a negative on every blessing. 
+**Verses 3 and 4 &mdash;** See No. 280 of "Spurgeon's Sermons." "The Chaff Driven Away." Sin puts a negative on every blessing. 
 
 **Verse 5 &mdash;** The sinner's double doom. 1\. Condemned at the judgment-bar. 2\. Separated from the saints. Reasonableness of these penalties, "therefore, " and the way to escape them. *"The congregation of the righteous"* viewed as the church of the first-born above. This may furnish a noble topic. 
 
