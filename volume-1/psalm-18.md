@@ -498,7 +498,7 @@ This is the winding up verse into which the writer throws a fulness of expressio
 
 **Verse 34 &mdash;** The drawing of a mighty bow was a mark of great slaughter and skill. So the great master drew the mighty bow, And drew with ease. One hand aloft display'd The bending horns, and one the string essay'd." &mdash; *Alexander Pope, 1688-1744 Translation of Homer* 
 
-**Verses 37, 38.**— Oh, I have seen the day, When with a single word, God helping me to say, "My trust is in the Lord;" My soul has quelled a thousand foes, Fearless of all that could oppose. &mdash; *William Cowper, 1731-1800* 
+**Verses 37, 38 &mdash;**— Oh, I have seen the day, When with a single word, God helping me to say, "My trust is in the Lord;" My soul has quelled a thousand foes, Fearless of all that could oppose. &mdash; *William Cowper, 1731-1800* 
 
 **Verse 38 &mdash;** *"I have wounded them, "* etc. Greater is he that is in us than he that is against us, and God shall bruise Satan under our feet shortly. Romans 15:20. &mdash; *W. Wilson* 
 
@@ -554,7 +554,7 @@ This is the winding up verse into which the writer throws a fulness of expressio
 
 **Verse 17 &mdash;** The saint's paean of victory over Satan, and all other foes. 
 
-**Verse 17 &mdash;** (*last clause* ). Singular but sound reason for expecting divine help. 
+**Verse 17 &mdash;** (*last clause*). Singular but sound reason for expecting divine help. 
 
 **Verse 18 &mdash;** The enemy's "craft, " *"They prevented me in the day of my* calamity." The enemy chained. *"But the Lord was my stay."* 
 
@@ -568,7 +568,7 @@ This is the winding up verse into which the writer throws a fulness of expressio
 
 **Verse 23 &mdash;** *Peccata in deliciis;* a discourse of bosom sins. *P. Newcome.* 
 
-**Verse 23.**The sure trial of uprightness. *Dr. Bates.* 
+**Verse 23 &mdash;**The sure trial of uprightness. *Dr. Bates.* 
 
 **Verse 25 &mdash;** Equity of the divine procedure. &mdash; *C. Simeon.* 
 
