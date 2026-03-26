@@ -194,7 +194,7 @@ Life spent in happiness is the desire of all, and he who can give the young a re
 
 **Verse 8 &mdash;** All that the believer can attain of spiritual consolation in this life is but a taste. &mdash; *David Dickson* 
 
-**Verse 8 &mdash;**  O taste the Lord, and see how sweet He is, The man that trusts in him lives still in bliss. &mdash; *Sir John Davies, 1569-1626*
+**Verse 8 &mdash;** O taste the Lord, and see how sweet He is, The man that trusts in him lives still in bliss. &mdash; *Sir John Davies, 1569-1626*
 
 **Verses 8-10 &mdash;** All these verses are beautiful representations of the fulness, suitableness, completeness, and all sufficiency of God in Christ to answer all the wants of his people. And is there not a vast elegance in the comparison taken from the hunger and rapacity of the lion, even the impetuousness of the young lion, to that of the patience and silent waiting of the faithful believer? A life of faith will find food in everything, because it is all founded in Christ. The young lions may, and will lack, because nothing will supply their voracious appetites but that which is carnal. &mdash; *Robert Hawker* 
 
@@ -240,7 +240,7 @@ Life spent in happiness is the desire of all, and he who can give the young a re
 
 **Verse 14 &mdash;** *Seek peace, and pursue it.* Yea, do well, and thou shalt not need to pursue it; peace will find thee without seeking. Augustine says, *Fiat justitia, et habebis pacem* —Live righteously, and live peaceably. Quietness shall find out righteousness wheresoever he lodgeth. But she abhorreth the house of evil. Peace will not dine where grace hath not first broken her fast. Let us embrace godliness, and "the peace of God, that passeth all understanding, shall preserve our hearts and minds in Jesus Christ." Php 4:7. &mdash; *Thomas Adams* 
 
-**Verse 14 &mdash;** *See peace and pursue it.* The most desirable things are not the easiest to be obtained. What is more lovely to the imagination than the tranquillity of peace? But this great blessing does not voluntarily present itself: it must be *sought.* Even when sought it often eludes the grasp: it flies away, and must be *pursued.*  1\. The man of a peaceable carriage must be cautious not to give offence when needless, or, when it may innocently be spared. 2\. Another part of the peaceable man's character is, not to take offence; especially in small matters, which are hardly worth a wise man's notice. 3. If any needless offence has been either given or taken, we must endeavour to put a stop to it as soon as may be. If a difference is already begun, stifle it in the birth, and suffer it not to proceed farther. &mdash; *Condensed from Dr. Waterland's Sermon, in J. R. Pitman's Course of Sermons on the Psalms, 1846*
+**Verse 14 &mdash;** *See peace and pursue it.* The most desirable things are not the easiest to be obtained. What is more lovely to the imagination than the tranquillity of peace? But this great blessing does not voluntarily present itself: it must be *sought.* Even when sought it often eludes the grasp: it flies away, and must be *pursued.* 1\. The man of a peaceable carriage must be cautious not to give offence when needless, or, when it may innocently be spared. 2\. Another part of the peaceable man's character is, not to take offence; especially in small matters, which are hardly worth a wise man's notice. 3. If any needless offence has been either given or taken, we must endeavour to put a stop to it as soon as may be. If a difference is already begun, stifle it in the birth, and suffer it not to proceed farther. &mdash; *Condensed from Dr. Waterland's Sermon, in J. R. Pitman's Course of Sermons on the Psalms, 1846*
 
 **Verse 15 &mdash;** *His ears are open unto their cry.* The word "open" is not in the original, but the meaning is that the ear of God is propense, and in a leaning kind of posture, towards the cries of the righteous; the word may here be taken emphatically, as many times in Scripture it is, for some worthy, choice, and excellent strain of righteousness. Those who are worthy and righteous indeed, the ear of God, I say, is propense, and leans and hangs towards them and their prayers, according to that of So 2:14, "Let me hear thy voice, for sweet is thy voice." There is a kind of naturalness and pleasantness between the ear of God and the prayers, and petitions, and cries of such a righteous man. Joh 15:7. &mdash; *John Goodwin* 
 
@@ -300,7 +300,7 @@ Life spent in happiness is the desire of all, and he who can give the young a re
 
 **Verse 5 &mdash;** The power of a faith look.
 
-**Verse 6 &mdash;**  1\. The poor man's heritage, "troubles." 2\. The poor man's friend. 3\. The poor man's cry. 4\. The poor man's salvation.
+**Verse 6 &mdash;** 1\. The poor man's heritage, "troubles." 2\. The poor man's friend. 3\. The poor man's cry. 4\. The poor man's salvation.
 
 **Verse 6 &mdash;** The poor man's wealth. The position of prayer in the economy of grace, or the natural history of mercy in the soul.
 
@@ -336,7 +336,7 @@ Life spent in happiness is the desire of all, and he who can give the young a re
 
 **Verse 16 &mdash;** The evil man checkmated in life, and forgotten in death.
 
-**Verse 17 &mdash;** *Afflictions and their threefold blessing.*  1\. They make us pray. 2\. They bring us the Lord's hearing ear. 3\. They afford room for joyful experience of deliverance.
+**Verse 17 &mdash;** *Afflictions and their threefold blessing.* 1\. They make us pray. 2\. They bring us the Lord's hearing ear. 3\. They afford room for joyful experience of deliverance.
 
 **Verse 18 &mdash;** The nearness of God to broken hearts, and the certainty of their salvation.
 

@@ -302,7 +302,7 @@ Here is a large and comprehensive prayer to close with. It is an appeal for *mer
 
 **Verse 4 &mdash;** (*second clause*). God's work of creation, providence, and grace, always in conformity with truth. His hatred of everything like a sham.
 
-**Verses 4-5 &mdash;** A fourfold argument for praise, from the *truth,* the *faithfulness* the *justice,* and *goodness* of God: 1\. *For the word of the Lord is right.*  2\. *All his works are done in truth.*  3\. *He loveth righteousness and judgment.*  4\. *The earth is full of his goodness.*  &mdash; *Adam Clarke*
+**Verses 4-5 &mdash;** A fourfold argument for praise, from the *truth,* the *faithfulness* the *justice,* and *goodness* of God: 1\. *For the word of the Lord is right.* 2\. *All his works are done in truth.* 3\. *He loveth righteousness and judgment.* 4\. *The earth is full of his goodness.* &mdash; *Adam Clarke*
 
 **Verse 5 &mdash;** Justice and goodness equally conspicuous in the divine action.
 
@@ -338,7 +338,7 @@ Here is a large and comprehensive prayer to close with. It is an appeal for *mer
 
 **Verse 18 &mdash;** Hoping in the mercy of God—false and true forms distinguished.
 
-**Verse 18 &mdash;**  1\. The eyes of God's *knowledge* are upon them. 2\. The eyes of his *affection* are upon them. 3\. The eyes of his *providence* are upon them. &mdash; *William Jay* 
+**Verse 18 &mdash;** 1\. The eyes of God's *knowledge* are upon them. 2\. The eyes of his *affection* are upon them. 3\. The eyes of his *providence* are upon them. &mdash; *William Jay* 
 
 **Verse 19 &mdash;** Life in famine, natural and spiritual, especially a famine of inward hope and legal satisfaction.
 
