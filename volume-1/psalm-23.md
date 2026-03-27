@@ -194,15 +194,15 @@ weight: 23
 
 **Verse 1 &mdash;** Work out the similitude of a shepherd and his sheep. He rules, guides, feeds, and protects them; and they follow, obey, love and trust him. Examine as to whether we are sheep; show the lot of the goats who feed side by side with the sheep. 
 
-**Verse 1 &mdash;** (*second clause* ). The man who is beyond the reach of want for time and eternity. 
+**Verse 1 &mdash;** (*second clause*). The man who is beyond the reach of want for time and eternity. 
 
-**Verse 2 &mdash;** (*first clause* ). Believing rest. I. Comes from God— *"He maketh."* II. Is deep and profound— *"lie down."* III. Has solid sustenance— *"in green pastures."* IV. Is subject for constant praise. 
+**Verse 2 &mdash;** (*first clause*). Believing rest. I. Comes from God— *"He maketh."* II. Is deep and profound— *"lie down."* III. Has solid sustenance— *"in green pastures."* IV. Is subject for constant praise. 
 
 **Verse 2 &mdash;** The contemplative and the active element provided for. 
 
 **Verse 2 &mdash;** The freshness and richness of Holy Scripture. 
 
-**Verse 2 &mdash;** (*second clause* ). Onward. The Leader, the way, the comforts of the road, and the traveller in it. 
+**Verse 2 &mdash;** (*second clause*). Onward. The Leader, the way, the comforts of the road, and the traveller in it. 
 
 **Verse 3 &mdash;** Gracious restoration, holy guidance, and divine motives. 
 
@@ -212,17 +212,17 @@ weight: 23
 
 **Verse 4 &mdash;** Life in death and light in darkness. 
 
-**Verse 4 &mdash;** (*second clause* ). The calm and quiet of the good man's end. 
+**Verse 4 &mdash;** (*second clause*). The calm and quiet of the good man's end. 
 
-**Verse 4 &mdash;** (*last clause* ). The tokens of divine government—the consolation of the obedient. 
+**Verse 4 &mdash;** (*last clause*). The tokens of divine government—the consolation of the obedient. 
 
 **Verse 5 &mdash;** The warrior feasted, the priest anointed, the guest satisfied. 
 
-**Verse 5 &mdash;** (*last clause* ). The means and uses of the continual anointings of the Holy Spirit. 
+**Verse 5 &mdash;** (*last clause*). The means and uses of the continual anointings of the Holy Spirit. 
 
 **Verse 5 &mdash;** Providential super-aboundings, and what is our duty concerning them. 
 
-**Verse 6 &mdash;** (*first clause* ). The blessedness of content. 
+**Verse 6 &mdash;** (*first clause*). The blessedness of content. 
 
 **Verse 6 &mdash;** On the road and at home, or heavenly attendants and heavenly mansions. 
 
