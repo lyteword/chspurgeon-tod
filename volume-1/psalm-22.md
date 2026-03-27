@@ -40,7 +40,7 @@ weight: 22
 
 > They cried unto thee, and were delivered: they trusted in thee, and were not confounded.
 
-*"They cried unto thee, and were delivered: they trusted in thee,  and were not confounded."* As if he had said, "How is it that I am now left without succour in my overwhelming griefs, while all others have been helped? We may remind the Lord of his former lovingkindnesses to his people, and beseech him to be still the same. This is true wrestling; let us learn the art. Observe, that ancient saints *cried* and *trusted,* and that in trouble we must do the same; and the invariable result was that they were not ashamed of their hope, for deliverance came in due time; this same happy portion shall be ours. The prayer of faith can do the deed when nothing else can. Let us wonder when we see Jesus using the same pleas as ourselves, and immersed in griefs far deeper than our own.
+*"They cried unto thee, and were delivered: they trusted in thee, and were not confounded."* As if he had said, "How is it that I am now left without succour in my overwhelming griefs, while all others have been helped? We may remind the Lord of his former lovingkindnesses to his people, and beseech him to be still the same. This is true wrestling; let us learn the art. Observe, that ancient saints *cried* and *trusted,* and that in trouble we must do the same; and the invariable result was that they were not ashamed of their hope, for deliverance came in due time; this same happy portion shall be ours. The prayer of faith can do the deed when nothing else can. Let us wonder when we see Jesus using the same pleas as ourselves, and immersed in griefs far deeper than our own.
 
 ### Verse 6
 

@@ -202,7 +202,7 @@ Observe the phrase, *"I have not sat with vain persons."* 1. Sitting is a postur
 
 **Verse 6 &mdash;** The necessity of personal holiness in order to acceptable worship.
 
-**Verse 7 &mdash;** 1. The believer's calling—a publisher. 2\. The author selected, and the quality of his works. *"Thy wondrous works."*  3\. The mode of advertising—"voice of thanksgiving", "tell", etc.
+**Verse 7 &mdash;** 1. The believer's calling—a publisher. 2\. The author selected, and the quality of his works. *"Thy wondrous works."* 3\. The mode of advertising—"voice of thanksgiving", "tell", etc.
 
 **Verse 8 &mdash;** God's house. Why we love it. What we love in it. How we show our love. How our love will be rewarded.
 

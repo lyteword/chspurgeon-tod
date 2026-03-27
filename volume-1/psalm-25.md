@@ -46,10 +46,10 @@ weight: 25
 
 *Remember, O Lord, thy tender mercies and thy lovingkindnesses.* We are usually tempted in seasons of affliction to fear that our God has forgotten us, or forgotten his usual kindness towards us; hence the soul doth as it were put the Lord in remembrance, and beseech him to recollect those deeds of love which once he wrought towards it. There is a holy boldness which ventures thus to deal with the Most High, let us cultivate it; but there is also an unholy unbelief which suggests our fears, let us strive against it with all our might. What gems are those two expressions, *"tender mercies and lovingkindnesses!"* They are the virgin honey of language; for sweetness no words can excel them; but as for the gracious favours which are intended by them, language fails to describe them.
 
-> "When all thy mercies, O my God,  
-> My rising soul surveys,  
-> Transported with the view, I am lost  
-> In wonder, love and praise."  
+"When all thy mercies, O my God, 
+My rising soul surveys, 
+Transported with the view, I am lost 
+In wonder, love and praise." 
 
 If the Lord will only do unto us in the future as in the past, we shall be well content. We seek no change in the divine action, we only crave that the river of grace may never cease to flow. *For they have been ever of old.* A more correct translation would be "from eternity. " David was a sound believer in the doctrine of God's eternal love. The Lord's lovingkindnesses are no novelties. When we plead with him to bestow them upon us, we can urge use and custom of the most ancient kind. In courts of law men make much of precedents, and we may plead them at the throne of grace. "Faith, "saith Dickson, "must make use of experiences and read them over unto God, out of the register of a sanctified memory, as a recorder to him who cannot forget. " With a unchangeable God it is a most effectual argument to remind him of his ancient mercies and his eternal love. By tracing all that we enjoy to the fountain head of everlasting love we shall greatly cheer our hearts, and those do us but sorry service who try to dissuade us from meditating upon election and its kindred topics. 
 

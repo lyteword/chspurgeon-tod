@@ -270,7 +270,7 @@ The Psalm ends with a song of thanksgiving to the great and everlasting King, be
 
 **Verses 13, 14 &mdash;** Divine government in the world. I. Who doubt it? and why? II. Who believe it? and what does this faith cause them to do? 
 
-**Verse 14  &mdash;** (*last clause*). A plea for orphans. 
+**Verse 14 &mdash;** (*last clause*). A plea for orphans. 
 
 **Verse 16 &mdash;** The Eternal Kingship of Jehovah. 
 
