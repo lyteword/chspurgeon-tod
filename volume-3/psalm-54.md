@@ -52,13 +52,10 @@ weight: 54
 
 *For he hath delivered me out of all trouble.* Up to that time deliverance had come, and for that danger also he felt that rescue was near. David lived a life of dangers and hair breadth escapes, yet he was always safe. In the retrospect of his very many deliverances he feels that he must praise God, and looking upon the mercy which he sought as though it were already received, he sang this song over it—
 
-"And a new song is in my mouth,
-
-To long loved music set,
-
-Glory to thee for all the grace
-
-I have not tasted yet."
+> "And a new song is in my mouth,  
+> To long loved music set,  
+> Glory to thee for all the grace  
+> I have not tasted yet."  
 
 Out of all trouble our covenant God is pledged to bring us, and therefore even now let us uplift the note of triumph unto Jehovah, the faithful preserver of them that put their trust in him. Thus far have we proved his promise good; he changes not, and therefore in all the unknown future he will be equally our guardian and defence, "showing himself strong in the behalf of them whose heart is perfect toward him."
 
@@ -66,105 +63,55 @@ And mine eye hath seen his desire upon mine enemies. He knew that yet he should 
 
 ## Explanatory Notes & Quaint Sayings
 
-**Title &mdash;** From the inscription, learn,
+**Title &mdash;** From the inscription, learn, 1\. Particular straits and particular deliveries should be particularly remarked: as David here remembereth the danger he was in by the treachery of the *Ziphims.* 2\. Mighty men will find readily more friends in an evil cause, than the godly do find in a good cause: as Saul has the Ziphims to offer their service to his cruelly, when David was in straits. 3\. The wicked are very hearty to do an ill turn, and glad to find occasion of it. *"Doth not David, "* saith they, *"hide himself with us?"* as if this had been good and blessed news. &mdash; *David Dickson (1583-1662) in "A Brief Explication upon the Psalms"* 
 
-1\. Particular straits and particular deliveries should be particularly remarked: as David here remembereth the danger he was in by the treachery of the *Ziphims.* 
+**Whole Psalm &mdash;** The church has taken a clear view in appointing this as one of the Psalms in commemoration of the passion of Jesus. It is seen with greatest effect as a simple prophecy of Christ. Read thus, it is very plain and intelligible; requiring little more than the first idea to exhibit a perfect correspondence with the life and feelings of the Messiah. &mdash; *William Hill Tucker in "The Psalms&mdash; with Notes" 1840*
 
-2\. Mighty men will find readily more friends in an evil cause, than the godly do find in a good cause: as Saul has the Ziphims to offer their service to his cruelly, when David was in straits.
+**Whole Psalm &mdash;** In the first three verses, David being sought for by his enemies, prays against them. That was his course, he always began his conflict with God, contending and wrestling with him for a blessing and assistance. He durst not lift up his hands even against the enemies of God (yet what durst not David do?) till he had first lifted them up in humble supplication to the Lord his strength. "Who taught his hands to war, and his fingers to fight." Ps 144:1. This being done, his courage breaks out like lightning, he doubts not of slaying his thousands and ten thousands. So in the fourth and fifth verses, he becomes his own prophet, promising himself victory. For who can resist him who hath Omnipotence for his second? Or how can any enemy maintain a fight against that captain who hath beforehand defeated and broken their forces by his prayers? assured his conquest before he puts on his armour? Then in the last verses, David concludes where he began, thankfully acknowledgeth God's goodness in his deliverance, and the dissipation of his enemies, obliging himself to a return of dutiful affectionate service, in consideration of so great mercies received. &mdash; *J. Dolben, in a Thanksgiving Sermon, 1665*
 
-3\. The wicked are very hearty to do an ill turn, and glad to find occasion of it. *"Doth not David, "* saith they, *"hide himself with us?"* as if this had been good and blessed news. *David Dickson (1583-1662), in "A Brief Explication upon the Psalms."* 
+**Whole Psalm &mdash;** Blessed Redeemer! give me grace to eye thee, and to call to my recollection thine exercises amidst the false friends and open foes, which in the days of thy flesh surrounded thee. Lord! help me so to consider thee, who didst endure such a contradiction of sinners against thyself, that I may not be weary and faint in mind. And while the Ziphims of the present hour harass and distress me, and would deliver my soul up into the hand of the enemy: oh! for grace to be looking unto thee, and deriving strength from thee, that I may discover thy gracious hand delivering me out of all my troubles, and making me more than conqueror in thy strength, and in the power of thy might. &mdash; *Robert Hawker, D. D. 1753-1827*
 
-**Whole Psalm &mdash;** The church has taken a clear view in appointing this as one of the Psalms in commemoration of the passion of Jesus. It is seen with greatest effect as a simple prophecy of Christ. Read thus, it is very plain and intelligible; requiring little more than the first idea to exhibit a perfect correspondence with the life and feelings of the Messiah. *William Hill Tucker, in "The Psalms&mdash; with Notes, "* 1840.
+**Verse 1 &mdash;** *Save me, O God.* As David was at this time placed beyond the reach of human assistance, he must be understood as praying to be saved by the *name and the power of God,* in an emphatic sense, or by these in contradistinction to the usual means of deliverance. Though all help must ultimately come from God, there are ordinary methods by which he generally extends it. When these fail, and every earthly stay is removed, he must then take the work into his own hands. It was such a situation that David here fled to the saints' last asylum, and sought to be saved by a miracle of divine power. &mdash; *John Calvin* 
 
-**Whole Psalm &mdash;** In the first three verses, David being sought for by his enemies, prays against them. That was his course, he always began his conflict with God, contending and wrestling with him for a blessing and assistance. He durst not lift up his hands even against the enemies of God (yet what durst not David do?) till he had first lifted them up in humble supplication to the Lord his strength. "Who taught his hands to war, and his fingers to fight." Ps 144:1. This being done, his courage breaks out like lightning, he doubts not of slaying his thousands and ten thousands. So in the fourth and fifth verses, he becomes his own prophet, promising himself victory. For who can resist him who hath Omnipotence for his second? Or how can any enemy maintain a fight against that captain who hath beforehand defeated and broken their forces by his prayers? assured his conquest before he puts on his armour? Then in the last verses, David concludes where he began, thankfully acknowledgeth God's goodness in his deliverance, and the dissipation of his enemies, obliging himself to a return of dutiful affectionate service, in consideration of so great mercies received. *J. Dolben, in a Thanksgiving Sermon,* 1665.
+**Verse 1 &mdash;** *Judge me by thy strength,* or power, *i.e.,* determine, decide my cause by thy mighty power. Saul, in the cause between him and David, was resolved to end it by force only, and to arbitrate in no other way than by a javelin, a sword, or his forces. The psalmist well knew that Saul, in this respect, would be too hard for him; and therefore applies for protection and justice to one whose power he knew was infinitely superior to his adversaries, and who, he was assured, could and would defend him. &mdash; *Samuel Chandler (1693-1766) in "A Critical History of the Life of David"* 
 
-**Whole Psalm &mdash;** Blessed Redeemer! give me grace to eye thee, and to call to my recollection thine exercises amidst the false friends and open foes, which in the days of thy flesh surrounded thee. Lord! help me so to consider thee, who didst endure such a contradiction of sinners against thyself, that I may not be weary and faint in mind. And while the Ziphims of the present hour harass and distress me, and would deliver my soul up into the hand of the enemy: oh! for grace to be looking unto thee, and deriving strength from thee, that I may discover thy gracious hand delivering me out of all my troubles, and making me more than conqueror in thy strength, and in the power of thy might. *Robert Hawker, D. D.,* 1753-1827.
+**Verse 2 &mdash;** (*second clause*). Let *the words of my mouth* with which I have defended my cause, be pleasing and acceptable to thee. For in this way can *prayers* and words *of the mouth* be correctly distinguished, unless any one should wish simply to understand by them *prayers uttered by the mouth;* but, as I have said, the phrase is more emphatic. &mdash; *Hermann Venema, 1697-1787*
 
-**Verse 1 &mdash;** *Save me, O God.* As David was at this time placed beyond the reach of human assistance, he must be understood as praying to be saved by the *name and the power of God,* in an emphatic sense, or by these in contradistinction to the usual means of deliverance. Though all help must ultimately come from God, there are ordinary methods by which he generally extends it. When these fail, and every earthly stay is removed, he must then take the work into his own hands. It was such a situation that David here fled to the saints' last asylum, and sought to be saved by a miracle of divine power. *John Calvin.* 
+**Verse 3 &mdash;** *Strangers:* aliens to his truth, men who from unbelief have estranged themselves from all lot and portion in his covenants—oppress and persecute. &mdash; *William Hill Tucker* 
 
-**Verse 1 &mdash;** *Judge me by thy strength,* or power, *i.e.,* determine, decide my cause by thy mighty power. Saul, in the cause between him and David, was resolved to end it by force only, and to arbitrate in no other way than by a javelin, a sword, or his forces. The psalmist well knew that Saul, in this respect, would be too hard for him; and therefore applies for protection and justice to one whose power he knew was infinitely superior to his adversaries, and who, he was assured, could and would defend him. *Samuel Chandler (1693-1766), in "A Critical History of the Life of David."* 
+**Verse 3 &mdash;** (*first clause*). The Chaldee interpreter reads, *proud men,* instead of *strangers,* a reading which also is found in eight of Kennicott's Codices. So also Ps 86:14. &mdash; *William Walford, in "The Book of Psalms. A New Translation" etc. 1837*
 
-**Verse 2 &mdash;** (*second clause*). Let *the words of my mouth* with which I have defended my cause, be pleasing and acceptable to thee. For in this way can *prayers* and words *of the mouth* be correctly distinguished, unless any one should wish simply to understand by them *prayers uttered by the mouth;* but, as I have said, the phrase is more emphatic. *Hermann Venema,* 1697-1787.
+**Verse 3 &mdash;** (*first clause*). There is a great mistake made by rendering the word oyrz (*zarim*) *strangers.* The Ziphites surely were Israelites, and not strangers. The fact is this, that word is taken from hrz (*zarah*) the primary meaning of which is "to scatter, "to "disperse, "also "to sift, "as grain. Hence it signifies, likewise figuratively, to sift a matter, to investigate, to search out, to trace out. So here, David complains of the new and dangerous enemies he had got in the Ziphites, who became Saul's spies. When he pleads, therefore, for deliverance, saying, "Save me, O God, " etc., he describes the danger he was in: *For spies have risen against me.* &mdash; *Benjamin Weiss, in "New Translation, Exposition, and Chronological Arrangement of the Psalms" 1858*
 
-**Verse 3 &mdash;** *Strangers:* aliens to his truth, men who from unbelief have estranged themselves from all lot and portion in his covenants—oppress and persecute. *William Hill Tucker.* 
+**Verse 3 &mdash;** *Oppressors seek after my soul; i.e.,* my life at least; my soul also they would destroy, if it lay in their power, as the Papists delivered up John Huss to the devil. &mdash; *John Trapp, 1611-1662*
 
-**Verse 3 &mdash;** (*first clause*). The Chaldee interpreter reads, *proud men,* instead of *strangers,* a reading which also is found in eight of Kennicott's Codices. So also Ps 86:14. *William Walford, in "The Book of Psalms. A New Translation, "* etc., 1837.
+**Verse 4 &mdash;** *Behold,* says he, I produce a certain fact, well known, demonstrated by a new proof, and worthy of all attention; for the particle *behold,* contains this breadth of meaning. &mdash; *Hermann Venema.* 
 
-**Verse 3 &mdash;** (*first clause*). There is a great mistake made by rendering the word oyrz (*zarim*) *strangers.* The Ziphites surely were Israelites, and not strangers. The fact is this, that word is taken from hrz (*zarah*) the primary meaning of which is "to scatter, "to "disperse, "also "to sift, "as grain. Hence it signifies, likewise figuratively, to sift a matter, to investigate, to search out, to trace out. So here, David complains of the new and dangerous enemies he had got in the Ziphites, who became Saul's spies. When he pleads, therefore, for deliverance, saying, "Save me, O God, " etc., he describes the danger he was in: *For spies have risen against me. Benjamin Weiss, in "New Translation, Exposition, and Chronological Arrangement of the Psalms, "* 1858.
+**Verse 4 &mdash;** Christ sees with the utmost clearness, that God will be his *own helper,* and of them—the disciples and believers— *that uphold his soul.* In the same moment, does he foresee the destruction of his enemies. He views, in thought, the armies of Titus, the fall of the Jewish nation, and the dispersion of the remnant. He beholds the avenging hand of God, stretched in fury over the destroyers. &mdash; *William Hill Tucker* 
 
-**Verse 3 &mdash;** *Oppressors seek after my soul; i.e.,* my life at least; my soul also they would destroy, if it lay in their power, as the Papists delivered up John Huss to the devil. *John Trapp,* 1611-1662.
+**Verse 4 &mdash;** (*second clause*). Such as take part with the persecuted saints, God will take part with them! *The Lord is with them that uphold my soul.* &mdash; *David Dickson* 
 
-**Verse 4 &mdash;** *Behold,* says he, I produce a certain fact, well known, demonstrated by a new proof, and worthy of all attention; for the particle *behold,* contains this breadth of meaning. *Hermann Venema.* 
+**Verses 4-5 &mdash;** He is assured of help to himself and to his friends, and of vengeance to his enemies. Whence learn, 1\. Fervent prayer hath readily a swift answer, and sometimes wonderfully swift, even before a man have ended speech, as here David findeth in experience. *Behold,* saith he, *God is my helper.* 2\. The sight of faith is very clear and piercing through all clouds when God holds forth the light of his Spirit unto it, it can demonstrate God present in an instant; ready to help in greatest straits: *Behold, God is my helper.* 3\. There is more joy in God's felt presence than grief in felt trouble; for, *Behold, God is mine helper,* was more comfortable to David than his friends' unkindness, and strangers' malice was grievous. &mdash; *David Dickson* 
 
-**Verse 4 &mdash;** Christ sees with the utmost clearness, that God will be his *own helper,* and of them—the disciples and believers— *that uphold his soul.* In the same moment, does he foresee the destruction of his enemies. He views, in thought, the armies of Titus, the fall of the Jewish nation, and the dispersion of the remnant. He beholds the avenging hand of God, stretched in fury over the destroyers. *William Hill Tucker.* 
+**Verse 5 &mdash;** *Cut them off.* He desires that God would destroy them with a *death dealing blow,* which is the force the word tmu contains; its primitive sense is *to be silent, to keep silence,* whence it is transferred to a stroke penetrating deeply and striking fatally, such as is called a *silent* blow, opposed to a *sounding* one, which is wont to rebound and not pierce deeply. &mdash; *Hermann Venema* 
 
-**Verse 4 &mdash;** (*second clause*). Such as take part with the persecuted saints, God will take part with them! *The Lord is with them that uphold my soul. David Dickson.* 
+**Verse 6 &mdash;** *I will freely sacrifice unto thee.* He would *sacrifice freely:* by which he does not allude to the circumstance, that sacrifices of thanksgiving were at the option of worshippers, but to the alacrity and cheerfulness with which he would pay his vow when he had escaped his present dangers. &mdash; *John Calvin* 
 
-**Verses 4-5 &mdash;** He is assured of help to himself and to his friends, and of vengeance to his enemies. Whence learn,
+**Verse 7 &mdash;** *Mine eye hath seen his desire upon mine enemies.* Or, *mine eye hath looked upon mine enemies;* that is, he was able to meet them without terror. &mdash; *Samuel Davidson, D. D., 1852*
 
-1\. Fervent prayer hath readily a swift answer, and sometimes wonderfully swift, even before a man have ended speech, as here David findeth in experience. *Behold,* saith he, *God is my helper.* 
-
-2\. The sight of faith is very clear and piercing through all clouds when God holds forth the light of his Spirit unto it, it can demonstrate God present in an instant; ready to help in greatest straits: *Behold, God is my helper.* 
-
-3\. There is more joy in God's felt presence than grief in felt trouble; for, *Behold, God is mine helper,* was more comfortable to David than his friends' unkindness, and strangers' malice was grievous. *David Dickson.* 
-
-**Verse 5 &mdash;** *Cut them off.* He desires that God would destroy them with a *death dealing blow,* which is the force the word tmu contains; its primitive sense is *to be silent, to keep silence,* whence it is transferred to a stroke penetrating deeply and striking fatally, such as is called a *silent* blow, opposed to a *sounding* one, which is wont to rebound and not pierce deeply. *Hermann Venema.* 
-
-**Verse 6 &mdash;** *I will freely sacrifice unto thee.* He would *sacrifice freely:* by which he does not allude to the circumstance, that sacrifices of thanksgiving were at the option of worshippers, but to the alacrity and cheerfulness with which he would pay his vow when he had escaped his present dangers. *John Calvin.* 
-
-**Verse 7 &mdash;** *Mine eye hath seen his desire upon mine enemies.* Or, *mine eye hath looked upon mine enemies;* that is, he was able to meet them without terror. *Samuel Davidson, D. D.,* 1852.
-
-**Verse 7 &mdash;** The reader will note that the words *his desire* are supplied by our translators, and are not in the original text. *C. H. S.* 
+**Verse 7 &mdash;** The reader will note that the words *his desire* are supplied by our translators, and are not in the original text. &mdash; *C. H. S.* 
 
 ## Hints to the Village Preacher
 
-**Verse 1 &mdash;** In the deliverance of the saints the honour and power of God are concerned.
+**Verse 1 &mdash;** In the deliverance of the saints the honour and power of God are concerned. 1\. Their failure would dishonour both. 2\. Their salvation glorifies both. 3\. Both are immutable, therefore we have a sure plea at all times.
 
-1\. Their failure would dishonour both.
+**Verse 2 &mdash;** Our main concern in prayer. 1\. What is meant by God's hearing prayer. 2\. How we may know that he has done so. 3\. What is to be done when this is doubtful. 4\. What is due to him when the hearing is given.
 
-2\. Their salvation glorifies both.
-
-3\. Both are immutable, therefore we have a sure plea at all times.
-
-**Verse 2 &mdash;** Our main concern in prayer.
-
-1\. What is meant by God's hearing prayer.
-
-2\. How we may know that he has done so.
-
-3\. What is to be done when this is doubtful.
-
-4\. What is due to him when the hearing is given.
-
-**Verse 3 &mdash;** Strange trials.
-
-1\. They are not altogether strange.
-
-(a) Not so to God.
-
-(b) Not so in the history of the church.
-
-(c) Not so to the provisions of grace wherein they are anticipated.
-
-2\. Wherein they are strange.
-
-(a) They reveal God anew.
-
-(b) Endear forgotten promises.
-
-(c) Train unused graces.
-
-(d) Being new praises, etc.
+**Verse 3 &mdash;** Strange trials. 1\. They are not altogether strange. (a) Not so to God. (b) Not so in the history of the church. (c) Not so to the provisions of grace wherein they are anticipated. 2\. Wherein they are strange. (a) They reveal God anew. (b) Endear forgotten promises. (c) Train unused graces. (d) Being new praises, etc.
 
 **Verse 3 &mdash;** (*last clause*). The root of sin: if they remembered his authority they dared not, if they tasted his love they would not, if they were conformed to his nature they could not.
 
-**Verse 4 &mdash;** A theme for wonder.
-
-1\. At his unmerited grace, that he should side with *me.* 
-
-2\. At his gracious power, for who can resist him?
-
-3\. At his practical help, for he has upheld my soul.
+**Verse 4 &mdash;** A theme for wonder. 1\. At his unmerited grace, that he should side with *me.* 2\. At his gracious power, for who can resist him? 3\. At his practical help, for he has upheld my soul.
 
 **Verse 6 &mdash;** We should sacrifice voluntarily, liberally, joyfully, continuously, with pure motive.
 
@@ -174,5 +121,5 @@ And mine eye hath seen his desire upon mine enemies. He knew that yet he should 
 
 ## Works Upon The Fifty-Fourth Psalm
 
-In Chandler's *"Life of David, "* pages 152-4, there is an Exposition of this Psalm.
+In Chandler's *"Life of David"* pages 152-4, there is an Exposition of this Psalm.
 
