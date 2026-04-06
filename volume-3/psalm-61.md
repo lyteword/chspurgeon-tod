@@ -36,13 +36,10 @@ I will cry. It was a wise resolution, for had he ceased to pray he would have be
 
 *I will abide in thy tabernacle for ever.* Let me once get back to thy courts, and nothing shall again expel me from them: even now in my banishment my heart is there; and ever will I continue to worship thee in spirit wherever my lot may be cast. Perhaps by the word *tabernacle* is here meant the dwelling place of God; and if so, the sense is, I will dwell with the Lord, enjoying his sacred hospitality, and sure protection.
 
-"There would I find a settled rest,
-
-While others go and come;
-
-No more a stranger or a guest,
-
-But like a child at home."
+> "There would I find a settled rest,  
+> While others go and come;  
+> No more a stranger or a guest,  
+> But like a child at home."  
 
 He who communes with God is always at home. The divine omnipresence surrounds such a one consciously; his faith sees all around him the palace of the King, in which he walks with exulting security and overflowing delight. Happy are the indoor servants who go not out from his presence. Hewers of wood and drawers of water in the tents of Jehovah are more to be envied than the princes who riot in the pavilions of kings. The best of all is that our residence with God is not for a limited period of time, but for ages; yea, for ages of ages, for time and for eternity: this is our highest and most heavenly privilege, *I will abide in thy tabernacle for ever.* I will trust in the covert of thy wings. Often does our sweet singer use this figure; and far better is it to repeat one apt and instructive image, than for the sake of novelty to ransack creation for poor, strained metaphors. The chicks beneath the hen how safe, how comfortable, how happy! How warm the parent's bosom! How soft the cherishing feathers! Divine condescension allows us to appropriate the picture to ourselves, and how blessedly instructive and consoling it is! O for more trust; it cannot be too implicit: such a covert invites us to the most unbroken repose. Selah. Rest we well may when we reach this point. Even the harp may be eloquently silent when deep, profound calm completely fills the bosom, and sorrow has sobbed itself into a peaceful slumber.
 
@@ -126,87 +123,31 @@ He who communes with God is always at home. The divine omnipresence surrounds su
 
 ## Hints to the Village Preacher
 
-Whole Psalm. The progressive *I wills.* 
+**Whole Psalm &mdash;** The progressive *I wills.* 1\. I will cry. 2\. I will abide in thy tabernacle. 3\. I will trust. 4\. I will sing praise.
 
-1\. I will cry.
+**Verse 1 &mdash;** Answers to prayer to be earnestly sought. 1\. What hinders the answer of prayer? 2\. What is our duty when answers are denied? 3\. What encouragements we have to believe that the delay is only temporary.
 
-2\. I will abide in thy tabernacle.
-
-3\. I will trust.
-
-4\. I will sing praise.
-
-**Verse 1 &mdash;** Answers to prayer to be earnestly sought.
-
-1\. What hinders the answer of prayer?
-
-2\. What is our duty when answers are denied?
-
-3\. What encouragements we have to believe that the delay is only temporary.
-
-**Verse 2 &mdash;** *Lead me.* 
-
-1\. Show me the way: reveal Jesus.
-
-2\. Enable me to tread it: work faith in me.
-
-3\. Uplift me when I cannot tread: do for me what is beyond me.
+**Verse 2 &mdash;** *Lead me.* 1\. Show me the way: reveal Jesus. 2\. Enable me to tread it: work faith in me. 3\. Uplift me when I cannot tread: do for me what is beyond me.
 
 **Verse 2 &mdash;** *Higher than I.* Jesus greater than our highest efforts, attainments, desires, expectations, conceptions.
 
 **Verse 2 &mdash;** God, the saint's rock. *John Owen's Two Sermons.* Works. Volume 9, pages 237-256.
 
-**Verse 2 &mdash;** The heart's cry and desire.
+**Verse 2 &mdash;** The heart's cry and desire. 1\. A recognition of a place of safety; then, 2\. We have this place brought before us, as abundantly sufficient, when personal weakness has been realised. 3\. This place cannot be attained without the help of another's hand. 4\. The character of this refuge, and the position of a believer when availing himself of it: the place of refuge is "a rock, "and the position of the believer is "upon a rock." *P. B. Power.* 
 
-1\. A recognition of a place of safety; then,
-
-2\. We have this place brought before us, as abundantly sufficient, when personal weakness has been realised.
-
-3\. This place cannot be attained without the help of another's hand.
-
-4\. The character of this refuge, and the position of a believer when availing himself of it: the place of refuge is "a rock, "and the position of the believer is "upon a rock." *P. B. Power.* 
-
-**Verses 2-3 &mdash;** 
-
-1\. *How* would he pray? *I will cry unto thee.* 
-
-2\. *Where* would he pray? *From the ends of the earth.* 
-
-3\. *When* would he pray? *When my heart is overwhelmed.* 
-
-4\. *For what* would he pray? *Lead me to the rock that is higher than I.* 
-
-5\. *Whence* does he derive his encouragement to pray? For thou hast been, etc. (Ps 61:3). *William Jay.* 
+**Verses 2-3 &mdash;** 1\. *How* would he pray? *I will cry unto thee.* 2\. *Where* would he pray? *From the ends of the earth.* 3\. *When* would he pray? *When my heart is overwhelmed.* 4\. *For what* would he pray? *Lead me to the rock that is higher than I.* 5\. *Whence* does he derive his encouragement to pray? For thou hast been, etc. (Ps 61:3). *William Jay.* 
 
 **Verse 3 &mdash;** *A shelter* from the rain of trouble, the storm of persecution, the floods of Satanic temptation, the heat of divine wrath, the blast of death. The ark, Lot's mountain, the blood stained door in Egypt, the city of refuge, the cave Adullam. *A strong tower:* lasting in itself, impregnable against foes, secure for the occupant.
 
 **Verse 5 &mdash;** (*second clause*). Enquire whether or no it fares with us as with the saints.
 
-**Verses 5, 8 &mdash;** 
+**Verses 5, 8 &mdash;** 1\. Vows heard in heaven. 2\. Vows to be carefully fulfilled on earth.
 
-1\. Vows heard in heaven.
-
-2\. Vows to be carefully fulfilled on earth.
-
-**Verse 5 &mdash;** (*second clause*).
-
-1\. They that fear God have a "heritage."
-
-2\. This heritage is "given."
-
-3\. We may know that we possess it. *William Jay.* 
+**Verse 5 &mdash;** (*second clause*). 1\. They that fear God have a "heritage." 2\. This heritage is "given." 3\. We may know that we possess it. *William Jay.* 
 
 **Verse 6 &mdash;** Our King, his eternal existence, our personal joy in this, and our joy for our descendants.
 
-**Verses 4, 7 &mdash;** 
+**Verses 4, 7 &mdash;** 1\. My privilege, *I will abide* (Ps 61:4). 2\. The ground of it, *He shall abide,* etc. (Ps 61:7).
 
-1\. My privilege, *I will abide* (Ps 61:4).
-
-2\. The ground of it, *He shall abide,* etc. (Ps 61:7).
-
-**Verses 5, 8 &mdash;** 
-
-1\. Vows heard in heaven.
-
-2\. Vows to be carefully fulfilled on earth.
+**Verses 5, 8 &mdash;** 1\. Vows heard in heaven. 2\. Vows to be carefully fulfilled on earth.
 
