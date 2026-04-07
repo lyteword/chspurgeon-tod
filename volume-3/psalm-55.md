@@ -49,13 +49,10 @@ weight: 55
 
 *And I said, Oh that I had wings like a dove! for then would I fly away, and be at rest.* If he could not resist as an eagle, he would escape as a dove. Swiftly, and unobserved, on strong, untiring pinions would he h away from the abodes of slander and wickedness. His love of peace made him sigh for an escape from the scene of strife.
 
-"O for a lodge in some vast wilderness,
-
-Some boundless contiguity of shade,
-
-Where rumour of oppression and deceit
-
-Might never reach me more."
+> "O for a lodge in some vast wilderness,   
+> Some boundless contiguity of shade,   
+> Where rumour of oppression and deceit   
+> Might never reach me more."   
 
 We are all too apt to utter this vain desire, for vain it is; no wings of doves or eagles could bear us away from the sorrows of a trembling heart. Inward grief knows nothing of place. Moreover, it is cowardly to shun the battle which God would have us fight. We had better face the danger, for we have no armour for our backs. He had need of a swifter conveyance than doves' pinions who would outfly slander; he may be at rest who does not fly, but commends his case to his God. Even the dove of old found no rest till she returned to her ark, and we amid all our sorrow may find rest in Jesus. We need not depart; all will be well if we trust in him.
 
@@ -67,13 +64,10 @@ We are all too apt to utter this vain desire, for vain it is; no wings of doves 
 
 And remain in the wilderness. He found it none such a dear abode when there, yet resolves now to make it his permanent abode. Had he been condemned to receive his wish he would ere long have felt like Selkirk, in the poet's verse—
 
-"O solitude, where are the charms
-
-That sages have found in thy face?
-
-Better dwell in the midst of alarms
-
-Than reign in this horrible place."
+> "O solitude, where are the charms   
+> That sages have found in thy face?   
+> Better dwell in the midst of alarms   
+> Than reign in this horrible place."   
 
 Our Lord, while free from all idle wishes, found much strength in solitude, and loved the mountain's brow at midnight, and the quiet shade of the olives of Gethsemane. It is better practically to use retirement than pathetically to sigh for it. Yet it is natural, when all men do us wrong, to wish to separate ourselves from their society; nature, however, must yield to grace, and we must endure the contradiction of sinners against ourselves, and not be weary and faint in our minds. Selah. After such a flight well may the mind rest. When we are going too fast, and giving way too freely to regrets, it is well to cry, "halt, "and pause awhile, till more sober thoughts return.
 
@@ -165,7 +159,7 @@ The psalmist cannot forget the traitor's conduct, and returns again to consider 
 
 > Cast thy burden upon the Lord, and he shall sustain thee: he shall never suffer the righteous to be moved.
 
-*Thy burden, * or what thy God lays upon thee, lay thou it upon the Lord. His wisdom casts it on thee, it is thy wisdom to cast it on him. He cast thy lot for thee, cast thy lot on him. He gives thee thy portion of suffering, accept it with cheerful resignation, and then take it back to him by thine assured confidence. He shall sustain thee. Thy bread shall be given thee, thy waters shall be sure. Abundant nourishment shall fit thee to bear all thy labours and trials. As thy days so shall thy strength be. He shall never suffer the righteous to be moved. He may move like the boughs of a tree in the tempest, but he shall never be moved like a tree torn up by the roots. He stands firm who stands in God. Many would destroy the saints, but God has not suffered it, and never will. Like pillars, the godly stand immoveable, to the glory of the Great Architect.
+*Thy burden,* or what thy God lays upon thee, lay thou it upon the Lord. His wisdom casts it on thee, it is thy wisdom to cast it on him. He cast thy lot for thee, cast thy lot on him. He gives thee thy portion of suffering, accept it with cheerful resignation, and then take it back to him by thine assured confidence. He shall sustain thee. Thy bread shall be given thee, thy waters shall be sure. Abundant nourishment shall fit thee to bear all thy labours and trials. As thy days so shall thy strength be. He shall never suffer the righteous to be moved. He may move like the boughs of a tree in the tempest, but he shall never be moved like a tree torn up by the roots. He stands firm who stands in God. Many would destroy the saints, but God has not suffered it, and never will. Like pillars, the godly stand immoveable, to the glory of the Great Architect.
 
 ### Verse 23
 
@@ -175,431 +169,181 @@ For the ungodly a sure, terrible, and fatal overthrow is appointed. Climb as the
 
 ## Explanatory Notes & Quaint Sayings
 
-**Title &mdash;** Maschil. This is often prefixed to those Psalms in which David speaks of himself as being chastened by God, inasmuch as the end of chastisement is instruction. *Simon de Muis, * 1587-1644.
+**Title &mdash;** Maschil. This is often prefixed to those Psalms in which David speaks of himself as being chastened by God, inasmuch as the end of chastisement is instruction. &mdash; *Simon de Muis, 1587-1644*
 
-**Whole Psalm.** A prayer of the Man Christ in his humiliation, despised and rejected of men, when he was made sin for his people, that they might be made the righteousness of God in him, when he was about to suffer their punishment, pay their debt, and discharge their ransom. Utter depravity of the inhabitants of Jerusalem; betrayal of Messiah by one of the twelve whom he had ordained to the apostolical office, and who was Messiah's constant attendant in all his ministerial circuits. Premature and punitive death of the traitor Judas, and of others banded together to crucify the Lord of glory. *John Noble Coleman, M. A., in "A Revision of the authorised English Version of the Book of Psalms, "* 1863.
+**Whole Psalm &mdash;** A prayer of the Man Christ in his humiliation, despised and rejected of men, when he was made sin for his people, that they might be made the righteousness of God in him, when he was about to suffer their punishment, pay their debt, and discharge their ransom. Utter depravity of the inhabitants of Jerusalem; betrayal of Messiah by one of the twelve whom he had ordained to the apostolical office, and who was Messiah's constant attendant in all his ministerial circuits. Premature and punitive death of the traitor Judas, and of others banded together to crucify the Lord of glory. &mdash; *John Noble Coleman, M. A. in "A Revision of the authorised English Version of the Book of Psalms" 1863*
 
-**Verse 1.** In the first clause he uses the word ytlkt, that he might indicate that he merely sought justice from God as a Judge; but in the second he implores the *favour of God, * that if perchance the prayer for *justice* be less becoming to himself as a sinner, God may not deny his grace. *Hermann Venema.* 
+**Verse 1 &mdash;** In the first clause he uses the word ytlkt, that he might indicate that he merely sought justice from God as a Judge; but in the second he implores the *favour of God,* that if perchance the prayer for *justice* be less becoming to himself as a sinner, God may not deny his grace. &mdash; *Hermann Venema* 
 
-**Verse 1.** *Hide not thyself from my supplication.* A figure taken from the conduct of a king who debars an offender from seeing his face (2Sa 14:24), or from an enemy, who conceals himself from the ox, etc.; that is, pretends not to see it, and goes away, leaving it (see De 22:1, 3, 4 Isa 58:7); or, from a false friend, or an unkind person, who, foreseeing that he may be entreated by a miserable and needy man, will not let himself be seen, but seeks to make his escape. *Martin Geier, * 1614-1681.
+**Verse 1 &mdash;** *Hide not thyself from my supplication.* A figure taken from the conduct of a king who debars an offender from seeing his face (2Sa 14:24), or from an enemy, who conceals himself from the ox, etc.; that is, pretends not to see it, and goes away, leaving it (see De 22:1, 3, 4 Isa 58:7); or, from a false friend, or an unkind person, who, foreseeing that he may be entreated by a miserable and needy man, will not let himself be seen, but seeks to make his escape. &mdash; *Martin Geier, 1614-1681*
 
-**Verse 2.** *I mourn.* As one cast down with sorrow, making a doleful noise. *Henry Ainsworth, * 1662.
+**Verse 2 &mdash;** *I mourn.* As one cast down with sorrow, making a doleful noise. &mdash; *Henry Ainsworth, 1662*
 
-**Verse 2.** *I mourn, * etc. A mourning supplicant shall neither lose his prayers nor his tears; for, *I mourn, * is brought for a reason of his hope that God shall attend and hear him. *David Dickson.* 
+**Verse 2 &mdash;** *I mourn,* etc. A mourning supplicant shall neither lose his prayers nor his tears; for, *I mourn,* is brought for a reason of his hope that God shall attend and hear him. &mdash; *David Dickson* 
 
-**Verse 2.** *I mourn in my complaint.* The literal translation of these words is, *I will suffer to wander in my thinking; i.e., * I will let my mind wander, or my thoughts rove as they will. *J. A Alexander.* 
+**Verse 2 &mdash;** *I mourn in my complaint.* The literal translation of these words is, *I will suffer to wander in my thinking;* i.e. I will let my mind wander, or my thoughts rove as they will. &mdash; *J. A Alexander* 
 
-**Verse 2.** *In my complaint.* Saints have their complaints on account of their sins and corruptions, their barrenness and unfruitfulness, and the decay of vital religion in them, and because of the low estate of Zion, the declining state of the interest of Christ, and the little success of his gospel; and they mourn, in these complaints, over their own sins, and the sins of others, professors and profane, and under afflictions temporal and spiritual, both their own and the church's. Christ also in the days of his flesh, had his complaints of the perverseness and faithlessness of the generation of men among whom he lived; of the frowardness, pride, and contentions of his disciples; of the reproaches, insult, and injuries of his enemies; and of the dereliction of his God and Father; and he often mourned on account of one or other of these things, being a man of sorrows and acquainted with griefs. *John Gill.* 
+**Verse 2 &mdash;** *In my complaint.* Saints have their complaints on account of their sins and corruptions, their barrenness and unfruitfulness, and the decay of vital religion in them, and because of the low estate of Zion, the declining state of the interest of Christ, and the little success of his gospel; and they mourn, in these complaints, over their own sins, and the sins of others, professors and profane, and under afflictions temporal and spiritual, both their own and the church's. Christ also in the days of his flesh, had his complaints of the perverseness and faithlessness of the generation of men among whom he lived; of the frowardness, pride, and contentions of his disciples; of the reproaches, insult, and injuries of his enemies; and of the dereliction of his God and Father; and he often mourned on account of one or other of these things, being a man of sorrows and acquainted with griefs. &mdash; *John Gill* 
 
-**Verse 2.** *In my complaint.* The word here employed commonly means discourse, meditation. It here occurs in the sense of *complaint, * as in Job 7:13 9:27 21:4 23:2 Ps 142:2 1Sa 1:16. It is not used, however, to denote complaint in the sense of fault finding, complaining, accusing, or the idea that we have been dealt with unjustly. This is not the meaning in this place or in the Scriptures generally. It is the language of a *troubled, * not of an *injured* spirit. *Albert Barnes, * 1868.
+**Verse 2 &mdash;** *In my complaint.* The word here employed commonly means discourse, meditation. It here occurs in the sense of *complaint,* as in Job 7:13 9:27 21:4 23:2 Ps 142:2 1Sa 1:16. It is not used, however, to denote complaint in the sense of fault finding, complaining, accusing, or the idea that we have been dealt with unjustly. This is not the meaning in this place or in the Scriptures generally. It is the language of a *troubled,* not of an *injured* spirit. &mdash; *Albert Barnes, 1868*
 
-**Verse 2.** In confession, when the soul melts into a holy shame and sorrow for the sins he spreads before the Lord, he feels a holy smart and pain within, and doth not act a tragical part with a comical heart. Chrysostom saith, "To paint tears is worse than to paint the face." Here is true fervency, *I mourn in my complaint and make a noise.* There may be fire in the pan when there is none in the piece; a loud wind but no rain with it. David made a noise with his voice, and mourned in his spirit. *William Gurnall, * 1617-1679.
+**Verse 2 &mdash;** In confession, when the soul melts into a holy shame and sorrow for the sins he spreads before the Lord, he feels a holy smart and pain within, and doth not act a tragical part with a comical heart. Chrysostom saith, "To paint tears is worse than to paint the face." Here is true fervency, *I mourn in my complaint and make a noise.* There may be fire in the pan when there is none in the piece; a loud wind but no rain with it. David made a noise with his voice, and mourned in his spirit. &mdash; *William Gurnall, 1617-1679*
 
-**Verse 3.** *Because of the voice of the enemy, * there is their railing; *because of the oppression of the wicked, * there is their violent robbing him of his estate; *they cast iniquity upon me, * there are their slanderous traducings of him, and charging him with faults falsely; *in wrath they hate me, * there is their cruel seeking to kill. *David Dickson.* 
+**Verse 3 &mdash;** *Because of the voice of the enemy,* there is their railing; *because of the oppression of the wicked,* there is their violent robbing him of his estate; *they cast iniquity upon me,* there are their slanderous traducings of him, and charging him with faults falsely; *in wrath they hate me,* there is their cruel seeking to kill. &mdash; *David Dickson* 
 
-**Verse 3.** *For they cast iniquity upon me.* They tumble it on me, as men do stones or anything else upon their besiegers, to endamage them; so did these sin, shame, anything, upon innocent David, to make him odious. *John Trapp.* 
+**Verse 3 &mdash;** *For they cast iniquity upon me.* They tumble it on me, as men do stones or anything else upon their besiegers, to endamage them; so did these sin, shame, anything, upon innocent David, to make him odious. &mdash; *John Trapp* 
 
-**Verse 4.** *Is sore pained, * or, *trembled with pain, * The word usually meaneth such *pains as a woman feels in her travail. Henry Ainsworth.* 
+**Verse 4 &mdash;** *Is sore pained,* or, *trembled with pain,* The word usually meaneth such *pains as a woman feels in her travail.* &mdash; *Henry Ainsworth* 
 
-**Verse 4.** *The terrors of death are fallen upon me. My heart, * said the afflicted psalmist, *is sore pained within me:* and though I am repeatedly assured of my interest in the divine love and favour, yet now *the terrors of death are fallen upon me.* The case of David is so far from being peculiar to himself, that it portrays, in the most striking colours, a state of mind to which many of the most exemplary Christians are frequently, if not constantly subject. Many, whose hopes are placed on the right foundation, even Christ Jesus, and whose conduct is uniform and consistent, are ye harassed almost continually by the tormenting fears of death&mdash; It will be an interesting and useful enquiry to examine into the real causes of a fear, which cultivates melancholy and despondency on the one hand and destroys our happiness on the other. To effect this design I shall consider,
+**Verse 4 &mdash;** *The terrors of death are fallen upon me. My heart,* said the afflicted psalmist, *is sore pained within me:* and though I am repeatedly assured of my interest in the divine love and favour, yet now *the terrors of death are fallen upon me.* The case of David is so far from being peculiar to himself, that it portrays, in the most striking colours, a state of mind to which many of the most exemplary Christians are frequently, if not constantly subject. Many, whose hopes are placed on the right foundation, even Christ Jesus, and whose conduct is uniform and consistent, are ye harassed almost continually by the tormenting fears of death&mdash; It will be an interesting and useful enquiry to examine into the real causes of a fear, which cultivates melancholy and despondency on the one hand and destroys our happiness on the other. To effect this design I shall consider, 1\. The various causes of the fear of death. 2\. The arguments calculated to remove it. There are few, indeed, so hardened in the slavery of vice, or so utterly regardless of every admonition, as to consider the awful period of dissolution without some emotions of terror and dismay. There is something so peculiarly awful in the idea of a change hitherto unknown, and of a state hitherto untried, that the most hardy veterans have owned its tremendous aspects. One of the first causes of the fear of death is *conscious guilt.* The most hardened are conscious of many things which they may not readily confess; and the most self righteous is conscious of many crimes which he artfully studies to conceal. Whilst the Christian is looking only to his own habits and temper, he may and will be always wretched; but if he looks to the great Surety, Christ Jesus, his gloomy prospect will soon be turned to joy. An *attachment to this world* is also a (second) cause of the fear of death. A principal of self preservation is also a (third) cause of the fear of death. That our bodies, which are pampered by pride and nourished by indulgence, should be consigned to the silent grave, and become even the food of worms, is a humbling reflection to the boasted dignity of man. Besides, nature revolts at the idea of its own dissolution; hence a desire of preserving life, evidently implanted in us. The devil is also (fourthly) often permitted to terrify the consciences of men, and thereby increase at least the fear of death. Unbelief is also a (fifth) cause of the fear of death. Were our faith more frequently in exercise, we should be enabled to look beyond the dreary mansions of the grave with a hope full of immortality. Our fears of death may be often caused by looking for that perfection in ourselves, which we shall never easily discover. Consider the arguments calculated to remove the fear of death. It may be necessary to premise that the consolations of religion belong only to real Christians; for the wicked have just reason to dread the approach of death. But to such as are humbled under a sense of their own unworthiness, and who have fled to Christ for pardon and salvation, they have no cause to apprehend either the pain or the consequences of death; because first, the sting of death is taken away. Secondly, because death is no longer an enemy but a friend. Instead of threatening us with misery, it invites us to happiness. Thirdly, the safety of our state is founded on the oath, the purpose, and the promises of God. A fourth argument calculated to remove the fear of death, is the consideration of the benefits resulting from it. The benefits which believers receive from Christ at the resurrection also, is a fifth argument calculated to remove the fear of death. &mdash; *Condensed from a Sermon by John Grove, 1802*
 
-1\. The various causes of the fear of death.
+**Verses 4-5 &mdash;** In the version of the Psalter used in the Prayer book, this verse stands with a more homely and expressive simplicity, "My heart is disquieted within me, and the fear of death is fallen upon me. Fearfulness and trembling are come upon me, and an horrible dread hath overwhelmed me." The fear of death is upon all flesh. It is no sign of manhood to be without it. To overcome it in the way of duty is courage; to meet death with patience is faith; but not to fear it is either a gift of special grace, or a dangerous insensibility. No doubt great saints have been able to say, "I have a desire to depart." And many have rushed to martyrdom as to the love and bosom of their Lord; but for the rest, the multitude of his flock, who are neither wilful sinners nor to be numbered among the saints, the thought of death is a thought of fear. We see that, on the first feeling of their having so much as set foot in the path leading to the grave, even good men feel "the terror of death, ""a horrible dread, "which makes every pulse to beat with a hurried and vehement speed. Their whole nature, both in body and in soul, trembles to its very centre; and their heart is "disquieted, ""sore pained, "within them. Let us see what are the causes or reasons of this "fear of death." The first must needs be a consciousness of personal sinfulness. A sense of unfitness to meet God, our unreadiness to die, a multitude of personal faults, evil tempers, thoughts, and inclinations; the recollection of innumerable sins, of great omissions and lukewarmness in all religious duties, the little love or gratitude we have to God, and the great imperfections of our repentance; all these make us tremble at the thought of going to give up our account. We feel as if it were impossible we could be saved. Shame, fear, and a "horrible dread" fall upon us. &mdash; *Henry Edward Manning, M. A., 1850*
 
-2\. The arguments calculated to remove it. There are few, indeed, so hardened in the slavery of vice, or so utterly regardless of every admonition, as to consider the awful period of dissolution without some emotions of terror and dismay. There is something so peculiarly awful in the idea of a change hitherto unknown, and of a state hitherto untried, that the most hardy veterans have owned its tremendous aspects.
+**Verse 5 &mdash;** *Fearfulness and trembling are come upon me.* In this pitiful condition of mind, learn, that it is not a thing inconsistent with godliness to be much moved with fear in time of danger; natural affections are not taken away in conversion, but sanctified and moderated. &mdash; *David Dickson* 
 
-One of the first causes of the fear of death is *conscious guilt.* The most hardened are conscious of many things which they may not readily confess; and the most self righteous is conscious of many crimes which he artfully studies to conceal. Whilst the Christian is looking only to his own habits and temper, he may and will be always wretched; but if he looks to the great Surety, Christ Jesus, his gloomy prospect will soon be turned to joy. An *attachment to this world* is also a (second) cause of the fear of death. A principal of self preservation is also a (third) cause of the fear of death. That our bodies, which are pampered by pride and nourished by indulgence, should be consigned to the silent grave, and become even the food of worms, is a humbling reflection to the boasted dignity of man. Besides, nature revolts at the idea of its own dissolution; hence a desire of preserving life, evidently implanted in us. The devil is also (fourthly) often permitted to terrify the consciences of men, and thereby increase at least the fear of death. Unbelief is also a (fifth) cause of the fear of death. Were our faith more frequently in exercise, we should be enabled to look beyond the dreary mansions of the grave with a hope full of immortality. Our fears of death may be often caused by looking for that perfection in ourselves, which we shall never easily discover.
+**Verse 5 &mdash;** *Fearfulness.* How natural is this description! He is *in distress,* he *mourns, makes a noise, sobs* and *sighs,* his *heart is wounded,* he expects nothing but *death;* this produces *fear,* this produces *tremor,* which terminates in that *deep apprehension* of *approaching* and *inevitable ruin* that *overwhelms* him with *horror.* No man ever described a wounded heart like David. &mdash; *Adam Clarke* 
 
-Consider the arguments calculated to remove the fear of death. It may be necessary to premise that the consolations of religion belong only to real Christians; for the wicked have just reason to dread the approach of death. But to such as are humbled under a sense of their own unworthiness, and who have fled to Christ for pardon and salvation, they have no cause to apprehend either the pain or the consequences of death; because first, the sting of death is taken away. Secondly, because death is no longer an enemy but a friend. Instead of threatening us with misery, it invites us to happiness. Thirdly, the safety of our state is founded on the oath, the purpose, and the promises of God. A fourth argument calculated to remove the fear of death, is the consideration of the benefits resulting from it. The benefits which believers receive from Christ at the resurrection also, is a fifth argument calculated to remove the fear of death. *Condensed from a Sermon by John Grove, M. A., F. A. S., * 1802.
+**Verse 6 &mdash;** *And I said, Oh that I had wings like a dove! for then would I fly away, and be at rest.* Wherever the psalmist cast his eye, the inscription was vanity and vexation. A deluge of sin and misery covered the world, so that like Noah's dove he could find no rest for the sole of his foot below, therefore does he direct his course toward heaven, and say, *Oh that I had wings like a dove! for then would I fly away, and be at rest;* but rest is not a denizen of this world, nothing but the heaven of heavens is at rest, and here does he fix only. &mdash; *Thomas Sharp (1630-1693) in "Divine Comforts"* 
 
-**Verses 4-5.** In the version of the Psalter used in the Prayer book, this verse stands with a more homely and expressive simplicity, "My heart is disquieted within me, and the fear of death is fallen upon me. Fearfulness and trembling are come upon me, and an horrible dread hath overwhelmed me." The fear of death is upon all flesh. It is no sign of manhood to be without it. To overcome it in the way of duty is courage; to meet death with patience is faith; but not to fear it is either a gift of special grace, or a dangerous insensibility. No doubt great saints have been able to say, "I have a desire to depart." And many have rushed to martyrdom as to the love and bosom of their Lord; but for the rest, the multitude of his flock, who are neither wilful sinners nor to be numbered among the saints, the thought of death is a thought of fear. We see that, on the first feeling of their having so much as set foot in the path leading to the grave, even good men feel "the terror of death, ""a horrible dread, "which makes every pulse to beat with a hurried and vehement speed. Their whole nature, both in body and in soul, trembles to its very centre; and their heart is "disquieted, ""sore pained, "within them. Let us see what are the causes or reasons of this "fear of death." The first must needs be a consciousness of personal sinfulness. A sense of unfitness to meet God, our unreadiness to die, a multitude of personal faults, evil tempers, thoughts, and inclinations; the recollection of innumerable sins, of great omissions and lukewarmness in all religious duties, the little love or gratitude we have to God, and the great imperfections of our repentance; all these make us tremble at the thought of going to give up our account. We feel as if it were impossible we could be saved. Shame, fear, and a "horrible dread" fall upon us. *Henry Edward Manning, M. A., * 1850.
+**Verse 6 &mdash;** *Oh that I had wings like a dove! for then would I fly away, and be at rest.* King David, though for innocency not only a *dove,* but the phoenix of doves, and so a notable type of Christ, upon whom the Holy Ghost descended in the shape of a dove, yet was his whole life nothing else but *bellum sine induciis,* a perpetual persecution without intermission. Such was also the portion of Christ the Lord of David; and such to the world's end will ever be the lot of those that are the heritage of Christ. My text imports no less; which, taken *historically,* is the voice of David pursued by his enemies; *prophetically,* the voice of Christ at his passion; *mystically,* the voice of that mystical dove, the innocent soul, surrounded and environed with the snares of death; even *generalis quoendam querela* (saith Pellican), a general complaint of the malice of the wicked persecuting the righteous. For (alas that it should be! yet so it is)— "Non rete accipitri tenditur, neque milvio, *Qui male facinunt nobis; illis qui nil faciunt tenditur." Terence.* "The net is not pitched for ravenous birds, as are the hawk and the kite; but for poor harmless birds, that never meditate mischief." And "Dat veniam corvis, vexat censura columbas." "The dove shall surely be shot at, when the carrion crow shall go shot free." *Juvenal.* It will then be no news unto you, that here the faithful soul, the spouse, the dove of Christ, when trouble and heaviness take hold upon her, and the floods of Belial compass her about, *Tanquam avis e cave liberari cupit* as St. Austin speaks of the cloistered monks in his time), "Desireth like a bird to be loosed out of her cage." Or, that as Jonas (by interpretation *a dove,* after three days' and three nights' imprisonment in the whale's belly, could not but long after his enlargement. So the dove like soul of man, when not three, but many days, and months, and years, she hath been imprisoned in the body, hath a longing desire to be enlarged, and to fly unto God that made her; and so *mourning* like a dove in devout *supplication,* and *mounting* like a dove in divine *speculation,* breaks forth into these sad elegies: "Oh that I had wings!" and "Alas, that I have not wings! Woe is me that I am constrained to dwell with Mesech, and to have mine habitation among the tents of Kedar. Like as the hart desires the water brook, so longeth my soul to be with thee, O God. I desire to be dissolved and to be with Christ. Who will give me wings?" etc. Which is as if the poor distressed soul, pathetically bemoaning her forlorn estate of pilgrimage, should thus more plentifully enlarge herself. "My spouse is already ascended higher than the winds, than the clouds, than the highest heavens, and I, poor soul, as a husbandless widow, as a tutorless orphan, as a comfortless exile, am left desolate and disconsolate in this valley of tears; none to care for me, none to comfort me, till I have regained him whom I love, and in whom I live. Nay (which worse is), this mine own familiar friend, this nearest and dearest companion of mine, *my body,* is even a burden unto me. The weight of it, and oft the sins that hang so fast on it, doth so clog and shackle me, so glue and nail me to the earth, that I cannot raise or rear up myself towards heaven. Or let him therefore descend to relieve me, being *fila, sponsa, soror,* his daughter, and spouse, and sister; or let him give me wings wherewith I may ascend to him, under the shadow of whose wings I shall surely rest in safety." Ps 16:4. "I must confess it was the very bitterness of extremity that first compelled me to love him, though of himself no less lovely than love itself. It was the sharp sauce of affliction that gave edge to mine affections, and sharpened mine appetite to that 'sweet meat that endureth to everlasting life.' But now, having had some little foretaste of him, I am even in an holy ecstasy, so ravished, so transported with a fervent desire of him and of his presence, that *ubi sum, ibi non sum; ubi non sum, ibi animus est:"* "where I am, there I am not; and where I am not, there am I." For, *anima est ubi amat, non ubi animat:* (Erasmus). "The soul is where it loveth, not where it liveth." Now sigh I not so much for the present dangers, I would decline, as because of my absent love, whom I most desire. *Who will give me wings?* etc. In the scanning of which verse, ye will observe with me, 1\. The *efficient* or *author* of these wings—God. *Who will give me?* Who? that it, who but God? 2\. The *matter* of the wish— *wings.* "Who will give me wings?" 3\. The *form* of those wings— *dove like.* Who will give me wings like unto a dove? 4\. The *end mediate—flying. Then would I* fly away. 5\. The *end ultimate—resting. And be at* rest. (a) "Who will give me?" There's *Christian humility.* (b) "Who will give me wings?" There's *prudent* celerity. (c) "Wings like unto a dove." There's *innocent* simplicity. (d) "Then would I fly away." There's *devout* sublimity. (e) "And be at rest." There's *permanent security. &mdash; *John Rawlinson, in "The Dove like Soule. A Sermon preached before the Prince's Highness at Whitehall" Feb. 19, 1618.* 
 
-**Verse 5.** *Fearfulness and trembling are come upon me.* In this pitiful condition of mind, learn, that it is not a thing inconsistent with godliness to be much moved with fear in time of danger; natural affections are not taken away in conversion, but sanctified and moderated. *David Dickson.* 
+**Verse 6 &mdash;** *Oh that I had wings,* etc. Some of the most astounding sermons ever delivered have been preached on this text, which was a very favourite one with the old divines. They ransacked Pliny and Aldrovandus for the most outrageous fables about doves, their eyes, their livers, their crops, and even their dung, and then went on to find emblems of Christians in every fact and fable. Griffith Williams, at considerable length, enlarges upon the fact that David did not desire wings like a grasshopper to hop from flower to flower, as those hasty souls who leap in religion, but do not run with perseverance; nor like an ostrich which keeps to the earth, though it be a bird, as hypocrites do who never mount towards heavenly things; nor like an eagle, or a peacock, or a beetle, or a crow, or a kite, or a bat; and after that he has shown in many ways the similarity between the godly and doves, he refers us to Hugo Cardinalis, and others, for more. We do not think it would be to edification to load these pages with such eccentricities and conceits. This one single sentence, from Bishop Patrick is worth them all, "He rather wished than hoped to escape." He saw no way of escape except by some improbable or impossible means. &mdash; *C. H. S.* 
 
-**Verse 5.** *Fearfulness.* How natural is this description! He is *in distress, * he *mourns, makes a noise, sobs* and *sighs, * his *heart is wounded, * he expects nothing but *death;* this produces *fear, * this produces *tremor, * which terminates in that *deep apprehension* of *approaching* and *inevitable ruin* that *overwhelms* him with *horror.* No man ever described a wounded heart like David. *Adam Clarke.* 
+**Verse 6 &mdash;** When the Gauls had tasted the wine of Italy, they asked where the grapes grew, and would never be quiet till they came there. Thus may you cry, *Oh that I had wings like a dove! for then would I fly away, and be at rest.* A believer is willing to lose the world for the enjoyment of grace; and he is willing to leave the world for the fruition of glory. &mdash; *William Secker* 
 
-**Verse 6.** *And I said, Oh that I had wings like a dove! for then would I fly away, and be at rest.* Wherever the psalmist cast his eye, the inscription was vanity and vexation. A deluge of sin and misery covered the world, so that like Noah's dove he could find no rest for the sole of his foot below, therefore does he direct his course toward heaven, and say, *Oh that I had wings like a dove! for then would I fly away, and be at rest;* but rest is not a denizen of this world, nothing but the heaven of heavens is at rest, and here does he fix only. *Thomas Sharp (1630-1693), in "Divine Comforts."* 
+**Verse 6 &mdash;** *Wings like a dove.* The pigeon, or dove, is one of the swiftest of birds. &mdash; *The Religious Tract Society's "Book of Psalms, with Preface and Explanatory Notes"* 
 
-**Verse 6.** *Oh that I had wings like a dove! for then would I fly away, and be at rest.* King David, though for innocency not only a *dove, * but the phoenix of doves, and so a notable type of Christ, upon whom the Holy Ghost descended in the shape of a dove, yet was his whole life nothing else but *bellum sine induciis, * a perpetual persecution without intermission. Such was also the portion of Christ the Lord of David; and such to the world's end will ever be the lot of those that are the heritage of Christ. My text imports no less; which, taken *historically, * is the voice of David pursued by his enemies; *prophetically, * the voice of Christ at his passion; *mystically, * the voice of that mystical dove, the innocent soul, surrounded and environed with the snares of death; even *generalis quoendam querela* (saith Pellican), a general complaint of the malice of the wicked persecuting the righteous. For (alas that it should be! yet so it is)—
+**Verse 6 &mdash;** An old writer tells us that it would have been more honourable for him to have asked for the strength of an ox to bear his trials, than for the wings of a dove to flee from them. &mdash; *William Jay, 1769-1853*
 
-"Non rete accipitri tenditur, neque milvio,
+**Verse 6 &mdash;** *Dove.* The reference is to the turtle dove, I suppose. Their low, sad complaint may be heard all day long at certain seasons in the olive groves, and in the solitary and shady valleys among these mountains; I have, however, been more affected by it in the vast orchards round Damascus than anywhere else—so subdued, so very sorrowful among the trees, where the air sighs softly, and little rills roll their melting murmurs down the flowery aisles. These birds can never be tamed. Confined in a cage they droop, and like Cowper, sigh for "A lodge in some vast wilderness—some boundless contiguity of shade" and no sooner are they set at liberty than they flee, as a bird, to their mountain. Ps 11:1. David refers to their habits in this respect when his heart was sore pained within him: *Oh that I had wings like a dove! for then would I fly away, and be at rest. Lo, then would I wander far off, and remain in the wilderness.* And there you will meet these timid birds far away from the haunts of cruel hunters, of whose society they are peculiarly suspicious. &mdash; *W. M. Thomson, in "The Land and the Book" 1859*
 
- *Qui male facinunt nobis; illis qui nil faciunt tenditur." Terence.* 
+**Verse 6 &mdash;** *Oh that I had wings, etc.—* At first her mother earth she holdeth dear, And doth embrace the world and worldly things; She flies close by the ground, and hovers there, And mounts not up with her celestial wings. Yet under heaven she cannot light on ought That with heavenly nature doth agree; She cannot rest, she cannot fix her thought, She cannot in this world contented be: Then as a bee which among weeds doth fall, Which seem sweet flowers, with lustre fresh and gay; She lights on that, and this, and tasteth all, But pleased with none, doth rise and soar away; So when the Soul finds here no true content; And like Noah's dove, can no sure footing take, She doth return from whence she first was sent, And flies to him that first her wings did make. &mdash; *Sir John Davies, 1569-1626*
 
-"The net is not pitched for ravenous birds, as are the hawk and the kite; but for poor harmless birds, that never meditate mischief." And
+**Verse 7 &mdash;** *Lo, then would I wander far off,* etc. A passage in the "Octavia" of Seneca has been referred to as being parallel to this of David. It is in the answer of Octavia to the Chorus, act 5., ver. 914-923. My woes who enough can bewail? O what notes can my sorrows express? Sweet Philomel's self even would fail To respond with her plaintive distress. O had I her wings, I would fly To where sorrows I never should feel more, Upborne on her plumes through the sky, Regions far from mankind would explore. In a grove where sad silence should reign, On a spray would I seat me alone; In shrill lamentations complain. And in wailings would pour forth my moan. &mdash; *J. B. Clarke (From Adam Clarke, in loc)* 
 
-"Dat veniam corvis, vexat censura columbas."
+**Verse 8 &mdash;** *I would hasten my escape from the windy storm and tempest.* There was a windy storm and tempest without, and which is worse, a tumult and combustion within in his thoughts. A man may escape from external confusions, but how shall he fly from himself? If he be out of the reach of all the blood suckers on earth, and all the furies in hell, yet be dogged and haunted with his own turbulent, ungovernable cogitations, he needs no other tormentors. This holy man was thus doubly distressed, a storm abroad and an earthquake at home rendered his condition most dolorous; but for both he hath *en mega* he goes not about with the foxes of this world to relieve himself with subtle stratagems and wiles, by carnal shifts and policies, a vanity tosses to and from by them that seek death. No, his one great refuge is to get aloft, to ascend to God. &mdash; *Thomas Sharp* 
 
-"The dove shall surely be shot at, when the carrion crow shall go shot free." *Juvenal.* 
+**Verse 9 &mdash;** *Destroy, O Lord, and divide their tongues.* In the first place, their tongues were truly destroyed and they themselves divided, when the testimony of the two false witnesses agreed not so together. Then secondly, by the contradictory account of the soldiers that kept watch at the sepulchre. &mdash; *Michael Ayguan (1416) in J. M. Neal's Commentary, 1860*
 
-It will then be no news unto you, that here the faithful soul, the spouse, the dove of Christ, when trouble and heaviness take hold upon her, and the floods of Belial compass her about, *Tanquam avis e cave liberari cupit* as St. Austin speaks of the cloistered monks in his time), "Desireth like a bird to be loosed out of her cage." Or, that as Jonas (by interpretation *a dove, * after three days' and three nights' imprisonment in the whale's belly, could not but long after his enlargement. So the dove like soul of man, when not three, but many days, and months, and years, she hath been imprisoned in the body, hath a longing desire to be enlarged, and to fly unto God that made her; and so *mourning* like a dove in devout *supplication, * and *mounting* like a dove in divine *speculation, * breaks forth into these sad elegies: "Oh that I had wings!" and "Alas, that I have not wings! Woe is me that I am constrained to dwell with Mesech, and to have mine habitation among the tents of Kedar. Like as the hart desires the water brook, so longeth my soul to be with thee, O God. I desire to be dissolved and to be with Christ. Who will give me wings?" etc. Which is as if the poor distressed soul, pathetically bemoaning her forlorn estate of pilgrimage, should thus more plentifully enlarge herself. "My spouse is already ascended higher than the winds, than the clouds, than the highest heavens, and I, poor soul, as a husbandless widow, as a tutorless orphan, as a comfortless exile, am left desolate and disconsolate in this valley of tears; none to care for me, none to comfort me, till I have regained him whom I love, and in whom I live. Nay (which worse is), this mine own familiar friend, this nearest and dearest companion of mine, *my body, * is even a burden unto me. The weight of it, and oft the sins that hang so fast on it, doth so clog and shackle me, so glue and nail me to the earth, that I cannot raise or rear up myself towards heaven. Or let him therefore descend to relieve me, being *fila, sponsa, soror, * his daughter, and spouse, and sister; or let him give me wings wherewith I may ascend to him, under the shadow of whose wings I shall surely rest in safety." Ps 16:4. "I must confess it was the very bitterness of extremity that first compelled me to love him, though of himself no less lovely than love itself. It was the sharp sauce of affliction that gave edge to mine affections, and sharpened mine appetite to that `sweet meat that endureth to everlasting life.' But now, having had some little foretaste of him, I am even in an holy ecstasy, so ravished, so transported with a fervent desire of him and of his presence, that *ubi sum, ibi non sum; ubi non sum, ibi animus est:"* "where I am, there I am not; and where I am not, there am I." For, *anima est ubi amat, non ubi animat:* (Erasmus). "The soul is where it loveth, not where it liveth." Now sigh I not so much for the present dangers, I would decline, as because of my absent love, whom I most desire. *Who will give me wings?* etc. In the scanning of which verse, ye will observe with me,
+**Verse 9 &mdash;** *Divide their tongues: i.e.,* cause them to give conflicting opinions. &mdash; *French and Skinner, 1842*
 
-1\. The *efficient* or *author* of these wings—God. *Who will give me?* Who? that it, who but God?
+**Verse 10 &mdash;** *Mischief also and sorrow are in the midst of it.* The city, as Abenezra observes, was like a circle; violence and strife were as a line round about it, and mischief and sorrow the centre of it; and these two commonly go together: where mischief is, sorrow soon follows. &mdash; *John Gill* 
 
-2\. The *matter* of the wish— *wings.* "Who will give me wings?"
+**Verse 12 &mdash;** *Then I could have borne it.* It is remarkable that the Lord, who endured the other unspeakable sorrows and agonies of his passion in perfect and marvellous silence, allowed his grief at this one alone to escape him, bewailing himself to his disciples that one of them should betray him, and addressing that one, when he was taken, in these words of reproach—"Judas, betrayest thou the Son of Man with a kiss?" &mdash; *Frau Thome de Jesu, 1582*
 
-3\. The *form* of those wings— *dove like.* Who will give me wings like unto a dove?
+**Verse 12 &mdash;** *Then I would have hid myself from him.* It is generally easy to get out of the way of an avowed enemy, but how can one be on his guard against a treacherous friend? &mdash; *A. R. Fausset, in "A Commentary, Critical, Experimental, and Practical" 1866*
 
-4\. The *end mediate—flying. Then would I* fly away.
+**Verse 13 &mdash;** *A man mine equal.* The LXX here not badly, *isoquce* (of equal soul), Jerome, *unanimus mens* (of one mind). &mdash; *Hermann Venema* 
 
-5\. The *end ultimate—resting. And be at* rest.
+**Verse 14 &mdash;** *We took sweet counsel.* From qtx *to be sweet,* and the ordinary notion of dwo for *secret,* the phrase dwo qytmg will literally be read, *we made our secret sweet.* And so it may be an elegance, to signify the pleasure of his friendship, or of communicating secrets to him. &mdash; *Henry Hammond* 
 
-(a) "Who will give me?" There's *Christian humility.* 
+**Verse 14 &mdash;** The first clause speaks of private intimacy, the next of association in public acts, and especially in the great festivals and processions of the temple. &mdash; *J. J. Stewart Perowne, 1864*
 
-(b) "Who will give me wings?" There's *prudent* celerity.
+**Verse 14 &mdash;** *In company.* In the end of the verse vgrk may be rendered *with a noise:* and so the Chaldee seems to have taken it, which reads *with haste;* and to that agree the Jewish doctors, who tell us men are to go in *haste* and with *speed* to the *synagogue,* but return thence very *leisurely.* &mdash; *Henry Hammond* 
 
-(c) "Wings like unto a dove." There's *innocent* simplicity.
+**Verse 15 &mdash;** *Let death seize upon them, and let them go down quick into hell.* The last part and end of sinners' lives is worst with them. They have in their lives been busily trading in the world, buying and selling, and getting gain and ruffling it in the world, but meanwhile by their sins they run deep in debt with God, and for want of interest in Christ to be their surety at death (it may be on the sudden) it comes to that of the psalmist, *Let death seize upon them, and let them go down quick into hell.* Death seizes on them unawares, as a sergeant or pursevant, casts them into prison, which is expressed by their going down quick into hell (as it is said Nu 16:32-33), that Korah and his company did. &mdash; *Anthony Tuckney, 1599-1670*
 
-(d) "Then would I fly away." There's *devout* sublimity.
+**Verse 15 &mdash;** *Let death seize upon them* by divine warrant, and let them go quick into hell; let them be dead and buried, and damned in a moment; for wickedness is wherever they are, it is in the midst of them. The souls of impenitent sinners go down quick, or alive, into hell; for they have a perfect sense of their miseries, and shall therefore live still, that they may be still miserable. This prayer is a prophecy of the utter, the final, the everlasting ruin of all those who, whether secretly or openly, oppose and rebel against the Lord's Messiah. &mdash; *Matthew Henry* 
 
-(e) "And be at rest." There's *permanent security.* 
+**Verse 15 &mdash;** *Quick,* that is *alive,* like Korah, Dathan and Abiram. &mdash; *From "The Psalms chronologically arranged, By Four Friends" 1867*
 
-John Rawlinson, in "The Dove like Soule. A Sermon preached before *the Prince's Highness at Whitehall, "Feb. 19, 1618.* 
+**Verse 15 &mdash;** Throughout this series of Psalms, there appears to be a peculiar penalty attached to each class of transgressions, or, each variety of opposition against God meets a suitable end. The ungodly, that is, the irreligious and indifferent, lay up for themselves an evil recompense when the wrath of God shall be revealed (Ps 54:5): but an instant punishment falls upon false and treacherous professors; as Paul denounced "anathema" against any who perverted the gospel of Christ in the churches of Galatia; so in this Psalm, *Let death seize upon them, and let them go down quick into hell,* announces the awful judgment of Jehovah, as once it was shown upon Dathan and Abiram; a punishment that will by its suddenness and notoriety at the same time expose the guilt, and make manifest the displeasure of the Almighty against it. &mdash; *R. H. Ryland, in "The Psalms restored to Messiah" 1853*
 
-**Verse 6.** *Oh that I had wings, * etc. Some of the most astounding sermons ever delivered have been preached on this text, which was a very favourite one with the old divines. They ransacked Pliny and Aldrovandus for the most outrageous fables about doves, their eyes, their livers, their crops, and even their dung, and then went on to find emblems of Christians in every fact and fable. Griffith Williams, at considerable length, enlarges upon the fact that David did not desire wings like a grasshopper to hop from flower to flower, as those hasty souls who leap in religion, but do not run with perseverance; nor like an ostrich which keeps to the earth, though it be a bird, as hypocrites do who never mount towards heavenly things; nor like an eagle, or a peacock, or a beetle, or a crow, or a kite, or a bat; and after that he has shown in many ways the similarity between the godly and doves, he refers us to Hugo Cardinalis, and others, for more. We do not think it would be to edification to load these pages with such eccentricities and conceits. This one single sentence, from Bishop Patrick is worth them all, "He rather wished than hoped to escape." He saw no way of escape except by some improbable or impossible means. *C. H. S.* 
+**Verse 17 &mdash;** *Evening, and morning, and at noon, will I pray.* This was the custom of the pious Hebrews. See Da 6:10. The Hebrews began their day in the *evening,* and hence David mentions the *evening first.* The rabbins say, men should pray three times each day because the day changes three times. This was observed in the primitive church; but the times in different places were various. The old Psalter gives this a curious turn: "At *even* I sall tell his louing (*praise*) what the Christ was on the Crosse; and at *morn* I sall schew his louing, what tim he ros fra dede. And sua he sall here my voice at *midday,* that is sitand at the right hand of his fader, wheder he stegh (ascended) at midday." &mdash; *Adam Clarke* 
 
-**Verse 6.** When the Gauls had tasted the wine of Italy, they asked where the grapes grew, and would never be quiet till they came there. Thus may you cry, *Oh that I had wings like a dove! for then would I fly away, and be at rest.* A believer is willing to lose the world for the enjoyment of grace; and he is willing to leave the world for the fruition of glory. *William Secker.* 
+**Verse 17 &mdash;** *Evening and morning,* etc. The three principle parts of the day are mentioned, not as marking special times set apart for prayer, but as a poetical expression for "the whole day, ""at all times, ""without ceasing." &mdash; *J. J. Stewart Perowne* 
 
-**Verse 6.** *Wings like a dove.* The pigeon, or dove, is one of the swiftest of birds. *The Religious Tract Society's "Book of Psalms, with Preface and Explanatory Notes."* 
+**Verse 17 &mdash;** If our poor, frail bodies need refreshment from food three times a day, who, that knows his own weakness, will say that we need not as frequent refreshment for our poor frail spirits? &mdash; *William S. Plumer, 1867*
 
-**Verse 6.** An old writer tells us that it would have been more honourable for him to have asked for the strength of an ox to bear his trials, than for the wings of a dove to flee from them. *William Jay, * 1769-1853.
+**Verse 17 &mdash;** I can no more believe him to be frequent and spiritual in ejaculatory prayer, who neglects the season of solemn prayer, than I can believe that he keeps every day in the week a Sabbath, who neglects to keep that one which God hath appointed. &mdash; *William Gurnall, 1617-1679*
 
-**Verse 6.** *Dove.* The reference is to the turtle dove, I suppose. Their low, sad complaint may be heard all day long at certain seasons in the olive groves, and in the solitary and shady valleys among these mountains; I have, however, been more affected by it in the vast orchards round Damascus than anywhere else—so subdued, so very sorrowful among the trees, where the air sighs softly, and little rills roll their melting murmurs down the flowery aisles. These birds can never be tamed. Confined in a cage they droop, and like Cowper, sigh for
+**Verse 17 &mdash;** There is no limited time in the court of heaven for hearing petitions. It is not like the court of earthly princes, for there is a free access any day of the week, any hour of the day, or the night, any minute of the hour. As the lawyer saith of the king, for having his due, *Nullum tempus occurrit regi:* so may I say of the godly, for making his prayers and granting his requests, *Nullum tempus occurrit fidelibus,* no time unseasonable, so the heart be seasoned with faith; no *non term* in God's court of requests. He keeps continually open house for all comers and goers; and indeed, most for comers, then goers. His eyes are always open to behold our tears; his ears are always open to hear our groans; his heart also and his bowels are always open, and never shut up so fast, but they will yearn and turn within him, if our misery be never so little. For as we have not an High Priest to pray by "that cannot be touched with the feeling of our infirmities; "so neither have we a God to pray to, that shall see us in distress, and hear us call and cry, and never be moved. &mdash; *Zachary Bogan (1625-1659), in "Meditations of the Mirth of a Christian Life"* 
 
-"A lodge in some vast wilderness—some boundless contiguity of shade."
+**Verse 17 &mdash;** *And cry aloud.* The word here employed properly means to murmur; to make a humming sound; to sigh; to growl; to groan. Here the language means that he would give utterance to his deep feelings in appropriate tones—whether words, sighs, or groans. &mdash; *Albert Barnes* 
 
-and no sooner are they set at liberty than they flee, as a bird, to their mountain. Ps 11:1. David refers to their habits in this respect when his heart was sore pained within him: *Oh that I had wings like a dove! for then would I fly away, and be at rest. Lo, then would I wander far off, and remain in the wilderness.* And there you will meet these timid birds far away from the haunts of cruel hunters, of whose society they are peculiarly suspicious. *W. M. Thomson, in "The Land and the Book, "* 1859.
+**Verse 17 &mdash;** *And he shall hear.* And what will this loud cry obtain? A hearing without doubt, so he assures himself, *He shall hear me.* Not that God hears any prayers whether he will or no (as men sometimes do that upon importunity which they have no mind to), but he hath no will, no mind not to hear such prayers, the prayers of those who cry aloud to him. &mdash; *Joseph Caryl, 1602-1673*
 
-**Verse 6.** *Oh that I had wings, etc.—* 
+**Verse 18 &mdash;** *He hath delivered my soul in peace from the battle.* In the midst of war the Lord can keep a man as safe as in the time of peace, and in extreme perils preserve him from danger. He that depends upon God in the time of trouble, albeit he had an host against him, yet hath he more with him when God is with him, than can be against him. &mdash; *David Dickson* 
 
-At first her mother earth she holdeth dear,
+**Verse 18 &mdash;** *For.* The *for* implies the reason why God interposed to deliver him; namely, because of the general principle that God ministers relief when his people come to an extremity. &mdash; *A. R. Fausset* 
 
-And doth embrace the world and worldly things;
+**Verse 18 &mdash;** *There were many with me.* This is doubtful whether it be meant of *foes* or *friends.* If of *foes,* it may be resolved thus: *for with many* (with a great multitude) *they were fighters with me.* If of *friends,* it may be understood of God's *angels,* that *in a great number were with him,* pitching camp for his aid (Ps 34:7); as Elisha said, "Many more are with us than with them." 2Ki 6:16-17. The Chaldee explains it, "For in many afflictions his word was for my help." &mdash; *Henry Ainsworth* 
 
-She flies close by the ground, and hovers there,
+**Verse 19 &mdash;** *Even he that abideth of old.* The deeds by which God had already showed himself from of old as the righteous King and Judge, the judgments, for example, upon the wicked in the land of Shinar (Ps 55:9), the company of Korah (Ps 55:9, 18), the cities of the plain (Ps 55:15), pledge his still ready interposition. He who had already so long held the throne, must now also show himself as King and Judge; he cannot now, at so late a period, be another. &mdash; *E. W. Hengstenberg, 1845*
 
-And mounts not up with her celestial wings.
+**Verse 19 &mdash;** *Because they have no changes, therefore they fear not God.* That is, there is no new thing among them, no extraordinary providential turns, no judiciary changes, their prosperity keeps a settled course, and because they find all things going on in the old course of providence, therefore they go on in their old course of sinfulness, *they fear not God;* intimating, that as such *changes* always should, so usually they do, awaken fear; and that, if the Lord would but change, and toss, and tumble them about, by various troublesome dispensations, surely they would fear him. &mdash; *Joseph Caryl* 
 
-Yet under heaven she cannot light on ought
+**Verse 19 &mdash;** *Because they have no changes,* etc. Or, *with whom also there be no changes, yet they fear not God.* If *changes* be referred to their temporal estates and welfare, as Job 10:17 (it is the same word there as here, twkylx), "changes and war are against me:" then, according to the first translation, *because* etc., a reason is given of their perseverance in wickedness, and contempt of God; to wit, their constant and uninterrupted worldly prosperity. Or, according to the second, *With whom there are no changes, yet,* etc.; it is a great aggravation of their impenitency, that notwithstanding so much goodness vouchsafed unto them, they should continue so unthankful as to requite so ill, or so stupid and insensible as not to acknowledge the author. But if changes be referred, as by many, to the soul, then the meaning is—that through long use and continuance of sinning, they are, through God's just judgment, become altogether obdurate and inflexible; and therefore, no wonder if nothing work upon them to their conversion. "Can the Ethiopian change his skin?" etc. Jer 13:23. But this *changes* might also have another meaning. The Grecians used to say, *streptai esylwn,* that the minds or hearts of good men are changeable; their meaning is, that good men are merciful. *Quos quisque est major, magis est placabilis ira: et faciles motus mens generosa capit,* as the Latin proverb expresses it. He may therefore say, that they show by their cruel unmercifulness, that they have no fear or sense of God at all; else they would fear him, of whose mercy themselves stood in so much need, and consider that they whom they so fiercely persecute are his creatures as well as they. &mdash; *Westminster Assembly's Annotations* 
 
-That with heavenly nature doth agree;
+**Verse 19 &mdash;** *They have no changes,* etc. Who are they who have no changes? Apparently those whom God is said to humble or chastise. And what is the meaning of the word, *changes* as here used? Many understand it of a moral change; "who are without change of heart or reformation." But the word never occurs in this sense. It means, properly, *"a change"* in the sense of *succession;* as of garments, of troops relieving guard, servants leaving work, and the like. Hence it would rather mean in a moral sense: "They who have no cessation in their course (by being relieved guard, for instance), who always continue, and persevere in their evil life." Calvin and others understand it of *change of fortune, i.e.,* "who are always prosperous; "but this again is not supported by usage. &mdash; *J. J. Stewart Perowne* 
 
-She cannot rest, she cannot fix her thought,
+**Verse 19 &mdash;** *They fear not God.* The fear required here, is to fear him as God, and as God presented in this name, *Elohim;* which though it be a name primarily rooted in power and strength (for *El* is Deus fortis, The powerful God; and as there is no love without fear, so there is no fear without power), yet properly it signifies his judgment, and order, and providence, and dispensations and government of his creatures. It is that name which goes through all God's whole work of the creation, and disposition of all creatures in the first of Genesis: in all that he is called by no other name than this, the name God; not by Jehovah, to present an infinite majesty; nor by Adonai, to present an absolute power; nor by Tzebaoth, to present a force, or conquest; but only the name of God, his name of government. All ends in this; to fear God is to adhere to him, in his way, as he hath dispensed and notified himself to us; that is, as God is manifested in Christ, in the Scriptures, and applied to us out of those Scriptures, by the church: not to rest in nature without God, nor in God without Christ. &mdash; *John Donne, 1573-1631*
 
-She cannot in this world contented be:
+**Verse 21 &mdash;** *The words of his mouth were smoother than butter,* etc. Of this complexion are the cant of hypocrites, the charity of bigots and fanatics, the benevolence of atheists, the professions of the world, the allurements of the flesh, and the temptations of Satan, when he thinks proper to appear in the character of an angel of light. &mdash; *George Horne, 1730-1792*
 
-Then as a bee which among weeds doth fall,
+**Verse 21 &mdash;** *Butter.* The Eastern butter is by no means like the solid substance, which is known by that name in these colder climates; but is liquid and flowing as appears from different passages in Scripture, particularly Job 29:6 20:17; and as is confirmed by the accounts of modern travellers; so that in fact it more resembles "cream, "which Vitringa says is the genuine sense of the word here used. &mdash; *Richard Mant, 1776-1849*
 
-Which seem sweet flowers, with lustre fresh and gay;
+**Verse 21 &mdash;** To avoid all difficulties, the readiest expedient is to receive the Septuagint rendering of wqlx *diemerisyhsan, they were,* or *are divided,* viz., the *members* of the wicked man there spoken of, they are at great distance one from the other; wyk tamxm, *butter their mouth*, or *their mouth is butter*, wklkrqw and *war their heart*, or *their heart is war;* and this seems to be the fairest rendering of it. &mdash; *Henry Hammond, 1605-1660*
 
-She lights on that, and this, and tasteth all,
+**Verse 21 &mdash;** A feigned friend is much like a crocodile who, when he smiles, poisons; and when he weepeth, devoureth; or the hyaena, having the voice of a man and the mind of a wolf, speaking like a friend and devouring like a fiend; or the flattering sirens that sweetly sing the sailor's wreck; or the fowler's pipe that pleasantly playeth the bird's death; or the bee, who carrieth honey in her mouth and a sting in her tail; or the box tree, whose leaves are always green, but the seeds poison. So his countenance is friendly and his words pleasant, but his intent dangerous, and his deeds unwholesome. His fetch is to flatter, to catch what he can; His purpose obtained, a fig for his man. &mdash; *L. Wright, 1616*
 
-But pleased with none, doth rise and soar away;
+**Verse 21 &mdash;** *The words of his mouth were smoother than butter, but war was in his heart: his words were softer than oil, yet were they drawn swords.* Well, when I came to the justice again, there was Mr. Foster, of Bedford, who coming out of another room, and seeing me by the light of the candle, for it was dark night when I came thither, he said unto me, "Who is there? John Bunyan?" with much seeming affection, as if he would have leaped in my neck and kissed me, (A right Judas.), which made me somewhat wonder that such a man as he, with whom I had so little acquaintance, and, besides, that had ever been a close opposer of the ways of God, should carry himself so full of love to me, but afterwards when I saw what he did, it caused me to remember those sayings, *Their tongues were softer than oil, yet were they drawn swords,* and again, "Beware of men, "etc. When I had answered him that, blessed be God, I was well, he said, "What is the occasion of your being here?" or to that purpose. To whom I answered that I was at a meeting of people a little way off, intending to speak a word of exhortation to them; but the justice hearing thereof (said I) was pleased to send his warrant to fetch me before him, etc.—John Bunyan. In relation to J. B.'s imprisonment: written by *himself.* &mdash; *Offor's edit., Volume 1. page 52.* 
 
-So when the Soul finds here no true content;
+**Verse 21 &mdash;** (*first clause*).— Smooth are his words, his voice as honey sweet, Yet war was in his heart, and dark deceit. &mdash; *Moschus (B. C. 250.)* 
 
-And like Noah's dove, can no sure footing take,
+**Verse 22 &mdash;** *Cast thy burden upon the Lord,* etc. The remedy which the Psalm suggests, and, perhaps, the only resource in a difficulty of the kind, where the enemies of true religion are fighting under the semblance of friendship, is announced in an oracular voice from God: "Cast thy care upon Jehovah, for he will sustain thee; he will not suffer the just one to be tossed about for ever." &mdash; *R. H. Ryland* 
 
-She doth return from whence she first was sent,
+**Verse 22 &mdash;** *Cast thy burden upon the Lord,* etc. The best way to ease thyself is to lay thy load upon God; he will take it up and also carry thee. There is many a man would be willing to go of himself if another would but carry his burden for him; but if you throw your burden upon God he will not only carry that, but will also carry you. He cares not how much weight a Christian layeth on his back; a true Israelite may ease himself, and best please his God at once. God delights not to see tears in thine eyes, or paleness in thy countenance; thy groans and sighs make no music in his ears. He had rather that thou wouldst free thyself of thy burden by casting it upon him, that he might rejoice in thy joy and comfort. Now, true confidence in God, and resting upon God, will both free thee of thy burden and also bring in the strength of God to sustain and bear thee up from falling. Wouldst thou, therefore, own God as thy strength, and fetch strength from God to thy soul? rest upon God, roll thyself upon him, and that 1\. In time of greatest weakness. 2\. In time of greatest service. 3\. In times of greatest trials. &mdash; *Samuel Blackerby, 1674*
 
-And flies to him that first her wings did make.
+**Verse 22 &mdash;** *Cast thy burden* upon him in the same way that the ship in a storm casts her burden on the anchor, which anchor holds on to its sure fixing place. And to my mind, that is the more beautiful sense of the two—a sense which once entered into, may be followed out in these glorious verses: And I see the good ship riding, all in a perilous road; The low reef booming on her lee; the swell of ocean poured Sea after sea, from stem to stern; the mainmast by the board; The bulwarks down; the rudder gone; the boats stove by the chains. But courage still, brave mariners, the anchor yet remains: And he will flinch—no, never an inch—until ye pitch sky high; Then he moves his head, as if he said, "Fear nought; for here am I!" &mdash; *J. M. Neale's Commentary* 
 
- *—Sir John Davies, * 1569-1626.
+**Verse 23 &mdash;** *Shalt bring them down.* Indicating a violent death, like that of the slain ox, which is said to *descend,* when it falls under the stroke. The *pit* of *putrefaction* is meant, in which the corpse decays, nor does it here merely denote the sepulchre, but the ignominious condition of a corpse cast forth, as when it is thrown into a pit. &mdash; *Hermann Venema* 
 
-**Verse 7.** *Lo, then would I wander far off, * etc. A passage in the "Octavia" of Seneca has been referred to as being parallel to this of David. It is in the answer of Octavia to the Chorus, act 5., ver. 914-923.
+**Verse 23 &mdash;** *Bloody and deceitful men shall not live out half their days.* A wicked man never lives out half his days; for either he is cut off before he hath lived half the course of nature, or he is cut off before he hath lived a quarter of the course of his desires; either he lives not half so long as he would; and therefore let him die when he will, his death is full of terror, trouble, and confusion, because he dies out of season. He never kept time or season with God, and surely God will not keep or regard his time or season. &mdash; *Joseph Caryl* 
 
-My woes who enough can bewail?
+**Verse 23 &mdash;** *Half their days.* In the Jewish account threescore years was the age of a man, and death at any time before that was looked upon as untimely, and deemed and styled trd excision, of which they made thirty-six degrees; so that *not to live out half one's days*, is in their style *to die before thirty years old.* &mdash; *Henry Hammond* 
 
-O what notes can my sorrows express?
-
-Sweet Philomel's self even would fail
-
-To respond with her plaintive distress.
-
-O had I her wings, I would fly
-
-To where sorrows I never should feel more,
-
-Upborne on her plumes through the sky,
-
-Regions far from mankind would explore.
-
-In a grove where sad silence should reign,
-
-On a spray would I seat me alone;
-
-In shrill lamentations complain.
-
-And in wailings would pour forth my moan.
-
- *—J. B. Clarke (From Adam Clarke, in loc.)* 
-
-**Verse 8.** *I would hasten my escape from the windy storm and tempest.* There was a windy storm and tempest without, and which is worse, a tumult and combustion within in his thoughts. A man may escape from external confusions, but how shall he fly from himself? If he be out of the reach of all the blood suckers on earth, and all the furies in hell, yet be dogged and haunted with his own turbulent, ungovernable cogitations, he needs no other tormentors. This holy man was thus doubly distressed, a storm abroad and an earthquake at home rendered his condition most dolorous; but for both he hath *en mega* he goes not about with the foxes of this world to relieve himself with subtle stratagems and wiles, by carnal shifts and policies, a vanity tosses to and from by them that seek death. No, his one great refuge is to get aloft, to ascend to God. *Thomas Sharp.* 
-
-**Verse 9.** *Destroy, O Lord, and divide their tongues.* In the first place, their tongues were truly destroyed and they themselves divided, when the testimony of the two false witnesses agreed not so together. Then secondly, by the contradictory account of the soldiers that kept watch at the sepulchre. *Michael Ayguan (1416) in J. M. Neal's Commentary, * 1860.
-
-**Verse 9.** *Divide their tongues: i.e., * cause them to give conflicting opinions. *French and Skinner, * 1842
-
-**Verse 10.** *Mischief also and sorrow are in the midst of it.* The city, as Abenezra observes, was like a circle; violence and strife were as a line round about it, and mischief and sorrow the centre of it; and these two commonly go together: where mischief is, sorrow soon follows. *John Gill.* 
-
-**Verse 12.** *Then I could have borne it.* It is remarkable that the Lord, who endured the other unspeakable sorrows and agonies of his passion in perfect and marvellous silence, allowed his grief at this one alone to escape him, bewailing himself to his disciples that one of them should betray him, and addressing that one, when he was taken, in these words of reproach—"Judas, betrayest thou the Son of Man with a kiss?" *Frau Thome de Jesu, * 1582.
-
-**Verse 12.** *Then I would have hid myself from him.* It is generally easy to get out of the way of an avowed enemy, but how can one be on his guard against a treacherous friend? *A. R. Fausset, in "A Commentary, Critical, Experimental, and Practical, "* 1866.
-
-**Verse 13.** *A man mine equal.* The LXX here not badly, *isoquce* (of equal soul), Jerome, *unanimus mens* (of one mind). *Hermann Venema.* 
-
-**Verse 14.** *We took sweet counsel.* From qtx *to be sweet, * and the ordinary notion of dwo for *secret, * the phrase dwo qytmg will literally be read, *we made our secret sweet.* And so it may be an elegance, to signify the pleasure of his friendship, or of communicating secrets to him. *Henry Hammond.* 
-
-**Verse 14.** The first clause speaks of private intimacy, the next of association in public acts, and especially in the great festivals and processions of the temple. *J. J. Stewart Perowne, * 1864.
-
-**Verse 14.** *In company.* In the end of the verse vgrk may be rendered *with a noise:* and so the Chaldee seems to have taken it, which reads *with haste;* and to that agree the Jewish doctors, who tell us men are to go in *haste* and with *speed* to the *synagogue, * but return thence very *leisurely. Henry Hammond.* 
-
-**Verse 15.** *Let death seize upon them, and let them go down quick into hell.* The last part and end of sinners' lives is worst with them. They have in their lives been busily trading in the world, buying and selling, and getting gain and ruffling it in the world, but meanwhile by their sins they run deep in debt with God, and for want of interest in Christ to be their surety at death (it may be on the sudden) it comes to that of the psalmist, *Let death seize upon them, and let them go down quick into hell.* Death seizes on them unawares, as a sergeant or pursevant, casts them into prison, which is expressed by their going down quick into hell (as it is said Nu 16:32-33), that Korah and his company did. *Anthony Tuckney, * 1599-1670.
-
-**Verse 15.** *Let death seize upon them* by divine warrant, and let them go quick into hell; let them be dead and buried, and damned in a moment; for wickedness is wherever they are, it is in the midst of them. The souls of impenitent sinners go down quick, or alive, into hell; for they have a perfect sense of their miseries, and shall therefore live still, that they may be still miserable. This prayer is a prophecy of the utter, the final, the everlasting ruin of all those who, whether secretly or openly, oppose and rebel against the Lord's Messiah. *Matthew Henry.* 
-
-**Verse 15.** *Quick, * that is *alive, * like Korah, Dathan and Abiram. *From "The Psalms chronologically arranged, By Four Friends, "* 1867.
-
-**Verse 15.** Throughout this series of Psalms, there appears to be a peculiar penalty attached to each class of transgressions, or, each variety of opposition against God meets a suitable end. The ungodly, that is, the irreligious and indifferent, lay up for themselves an evil recompense when the wrath of God shall be revealed (Ps 54:5): but an instant punishment falls upon false and treacherous professors; as Paul denounced "anathema" against any who perverted the gospel of Christ in the churches of Galatia; so in this Psalm, *Let death seize upon them, and let them go down quick into hell, * announces the awful judgment of Jehovah, as once it was shown upon Dathan and Abiram; a punishment that will by its suddenness and notoriety at the same time expose the guilt, and make manifest the displeasure of the Almighty against it. *R. H. Ryland, in "The Psalms restored to Messiah, "* 1853.
-
-**Verse 17.** *Evening, and morning, and at noon, will I pray.* This was the custom of the pious Hebrews. See Da 6:10. The Hebrews began their day in the *evening, * and hence David mentions the *evening first.* The rabbins say, men should pray three times each day because the day changes three times. This was observed in the primitive church; but the times in different places were various. The old Psalter gives this a curious turn: "At *even* I sall tell his louing (*praise*) what the Christ was on the Crosse; and at *morn* I sall schew his louing, what tim he ros fra dede. And sua he sall here my voice at *midday, * that is sitand at the right hand of his fader, wheder he stegh (ascended) at midday." *Adam Clarke.* 
-
-**Verse 17.** *Evening and morning, * etc. The three principle parts of the day are mentioned, not as marking special times set apart for prayer, but as a poetical expression for "the whole day, ""at all times, ""without ceasing." *J. J. Stewart Perowne.* 
-
-**Verse 17.** If our poor, frail bodies need refreshment from food three times a day, who, that knows his own weakness, will say that we need not as frequent refreshment for our poor frail spirits? *William S. Plumer, * 1867.
-
-**Verse 17.** I can no more believe him to be frequent and spiritual in ejaculatory prayer, who neglects the season of solemn prayer, than I can believe that he keeps every day in the week a Sabbath, who neglects to keep that one which God hath appointed. *William Gurnall, * 1617-1679.
-
-**Verse 17.** There is no limited time in the court of heaven for hearing petitions. It is not like the court of earthly princes, for there is a free access any day of the week, any hour of the day, or the night, any minute of the hour. As the lawyer saith of the king, for having his due, *Nullum tempus occurrit regi:* so may I say of the godly, for making his prayers and granting his requests, *Nullum tempus occurrit fidelibus, * no time unseasonable, so the heart be seasoned with faith; no *non term* in God's court of requests. He keeps continually open house for all comers and goers; and indeed, most for comers, then goers. His eyes are always open to behold our tears; his ears are always open to hear our groans; his heart also and his bowels are always open, and never shut up so fast, but they will yearn and turn within him, if our misery be never so little. For as we have not an High Priest to pray by "that cannot be touched with the feeling of our infirmities; "so neither have we a God to pray to, that shall see us in distress, and hear us call and cry, and never be moved. *Zachary Bogan (1625-1659), in "Meditations of the Mirth of a Christian Life."* 
-
-**Verse 17.** *And cry aloud.* The word here employed properly means to murmur; to make a humming sound; to sigh; to growl; to groan. Here the language means that he would give utterance to his deep feelings in appropriate tones—whether words, sighs, or groans. *Albert Barnes.* 
-
-**Verse 17.** *And he shall hear.* And what will this loud cry obtain? A hearing without doubt, so he assures himself, *He shall hear me.* Not that God hears any prayers whether he will or no (as men sometimes do that upon importunity which they have no mind to), but he hath no will, no mind not to hear such prayers, the prayers of those who cry aloud to him. *Joseph Caryl, * 1602-1673.
-
-**Verse 18.** *He hath delivered my soul in peace from the battle.* In the midst of war the Lord can keep a man as safe as in the time of peace, and in extreme perils preserve him from danger. He that depends upon God in the time of trouble, albeit he had an host against him, yet hath he more with him when God is with him, than can be against him. *David Dickson.* 
-
-**Verse 18.** *For.* The *for* implies the reason why God interposed to deliver him; namely, because of the general principle that God ministers relief when his people come to an extremity. *A. R. Fausset.* 
-
-**Verse 18.** *There were many with me.* This is doubtful whether it be meant of *foes* or *friends.* If of *foes, * it may be resolved thus: *for with many* (with a great multitude) *they were fighters with me.* If of *friends, * it may be understood of God's *angels, * that *in a great number were with him, * pitching camp for his aid (Ps 34:7); as Elisha said, "Many more are with us than with them." 2Ki 6:16-17. The Chaldee explains it, "For in many afflictions his word was for my help." *Henry Ainsworth.* 
-
-**Verse 19.** *Even he that abideth of old.* The deeds by which God had already showed himself from of old as the righteous King and Judge, the judgments, for example, upon the wicked in the land of Shinar (Ps 55:9), the company of Korah (Ps 55:9, 18), the cities of the plain (Ps 55:15), pledge his still ready interposition. He who had already so long held the throne, must now also show himself as King and Judge; he cannot now, at so late a period, be another. *E. W. Hengstenberg, * 1845.
-
-**Verse 19.** *Because they have no changes, therefore they fear not God.* That is, there is no new thing among them, no extraordinary providential turns, no judiciary changes, their prosperity keeps a settled course, and because they find all things going on in the old course of providence, therefore they go on in their old course of sinfulness, *they fear not God;* intimating, that as such *changes* always should, so usually they do, awaken fear; and that, if the Lord would but change, and toss, and tumble them about, by various troublesome dispensations, surely they would fear him. *Joseph Caryl.* 
-
-**Verse 19.** *Because they have no changes, * etc. Or, *with whom also there be no changes, yet they fear not God.* If *changes* be referred to their temporal estates and welfare, as Job 10:17 (it is the same word there as here, twkylx), "changes and war are against me:" then, according to the first translation, *because* etc., a reason is given of their perseverance in wickedness, and contempt of God; to wit, their constant and uninterrupted worldly prosperity. Or, according to the second, *With whom there are no changes, yet, * etc.; it is a great aggravation of their impenitency, that notwithstanding so much goodness vouchsafed unto them, they should continue so unthankful as to requite so ill, or so stupid and insensible as not to acknowledge the author. But if changes be referred, as by many, to the soul, then the meaning is—that through long use and continuance of sinning, they are, through God's just judgment, become altogether obdurate and inflexible; and therefore, no wonder if nothing work upon them to their conversion. "Can the Ethiopian change his skin?" etc. Jer 13:23. But this *changes* might also have another meaning. The Grecians used to say, *streptai esylwn, * that the minds or hearts of good men are changeable; their meaning is, that good men are merciful. *Quos quisque est major, magis est placabilis ira: et faciles motus mens generosa capit, * as the Latin proverb expresses it. He may therefore say, that they show by their cruel unmercifulness, that they have no fear or sense of God at all; else they would fear him, of whose mercy themselves stood in so much need, and consider that they whom they so fiercely persecute are his creatures as well as they. *Westminster Assembly's Annotations.* 
-
-**Verse 19.** *They have no changes, * etc. Who are they who have no changes? Apparently those whom God is said to humble or chastise. And what is the meaning of the word, *changes* as here used? Many understand it of a moral change; "who are without change of heart or reformation." But the word never occurs in this sense. It means, properly, *"a change"* in the sense of *succession;* as of garments, of troops relieving guard, servants leaving work, and the like. Hence it would rather mean in a moral sense: "They who have no cessation in their course (by being relieved guard, for instance), who always continue, and persevere in their evil life." Calvin and others understand it of *change of fortune, i.e., * "who are always prosperous; "but this again is not supported by usage. *J. J. Stewart Perowne.* 
-
-**Verse 19.** *They fear not God.* The fear required here, is to fear him as God, and as God presented in this name, *Elohim;* which though it be a name primarily rooted in power and strength (for *El* is Deus fortis, The powerful God; and as there is no love without fear, so there is no fear without power), yet properly it signifies his judgment, and order, and providence, and dispensations and government of his creatures. It is that name which goes through all God's whole work of the creation, and disposition of all creatures in the first of Genesis: in all that he is called by no other name than this, the name God; not by Jehovah, to present an infinite majesty; nor by Adonai, to present an absolute power; nor by Tzebaoth, to present a force, or conquest; but only the name of God, his name of government. All ends in this; to fear God is to adhere to him, in his way, as he hath dispensed and notified himself to us; that is, as God is manifested in Christ, in the Scriptures, and applied to us out of those Scriptures, by the church: not to rest in nature without God, nor in God without Christ. *John Donne, * 1573-1631.
-
-**Verse 21.** *The words of his mouth were smoother than butter, * etc. Of this complexion are the cant of hypocrites, the charity of bigots and fanatics, the benevolence of atheists, the professions of the world, the allurements of the flesh, and the temptations of Satan, when he thinks proper to appear in the character of an angel of light. *George Horne, * 1730-1792.
-
-**Verse 21.** *Butter.* The Eastern butter is by no means like the solid substance, which is known by that name in these colder climates; but is liquid and flowing as appears from different passages in Scripture, particularly Job 29:6 20:17; and as is confirmed by the accounts of modern travellers; so that in fact it more resembles "cream, "which Vitringa says is the genuine sense of the word here used. *Richard Mant, * 1776-1849.
-
-**Verse 21.** To avoid all difficulties, the readiest expedient is to receive the Septuagint rendering of wqlx *diemerisyhsan, they were, * or *are divided, * viz., the *members* of the wicked man there spoken of, they are at great distance one from the other; wyk tamxm, *butter their mouth*, or *their mouth is butter*, wklkrqw and *war their heart*, or *their heart is war;* and this seems to be the fairest rendering of it. *Henry Hammond, * 1605-1660.
-
-**Verse 21.** A feigned friend is much like a crocodile who, when he smiles, poisons; and when he weepeth, devoureth; or the hyaena, having the voice of a man and the mind of a wolf, speaking like a friend and devouring like a fiend; or the flattering sirens that sweetly sing the sailor's wreck; or the fowler's pipe that pleasantly playeth the bird's death; or the bee, who carrieth honey in her mouth and a sting in her tail; or the box tree, whose leaves are always green, but the seeds poison. So his countenance is friendly and his words pleasant, but his intent dangerous, and his deeds unwholesome.
-
-His fetch is to flatter, to catch what he can;
-
-His purpose obtained, a fig for his man.
-
- *—L. Wright, * 1616.
-
-**Verse 21.** *The words of his mouth were smoother than butter, but war was in his heart: his words were softer than oil, yet were they drawn swords.* Well, when I came to the justice again, there was Mr. Foster, of Bedford, who coming out of another room, and seeing me by the light of the candle, for it was dark night when I came thither, he said unto me, "Who is there? John Bunyan?" with much seeming affection, as if he would have leaped in my neck and kissed me, (A right Judas.), which made me somewhat wonder that such a man as he, with whom I had so little acquaintance, and, besides, that had ever been a close opposer of the ways of God, should carry himself so full of love to me, but afterwards when I saw what he did, it caused me to remember those sayings, *Their tongues were softer than oil, yet were they drawn swords, * and again, "Beware of men, "etc. When I had answered him that, blessed be God, I was well, he said, "What is the occasion of your being here?" or to that purpose. To whom I answered that I was at a meeting of people a little way off, intending to speak a word of exhortation to them; but the justice hearing thereof (said I) was pleased to send his warrant to fetch me before him, etc.—John Bunyan. In relation to J. B.'s imprisonment: written by *himself. Offor's edit., Volume 1. page 52.* 
-
-**Verse 21.** (*first clause* ).—
-
-Smooth are his words, his voice as honey sweet,
-
-Yet war was in his heart, and dark deceit. *Moschus (B. C. 250.)* 
-
-**Verse 22.** *Cast thy burden upon the Lord, * etc. The remedy which the Psalm suggests, and, perhaps, the only resource in a difficulty of the kind, where the enemies of true religion are fighting under the semblance of friendship, is announced in an oracular voice from God: "Cast thy care upon Jehovah, for he will sustain thee; he will not suffer the just one to be tossed about for ever." *R. H. Ryland.* 
-
-**Verse 22.** *Cast thy burden upon the Lord, * etc. The best way to ease thyself is to lay thy load upon God; he will take it up and also carry thee. There is many a man would be willing to go of himself if another would but carry his burden for him; but if you throw your burden upon God he will not only carry that, but will also carry you. He cares not how much weight a Christian layeth on his back; a true Israelite may ease himself, and best please his God at once. God delights not to see tears in thine eyes, or paleness in thy countenance; thy groans and sighs make no music in his ears. He had rather that thou wouldst free thyself of thy burden by casting it upon him, that he might rejoice in thy joy and comfort. Now, true confidence in God, and resting upon God, will both free thee of thy burden and also bring in the strength of God to sustain and bear thee up from falling. Wouldst thou, therefore, own God as thy strength, and fetch strength from God to thy soul? rest upon God, roll thyself upon him, and that
-
-1\. In time of greatest weakness.
-
-2\. In time of greatest service.
-
-3\. In times of greatest trials.
-
- *—Samuel Blackerby, * 1674.
-
-**Verse 22.** *Cast thy burden* upon him in the same way that the ship in a storm casts her burden on the anchor, which anchor holds on to its sure fixing place. And to my mind, that is the more beautiful sense of the two—a sense which once entered into, may be followed out in these glorious verses:
-
-And I see the good ship riding, all in a perilous road; The low reef booming on her lee; the swell of ocean poured Sea after sea, from stem to stern; the mainmast by the board; The bulwarks down; the rudder gone; the boats stove by the chains. But courage still, brave mariners, the anchor yet remains: And he will flinch—no, never an inch—until ye pitch sky high; Then he moves his head, as if he said, "Fear nought; for here am I!" *—J. M. Neale's Commentary.* 
-
-**Verse 23.** *Shalt bring them down.* Indicating a violent death, like that of the slain ox, which is said to *descend, * when it falls under the stroke. The *pit* of *putrefaction* is meant, in which the corpse decays, nor does it here merely denote the sepulchre, but the ignominious condition of a corpse cast forth, as when it is thrown into a pit. *Hermann Venema.* 
-
-**Verse 23.** *Bloody and deceitful men shall not live out half their days.* A wicked man never lives out half his days; for either he is cut off before he hath lived half the course of nature, or he is cut off before he hath lived a quarter of the course of his desires; either he lives not half so long as he would; and therefore let him die when he will, his death is full of terror, trouble, and confusion, because he dies out of season. He never kept time or season with God, and surely God will not keep or regard his time or season. *Joseph Caryl.* 
-
-**Verse 23.** *Half their days.* In the Jewish account threescore years was the age of a man, and death at any time before that was looked upon as untimely, and deemed and styled trd excision, of which they made thirty-six degrees; so that *not to live out half one's days*, is in their style *to die before thirty years old. Henry Hammond.* 
-
-**Verse 23.** (*second clause* ). The more sins we do commit, the more we hasten our own death; because as the wise man saith, "The fear of the Lord prolongeth days, but the years of the wicked shall be shortened" (Pr 10:27); and the prophet David saith, *Bloody and deceitful men shall not live out half their days;* for sin is an epitomiser or shortener of everything: it consumes our wealth, it confines our liberty, it impeaches our health, and it abbreviates our life, and brings us speedily unto our grave. *Griffith Williams, * 1636.
+**Verse 23 &mdash;** (*second clause*). The more sins we do commit, the more we hasten our own death; because as the wise man saith, "The fear of the Lord prolongeth days, but the years of the wicked shall be shortened" (Pr 10:27); and the prophet David saith, *Bloody and deceitful men shall not live out half their days;* for sin is an epitomiser or shortener of everything: it consumes our wealth, it confines our liberty, it impeaches our health, and it abbreviates our life, and brings us speedily unto our grave. &mdash; *Griffith Williams, 1636*
 
 ## Hints to the Village Preacher
 
-**Verse 1.** (*second clause* ).
+**Verse 1 &mdash;** (*second clause*). 1\. An evil to be dreaded: *Hide not thyself,* etc. (a) By long delay in an urgent case. (b) In the sinner's case by refusing to hear altogether. 2\. Causes which may produce it. (a) In the man. (b) In the prayer itself. (c) In the manner of the prayer. 3\. Evils which will follow a list which the preacher can readily think of. 4\. Remedies for the evil. There is none of it should continue; but heart searching, repentance, importunity, pleading the name of Jesus, etc., will lead to its removal.
 
-1\. An evil to be dreaded: *Hide not thyself, * etc.
+**Verse 2 &mdash;** The Great Hearer. 1\. What address shall we present to him? 2\. What sort of attention do we desire? 3\. How shall we secure it? 4\. What is the reflex duty on our part? To attend and hear him.
 
-(a) By long delay in an urgent case.
+**Verse 2 &mdash;** (*second clause*). Allowable complaining. 1\. Not *of* God but *to* God. 2\. Mainly of ourselves. 3\. Of the world as against God and right. 4\. Ever with holy grief, and not selfish vexation.
 
-(b) In the sinner's case by refusing to hear altogether.
+**Verse 4 &mdash;** The terrors of death. &mdash; *See Sermon by Grove in the Notes*
 
-2\. Causes which may produce it.
+**Verse 7 &mdash;** Solitude. 1\. Its fancied benefits. 2\. Its sore temptations. 3\. Its occasional benefits. 4\. Its sweet solaces.
 
-(a) In the man.
+**Verse 8 &mdash;** Too hasty a flight from trial. 1\. Would show rebellion against God. 2\. Would manifest cowardly want of faith. 3\. Would involve loss of useful experience. 4\. Would land us in other and worse trials. 5\. Would prevent our glorifying God. 6\. Would mar our conformity to Christ and fellowship with his people. 7\. Would lessen the value of heaven.
 
-(b) In the prayer itself.
+**Verse 9 &mdash;** (*first clause*). The Babel of heresies. *Essential,* for truth is one. *Inevitable,* for the motives of heretics clash. *Providential,* for so they weaken each other. *Judicial,* for so they torment each other.
 
-(c) In the manner of the prayer.
+**Verse 10 &mdash;** (*first clause*). The activity of evil.
 
-3\. Evils which will follow a list which the preacher can readily think of.
+**Verse 10 &mdash;** (*second clause*). The diabolical twins, or cause and effect.
 
-4\. Remedies for the evil. There is none of it should continue; but heart searching, repentance, importunity, pleading the name of Jesus, etc., will lead to its removal.
+**Verse 14 &mdash;** The social companionships which grow out of religion. 1\. They are on a good foundation. 2\. They yield profit— *counsel.* 3\. They yield pleasure— *sweet.* 4\. They lead to enthusiasm— *walked in company.* 5\. They ought to be sacredly maintained. 6\. But they need to be carefully watched.
 
-**Verse 2.** The Great Hearer.
+**Verse 16 &mdash;** The contrast. 1\. A child of God will not wrong others as they do him. 2\. He will call upon God as they do not. 3\. God will hear him as he does not the wicked. 4\. God will deal with him at last otherwise than with them.
 
-1\. What address shall we present to him?
+**Verse 17 &mdash;** 1\. David will pray fervently; *I will pray and cry aloud.* 2\. He will pray frequently; every day, and three times a day, evening, and morning, and at noon. &mdash; *Matthew Henry* 
 
-2\. What sort of attention do we desire?
+**Verse 18 &mdash;** Our battles, our almost rout, our helper, our deliverances, our praise.
 
-3\. How shall we secure it?
+**Verse 19 &mdash;** The eternal government of God a threat to the ungodly.
 
-4\. What is the reflex duty on our part? To attend and hear him.
+**Verse 19 &mdash;** (*second part*). Prosperity creating atheism. This involves— 1\. Ingratitude—they ought to be the more devout. 2\. Impudence—they think themselves as God. 3\. Forgetfulness—they forget that changes will come. 4\. Ignorance—they know not that unbroken prosperity is often for awhile the portion of the accursed. 5\. Insanity—for there is no reason in their conduct. 6\. Rottenness—preparing them to be cast away for ever.
 
-**Verse 2.** (*second clause* ). Allowable complaining.
+**Verse 21 &mdash;** The hypocrite's mouth. 1\. It has many words. 2\. They are only from his mouth. 3\. They are very smooth. 4\. They conceal rather than reveal his purpose. 5\. They are cutting and killing. 6\. They will kill himself.
 
-1\. Not *of* God but *to* God.
+**Verse 22 &mdash;** (*first clause*). Here we see the believer has— 1\. A *burden* to try him. 2\. A *duty* to engage him, "Cast thy burden, "etc. 3\. A *promise* to encourage him, "He shall sustain" etc. &mdash; *Ebenezer Temple, 1850*
 
-2\. Mainly of ourselves.
+**Verse 22 &mdash;** (*last clause*). Who are the righteous? What is meant by their being moved? Whose permission is needful to accomplish it? Will he give it? "Never." Why not?
 
-3\. Of the world as against God and right.
-
-4\. Ever with holy grief, and not selfish vexation.
-
-**Verse 4.** The terrors of death. See Sermon by *Grove* in the Notes.
-
-**Verse 7.** Solitude.
-
-1\. Its fancied benefits.
-
-2\. Its sore temptations.
-
-3\. Its occasional benefits.
-
-4\. Its sweet solaces.
-
-**Verse 8.** Too hasty a flight from trial.
-
-1\. Would show rebellion against God.
-
-2\. Would manifest cowardly want of faith.
-
-3\. Would involve loss of useful experience.
-
-4\. Would land us in other and worse trials.
-
-5\. Would prevent our glorifying God.
-
-6\. Would mar our conformity to Christ and fellowship with his people.
-
-7\. Would lessen the value of heaven.
-
-**Verse 9.** (*first clause* ). The Babel of heresies. *Essential, * for truth is one. *Inevitable, * for the motives of heretics clash. *Providential, * for so they weaken each other. *Judicial, * for so they torment each other.
-
-**Verse 10.** (*first clause* ). The activity of evil.
-
-**Verse 10.** (*second clause* ). The diabolical twins, or cause and effect.
-
-**Verse 14.** The social companionships which grow out of religion.
-
-1\. They are on a good foundation.
-
-2\. They yield profit— *counsel.* 
-
-3\. They yield pleasure— *sweet.* 
-
-4\. They lead to enthusiasm— *walked in company.* 
-
-5\. They ought to be sacredly maintained.
-
-6\. But they need to be carefully watched.
-
-**Verse 16.** The contrast.
-
-1\. A child of God will not wrong others as they do him.
-
-2\. He will call upon God as they do not.
-
-3\. God will hear him as he does not the wicked.
-
-4\. God will deal with him at last otherwise than with them.
-
-**Verse 17.** 
-
-1\. David will pray fervently; *I will pray and cry aloud.* 
-
-2\. He will pray frequently; every day, and three times a day, evening, and morning, and at noon. *Matthew Henry.* 
-
-**Verse 18.** Our battles, our almost rout, our helper, our deliverances, our praise.
-
-**Verse 19.** The eternal government of God a threat to the ungodly.
-
-**Verse 19.** (*second part* ). Prosperity creating atheism. This involves—
-
-1\. Ingratitude—they ought to be the more devout.
-
-2\. Impudence—they think themselves as God.
-
-3\. Forgetfulness—they forget that changes will come.
-
-4\. Ignorance—they know not that unbroken prosperity is often for awhile the portion of the accursed.
-
-5\. Insanity—for there is no reason in their conduct.
-
-6\. Rottenness—preparing them to be cast away for ever.
-
-**Verse 21.** The hypocrite's mouth.
-
-1\. It has many words.
-
-2\. They are only from his mouth.
-
-3\. They are very smooth.
-
-4\. They conceal rather than reveal his purpose.
-
-5\. They are cutting and killing.
-
-6\. They will kill himself.
-
-**Verse 22.** (*first clause* ). Here we see the believer has—
-
-1\. A *burden* to try him.
-
-2\. A *duty* to engage him, "Cast thy burden, "etc.
-
-3\. A *promise* to encourage him, "He shall sustain, "etc. *Ebenezer Temple, * 1850.
-
-**Verse 22.** (*last clause* ). Who are the righteous? What is meant by their being moved? Whose permission is needful to accomplish it? Will he give it? "Never." Why not?
-
-**Verse 23.** (*last clause* ). The grand "I will." Sum up the Psalm.—
-
-1\. When I pray, Ps 55:1-3.
-
-2\. When I faint, Ps 55:4-7.
-
-3\. When I am sore beset, Ps 55:9-11.
-
-4\. When I am betrayed, Ps 55:12-14, 20-21.
-
-5\. When others perish, Ps 55:15.
-
-6\. After I am delivered, Ps 55:18.
-
-7\. In every condition, Ps 55:22.
+**Verse 23 &mdash;** (*last clause*). The grand "I will." Sum up the Psalm.— 1\. When I pray, Ps 55:1-3. 2\. When I faint, Ps 55:4-7. 3\. When I am sore beset, Ps 55:9-11. 4\. When I am betrayed, Ps 55:12-14, 20-21. 5\. When others perish, Ps 55:15. 6\. After I am delivered, Ps 55:18. 7\. In every condition, Ps 55:22.
 
 ## Works Upon The Fifty-Fifth Psalm
 

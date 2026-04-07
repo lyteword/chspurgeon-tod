@@ -66,145 +66,53 @@ weight: 64
 
 ## Explanatory Notes & Quaint Sayings
 
-**Whole Psalm.** This Psalm is applied by R. Obadiah to Haman and Mordecai. The enemy is Haman, the perfect man shot at is Mordecai; about whom Haman communed with his friends to lay snares for him, and search diligently for occasions against him and his people, which issued in his own destruction. The ancient Midrash of the Jews applies it to Daniel, when cast into the den of lions; and Jarchi supposes that David, by a spirit of prophecy, foresaw it, and prayed for him who was of his seed; and that everything in the Psalm beautifully falls in with that account. Daniel is the perfect man aimed at; the enemy are the princes of Darius's court, who consulted against him, communed of laying snares for him, and gained their point, which proved their own ruin. But the Psalm literally belongs to David, by whom it was composed. *John Gill.* 
+**Whole Psalm &mdash;** This Psalm is applied by R. Obadiah to Haman and Mordecai. The enemy is Haman, the perfect man shot at is Mordecai; about whom Haman communed with his friends to lay snares for him, and search diligently for occasions against him and his people, which issued in his own destruction. The ancient Midrash of the Jews applies it to Daniel, when cast into the den of lions; and Jarchi supposes that David, by a spirit of prophecy, foresaw it, and prayed for him who was of his seed; and that everything in the Psalm beautifully falls in with that account. Daniel is the perfect man aimed at; the enemy are the princes of Darius's court, who consulted against him, communed of laying snares for him, and gained their point, which proved their own ruin. But the Psalm literally belongs to David, by whom it was composed. &mdash; *John Gill* 
 
-**Whole Psalm.** A cry of God's elect, when persecuted for righteousness' sake, to their Deliverer and sure Avenger. The general principle stated is very clear. The Psalm will adjust itself, as an experimental utterance, to the lips of Christian faith wherever brought into contact with the evil forces of the prince of this world, so as to suffer affliction for the gospel's sake; for it expresses the condition and the hope of one actually imperilled for the truth. How aptly a portion of this Psalm applies to the suffering Truth Himself in the days of his affliction, when, pierced in his spirit by lying words, he endured the contradiction of sinners against himself, needs not be pointed out. *Arthur Pridham, in "Notes and Reflections on the Psalms, "* 1869.
+**Whole Psalm &mdash;** A cry of God's elect, when persecuted for righteousness' sake, to their Deliverer and sure Avenger. The general principle stated is very clear. The Psalm will adjust itself, as an experimental utterance, to the lips of Christian faith wherever brought into contact with the evil forces of the prince of this world, so as to suffer affliction for the gospel's sake; for it expresses the condition and the hope of one actually imperilled for the truth. How aptly a portion of this Psalm applies to the suffering Truth Himself in the days of his affliction, when, pierced in his spirit by lying words, he endured the contradiction of sinners against himself, needs not be pointed out. &mdash; *Arthur Pridham, in "Notes and Reflections on the Psalms" 1869*
 
-**Verse 1.** *Preserve my life.* Hebrew, *lives;* so called for the many faculties, operations, revolutions, and commodities of life. *John Trapp.* 
+**Verse 1 &mdash;** *Preserve my life.* Hebrew, *lives;* so called for the many faculties, operations, revolutions, and commodities of life. &mdash; *John Trapp* 
 
-**Verse 3.** *Who whet their tongue, * etc. The verb means, says Parkhurst, "to whet, sharpen, "which is performed by *reiterated* motion of friction; and by a beautiful metaphor it is applied to a wicked tongue. It has, however, been rendered, *vibrate, * as it is certain a serpent does his tongue. *Richard Mant.* 
+**Verse 3 &mdash;** *Who whet their tongue,* etc. The verb means, says Parkhurst, "to whet, sharpen, "which is performed by *reiterated* motion of friction; and by a beautiful metaphor it is applied to a wicked tongue. It has, however, been rendered, *vibrate,* as it is certain a serpent does his tongue. &mdash; *Richard Mant* 
 
-**Verse 3.** The ingenuity of man has been wonderfully tasked and exercised in two things, inventing destructive weapons of war, and devising various methods of ruining men by wicked words. The list of the former is found in military writings. But the various forms of evil speaking can hardly be catalogued. Evil speakers have arrows, sharp, barbed, dipped in poison. They have "swords, flaming swords, two edged swords, drawn swords, drawn in anger, with which they cut, and wound, and kill the good name of their neighbour." Sins of the tongue are commonly very cruel. When slander is secret, as it commonly is, you cannot defend yourself from its assaults. Its canons are infernal. One of them is, "If a lie will do better than the truth, tell a lie." Another is, "Heap on reproach; some of it will stick." *William S. Plumer.* 
+**Verse 3 &mdash;** The ingenuity of man has been wonderfully tasked and exercised in two things, inventing destructive weapons of war, and devising various methods of ruining men by wicked words. The list of the former is found in military writings. But the various forms of evil speaking can hardly be catalogued. Evil speakers have arrows, sharp, barbed, dipped in poison. They have "swords, flaming swords, two edged swords, drawn swords, drawn in anger, with which they cut, and wound, and kill the good name of their neighbour." Sins of the tongue are commonly very cruel. When slander is secret, as it commonly is, you cannot defend yourself from its assaults. Its canons are infernal. One of them is, "If a lie will do better than the truth, tell a lie." Another is, "Heap on reproach; some of it will stick." &mdash; *William S. Plumer* 
 
-**Verses 3-4.** We saw in the Museum at Venice an instrument with which one of the old Italian tyrants was accustomed to shoot poisoned needles at the objects of his wanton malignity. We thought of gossips, backbiters, and secret slanderers, and wished that their mischievous devices might come to a speedy end. Their weapons of innuendo, shrug, and whisper, appear to be as insignificant as needles: but the venom which they instil is deadly to many a reputation. *C. H. Spurgeon, in "Feathers for Arrows; or, Illustrations for Preachers and Teachers, "* 1870.
+**Verses 3-4 &mdash;** We saw in the Museum at Venice an instrument with which one of the old Italian tyrants was accustomed to shoot poisoned needles at the objects of his wanton malignity. We thought of gossips, backbiters, and secret slanderers, and wished that their mischievous devices might come to a speedy end. Their weapons of innuendo, shrug, and whisper, appear to be as insignificant as needles: but the venom which they instil is deadly to many a reputation. &mdash; *C. H. Spurgeon, in "Feathers for Arrows; or, Illustrations for Preachers and Teachers" 1870*
 
-**Verses 3-4.** David, upon sad experience, compares a wicked, reviling tongue to three fatal weapons—a *razor, * a *sword, * and an *arrow.* To a *razor, * such a one as will take off every little hair: so a reviling tongue will not only take advantage of every gross sin committed by others, but those peccadilloes, the least infirmities which others better qualified cannot so much as discern; secondly, to a *sword* that wounds: so the tongues of reproaching men cut deeply into the credits and reputations of their brethren, but a sword doth mischief only near hand, not afar off; and, therefore, it is in the third place compared to an *arrow, * that can hit at a distance: and so revilers do not ill offices to those only in the parish or town where they live, but to others far remote. How much, then, doth it concern every man to walk circumspectly; to give no just cause of reproach, not to make himself a scorn to the fools of the world; but, if they will reproach (as certainly they will), let it be for forwardness in God's ways, and not for sin, that so the reproach may fall upon their own heads, and their scandalous language into their own throats. *Jeremiah Burroughs.* 
+**Verses 3-4 &mdash;** David, upon sad experience, compares a wicked, reviling tongue to three fatal weapons—a *razor,* a *sword,* and an *arrow.* To a *razor,* such a one as will take off every little hair: so a reviling tongue will not only take advantage of every gross sin committed by others, but those peccadilloes, the least infirmities which others better qualified cannot so much as discern; secondly, to a *sword* that wounds: so the tongues of reproaching men cut deeply into the credits and reputations of their brethren, but a sword doth mischief only near hand, not afar off; and, therefore, it is in the third place compared to an *arrow,* that can hit at a distance: and so revilers do not ill offices to those only in the parish or town where they live, but to others far remote. How much, then, doth it concern every man to walk circumspectly; to give no just cause of reproach, not to make himself a scorn to the fools of the world; but, if they will reproach (as certainly they will), let it be for forwardness in God's ways, and not for sin, that so the reproach may fall upon their own heads, and their scandalous language into their own throats. &mdash; *Jeremiah Burroughs* 
 
-**Verses 3, 7-8.** The most mischievous weapons of the wicked are *words, even bitter words;* but *the Word* is the chief weapon of the Holy Spirit: and as with this sword the great Captain foiled the tempter in the wilderness, so may we vanquish "the workers of iniquity" with the true Jerusalem blade. *J. L. K.* 
+**Verses 3, 7-8 &mdash;** The most mischievous weapons of the wicked are *words, even bitter words;* but *the Word* is the chief weapon of the Holy Spirit: and as with this sword the great Captain foiled the tempter in the wilderness, so may we vanquish "the workers of iniquity" with the true Jerusalem blade. &mdash; *J. L. K.* 
 
-**Verse 4.** *That they may shoot in secret.* The wicked are said to shoot their arrows *in secret* at the perfect; and then "they say, Who shall see them?" Ps 64:5. Thus Satan lets fly a temptation so secretly, that he is hardly suspected in the thing. Sometimes he useth a wife's tongue to do his errand; another while he gets behind the back of a husband, friend, servant, etc., and is not seen all the while he is doing his work. Who would have thought to have found a devil in Peter, tempting his Master, or suspected that Abraham should be the instrument to betray his beloved wife into the hands of a sin? yet it was so. Nay, sometimes he is so secret, that he borrows God's bow to shoot his arrows from, and the poor Christian is abused, thinking it is God chides and is angry, when it is the devil tempts him to think so, and only counterfeits God's voice. *William Gurnall.* 
+**Verse 4 &mdash;** *That they may shoot in secret.* The wicked are said to shoot their arrows *in secret* at the perfect; and then "they say, Who shall see them?" Ps 64:5. Thus Satan lets fly a temptation so secretly, that he is hardly suspected in the thing. Sometimes he useth a wife's tongue to do his errand; another while he gets behind the back of a husband, friend, servant, etc., and is not seen all the while he is doing his work. Who would have thought to have found a devil in Peter, tempting his Master, or suspected that Abraham should be the instrument to betray his beloved wife into the hands of a sin? yet it was so. Nay, sometimes he is so secret, that he borrows God's bow to shoot his arrows from, and the poor Christian is abused, thinking it is God chides and is angry, when it is the devil tempts him to think so, and only counterfeits God's voice. &mdash; *William Gurnall* 
 
-**Verse 8.** (*first clause* ).
+**Verse 8 &mdash;** (*first clause*). In these cases, We still have judgment here, that we but teach Bloody instructions, which, being taught, return To plague the inventor: This even handed justice Commends the ingredients of our poisoned chalice To our own lips. &mdash; *William Shakespeare* 
 
-In these cases,
+**Verse 8 &mdash;** *Their own tongue to fall upon themselves.* That is, their own words shall be brought as a testimony against them, and condemn them. "The tongue is a little member" (Jas 3:5), and therefore a light member; yet it falls heavy, as heavy as lead. A man were better have his house fall upon him, than that, in this sense, his tongue should fall upon him. Some have been pressed to death because they would not speak, but stood mute before the judge; but more have been pressed to death by their sinful freedom, or rather licentiousness in speaking; this hath brought them to judgment, and cast them in judgment&mdash; A strange thing, that the fall of a man's tongue should oppress his body and whole estate; yet so it is, the weight of a man's tongue falling upon him crushes him to powder. &mdash; *Joseph Caryl* 
 
-We still have judgment here, that we but teach
+**Verse 8 &mdash;** *Their own tongue to fall upon themselves.* The arrows of idle words, though shot out of sight, and possibly quite forgotten, will hereafter drop down upon the heads of such as drew the bow. Words are but wind, is the common saying, but they are such wind as will either blow the soul to its haven of rest, if holy, wholesome, savoury, spiritual, and tending to edification, or else sink it into the Dead Sea and bottomless gulf of eternal misery, if idle, profane, frothy, and unprofitable. &mdash; *Edward Reyner (1600-1670) in "Rules for the Government of the Tongue"* 
 
-Bloody instructions, which, being taught, return
+**Verse 10 &mdash;** *The righteous shall be glad in the Lord, and shall trust in him.* That is, if they have failed in their trust heretofore, and not given God honour by confiding in him, yet these wonderful works of God (of which he speaks in the Psalm) work this hope. &mdash; *Joseph Caryl* 
 
-To plague the inventor: This even handed justice
+**Verse 10 &mdash;** *All the upright in heart.* The word of this text, *jashar,* signifies *rectitudinem,* and *planitiem,* it signifies a direct way; for the devil's way was circular, compassing the earth; but the angel's way to heaven upon Jacob's ladder was a straight, a direct way. And then it signifies, as a direct and straight, so a plain, a smooth, an even way, a way that hath been beaten into a path before, a way that the fathers and the church have walked in before, and not a discovery made by our curiosity, or our confidence, in venturing from ourselves, or embracing from others, new doctrines and opinions. The persons, then, whom God proposes to be partakers of his retributions, are first, *recti* (that is, both direct men, and plain men), and then *recti corde,* this qualification, this straightness and smoothness must be in the heart; all the upright in heart shall have it. Upon this earth, a man cannot possibly make one step in a straight and a direct line. The earth itself being round, every step we make upon it must necessarily be a segment, an arc of a circle. But yet, though no piece of a circle be a straight line, yet if we take any piece, nay, if we take the whole circle, there is no corner, no angle in any place, in any entire circle. A perfect rectitude we cannot have in any way in this world; in every calling there are some inevitable temptations. But, though we cannot make up one circle of a straight line (that is impossible to human frailty), yet we may pass on without angles and corners, that is, without disguises in our religion, and without the love of craft, and falsehood, and circumvention, in our civil actions. A compass is a necessary thing in a ship, and the help of that compass brings the ship home safe, and yet that compass hath some variations, it doth not look directly north; neither is that star which we call the north pole, or by which we know the north pole, the very pole itself; but we call it so, and we make our uses of it, and our conclusions by it, as if it were so, because it is the nearest star to that pole. He that comes as near uprightness as infirmities admit, is an upright man, though he love some obliquities. &mdash; *John Donne* 
 
-Commends the ingredients of our poisoned chalice
+**Verse 10 &mdash;** *All the upright in heart shall glory.* The Psalm began in the first person singular, *Hear my voice, O God,* but it ends by comprehending all the righteous. He who is most anxious about his own salvation will be found to be the man of the truest and widest love to others; while he who talks most of unselfishness in religion is generally the most selfish. We cannot take a more efficient method for benefiting others than by being earnestly prayerful for ourselves that we may be preserved from sin. Our example will in itself be useful, and our godliness, by putting power into our testimony, will increase the value of every rebuke, exhortation, or encouragement we may utter. Our sin is or will be the church's sorrow, and the way to make all the upright rejoice is to be upright ourselves. &mdash; *C. H. S.* 
 
-To our own lips. *William Shakespeare.* 
-
-**Verse 8.** *Their own tongue to fall upon themselves.* That is, their own words shall be brought as a testimony against them, and condemn them. "The tongue is a little member" (Jas 3:5), and therefore a light member; yet it falls heavy, as heavy as lead. A man were better have his house fall upon him, than that, in this sense, his tongue should fall upon him. Some have been pressed to death because they would not speak, but stood mute before the judge; but more have been pressed to death by their sinful freedom, or rather licentiousness in speaking; this hath brought them to judgment, and cast them in judgment&mdash; A strange thing, that the fall of a man's tongue should oppress his body and whole estate; yet so it is, the weight of a man's tongue falling upon him crushes him to powder. *Joseph Caryl.* 
-
-**Verse 8.** *Their own tongue to fall upon themselves.* The arrows of idle words, though shot out of sight, and possibly quite forgotten, will hereafter drop down upon the heads of such as drew the bow. Words are but wind, is the common saying, but they are such wind as will either blow the soul to its haven of rest, if holy, wholesome, savoury, spiritual, and tending to edification, or else sink it into the Dead Sea and bottomless gulf of eternal misery, if idle, profane, frothy, and unprofitable. *Edward Reyner (1600-1670) in "Rules for the Government of the Tongue."* 
-
-**Verse 10.** *The righteous shall be glad in the Lord, and shall trust in him.* That is, if they have failed in their trust heretofore, and not given God honour by confiding in him, yet these wonderful works of God (of which he speaks in the Psalm) work this hope. *Joseph Caryl.* 
-
-**Verse 10.** *All the upright in heart.* The word of this text, *jashar, * signifies *rectitudinem, * and *planitiem, * it signifies a direct way; for the devil's way was circular, compassing the earth; but the angel's way to heaven upon Jacob's ladder was a straight, a direct way. And then it signifies, as a direct and straight, so a plain, a smooth, an even way, a way that hath been beaten into a path before, a way that the fathers and the church have walked in before, and not a discovery made by our curiosity, or our confidence, in venturing from ourselves, or embracing from others, new doctrines and opinions. The persons, then, whom God proposes to be partakers of his retributions, are first, *recti* (that is, both direct men, and plain men), and then *recti corde, * this qualification, this straightness and smoothness must be in the heart; all the upright in heart shall have it. Upon this earth, a man cannot possibly make one step in a straight and a direct line. The earth itself being round, every step we make upon it must necessarily be a segment, an arc of a circle. But yet, though no piece of a circle be a straight line, yet if we take any piece, nay, if we take the whole circle, there is no corner, no angle in any place, in any entire circle. A perfect rectitude we cannot have in any way in this world; in every calling there are some inevitable temptations. But, though we cannot make up one circle of a straight line (that is impossible to human frailty), yet we may pass on without angles and corners, that is, without disguises in our religion, and without the love of craft, and falsehood, and circumvention, in our civil actions. A compass is a necessary thing in a ship, and the help of that compass brings the ship home safe, and yet that compass hath some variations, it doth not look directly north; neither is that star which we call the north pole, or by which we know the north pole, the very pole itself; but we call it so, and we make our uses of it, and our conclusions by it, as if it were so, because it is the nearest star to that pole. He that comes as near uprightness as infirmities admit, is an upright man, though he love some obliquities. *John Donne.* 
-
-**Verse 10.** *All the upright in heart shall glory.* The Psalm began in the first person singular, *Hear my voice, O God, * but it ends by comprehending all the righteous. He who is most anxious about his own salvation will be found to be the man of the truest and widest love to others; while he who talks most of unselfishness in religion is generally the most selfish. We cannot take a more efficient method for benefiting others than by being earnestly prayerful for ourselves that we may be preserved from sin. Our example will in itself be useful, and our godliness, by putting power into our testimony, will increase the value of every rebuke, exhortation, or encouragement we may utter. Our sin is or will be the church's sorrow, and the way to make all the upright rejoice is to be upright ourselves. *C. H. S.* 
-
-**Verse 10.** *Shall glory.* This retribution is expressed in the original in the word *halal;* and *halal, * to those translators that made our Book of Common Prayer, presented the signification of gladness, for so it is there: *They shall be glad.* So it did to the translators that came after, for there it is, *They shall rejoice;* and to our last translators it seemed to signify glory, *They shall glory, * say they. But the first translation of all into our language (which was long before any of these three), calls it *praise, * and puts it into the passive: *All men of rightful heart shall be praised.* And so truly *jithhalelu, * in the original, bears it, nay, requires it; which is not of praise which they shall give to God, but of a praise that they shall receive for having served God with an upright heart; not that they shall praise God in doing so, but that godly men shall praise them for having done so. All this shall grow naturally out of the root; for the root of this word is *lucere, splendere, * to shine out in the eyes of men, and to create in them a holy and a reverential admiration; as it was John Baptist's praise, that he was *"A burning and a shining lamp."* Properly it is, by a good and a holy exemplary life, to occasion others to set a right value upon holiness, and to give a due respect for holy men&mdash;*Shall glory.* It is so far from diminishing this glory, as that it exalts our consolation that God places this retribution in the future; if they do not yet, certainly they *shall* glory, and if they do now, that glory shall not go out, still they shall, they shall for ever glory. *John Donne.* 
+**Verse 10 &mdash;** *Shall glory.* This retribution is expressed in the original in the word *halal;* and *halal,* to those translators that made our Book of Common Prayer, presented the signification of gladness, for so it is there: *They shall be glad.* So it did to the translators that came after, for there it is, *They shall rejoice;* and to our last translators it seemed to signify glory, *They shall glory,* say they. But the first translation of all into our language (which was long before any of these three), calls it *praise,* and puts it into the passive: *All men of rightful heart shall be praised.* And so truly *jithhalelu,* in the original, bears it, nay, requires it; which is not of praise which they shall give to God, but of a praise that they shall receive for having served God with an upright heart; not that they shall praise God in doing so, but that godly men shall praise them for having done so. All this shall grow naturally out of the root; for the root of this word is *lucere, splendere,* to shine out in the eyes of men, and to create in them a holy and a reverential admiration; as it was John Baptist's praise, that he was *"A burning and a shining lamp."* Properly it is, by a good and a holy exemplary life, to occasion others to set a right value upon holiness, and to give a due respect for holy men&mdash;*Shall glory.* It is so far from diminishing this glory, as that it exalts our consolation that God places this retribution in the future; if they do not yet, certainly they *shall* glory, and if they do now, that glory shall not go out, still they shall, they shall for ever glory. &mdash; *John Donne* 
 
 ## Hints to the Village Preacher
 
-**Verse 1.** 
+**Verse 1 &mdash;** 1\. *The preservation of life desired.* (a) The desire expressed. (b) Qualified—from violent death, from fear of, etc. 2\. *The preservation of life prayed for.* (a) For self improvement. (b) For usefulness. (c) For the divine glory. &mdash; *G. R.* 
 
-1\. *The preservation of life desired.* 
+**Verse 2 &mdash;** (*first clause*). Applied to Satan. 1\. *The danger considered.* (a) The enemy, wicked, mighty, malicious, experienced. (b) His counsel. He tempts cunningly, and with deliberation. (c) The secrecy of it. He may be exciting others against me, or sowing evil in myself. 2\. *The deliverance implored. Hide me.* (a) Keep me from being tempted. (b) Keep me from evil when tempted. (c) Bring me out of it all unharmed. (d) Meanwhile, let me be in thy secret place. 3\. *The consolation of faith.* (a) God does preserve praying ones. (b) Our enemy is *his* enemy. (c) He has preserved us. (d) We are his own. (e) His honour is involved.
 
-(a) The desire expressed.
+**Verse 3 &mdash;** *Bitter words.* An excellent topic in reference both to the sinner and to professed saints.
 
-(b) Qualified—from violent death, from fear of, etc.
+**Verse 3 &mdash;** *The whetting of the tongue.* Fresh faults discovered, evil motives imputed, exaggerations invented, lies forged, innuendoes suggested, old slanders furnished, and ancient hatreds rekindled.
 
-2\. *The preservation of life prayed for.* 
+**Verse 6 &mdash;** (*two first clauses*). The fault hunter; his motive, his character, his pretences, and his punishment.
 
-(a) For self improvement.
+**Verse 9 &mdash;** 1\. *The subject for consideration* —Judgments upon the wicked. (a) As Judgments. (b) As judgments from God—that work of God—his doing. 2\. *The consideration of the subject.* (a) They are intended to be considered by others. (b) They are to be considered wisely. 3\. *The effect of this consideration.* (a) Fear of God. (b) Praise to God; shall declare, etc. &mdash; *G. R.* 
 
-(b) For usefulness.
+**Verses 9-10 &mdash;** 1\. An act of God; something of his doing. 2\. Its effect upon men in general: *All men shall fear, and shall declare*, etc. 3\. A special duty resulting from it, incumbent on good men: *The righteous,* etc. &mdash; *H. Dove.* 
 
-(c) For the divine glory. *G. R.* 
-
-**Verse 2.** (*first clause* ). Applied to Satan.
-
-1\. *The danger considered.* 
-
-(a) The enemy, wicked, mighty, malicious, experienced.
-
-(b) His counsel. He tempts cunningly, and with deliberation.
-
-(c) The secrecy of it. He may be exciting others against me, or sowing evil in myself.
-
-2\. *The deliverance implored. Hide me.* 
-
-(a) Keep me from being tempted.
-
-(b) Keep me from evil when tempted.
-
-(c) Bring me out of it all unharmed.
-
-(d) Meanwhile, let me be in thy secret place.
-
-3\. *The consolation of faith.* 
-
-(a) God does preserve praying ones.
-
-(b) Our enemy is *his* enemy.
-
-(c) He has preserved us.
-
-(d) We are his own.
-
-(e) His honour is involved.
-
-**Verse 3.** *Bitter words.* An excellent topic in reference both to the sinner and to professed saints.
-
-**Verse 3.** *The whetting of the tongue.* Fresh faults discovered, evil motives imputed, exaggerations invented, lies forged, innuendoes suggested, old slanders furnished, and ancient hatreds rekindled.
-
-**Verse 6.** (*two first clauses* ). The fault hunter; his motive, his character, his pretences, and his punishment.
-
-**Verse 9.** 
-
-1\. *The subject for consideration* —Judgments upon the wicked.
-
-(a) As Judgments.
-
-(b) As judgments from God—that work of God—his doing.
-
-2\. *The consideration of the subject.* 
-
-(a) They are intended to be considered by others.
-
-(b) They are to be considered wisely.
-
-3\. *The effect of this consideration.* 
-
-(a) Fear of God.
-
-(b) Praise to God; shall declare, etc. *G. R.* 
-
-**Verses 9-10.** 
-
-1\. An act of God; something of his doing.
-
-2\. Its effect upon men in general: *All men shall fear, and shall declare*, etc.
-
-3\. A special duty resulting from it, incumbent on good men: *The righteous, * etc. *H. Dove.* 
-
-**Verse 10.** 
-
-1\. *The persons.* 
-
-(a) What they are, in distinction from others; the righteous; the justified.
-
-(b) What they are in themselves; upright in heart; not perfect, but sincere.
-
-2\. *Their privilege.* 
-
-(a) Amidst all their persecutions to joy in God.
-
-(b) Amidst all their dangers to trust in God. *G. R.* 
+**Verse 10 &mdash;** 1\. *The persons.* (a) What they are, in distinction from others; the righteous; the justified. (b) What they are in themselves; upright in heart; not perfect, but sincere. 2\. *Their privilege.* (a) Amidst all their persecutions to joy in God. (b) Amidst all their dangers to trust in God. &mdash; *G. R.* 
 
