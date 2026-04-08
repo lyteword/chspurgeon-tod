@@ -30,13 +30,10 @@ weight: 85
 
 *Thou hast taken away all thy wrath.* Having removed the sin, the anger is removed also. How often did the longsuffering of God take away from Israel the punishments which had been justly laid upon them! How often also has the Lord's chastising hand been removed from us when our waywardness called for heavier strokes! Thou hast turned thyself from the fierceness of thine anger. Even when judgments had been most severe, the Lord had in mercy stayed his hand. In mid volley he had restrained his thunder. When ready to destroy, he had averted his face from his purpose of judgment and allowed mercy to interpose. The book of Judges is full of illustrations of this, and the psalmist does well to quote them while he interceded. Is not our experience equally studded with instances in which judgment has been stayed and tenderness has ruled? What a difference between the fierce anger which is feared and deprecated here, and the speaking of peace which is foretold in verse 8. There are many changes in Christian experience, and therefore we must not despair when we are undergoing the drearier portion of the spiritual life, for soon, very soon, it may be transformed into gladness.
 
-"The Lord can clear the darkest skies,
-
-Can give us day for night.
-
-Make drops of sacred sorrow rise
-
-To rivers of delight."
+> "The Lord can clear the darkest skies,  
+> Can give us day for night.  
+> Make drops of sacred sorrow rise  
+> To rivers of delight."  
 
 ### Verse 4
 
@@ -92,19 +89,13 @@ To rivers of delight."
 
 *Yea, the Lord shall give that which is good.* Being himself pure goodness, he will readily return from his wrath, and deal out good things to his repenting people. Our evil brings evil upon us, but when we are brought back to follow that which is good, the Lord abundantly enriches us with good things. Material good will always be bestowed where it can be enjoyed in consistency with spiritual good. And our land shall yield her increase. The curse of barrenness will fly with the curse of sin. When the people yielded what was due to God, the soil would recompense their husbandry. See at this day what sin has done for Palestine, making her gardens a wilderness; her wastes are the scars of her iniquities: nothing but repentance and divine forgiveness will reclaim her desolations. The whole world also shall be bright with the same blessing in the days yet to come, —
 
-"Freed from the curse, the grateful garden gives
-
-Its fruit in goodly revenue. Nor frost,
-
-Nor blight, nor mildew fall, nor cankerworm,
-
-Nor caterpillar, mar one ripening hope.
-
-The clouds drop fatness. The very elements
-
-Are subject to the prayerful will of those
-
-Whose pleasure is in unison with God's."
+> "Freed from the curse, the grateful garden gives  
+> Its fruit in goodly revenue. Nor frost,  
+> Nor blight, nor mildew fall, nor cankerworm,  
+> Nor caterpillar, mar one ripening hope.  
+> The clouds drop fatness. The very elements  
+> Are subject to the prayerful will of those  
+> Whose pleasure is in unison with God's."  
 
 ### Verse 13
 
@@ -114,323 +105,119 @@ Whose pleasure is in unison with God's."
 
 ## Explanatory Notes & Quaint Sayings
 
-**Whole Psalm &mdash;** This beautiful psalm, like some others, has come down to us without name or date; the production of some unknown poetic genius, touched, purified, and exalted by the fire of celestial inspiration; a precious relic of that golden age, when the Hebrew music was instinct with a spirit such as never breathed on Greece or Rome. It is interesting to reflect on the anonymous origin of some of the psalms; to remember how largely the church of God is indebted to some nameless worthies who wrote for us hymns and spiritual songs, full of richer strains than were ever poured forth by the most illustrious of pagan name. These holy men are passed away, they have left no record of their history; but they have bequeathed legacies of rich, varied, and inspired sentiments, which will render the church debtors to them to the end of time. *John Stoughton.* 1852.
+**Whole Psalm &mdash;** This beautiful psalm, like some others, has come down to us without name or date; the production of some unknown poetic genius, touched, purified, and exalted by the fire of celestial inspiration; a precious relic of that golden age, when the Hebrew music was instinct with a spirit such as never breathed on Greece or Rome. It is interesting to reflect on the anonymous origin of some of the psalms; to remember how largely the church of God is indebted to some nameless worthies who wrote for us hymns and spiritual songs, full of richer strains than were ever poured forth by the most illustrious of pagan name. These holy men are passed away, they have left no record of their history; but they have bequeathed legacies of rich, varied, and inspired sentiments, which will render the church debtors to them to the end of time. &mdash; *John Stoughton, 1852*
 
-**Whole Psalm &mdash;** This Psalm may be thus divided: Ps 85:1-3, express the thanks of the people for their return from captivity; Ps 85:4-6, their prayer for their own *reformation;* in Ps 85:7, they pray for the coming of *Messiah;* Ps 85:8 contains the *words* of the *High priest,* with *God's Gracious answer;* which answer is followed by the grateful acclamation *of the people,* to the end of the Psalm. To prepare for this interpretation, let us observe, how very strangely the words are expressed at present— *I will hear what God the Lord will say: for he shall speak peace unto his people.* But surely, God could not be consulted, *because* it was unnecessary; nor could the High priest possibly say, that he would ask of God, *because* he knew what God would answer; especially, as we have now *a question to God* proposed, and yet no *answer from God* given at all. Under these difficulties we are happily relieved; since it appears, on satisfactory authorities, that, instead of the particle rendered *for,* the word here originally signified *in* or *by me,* which slight variation removes the obscurity, and restores that very light which has long been wanted. The *people* having prayed for the speedy arrival of their great *salvation;* the *High priest* says, (as it should be here expressed), *I will hear what the Almighty sayeth.—Jehovah, by Me sayeth, peace unto his people, even unto his saints: but let them not turn again to folly.* Whereupon, as the Jews understood *peace* to comprehend *every* blessing, and of course *their greatest* blessing, they at once acknowledged the *certainty* of this salvation, the *glory* of their land—they proclaim it as *nigh* at hand—and then, in rapture truly prophetical, they see this glory as actually arrived, as already *dwelling* in Judea—they behold God in fulfilling most strictly what he had promised most graciously—they see therefore the *mercy* of God, and the *truth* of God met together—they see that scheme perfected, in which the *righteousness (i.e.* the justice) of God harmonizes with the *peace (i.e.* the happiness) of man; so that righteousness and peace *salute* each other with the tenderest affection. In short, they see truth *flourishing out of the earth; i.e.* they see *him,* who is *the way, the truth,* and *the life,* born here *on earth;* and they even see the *righteousness,* or justice of God, looking down from *heaven,* as being well pleased. Ps 85:12 is at present translated so unhappily, that it is quite despoiled of all its genuine glory. For, could the prophet, after all the rapturous things said before, coldly say here, that God *would give what was good* and that *Judea* should have *a plentiful harvest?* No: consistency and good sense forbid it; and truth confirms their protest against it. The words here express the reasons of all the preceding energies, and properly signify— *Yea, Jehovah granteth* the blessing; *and our land granteth* her offspring. And what can be *the blessing* —what, amidst these sublime images, can be *Judea's offspring* —but He, and He only, who was *the blessing of all lands* in general, and *the glory of Judea* in particular? And what says the verse following? *Righteousness goeth before* Him—certainly, not before *the fruit of the earth* —but certainly before that illustrious person, even the Messiah. *Righteousness goeth before Him, and directeth his goings in the way.* As to the word rendered *the blessing,* and applied to the redemption; the same word is so used by Jeremiah, thus: *Behold, the days come, that I will perform that good thing (the blessing) which I have promised&mdash; at that time will I cause to grow up unto David the Branch of righteousness* (Jer 33:14-15). And as to the Messiah being here described, partly as springing up from the earth; so says Isaiah: "In that day shall the branch of the Lord be beautiful and glorious; and *the fruits of the earth* shall be excellent and comely." But this evangelical prophet, in another place, has the very same complication of images with that found in the psalm before us. For Isaiah also has *the heavens,* with their *righteousness;* and *the earth,* with *its salvation:* "Drop down, ye *heavens* from above, and let the skies pour down righteousness: let *the earth* open, and let *them* bring forth salvation." But, "let *them* bring forth"—who, or what can be here meant by *them,* but *the heavens* and the *earth?* It is heaven and earth which are here represented as *bringing forth,* and introducing the Saviour of the world. For what else can be here meant as *brought forth* by *them?* What, but He alone; who, deriving his *divine* nature from heaven, and his *human* from the earth was (what no other being ever was) both God and Man. *Benjamin Kennicott.* 
+**Whole Psalm &mdash;** This Psalm may be thus divided: Ps 85:1-3, express the thanks of the people for their return from captivity; Ps 85:4-6, their prayer for their own *reformation;* in Ps 85:7, they pray for the coming of *Messiah;* Ps 85:8 contains the *words* of the *High priest,* with *God's Gracious answer;* which answer is followed by the grateful acclamation *of the people,* to the end of the Psalm. To prepare for this interpretation, let us observe, how very strangely the words are expressed at present— *I will hear what God the Lord will say: for he shall speak peace unto his people.* But surely, God could not be consulted, *because* it was unnecessary; nor could the High priest possibly say, that he would ask of God, *because* he knew what God would answer; especially, as we have now *a question to God* proposed, and yet no *answer from God* given at all. Under these difficulties we are happily relieved; since it appears, on satisfactory authorities, that, instead of the particle rendered *for,* the word here originally signified *in* or *by me,* which slight variation removes the obscurity, and restores that very light which has long been wanted. The *people* having prayed for the speedy arrival of their great *salvation;* the *High priest* says, (as it should be here expressed), *I will hear what the Almighty sayeth.—Jehovah, by Me sayeth, peace unto his people, even unto his saints: but let them not turn again to folly.* Whereupon, as the Jews understood *peace* to comprehend *every* blessing, and of course *their greatest* blessing, they at once acknowledged the *certainty* of this salvation, the *glory* of their land—they proclaim it as *nigh* at hand—and then, in rapture truly prophetical, they see this glory as actually arrived, as already *dwelling* in Judea—they behold God in fulfilling most strictly what he had promised most graciously—they see therefore the *mercy* of God, and the *truth* of God met together—they see that scheme perfected, in which the *righteousness (i.e.* the justice) of God harmonizes with the *peace (i.e.* the happiness) of man; so that righteousness and peace *salute* each other with the tenderest affection. In short, they see truth *flourishing out of the earth; i.e.* they see *him,* who is *the way, the truth,* and *the life,* born here *on earth;* and they even see the *righteousness,* or justice of God, looking down from *heaven,* as being well pleased. Ps 85:12 is at present translated so unhappily, that it is quite despoiled of all its genuine glory. For, could the prophet, after all the rapturous things said before, coldly say here, that God *would give what was good* and that *Judea* should have *a plentiful harvest?* No: consistency and good sense forbid it; and truth confirms their protest against it. The words here express the reasons of all the preceding energies, and properly signify— *Yea, Jehovah granteth* the blessing; *and our land granteth* her offspring. And what can be *the blessing* —what, amidst these sublime images, can be *Judea's offspring* —but He, and He only, who was *the blessing of all lands* in general, and *the glory of Judea* in particular? And what says the verse following? *Righteousness goeth before* Him—certainly, not before *the fruit of the earth* —but certainly before that illustrious person, even the Messiah. *Righteousness goeth before Him, and directeth his goings in the way.* As to the word rendered *the blessing,* and applied to the redemption; the same word is so used by Jeremiah, thus: *Behold, the days come, that I will perform that good thing (the blessing) which I have promised&mdash; at that time will I cause to grow up unto David the Branch of righteousness* (Jer 33:14-15). And as to the Messiah being here described, partly as springing up from the earth; so says Isaiah: "In that day shall the branch of the Lord be beautiful and glorious; and *the fruits of the earth* shall be excellent and comely." But this evangelical prophet, in another place, has the very same complication of images with that found in the psalm before us. For Isaiah also has *the heavens,* with their *righteousness;* and *the earth,* with *its salvation:* "Drop down, ye *heavens* from above, and let the skies pour down righteousness: let *the earth* open, and let *them* bring forth salvation." But, "let *them* bring forth"—who, or what can be here meant by *them,* but *the heavens* and the *earth?* It is heaven and earth which are here represented as *bringing forth,* and introducing the Saviour of the world. For what else can be here meant as *brought forth* by *them?* What, but He alone; who, deriving his *divine* nature from heaven, and his *human* from the earth was (what no other being ever was) both God and Man. &mdash; *Benjamin Kennicott* 
 
-**Verse 1 &mdash;** *Thy land.* The land of Jehovah the poet calls it, in order to point out the close relation of God to it, and to the people thereof, and so confirm the *favour* of God towards it. For this land God has chosen as the dwelling place of his people, true religion, and his own presence; this also in his own time He himself had trodden in the person of his Son, and in it He first gathered and founded his Church. *Venema.* 
+**Verse 1 &mdash;** *Thy land.* The land of Jehovah the poet calls it, in order to point out the close relation of God to it, and to the people thereof, and so confirm the *favour* of God towards it. For this land God has chosen as the dwelling place of his people, true religion, and his own presence; this also in his own time He himself had trodden in the person of his Son, and in it He first gathered and founded his Church. &mdash; *Venema* 
 
-**Verse 1 &mdash;** *The captivity of Jacob.* All true believers are the sons of Jacob, and the seed of Abraham; as well as the believing Gentiles, who are the sons of Jacob according to the Spirit, as the believing Jews the sons of Jacob according to the flesh; and the Church of these true Jacobins and Israelites is the land of the Lord, and the *captivity* here mentioned is bondage under sin. In this captivity Satan is the gaoler, the flesh is our prison, ungodly lusts are the manacles, a bad conscience the tormentor, all of them against us; only Christ is *Emmanuel,* God with us; he turneth away the captivity of Jacob in forgiving all his offences, and in covering all his sins. *Abraham Wright.* 
+**Verse 1 &mdash;** *The captivity of Jacob.* All true believers are the sons of Jacob, and the seed of Abraham; as well as the believing Gentiles, who are the sons of Jacob according to the Spirit, as the believing Jews the sons of Jacob according to the flesh; and the Church of these true Jacobins and Israelites is the land of the Lord, and the *captivity* here mentioned is bondage under sin. In this captivity Satan is the gaoler, the flesh is our prison, ungodly lusts are the manacles, a bad conscience the tormentor, all of them against us; only Christ is *Emmanuel,* God with us; he turneth away the captivity of Jacob in forgiving all his offences, and in covering all his sins. &mdash; *Abraham Wright* 
 
-**Verse 2 &mdash;** *Thou hast forgiven the iniquity.* nvs tsn, *nasatha avon, Thou hast borne,* or *carried away, the iniquity.* An allusion to the ceremony of the scapegoat. *Adam Clarke.* 
+**Verse 2 &mdash;** *Thou hast forgiven the iniquity.* nvs tsn, *nasatha avon, Thou hast borne,* or *carried away, the iniquity.* An allusion to the ceremony of the scapegoat. &mdash; *Adam Clarke* 
 
-**Verse 2 &mdash;** *Thou hast covered all their sin.* When God is said *to cover sin,* he does so, not as one would cover a sore with a plaster, thereby merely hiding it only; but he covers it with a plaster that effectually cures and removes it altogether. *Bellarmine.* 
+**Verse 2 &mdash;** *Thou hast covered all their sin.* When God is said *to cover sin,* he does so, not as one would cover a sore with a plaster, thereby merely hiding it only; but he covers it with a plaster that effectually cures and removes it altogether. &mdash; *Bellarmine* 
 
-**Verse 2 &mdash;** *Selah.* Rabbi Kimchi regards it as a sign to elevate the voice. The authors of the Septuagint translation appear to have regarded it as a musical or rythmical note. Herder regarded it as indicating a change of note; Mathewson as a musical note, equivalent, perhaps, to the word *repeat.* According to Luther and others, it means *silence.* Gesenius explains it to mean, "Let the instruments play and the singers stop." Wocher regards it as equivalent to *sursum corda* —up, my soul! Sommer, after examining all the seventy four passages in which the word occurs, recognises in every case "an actual appeal or summons to Jehovah." They are calls for aid and prayers to be heard, expressed either with entire directness, or if not in the imperative, "Hear, Jehovah!" or Awake, Jehovah! and the like, still earnest addresses to God that he would remember and hear, &c. The word itself he regards as indicating a blast of the trumpets by the priests. Selah, itself, he thinks an abridged expression, used for Higgaion Selah—Higgaion indicating the sound of the stringed instruments and Selah a vigorous blast of trumpets. *From the "Bibliotheca Sacra, "quoted by Plumer.* 
+**Verse 2 &mdash;** *Selah.* Rabbi Kimchi regards it as a sign to elevate the voice. The authors of the Septuagint translation appear to have regarded it as a musical or rythmical note. Herder regarded it as indicating a change of note; Mathewson as a musical note, equivalent, perhaps, to the word *repeat.* According to Luther and others, it means *silence.* Gesenius explains it to mean, "Let the instruments play and the singers stop." Wocher regards it as equivalent to *sursum corda* —up, my soul! Sommer, after examining all the seventy four passages in which the word occurs, recognises in every case "an actual appeal or summons to Jehovah." They are calls for aid and prayers to be heard, expressed either with entire directness, or if not in the imperative, "Hear, Jehovah!" or Awake, Jehovah! and the like, still earnest addresses to God that he would remember and hear, &c. The word itself he regards as indicating a blast of the trumpets by the priests. Selah, itself, he thinks an abridged expression, used for Higgaion Selah—Higgaion indicating the sound of the stringed instruments and Selah a vigorous blast of trumpets. &mdash; *From the "Bibliotheca Sacra" quoted by Plumer* 
 
-**Verse 3 &mdash;** *Thou hast taken away all thy wrath.* Or *gathered* it; sin occasions wrath, and the people of God are as deserving of it as others; but the Lord has gathered it up, and poured it forth upon his Son, and their Surety; hence nothing of this kind shall ever fall upon them, either here or hereafter; and it is taken away from them, so as to have no sense, apprehension, or conscience of it, which before the law had wrought in them, when pardon is applied unto them, which is what is here meant. *John Gill.* 
+**Verse 3 &mdash;** *Thou hast taken away all thy wrath.* Or *gathered* it; sin occasions wrath, and the people of God are as deserving of it as others; but the Lord has gathered it up, and poured it forth upon his Son, and their Surety; hence nothing of this kind shall ever fall upon them, either here or hereafter; and it is taken away from them, so as to have no sense, apprehension, or conscience of it, which before the law had wrought in them, when pardon is applied unto them, which is what is here meant. &mdash; *John Gill* 
 
-**Verse 3 &mdash;** *Thou hast turned thyself.* Here are six *hasts* drawing in the next *turn,* Ps 85:4. God hath, and therefore God will is a strong medium of hope, if not a demonstration of Scripture logic. See 2Co 1:10. *John Trapp.* 
+**Verse 3 &mdash;** *Thou hast turned thyself.* Here are six *hasts* drawing in the next *turn,* Ps 85:4. God hath, and therefore God will is a strong medium of hope, if not a demonstration of Scripture logic. See 2Co 1:10. &mdash; *John Trapp* 
 
-**Verse 4 &mdash;** *Cause thine anger toward us to cease.* The phrase, *break thine indignation towards us,* (that is, wherewith thou art angry with us, in order that it may cease of itself,)comprehends the abolition of the signs and the effects of anger. The word drk, for this is the root to be taken, properly denotes a *breaking* by means of *notches* and *gaps,* as when the *edge* of anything is broken by many notches and gaps, and it is made utterly worn and useless. *Indignation,* so long as it is vigorous and spreads its effects, has an *edge,* which smites and pierces; but it is considered blunt and broken, when it ceases to exert itself, and produces evils no longer, this they affirm of the *anger* of God. *Venema.* 
+**Verse 4 &mdash;** *Cause thine anger toward us to cease.* The phrase, *break thine indignation towards us,* (that is, wherewith thou art angry with us, in order that it may cease of itself,)comprehends the abolition of the signs and the effects of anger. The word drk, for this is the root to be taken, properly denotes a *breaking* by means of *notches* and *gaps,* as when the *edge* of anything is broken by many notches and gaps, and it is made utterly worn and useless. *Indignation,* so long as it is vigorous and spreads its effects, has an *edge,* which smites and pierces; but it is considered blunt and broken, when it ceases to exert itself, and produces evils no longer, this they affirm of the *anger* of God. &mdash; *Venema* 
 
-**Verse 6 &mdash;** *Wilt thou not revive us again?* The Hebrew is, *Wilt thou not return and revive us?* We translate the verb *return* by the adverb *again: Wilt thou not revive us again?* Thou hast given us many *revives:* when we were as *dead men,* and like carcases rotting in the grave, thou didst revive us, wilt thou not revive us once more, and act over those powerfully merciful works and strong salvations once more, or again? *Joseph Caryl.* 
+**Verse 6 &mdash;** *Wilt thou not revive us again?* The Hebrew is, *Wilt thou not return and revive us?* We translate the verb *return* by the adverb *again: Wilt thou not revive us again?* Thou hast given us many *revives:* when we were as *dead men,* and like carcases rotting in the grave, thou didst revive us, wilt thou not revive us once more, and act over those powerfully merciful works and strong salvations once more, or again? &mdash; *Joseph Caryl* 
 
-**Verse 6 &mdash;** *That thy people may rejoice in thee.* Bernard in his 15th Sermon on Canticles says Jesus is honey in the mouth, melody in the ear, joy in the heart. Is any among us sad? Let Jesus enter the heart, and thence spring to the countenance, and behold, before the rising brightness of his name, every cloud is scattered, serenity returns. Origen in his 10th Hom on Genesis, has the remark, Abraham rejoiced not in present things, neither in the riches of the words, nor deeds of time. But do you wish to hear, whence he drew his joy? Listen to the Lord speaking to the Jews, Joh 8:56: *Your father, Abraham rejoiced to see my day: and he saw it, and was glad:* hope heaped up his joys. *Le Blanc.* 
+**Verse 6 &mdash;** *That thy people may rejoice in thee.* Bernard in his 15th Sermon on Canticles says Jesus is honey in the mouth, melody in the ear, joy in the heart. Is any among us sad? Let Jesus enter the heart, and thence spring to the countenance, and behold, before the rising brightness of his name, every cloud is scattered, serenity returns. Origen in his 10th Hom on Genesis, has the remark, Abraham rejoiced not in present things, neither in the riches of the words, nor deeds of time. But do you wish to hear, whence he drew his joy? Listen to the Lord speaking to the Jews, Joh 8:56: *Your father, Abraham rejoiced to see my day: and he saw it, and was glad:* hope heaped up his joys. &mdash; *Le Blanc* 
 
-**Verse 6 &mdash;** *That thy people may rejoice in thee.* When God changeth the cheer of his people, their joy should not be in the gift, but in the Giver. *David Dickson.* 
+**Verse 6 &mdash;** *That thy people may rejoice in thee.* When God changeth the cheer of his people, their joy should not be in the gift, but in the Giver. &mdash; *David Dickson* 
 
-**Verse 6 &mdash;** It is the most natural thing, the most delightful thing, for the people of God to rejoice in God. God is the fountain of joy, and whom should he fill with it but his people? And whom should his people breathe it into again but him? This posture God delights to have them in; this posture they delight to be in; but this cannot be in that estate of death and captivity wherein God for a long season shutteth them up. "The living, the living shall praise thee, "but alas, the dead cannot. *John Pennington,* 1656.
+**Verse 6 &mdash;** It is the most natural thing, the most delightful thing, for the people of God to rejoice in God. God is the fountain of joy, and whom should he fill with it but his people? And whom should his people breathe it into again but him? This posture God delights to have them in; this posture they delight to be in; but this cannot be in that estate of death and captivity wherein God for a long season shutteth them up. "The living, the living shall praise thee, "but alas, the dead cannot. &mdash; *John Pennington, 1656*
 
-**Verse 6 &mdash;** Truly sin kills. Men are dead in trespasses and sins, dead in law, dead in their affections, dead in a loss of comfortable communion with God. Probably the greatest practical heresy of each age is a low idea of our undone condition under the guilt and dominion of sin. While this prevails we shall be slow to cry for *reviving* or *quickening.* What sinners and churches need is quickening by the Holy Ghost. *William S. Plumer.* 
+**Verse 6 &mdash;** Truly sin kills. Men are dead in trespasses and sins, dead in law, dead in their affections, dead in a loss of comfortable communion with God. Probably the greatest practical heresy of each age is a low idea of our undone condition under the guilt and dominion of sin. While this prevails we shall be slow to cry for *reviving* or *quickening.* What sinners and churches need is quickening by the Holy Ghost. &mdash; *William S. Plumer* 
 
-**Verses 6-7 &mdash;** Wilt thou not revive us, by the first and spiritual resurrection, and so thy people, quickened from a life of sin to a life of grace, will rejoice in thee, not in themselves, presuming nothing on their own power. And in order that these things may be fulfilled in us, *Shew us, O Lord, thy mercy,* that is, Christ, through whom thou hast pitied the human race, shew him to us after this exile that we may see him face to face. *Richardus Hampolus.* 
+**Verses 6-7 &mdash;** Wilt thou not revive us, by the first and spiritual resurrection, and so thy people, quickened from a life of sin to a life of grace, will rejoice in thee, not in themselves, presuming nothing on their own power. And in order that these things may be fulfilled in us, *Shew us, O Lord, thy mercy,* that is, Christ, through whom thou hast pitied the human race, shew him to us after this exile that we may see him face to face. &mdash; *Richardus Hampolus* 
 
-**Verse 7 &mdash;** *Thy mercy.* It is not merely of the Lord's mercies that we are not consumed, but all is mercy, from first to last, —mercy that met us by the way, —mercy that looked upon us in our misery, —mercy that washed us from our sins in his own blood, —mercy that covered our nakedness and clad us in his own robe of righteousness, —mercy that led and guided us by the way, —and mercy that will never leave nor forsake us till mercy has wrought its perfect work in the eternal salvation of our souls through Jesus Christ. *Barton Bouchier.* 
+**Verse 7 &mdash;** *Thy mercy.* It is not merely of the Lord's mercies that we are not consumed, but all is mercy, from first to last, —mercy that met us by the way, —mercy that looked upon us in our misery, —mercy that washed us from our sins in his own blood, —mercy that covered our nakedness and clad us in his own robe of righteousness, —mercy that led and guided us by the way, —and mercy that will never leave nor forsake us till mercy has wrought its perfect work in the eternal salvation of our souls through Jesus Christ. &mdash; *Barton Bouchier* 
 
-**Verse 8 &mdash;** *I will hear,* etc. The true attitude for a sinner to take in the presence of divine revelation, is that of a *listener.* To enter the place of a *doer* before you have occupied that of a *listener,* is to reverse God's order, and throw everything into confusion. Adam tried this plan, and found it a failure. He tried "works." He "sewed fig leaves together, "but it was no use. He could not even satisfy his own conscience, or remove his guilty fear. He had to listen to the voice of God—to hearken to divine revelation. *"Things New and Old."* 1859.
+**Verse 8 &mdash;** *I will hear,* etc. The true attitude for a sinner to take in the presence of divine revelation, is that of a *listener.* To enter the place of a *doer* before you have occupied that of a *listener,* is to reverse God's order, and throw everything into confusion. Adam tried this plan, and found it a failure. He tried "works." He "sewed fig leaves together, "but it was no use. He could not even satisfy his own conscience, or remove his guilty fear. He had to listen to the voice of God—to hearken to divine revelation. &mdash; *"Things New and Old" 1859*
 
-**Verse 8 &mdash;** *I will hear,* etc. The eye as a mere organ of sense must give place to the ear. Therefore it is wittily observed, that our Saviour commanding the abscession of the offending hand, foot, and eye, (Mr 9:43-47), yet never spake of the ear. If thy hand, thy foot, or thine eye, cause thee to offend, deprive thyself of them; but part not with thine ear, for that is an organ to derive unto thy soul's salvation. As Christ says there, a man may enter into heaven, lamed in his feet, as Mephibosheth, blind in his sight, as Barzillai, maimed in his hand, as the dry handed man in the gospel; but if there be not an ear to hear of the way, there will be no foot to enter into heaven. If God be not first in the ear, he is neither sanctifiedly in the mouth, nor comfortably in the heart. The Jews had eyes to see Christ's miracles, but because they had no ears to hear his wisdom, therefore they had no feet to enter into his kingdom. The way into the house is by the door, not by the window: the eye is but the window of the heart, the ear is the door. Now Christ stands knocking at the door, not at the window. Re 3:20. And he will not come in at the window, but at the door. "He that entereth in by the door is the shepherd of the sheep." Joh 10:2. He comes now in by his oracles, now by his miracles. "To him the porter openeth; and the sheep hear his voice, "Joh 10:3. The way to open and let him in is by the door; to hear his voice. There was a man in the gospel blind and deaf; blind eyes is ill; but deaf ears, worse. It is bad to have the eyes seeled (*Seel,* to close up: a term in falconry), but worse to have the ears sealed up. Open your ears therefore to this heavenly voice. Bernard hath this description of a good ear: Which willingly hears what is taught, wisely understands what it heareth, and obediently practises what it understandeth. O give me such an ear, and I will hang on it jewels of gold, ornaments of praise. *Thomas Adams.* 
+**Verse 8 &mdash;** *I will hear,* etc. The eye as a mere organ of sense must give place to the ear. Therefore it is wittily observed, that our Saviour commanding the abscession of the offending hand, foot, and eye, (Mr 9:43-47), yet never spake of the ear. If thy hand, thy foot, or thine eye, cause thee to offend, deprive thyself of them; but part not with thine ear, for that is an organ to derive unto thy soul's salvation. As Christ says there, a man may enter into heaven, lamed in his feet, as Mephibosheth, blind in his sight, as Barzillai, maimed in his hand, as the dry handed man in the gospel; but if there be not an ear to hear of the way, there will be no foot to enter into heaven. If God be not first in the ear, he is neither sanctifiedly in the mouth, nor comfortably in the heart. The Jews had eyes to see Christ's miracles, but because they had no ears to hear his wisdom, therefore they had no feet to enter into his kingdom. The way into the house is by the door, not by the window: the eye is but the window of the heart, the ear is the door. Now Christ stands knocking at the door, not at the window. Re 3:20. And he will not come in at the window, but at the door. "He that entereth in by the door is the shepherd of the sheep." Joh 10:2. He comes now in by his oracles, now by his miracles. "To him the porter openeth; and the sheep hear his voice, "Joh 10:3. The way to open and let him in is by the door; to hear his voice. There was a man in the gospel blind and deaf; blind eyes is ill; but deaf ears, worse. It is bad to have the eyes seeled (*Seel,* to close up: a term in falconry), but worse to have the ears sealed up. Open your ears therefore to this heavenly voice. Bernard hath this description of a good ear: Which willingly hears what is taught, wisely understands what it heareth, and obediently practises what it understandeth. O give me such an ear, and I will hang on it jewels of gold, ornaments of praise. &mdash; *Thomas Adams* 
 
-**Verse 8 &mdash;** *I will hear,* etc. My text carries in it a poetical allusion to the consulting of the cloud of glory, which was between the cherubims, and to the receiving answer from it, upon all critical occasions. David turned his thoughts from all the other views he might have, to this, *I will hear what God the Lord will speak* and that so he might depend wholly on the assurances that he should receive of God's favour, upon the repentance and prayers of the people; and in consideration of God's covenant with them, he knew the answer would be *peace;* which being the form of salutation in those ages, among friends, imported as entire reconciliation. So that by *speaking peace* is to be understood as assurance of God's love and favour *to his people, and to his saints:* that is, to the people that was *sanctified,* and dedicated to the service of God by so many federal rites. *Gilbert Burnet,* 1643-1714/5.
+**Verse 8 &mdash;** *I will hear,* etc. My text carries in it a poetical allusion to the consulting of the cloud of glory, which was between the cherubims, and to the receiving answer from it, upon all critical occasions. David turned his thoughts from all the other views he might have, to this, *I will hear what God the Lord will speak* and that so he might depend wholly on the assurances that he should receive of God's favour, upon the repentance and prayers of the people; and in consideration of God's covenant with them, he knew the answer would be *peace;* which being the form of salutation in those ages, among friends, imported as entire reconciliation. So that by *speaking peace* is to be understood as assurance of God's love and favour *to his people, and to his saints:* that is, to the people that was *sanctified,* and dedicated to the service of God by so many federal rites. &mdash; *Gilbert Burnet, 1643-1714/5*
 
-**Verse 8 &mdash;** *I will hear what God the Lord will speak.* Carnal men speak peace to themselves on account of some supposed goodness in themselves. And unsound professors steal peace from God's promises, such as Isa 55:7 Ho 14:4. But an upright heart will not be satisfied without hearing God speak peace to his heart by his Spirit. And for this he will pray, and wait, and hearken, and when God speaks peace, there comes such sweetness with it, and such discovery of his love, as lays a powerful influence on the soul not to turn again to folly. This peace is an humbling, melting peace, which brings humiliation to the soul as well as joy; but this never happens when men speak peace to themselves. *John Berridge,* 1716-1793.
+**Verse 8 &mdash;** *I will hear what God the Lord will speak.* Carnal men speak peace to themselves on account of some supposed goodness in themselves. And unsound professors steal peace from God's promises, such as Isa 55:7 Ho 14:4. But an upright heart will not be satisfied without hearing God speak peace to his heart by his Spirit. And for this he will pray, and wait, and hearken, and when God speaks peace, there comes such sweetness with it, and such discovery of his love, as lays a powerful influence on the soul not to turn again to folly. This peace is an humbling, melting peace, which brings humiliation to the soul as well as joy; but this never happens when men speak peace to themselves. &mdash; *John Berridge, 1716-1793*
 
-**Verse 8 &mdash;** *I will hear what God the Lord will speak,* etc. His prayer being finished, and he having spoke, he now stands and listens, as you used to do when you expect an echo, what echo he should have, what answer would be returned from heaven, whether his prayer had already come: *I will hear what the Lord will speak;* or, as some read it, *I will hear what the Lord doth speak:* for sometimes there is a present echo, a speedy answer returned to a man's heart, even ere the prayer is half finished. *He will speak peace.* When the child of God wants peace, he can have no peace till God speaks it&mdash; Let God's people be in never so great distress, yet it is an easy thing for God to give peace to them. Mark the expression here used: it is but *speaking* peace, that is, it is as easy for him to give peace as it is for you to speak a word; it is no more to him. Then our comfort is, that as he only must do it, so he easily can do it, even with a word. *Thomas Goodwin.* 
+**Verse 8 &mdash;** *I will hear what God the Lord will speak,* etc. His prayer being finished, and he having spoke, he now stands and listens, as you used to do when you expect an echo, what echo he should have, what answer would be returned from heaven, whether his prayer had already come: *I will hear what the Lord will speak;* or, as some read it, *I will hear what the Lord doth speak:* for sometimes there is a present echo, a speedy answer returned to a man's heart, even ere the prayer is half finished. *He will speak peace.* When the child of God wants peace, he can have no peace till God speaks it&mdash; Let God's people be in never so great distress, yet it is an easy thing for God to give peace to them. Mark the expression here used: it is but *speaking* peace, that is, it is as easy for him to give peace as it is for you to speak a word; it is no more to him. Then our comfort is, that as he only must do it, so he easily can do it, even with a word. &mdash; *Thomas Goodwin* 
 
-**Verse 8 &mdash;** *He will speak peace unto his people, and to his saints,* etc. The voice of the Lord is comfortable, and his words are sweet to those that fear him. It is a plain sign that all is not well with us, when the voice of God doth cast us into fear, when we are afraid to hear the word preached, when just reproofs of our sins are unwelcome to us, and anger us, and make us think the less of our minister that chideth and threateneth us. A good life and a well governed conversation doth not fear the voice of God; the word of God is the light which God hath set up in his church, to guide her feet in the ways of peace. They that do evil hate the light, and will not come near it, lest their works should be reproved; the children of the light resort to it, and call upon God: "Search my veins and my heart, and see if there be any way of wickedness in me." *Edward Marbury.* 
+**Verse 8 &mdash;** *He will speak peace unto his people, and to his saints,* etc. The voice of the Lord is comfortable, and his words are sweet to those that fear him. It is a plain sign that all is not well with us, when the voice of God doth cast us into fear, when we are afraid to hear the word preached, when just reproofs of our sins are unwelcome to us, and anger us, and make us think the less of our minister that chideth and threateneth us. A good life and a well governed conversation doth not fear the voice of God; the word of God is the light which God hath set up in his church, to guide her feet in the ways of peace. They that do evil hate the light, and will not come near it, lest their works should be reproved; the children of the light resort to it, and call upon God: "Search my veins and my heart, and see if there be any way of wickedness in me." &mdash; *Edward Marbury* 
 
-**Verse 8 &mdash;** *To his people and to his saints.* He will give *prosperity* to *the people* in general; and to *his saints* —his followers, in particular. *Adam Clarke.* 
+**Verse 8 &mdash;** *To his people and to his saints.* He will give *prosperity* to *the people* in general; and to *his saints* —his followers, in particular. &mdash; *Adam Clarke* 
 
-**Verse 8 &mdash;** *To his saints.* It is remarkable that we have the suffrage of a celebrated Jewish writer, Kimchi, to understand the word rendered *saints* in this place, of the godly among the Gentiles, as distinguished from the Lord's people, the Jews. *John Fry.* 
+**Verse 8 &mdash;** *To his saints.* It is remarkable that we have the suffrage of a celebrated Jewish writer, Kimchi, to understand the word rendered *saints* in this place, of the godly among the Gentiles, as distinguished from the Lord's people, the Jews. &mdash; *John Fry* 
 
-**Verse 8 &mdash;** *He will speak peace unto his people, and to his saints: but let them not return again to folly.* This imports that if his *saints turn again to folly,* which by woeful experience we find too frequently done, God may *change his voice,* and turn his peace, formerly spoken, into a warlike defiance to their conscience. *Thomas Fuller.* 
+**Verse 8 &mdash;** *He will speak peace unto his people, and to his saints: but let them not return again to folly.* This imports that if his *saints turn again to folly,* which by woeful experience we find too frequently done, God may *change his voice,* and turn his peace, formerly spoken, into a warlike defiance to their conscience. &mdash; *Thomas Fuller* 
 
-**Verse 8 &mdash;** *But let them not turn again to folly.* If God did not in the end speak peace, they would indeed return to folly. For his end of speaking peace is, that they might not return to folly: Ps 125:3, "The rod of the wicked shall not always be upon the righteous, lest they put forth their hand to iniquity; "therefore, at the last verse, "peace shall be upon Israel." As it is a rule in physic still to maintain nature, and therefore when that shall be in hazard to be destroyed, they leave giving purging physic, and give cordials; so doth God with his people: though with purging physic he often brings their spirits very weak and low, yet he will uphold and maintain their spirits, so as they shall not fail and be extinguished, but then he will give cordials to raise them up again. *Thomas Goodwin.* 
+**Verse 8 &mdash;** *But let them not turn again to folly.* If God did not in the end speak peace, they would indeed return to folly. For his end of speaking peace is, that they might not return to folly: Ps 125:3, "The rod of the wicked shall not always be upon the righteous, lest they put forth their hand to iniquity; "therefore, at the last verse, "peace shall be upon Israel." As it is a rule in physic still to maintain nature, and therefore when that shall be in hazard to be destroyed, they leave giving purging physic, and give cordials; so doth God with his people: though with purging physic he often brings their spirits very weak and low, yet he will uphold and maintain their spirits, so as they shall not fail and be extinguished, but then he will give cordials to raise them up again. &mdash; *Thomas Goodwin* 
 
-**Verse 8 &mdash;** It is hard to know, in spiritual exercises, whether is be more difficult to attain some good frame, or to keep and maintain it when it is attained; whether more seriousness is required for making peace with God, or for keeping of it when made; whether more diligence should be in preparing for a communion, or more watchfulness after it: sure both are required; and it was our blessed Lord's word, Mt 26:41, after the first celebration of his supper, "Watch and pray, that ye enter not into temptation." Here that saying holds eminently: *"Non minor est virtus, quam quaerere, parta tueri:"* no less virtue and valour is requisite to maintain, than to make a purchase or conquest. In the words there are,
+**Verse 8 &mdash;** It is hard to know, in spiritual exercises, whether is be more difficult to attain some good frame, or to keep and maintain it when it is attained; whether more seriousness is required for making peace with God, or for keeping of it when made; whether more diligence should be in preparing for a communion, or more watchfulness after it: sure both are required; and it was our blessed Lord's word, Mt 26:41, after the first celebration of his supper, "Watch and pray, that ye enter not into temptation." Here that saying holds eminently: *"Non minor est virtus, quam quaerere, parta tueri:"* no less virtue and valour is requisite to maintain, than to make a purchase or conquest. In the words there are, 1\. A great mercy promised from the Lord to his people, viz., *He will speak peace to them.* 2\. A special caveat and advertisement given them, pointing at their hazard: *But let them not turn again to folly:* that is, let not his people and saints to whom he hath spoken peace, return to sin; let them beware of bourding (Bourding—jesting), and dallying with God's mercy, and of turning his grace into wantonness, of cooling in their affections to him, of slipping back to their old way, and of embracing their old lovers and idols: for that is folly, even in folio, to speak so. &mdash; *James Durham, in "The Unsearchable Riches of Christ"* 
 
-1\. A great mercy promised from the Lord to his people, viz., *He will speak peace to them.* 
+**Verse 9 &mdash;** *That glory may dwell in our land.* What land the true church of Christ, the saints and they that fear God, do dwell in; there doth *glory* dwell: there God, there Christ by his Spirit bringing righteousness and salvation to such a society, is glorious; and for his presence the people are glorious; and the land glorious above all other lands whatsoever. &mdash; *David Dickson* 
 
-2\. A special caveat and advertisement given them, pointing at their hazard: *But let them not turn again to folly:* that is, let not his people and saints to whom he hath spoken peace, return to sin; let them beware of bourding (Bourding—jesting), and dallying with God's mercy, and of turning his grace into wantonness, of cooling in their affections to him, of slipping back to their old way, and of embracing their old lovers and idols: for that is folly, even in folio, to speak so. *James Durham, in "The Unsearchable Riches of Christ."* 
+**Verse 10 &mdash;** *Mercy and truth; righteousness and peace.* Note, four virtues stand out prominently in the incarnation; namely, mercy, truth, righteousness and peace, or love producing peace. These were like four steps of the throne of Christ, or four princes standing near and accompanying Him. 1\. On the right hand, is mercy presenting the olive. 2\. On the left, truth holding the white lily. 3\. Before Him walks justice bearing the balance. 4\. Peace follows Him, having a *cornucopiae* full of flowers, and scattering the flowers around. &mdash; *Le Blanc* 
 
-**Verse 9 &mdash;** *That glory may dwell in our land.* What land the true church of Christ, the saints and they that fear God, do dwell in; there doth *glory* dwell: there God, there Christ by his Spirit bringing righteousness and salvation to such a society, is glorious; and for his presence the people are glorious; and the land glorious above all other lands whatsoever. *David Dickson.* 
+**Verse 10 &mdash;** *Mercy and truth; righteousness and peace.* These four divine attributes parted at the fall of Adam, and met again at the birth of Christ. Mercy was ever inclined to save man, and Peace could *not* be his enemy; but Truth extracted the performance of God's threat, —"The soul that sinneth, it shall die; "and Righteousness could not but give to every one his due, Jehovah must be true in all his ways, and righteous in all his works. Now there is no religion on earth, except the Christian, which can satisfy the demands of all these claimants, and restore an union between them; which can show how God's word can be true, and his work just, and the sinner, notwithstanding, find mercy, and obtain peace. &mdash; *George Horne* 
 
-**Verse 10 &mdash;** *Mercy and truth; righteousness and peace.* Note, four virtues stand out prominently in the incarnation; namely, mercy, truth, righteousness and peace, or love producing peace. These were like four steps of the throne of Christ, or four princes standing near and accompanying Him.
+**Verse 10 &mdash;** This is a remarkable text, and much has been said on it; but there is a beauty in it which, I think, has not been noticed. *Mercy* and *peace* are on one side; *truth* and *righteousness* on the other. *Truth* requires *righteousness; mercy* calls for *peace.* They meet together on the way; one going to make inquisition for sin, the other to plead for reconciliation. Having met, their differences on certain considerations, not here particularly mentioned, are adjusted; and their mutual claims blended together in one common interest; on which *peace* and *righteousness* immediately embrace. Thus, *righteousness* is given to *truth,* and *peace* is given to *mercy.* Now, *where* did these meet? In Christ Jesus. *When* were they reconciled? When he poured out his life on Calvary. &mdash; *Adam Clarke* 
 
-1\. On the right hand, is mercy presenting the olive.
+**Verse 10 &mdash;** *Mercy and truth are met together.* 1\. They meet together *in God;* for *all the paths of the Lord are mercy and truth,* Ps 25:9; *mercy* in making, and *truth* in keeping his promise to his people. Paul saith, Jesus Christ was a minister of the circumcision to the *truth* of God, to confirm the promises made unto the fathers, and that the Gentiles might glorify God for his *mercy.* Ro 15:8. God promised his Son unto the Jews, and he gave him in the fulness of time to be both a light to the Gentiles, and glory to his people Israel; herein shewing his *mercy* more principally to the Gentiles, his *truth* unto the Jews, and so his mercy and truth embraced each other so that he made both people but one, to wit, one flock, in one sheepfold, under one shepherd. If we take *truth and righteousness* for God's justice in punishing, *mercy and peace* for his graciousness in pardoning; yet as they meet together in all his ways unto such as keep his covenant and his testimonies. For as the mercies of the wicked are full of cruelty, so the very judgments of God upon his servants are full of mercy. In his wrath he remembers pity; punishing a little, that he may pardon a great deal; destroying the flesh only to save the spirit, 1Co 5:5. *Misericordiae est aliquando subtrahere misericordiam.* It was good for Joseph that he was a captive; good for Naaman that he was a leper; good for Bartimaeus that he was blind, and for David that he was in trouble. Bradford thanked God more of his prison, than of any parlour or pleasure. All things are for the best unto the faithful, and so God's *mercy and truth are met together; righteousness and peace have kissed each other,* his mercy being just, and his justice being merciful; but God in giving his only Son unto the world, more abundantly shewed his *mercy and justice kissing one another.* His *justice* that every soul that sins should die; but his *mercy* desires not the death of a sinner. Eze 33:11&mdash; 2\. Righteousness and peace meet together *in man;* so Augustine expounds it: an unjust man is full of quarrels, like Ishmael, "every man's hand is against him, and his hand against every man; "but he who is righteous, and giveth every man his due, shall have peace, so much as is possible with all men, especially with his own self and soul. Righteousness and peace are so near, so dear, that thou canst not have the one without the other. 3\. Righteousness and peace meet *in Christ,* God's man; for by these two, some divines understand the Old Testament and the New. The Law doth exact *justice,* requiring of a malefactor "eye for eye, tooth for tooth, hand for hand, foot for foot; "but the Gospel is full of *mercy* and *peace,* saying unto the sinner, who truly repenteth him of his sins, and unfeignedly believes the word of promise, "Son, be of good comfort, thy sins are forgiven thee; ""Daughter be of good cheer, thy faith hath made thee whole; ""Go thy way, they belief hath saved thee; ""Behold, thou art now made whole, sin no more." These two testaments meet together in Christ, as in their proper centre, they *kissed each other* on this (Christmas) day, because the gospel performed what the law promised. &mdash; *John Boys* 
 
-2\. On the left, truth holding the white lily.
+**Verse 10 &mdash;** When our Lord spake that parable of the prodigal son, and represented the Father as seeing his child afar off in his misery, and how he had compassion on him, and ran and fell on his neck and kissed him, one cannot but feel what a touching and tender illustration he has given of this most exquisite passage of his own word: *Mercy and truth are met together; righteousness and peace have kissed each other.* &mdash; *Barton Bouchier* 
 
-3\. Before Him walks justice bearing the balance.
+**Verses 10-11 &mdash;** Mercy and Peace if they had met, or Truth and Righteousness, either of the two, it had not been strange. But for these that seem to be in opposition to do it, that makes this meeting marvellous in our eyes. Will you stay a little and take a view of the parties? Four they are. These four, 1\. Mercy, and 2\. Truth, 3\. Righteousness, and 4\. Peace. Which quaternion at the first sight divides itself into two and two. Mercy and Peace, they two pair well; they be *collectanae,* as Bernard saith of them in one place, 'bed fellows, 'sleep together; *collectanae,* as in another place, 'sucked one milk, one breast' both. And as these two, so the other two; Truth and Righteousness seem to be of one complexion and disposition, and commonly take part together. Of these Mercy seems to favour us; and Peace no enemy to us or to any (seeing we must speak of them as of persons); mild and gentle persons both. For Righteousness I know not well what to say: *gestat gladium,* (bears the sword), and I fear *non frustra* (not in vain). Nor of Truth, who is *vera* and *severa,* 'severe' too otherwhile. These I doubt are not like affected. The reason of my doubt. One of them, Righteousness, it is told here for great news, that she but "looked down hitherwards from heaven." Before then she would not have done that. A great sign it is of heart burning, when one will not do so much as look at another—not endure his sight. We cannot promise ourselves much of her. No, nor of Truth. One was so bold in a place to say, *omnis homo mendax* (Ro 3:4), and feared no challenge for it. By that it seems all stands not well with her neither. So then two for us, two against us. For their order. Mercy is first, and Peace last. With both ends we shall do well enough. God send us to do but so with the midst! Yet this is not amiss that they which favour us less are in the midst; hemmed in on both sides, closed about with those that wish us well; and they between us and them. On the one side, Mercy before; on the other, Peace behind another; that in this double meeting Mercy sorts not herself, goes not to Righteousness; nor Righteousness to her, but to Peace. A kind of cross meeting, as it were, there is—the better hope of accord. Mercy and Righteousness have no symbolizing quality at all, no hope of them; but Truth with Mercy hath. There is truth as well in the promise of Mercy as in the threat of justice. &mdash; *Lancelot Andrewes* 
 
-4\. Peace follows Him, having a *cornucopiae* full of flowers, and scattering the flowers around. *Le Blanc.* 
+**Verse 11 &mdash;** *Truth shall spring.* The literal sense is, that the promises which for a long time are not fulfilled, and seem like seeds or roots hidden and concealed under ground, when they shall be fulfilled, shall be considered to spring up, to grow, etc. &mdash; *Lorinus* 
 
-**Verse 10 &mdash;** *Mercy and truth; righteousness and peace.* These four divine attributes parted at the fall of Adam, and met again at the birth of Christ. Mercy was ever inclined to save man, and Peace could *not* be his enemy; but Truth extracted the performance of God's threat, —"The soul that sinneth, it shall die; "and Righteousness could not but give to every one his due, Jehovah must be true in all his ways, and righteous in all his works. Now there is no religion on earth, except the Christian, which can satisfy the demands of all these claimants, and restore an union between them; which can show how God's word can be true, and his work just, and the sinner, notwithstanding, find mercy, and obtain peace. *George Horne.* 
+**Verse 11 &mdash;** *Spring.* The Metaphor is taken from flowers and trees. In the Greek the expression is aneile, that is, *has sprung* like the morning, for anatllw and anatolh are properly said of the rising of the sun and moon. &mdash; *Le Blanc* 
 
-**Verse 10 &mdash;** This is a remarkable text, and much has been said on it; but there is a beauty in it which, I think, has not been noticed. *Mercy* and *peace* are on one side; *truth* and *righteousness* on the other. *Truth* requires *righteousness; mercy* calls for *peace.* They meet together on the way; one going to make inquisition for sin, the other to plead for reconciliation. Having met, their differences on certain considerations, not here particularly mentioned, are adjusted; and their mutual claims blended together in one common interest; on which *peace* and *righteousness* immediately embrace. Thus, *righteousness* is given to *truth,* and *peace* is given to *mercy.* Now, *where* did these meet? In Christ Jesus. *When* were they reconciled? When he poured out his life on Calvary. *Adam Clarke.* 
+**Verse 11 &mdash;** *Shall look down.* This looking *down,* pqsg rendered generally parakuptw in the Greek, implies such a look as in 1Pe 1:12, angels give into the things of salvation, and such a look as the disciples gave into the sepulchre. It is really the *Righteous One* who is resting over them in complacent love, not as in Ps 14:2 53:2, but fulfilling Ps 102:19-20. &mdash; *Andrew A. Bonar* 
 
-**Verse 10 &mdash;** *Mercy and truth are met together.* 
+**Verse 12 &mdash;** It has sometimes been objected that the Christian doctrine of a Millennium cannot be true, for the earth could not support the teeming millions that would naturally be found upon it, if wars and vice should cease to waste its population. But omitting other and pertinent answers that have been given, we find one here that covers the whole ground, *the earth shall yield her increase.* Now and then the season is unusually propitious, and we have a specimen of what God can do when he chooses. He can without any miracle make it many times more fruitful than it has ever been. &mdash; *William S. Plumer* 
 
-1\. They meet together *in God;* for *all the paths of the Lord are mercy and truth,* Ps 25:9; *mercy* in making, and *truth* in keeping his promise to his people. Paul saith, Jesus Christ was a minister of the circumcision to the *truth* of God, to confirm the promises made unto the fathers, and that the Gentiles might glorify God for his *mercy.* Ro 15:8. God promised his Son unto the Jews, and he gave him in the fulness of time to be both a light to the Gentiles, and glory to his people Israel; herein shewing his *mercy* more principally to the Gentiles, his *truth* unto the Jews, and so his mercy and truth embraced each other so that he made both people but one, to wit, one flock, in one sheepfold, under one shepherd. If we take *truth and righteousness* for God's justice in punishing, *mercy and peace* for his graciousness in pardoning; yet as they meet together in all his ways unto such as keep his covenant and his testimonies. For as the mercies of the wicked are full of cruelty, so the very judgments of God upon his servants are full of mercy. In his wrath he remembers pity; punishing a little, that he may pardon a great deal; destroying the flesh only to save the spirit, 1Co 5:5. *Misericordiae est aliquando subtrahere misericordiam.* It was good for Joseph that he was a captive; good for Naaman that he was a leper; good for Bartimaeus that he was blind, and for David that he was in trouble. Bradford thanked God more of his prison, than of any parlour or pleasure. All things are for the best unto the faithful, and so God's *mercy and truth are met together; righteousness and peace have kissed each other,* his mercy being just, and his justice being merciful; but God in giving his only Son unto the world, more abundantly shewed his *mercy and justice kissing one another.* His *justice* that every soul that sins should die; but his *mercy* desires not the death of a sinner. Eze 33:11&mdash;
+**Verse 13 &mdash;** *Righteousness shall go before him,* etc. The meaning of this difficult verse may probably be as follows:—Righteousness shall go before Him (Jehovah), and shall make his footsteps a pathway for his servants to walk in. &mdash; *Ernest Hawkins* 
 
-2\. Righteousness and peace meet together *in man;* so Augustine expounds it: an unjust man is full of quarrels, like Ishmael, "every man's hand is against him, and his hand against every man; "but he who is righteous, and giveth every man his due, shall have peace, so much as is possible with all men, especially with his own self and soul. Righteousness and peace are so near, so dear, that thou canst not have the one without the other.
+**Verse 13 &mdash;** *Shall set us in the way of his steps.* It is reported in the Bohemian History, that St. Wenceslaus, their king, one winter night going to his devotions, in a remote church, barefooted in the snow and sharpness of unequal and pointed ice, his servant Podavivus, who waited upon his master's piety, and endeavoured to imitate his affections, began to faint through the violence of the snow and cold; till the king commanded him to follow him, and set his feet in the same footsteps, which his feet should mark for him: the servant did so, and either fancied a cure, or found one; for he followed his prince, helped forward with shame and zeal to his imitation, and by the forming footsteps for him in the snow. In the same manner does the blessed Jesus; for, since our way is troublesome, obscure, full of objections and danger, apt to be mistaken, and to affright our industry, he commands us to mark his footsteps, to tread where his feet have stood, and not only invite us forward by the argument of his example, but he hath trodden down much of the difficulty, and made the way easier and fit for our feet. For he knows our infirmities, and himself hath felt their experience in all things but in the neighbourhoods of sin; and therefore he hath proportioned a way and a path to our strength and capacities, and like Jacob, hath marched softly and in evenness with the children and the cattle, to entertain us by the comforts of his company, and the influence of a perpetual guide. &mdash; *Jeremy Taylor* 
 
-3\. Righteousness and peace meet *in Christ,* God's man; for by these two, some divines understand the Old Testament and the New. The Law doth exact *justice,* requiring of a malefactor "eye for eye, tooth for tooth, hand for hand, foot for foot; "but the Gospel is full of *mercy* and *peace,* saying unto the sinner, who truly repenteth him of his sins, and unfeignedly believes the word of promise, "Son, be of good comfort, thy sins are forgiven thee; ""Daughter be of good cheer, thy faith hath made thee whole; ""Go thy way, they belief hath saved thee; ""Behold, thou art now made whole, sin no more." These two testaments meet together in Christ, as in their proper centre, they *kissed each other* on this (Christmas) day, because the gospel performed what the law promised. *John Boys.* 
-
-**Verse 10 &mdash;** When our Lord spake that parable of the prodigal son, and represented the Father as seeing his child afar off in his misery, and how he had compassion on him, and ran and fell on his neck and kissed him, one cannot but feel what a touching and tender illustration he has given of this most exquisite passage of his own word: *Mercy and truth are met together; righteousness and peace have kissed each other. Barton Bouchier.* 
-
-**Verses 10-11 &mdash;** Mercy and Peace if they had met, or Truth and Righteousness, either of the two, it had not been strange. But for these that seem to be in opposition to do it, that makes this meeting marvellous in our eyes. Will you stay a little and take a view of the parties? Four they are. These four,
-
-1\. Mercy, and
-
-2\. Truth,
-
-3\. Righteousness, and
-
-4\. Peace. Which quaternion at the first sight divides itself into two and two. Mercy and Peace, they two pair well; they be *collectanae,* as Bernard saith of them in one place, 'bed fellows, 'sleep together; *collectanae,* as in another place, 'sucked one milk, one breast' both. And as these two, so the other two; Truth and Righteousness seem to be of one complexion and disposition, and commonly take part together. Of these Mercy seems to favour us; and Peace no enemy to us or to any (seeing we must speak of them as of persons); mild and gentle persons both. For Righteousness I know not well what to say: *gestat gladium,* (bears the sword), and I fear *non frustra* (not in vain). Nor of Truth, who is *vera* and *severa,* 'severe' too otherwhile. These I doubt are not like affected. The reason of my doubt. One of them, Righteousness, it is told here for great news, that she but "looked down hitherwards from heaven." Before then she would not have done that. A great sign it is of heart burning, when one will not do so much as look at another—not endure his sight. We cannot promise ourselves much of her. No, nor of Truth. One was so bold in a place to say, *omnis homo mendax* (Ro 3:4), and feared no challenge for it. By that it seems all stands not well with her neither. So then two for us, two against us. For their order. Mercy is first, and Peace last. With both ends we shall do well enough. God send us to do but so with the midst! Yet this is not amiss that they which favour us less are in the midst; hemmed in on both sides, closed about with those that wish us well; and they between us and them. On the one side, Mercy before; on the other, Peace behind another; that in this double meeting Mercy sorts not herself, goes not to Righteousness; nor Righteousness to her, but to Peace. A kind of cross meeting, as it were, there is—the better hope of accord. Mercy and Righteousness have no symbolizing quality at all, no hope of them; but Truth with Mercy hath. There is truth as well in the promise of Mercy as in the threat of justice. *Lancelot Andrewes.* 
-
-**Verse 11 &mdash;** *Truth shall spring.* The literal sense is, that the promises which for a long time are not fulfilled, and seem like seeds or roots hidden and concealed under ground, when they shall be fulfilled, shall be considered to spring up, to grow, etc. *Lorinus.* 
-
-**Verse 11 &mdash;** *Spring.* The Metaphor is taken from flowers and trees. In the Greek the expression is aneile, that is, *has sprung* like the morning, for anatllw and anatolh are properly said of the rising of the sun and moon. *Le Blanc.* 
-
-**Verse 11 &mdash;** *Shall look down.* This looking *down,* pqsg rendered generally parakuptw in the Greek, implies such a look as in 1Pe 1:12, angels give into the things of salvation, and such a look as the disciples gave into the sepulchre. It is really the *Righteous One* who is resting over them in complacent love, not as in Ps 14:2 53:2, but fulfilling Ps 102:19-20. *Andrew A. Bonar.* 
-
-**Verse 12 &mdash;** It has sometimes been objected that the Christian doctrine of a Millennium cannot be true, for the earth could not support the teeming millions that would naturally be found upon it, if wars and vice should cease to waste its population. But omitting other and pertinent answers that have been given, we find one here that covers the whole ground, *the earth shall yield her increase.* Now and then the season is unusually propitious, and we have a specimen of what God can do when he chooses. He can without any miracle make it many times more fruitful than it has ever been. *William S. Plumer.* 
-
-**Verse 13 &mdash;** *Righteousness shall go before him,* etc. The meaning of this difficult verse may probably be as follows:—Righteousness shall go before Him (Jehovah), and shall make his footsteps a pathway for his servants to walk in.— *Ernest Hawkins.* 
-
-**Verse 13 &mdash;** *Shall set us in the way of his steps.* It is reported in the Bohemian History, that St. Wenceslaus, their king, one winter night going to his devotions, in a remote church, barefooted in the snow and sharpness of unequal and pointed ice, his servant Podavivus, who waited upon his master's piety, and endeavoured to imitate his affections, began to faint through the violence of the snow and cold; till the king commanded him to follow him, and set his feet in the same footsteps, which his feet should mark for him: the servant did so, and either fancied a cure, or found one; for he followed his prince, helped forward with shame and zeal to his imitation, and by the forming footsteps for him in the snow. In the same manner does the blessed Jesus; for, since our way is troublesome, obscure, full of objections and danger, apt to be mistaken, and to affright our industry, he commands us to mark his footsteps, to tread where his feet have stood, and not only invite us forward by the argument of his example, but he hath trodden down much of the difficulty, and made the way easier and fit for our feet. For he knows our infirmities, and himself hath felt their experience in all things but in the neighbourhoods of sin; and therefore he hath proportioned a way and a path to our strength and capacities, and like Jacob, hath marched softly and in evenness with the children and the cattle, to entertain us by the comforts of his company, and the influence of a perpetual guide. *Jeremy Taylor.* 
-
-**Verse 13 &mdash;** (*last clause*). The sinner who feels his need of salvation, is *set—in the way of his steps;* as Bartimaeus sat by the way side begging, by which way Jesus walked; and when he came where he was, heard his prayer, and restored him his sight. *Adam Clarke.* 
+**Verse 13 &mdash;** (*last clause*). The sinner who feels his need of salvation, is *set—in the way of his steps;* as Bartimaeus sat by the way side begging, by which way Jesus walked; and when he came where he was, heard his prayer, and restored him his sight. &mdash; *Adam Clarke* 
 
 ## Hints to the Village Preacher
 
-**Verse 1 &mdash;** There is,
+**Verse 1 &mdash;** There is, 1\. Captivity. (a) Of the people of God. (b) Although they are the people of God. (c) Because they are the people of God. *You only have I known,* etc. 2\. Restoration from Captivity: *Thou hast brought back,* etc. (a) The fact. (b) The Author: *Thou:* by thine own power; in thine own manner; at thine own time. 3\. The cause of the Restoration; the favour of God: *Thou hast been favourable.* (a) On account of favour past: "Thou hast." (b) On account of favour in reserve.
 
-1\. Captivity.
+**Verse 2 &mdash;** 1\. The subjects of forgiveness: *Thy people.* (a) By choice. (b) By redemption. (c) By effectual calling. 2\. The time of forgiveness: *Thou hast forgiven,* etc. 3\. The method of forgiveness. (a) Forgiven. Hebrew, borne, same word as in Le 16:22: "The goat shall bear upon him all their iniquities." (b) Covered; as the mercy seat covered the law that had been broken. IV. The extent of forgiveness: *all their sin.* 
 
-(a) Of the people of God.
+**Verse 3 &mdash;** 1\. The language of penitence. It is implied here that the wrath was, (a) Great: (b) Just *thy wrath.* 2\. The language of faith. (a) In the grace of pardon: *Thou hast turned away wrath*. We could not, by anything we could do or suffer. (b) In the method of pardon: *Turned away.* Turned it from us to our Surety. 3\. The language of praise: *Thou hast—thou hast.* 
 
-(b) Although they are the people of God.
+**Verse 4 &mdash;** 1\. In what salvation consists. (a) In the removal of God's enmity from us. (b) In the removal of our enmity to him. 2\. By whom it is accomplished. By the God of salvation. (a) He causes his anger toward us to cease, and (b) Our anger toward him. 3\. How is it obtained? By prayer: "Turn us, "etc.
 
-(c) Because they are the people of God. *You only have I known,* etc.
+**Verse 6 &mdash;** 1\. Revivals imply decline. (a) That there is grace to be revived. (b) That this grace has declined. 2\. Revivals are from God: *Wilt not thou,* etc.: they cannot be got up by men. 3\. Revivals are frequently needed: *Wilt not thou revive us again.* 4\. Revivals are in answer to prayer: *Wilt thou not,* etc. 5\. Revivals are occasions for great joy. (a) *To* the saints. (b) *In* God.
 
-2\. Restoration from Captivity: *Thou hast brought back,* etc.
+**Verse 7 &mdash;** 1\. Salvation is God's work: *Thy salvation.* (a) The plan is his. (b) The provision is his. (c) The condition is his. (d) The application is his. (e) The consummation is his. 2\. Salvation is God's gift. (a) Of his mercy: *Show us thy mercy.* (b) Of his grace: *Grant us,* etc. 3\. Salvation is God's answer to prayer. (a) It is the first object of prayer. (b) It includes every other.
 
-(a) The fact.
-
-(b) The Author: *Thou:* by thine own power; in thine own manner; at thine own time.
-
-3\. The cause of the Restoration; the favour of God: *Thou hast been favourable.* 
-
-(a) On account of favour past: "Thou hast."
-
-(b) On account of favour in reserve.
-
-**Verse 2 &mdash;** 
-
-1\. The subjects of forgiveness: *Thy people.* 
-
-(a) By choice.
-
-(b) By redemption.
-
-(c) By effectual calling.
-
-2\. The time of forgiveness: *Thou hast forgiven,* etc.
-
-3\. The method of forgiveness.
-
-(a) Forgiven. Hebrew, borne, same word as in Le 16:22: "The goat shall bear upon him all their iniquities."
-
-(b) Covered; as the mercy seat covered the law that had been broken. IV. The extent of forgiveness: *all their sin.* 
-
-**Verse 3 &mdash;** 
-
-1\. The language of penitence. It is implied here that the wrath was,
-
-(a) Great:
-
-(b) Just *thy wrath.* 
-
-2\. The language of faith.
-
-(a) In the grace of pardon: *Thou hast turned away wrath*. We could not, by anything we could do or suffer.
-
-(b) In the method of pardon: *Turned away.* Turned it from us to our Surety.
-
-3\. The language of praise: *Thou hast—thou hast.* 
-
-**Verse 4 &mdash;** 
-
-1\. In what salvation consists.
-
-(a) In the removal of God's enmity from us.
-
-(b) In the removal of our enmity to him.
-
-2\. By whom it is accomplished. By the God of salvation.
-
-(a) He causes his anger toward us to cease, and
-
-(b) Our anger toward him.
-
-3\. How is it obtained? By prayer: "Turn us, "etc.
-
-**Verse 6 &mdash;** 
-
-1\. Revivals imply decline.
-
-(a) That there is grace to be revived.
-
-(b) That this grace has declined.
-
-2\. Revivals are from God: *Wilt not thou,* etc.: they cannot be got up by men.
-
-3\. Revivals are frequently needed: *Wilt not thou revive us again.* 
-
-4\. Revivals are in answer to prayer: *Wilt thou not,* etc.
-
-5\. Revivals are occasions for great joy.
-
-(a) *To* the saints.
-
-(b) *In* God.
-
-**Verse 7 &mdash;** 
-
-1\. Salvation is God's work: *Thy salvation.* 
-
-(a) The plan is his.
-
-(b) The provision is his.
-
-(c) The condition is his.
-
-(d) The application is his.
-
-(e) The consummation is his.
-
-2\. Salvation is God's gift.
-
-(a) Of his mercy: *Show us thy mercy.* 
-
-(b) Of his grace: *Grant us,* etc.
-
-3\. Salvation is God's answer to prayer.
-
-(a) It is the first object of prayer.
-
-(b) It includes every other.
-
-**Verse 8 &mdash;** 
-
-1\. We should look for an answer to prayer. Having spoken to God, we should hear what he has to say to us in reply.
-
-(a) In his word.
-
-(b) In his providence.
-
-(c) By his Spirit in our own souls.
-
-2\. We should look for an answer of peace: *He will speak peace.* 
-
-3\. We should avoid whatever might deprive us of that peace: *But let them not turn,* etc. *G. R.* 
+**Verse 8 &mdash;** 1\. We should look for an answer to prayer. Having spoken to God, we should hear what he has to say to us in reply. (a) In his word. (b) In his providence. (c) By his Spirit in our own souls. 2\. We should look for an answer of peace: *He will speak peace.* 3\. We should avoid whatever might deprive us of that peace: *But let them not turn,* etc. &mdash; *G. R.* 
 
 **Verse 8 &mdash;** *Thomas Goodwin* has three sermons upon this verse, (*First clause*), entitled The Return of Prayers. (*Second clause*).—Tidings of Peace. (*Last clause*)—The Folly of Relapsing after Peace spoken.
 
-**Verse 8 &mdash;** (*last clause*). They should not turn again to folly,
+**Verse 8 &mdash;** (*last clause*). They should not turn again to folly, 1\. Because it will be a greater aggravation in sinning. It is made the aggravation of Solomon's sin (1Ki 11:9), that "God had appeared to him twice." 2\. The second reason is intimated in the word *folly:* as if the Lord should have said, Set aside the unkindness and wrong you do to me, yet therein you befool yourselves; you will have the worst of it. &mdash; *T. Goodwin* 
 
-1\. Because it will be a greater aggravation in sinning. It is made the aggravation of Solomon's sin (1Ki 11:9), that "God had appeared to him twice."
+**Verse 10 &mdash;** 1\. The attributes displayed in man's salvation. (a) Mercy in the promise. (b) Truth in its fulfilment. (c) Righteousness in the manner of its fulfilment. (d) Peace in its results. 2\. These attributes harmonized in man's salvation. (a) How? *Met together—kissed each other.* (b) Why? Each on its own account. All on each others' account. (c) Where? Met and kissed—(1.) In the covenant. (2.) At the incarnation. (3.) At the cross. (4.) At the conversion of every sinner. (5.) At the completion of the saints in heaven. &mdash; *G. R.* 
 
-2\. The second reason is intimated in the word *folly:* as if the Lord should have said, Set aside the unkindness and wrong you do to me, yet therein you befool yourselves; you will have the worst of it. *T. Goodwin.* 
+**Verse 10 &mdash;** The Pulpit, volume 28, 1836, contains a sermon by R. W. Sibthorpe, in which the preacher, 1\. Considers the harmony of the divine perfections in the redemption of a sinner. 2\. The wisdom of the divine dealings in *the calling* and guidance of the believer; so that mercy, truth, etc., each becomes in turn conspicuous in our experience. 3\. The completeness of the divine image *in the sanctified soul*, so that the perfected saint abounds in mercy and truth, is filled with peace, and is conformed to his righteous Lord.
 
-**Verse 10 &mdash;** 
-
-1\. The attributes displayed in man's salvation.
-
-(a) Mercy in the promise.
-
-(b) Truth in its fulfilment.
-
-(c) Righteousness in the manner of its fulfilment.
-
-(d) Peace in its results.
-
-2\. These attributes harmonized in man's salvation.
-
-(a) How? *Met together—kissed each other.* 
-
-(b) Why? Each on its own account. All on each others' account.
-
-(c) Where? Met and kissed—(1.) In the covenant. (2.) At the incarnation. (3.) At the cross. (4.) At the conversion of every sinner. (5.) At the completion of the saints in heaven. *G. R.* 
-
-**Verse 10 &mdash;** The Pulpit, volume 28, 1836, contains a sermon by R. W. Sibthorpe, in which the preacher,
-
-1\. Considers the harmony of the divine perfections in the redemption of a sinner.
-
-2\. The wisdom of the divine dealings in *the calling* and guidance of the believer; so that mercy, truth, etc., each becomes in turn conspicuous in our experience.
-
-3\. The completeness of the divine image *in the sanctified soul*, so that the perfected saint abounds in mercy and truth, is filled with peace, and is conformed to his righteous Lord.
-
-**Verse 12 &mdash;** 
-
-1\. All spiritual good is from God: *The Lord will give*, etc.
-
-(a) Is repentance a good thing? The Lord will give repentance.
-
-(b) Is pardon? *The Lord,* etc.
-
-(c) Is faith?
-
-(d) Is justification?
-
-(e) Is regeneration?
-
-(f) Is growth in grace?
-
-(g) Is preservation unto the end?
-
-(h) Is eternal glory? *The Lord will give,* etc.
-
-2\. All temporal good is from God. *Our land,* etc.
-
-(a) In a lawful manner *our* land.
-
-(b) In the use of appointed means: *Shall yield her increase,* etc.
-
-(c) In dependence upon the divine blessing. "Who giveth fruitful seasons, "etc. Spiritual good is not less given in the use of appointed means. *G. R.* 
+**Verse 12 &mdash;** 1\. All spiritual good is from God: *The Lord will give*, etc. (a) Is repentance a good thing? The Lord will give repentance. (b) Is pardon? *The Lord,* etc. (c) Is faith? (d) Is justification? (e) Is regeneration? (f) Is growth in grace? (g) Is preservation unto the end? (h) Is eternal glory? *The Lord will give,* etc. 2\. All temporal good is from God. *Our land,* etc. (a) In a lawful manner *our* land. (b) In the use of appointed means: *Shall yield her increase,* etc. (c) In dependence upon the divine blessing. "Who giveth fruitful seasons, "etc. Spiritual good is not less given in the use of appointed means. &mdash; *G. R.* 
 
 **Verse 12 &mdash;** The fertility of our spheres of labour the gift of God.
 
-**Verse 13 &mdash;** 
-
-1\. The righteousness by which we are justified long precedes our justification: this righteousness is gone before, etc.
-
-2\. Our justification by that righteousness precedes our sanctification.
-
-3\. The righteousness of sanctification invariably follows that of justification. *G. R.* 
+**Verse 13 &mdash;** 1\. The righteousness by which we are justified long precedes our justification: this righteousness is gone before, etc. 2\. Our justification by that righteousness precedes our sanctification. 3\. The righteousness of sanctification invariably follows that of justification. &mdash; *G. R.* 
 
 ## Works Upon The Eighty-Fifth Psalm
 
