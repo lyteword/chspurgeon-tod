@@ -62,21 +62,21 @@ Resting on his sure word, we feel that joy which is here commanded, and in the s
 
 **Title &mdash;** This is the only Psalm in the whole collection entitled *"A Psalm of Praise."* It is supposed to have received this appellation because peculiarly adapted, if not designed to be sung, when the *sacrifices of thanksgiving* were offered. See Le 7:12. The Greeks think it was written by David, who here invites all the world to join with the Israelites in the service of God, whose divine sovereignty he here recognises. *Samuel Burder.* 
 
-**Whole Psalm.** If we are right in regarding Psalms 93-99 as forming one continuous series, one great prophetic oratorio, whose title is "Jehovah is King, "and through which there runs the same great idea, this Psalm may be regarded as the doxology which closes the strain. We find lingering in it notes of the same great harmony. It breathes the same gladness; it is filled with the same hope, that all nations shall bow down before Jehovah, and confess that he is God. *J. J. S. Perowne.* 
+**Whole Psalm &mdash;** If we are right in regarding Psalms 93-99 as forming one continuous series, one great prophetic oratorio, whose title is "Jehovah is King, "and through which there runs the same great idea, this Psalm may be regarded as the doxology which closes the strain. We find lingering in it notes of the same great harmony. It breathes the same gladness; it is filled with the same hope, that all nations shall bow down before Jehovah, and confess that he is God. *J. J. S. Perowne.* 
 
-**Whole Psalm.** This Psalm contains a promise of Christianity, as winter at its close contains the promise of spring. The trees are ready to bud, the flowers are just hidden by the light soil, the clouds are heavy with rain, the sun shines in his strength; only a genial wind from the south is wanted to give a new life to all things. *"The Speaker's Commentary, "* 1873.
+**Whole Psalm &mdash;** This Psalm contains a promise of Christianity, as winter at its close contains the promise of spring. The trees are ready to bud, the flowers are just hidden by the light soil, the clouds are heavy with rain, the sun shines in his strength; only a genial wind from the south is wanted to give a new life to all things. *"The Speaker's Commentary, "* 1873.
 
-**Whole Psalm.** Luther would have immortalized his name had he done no more than written the majestic air and harmony to which we are accustomed to sing this Psalm, and which, when the mind is in a truly worshipping frame, seems to bring heaven down to earth, and to raise earth to heaven, giving us anticipations of the pure and sublime delights of that noble and general assembly in which saints and angels shall for ever celebrate the praises of God. *Ingram Cobbin.* 
+**Whole Psalm &mdash;** Luther would have immortalized his name had he done no more than written the majestic air and harmony to which we are accustomed to sing this Psalm, and which, when the mind is in a truly worshipping frame, seems to bring heaven down to earth, and to raise earth to heaven, giving us anticipations of the pure and sublime delights of that noble and general assembly in which saints and angels shall for ever celebrate the praises of God. *Ingram Cobbin.* 
 
-**Verse 2.** The first half of this verse is from Ps 2:11, only that instead of *"with fear, "* there, where the psalmist has to do with fierce rebels, there is substituted here *"gladness"* or joy. *F. W. Hengstenberg.* 
+**Verse 2 &mdash;** The first half of this verse is from Ps 2:11, only that instead of *"with fear, "* there, where the psalmist has to do with fierce rebels, there is substituted here *"gladness"* or joy. *F. W. Hengstenberg.* 
 
-**Verse 2.** *Serve the Lord with gladness.* It is a sign the oil of grace hath been poured into the heart "when the oil of gladness" shines on the countenance. Cheerfulness credits religion. *Thomas Watson.* 
+**Verse 2 &mdash;** *Serve the Lord with gladness.* It is a sign the oil of grace hath been poured into the heart "when the oil of gladness" shines on the countenance. Cheerfulness credits religion. *Thomas Watson.* 
 
-**Verse 2.** *Serve the Lord.* It is our privilege to serve the Lord in all things. It is ours to please the Lord in loosing the latchet of a shoe; and to enjoy the expression of his favour therein. The servant of God is not serving at the same time another master; he has not been hired for occasional service; he abides in the service of his God, and cannot be about anything but his Master's business; he eats, he drinks, he sleeps, he walks, he discourses, he findeth recreation, all by the way of serving God. *Serve the Lord with gladness.* Can you bear to be waited upon by a servant who goes moping and dejected to his every task? You would rather have no servant at all, than one who evidently finds your service cheerless and irksome. *George Bowen.* 
+**Verse 2 &mdash;** *Serve the Lord.* It is our privilege to serve the Lord in all things. It is ours to please the Lord in loosing the latchet of a shoe; and to enjoy the expression of his favour therein. The servant of God is not serving at the same time another master; he has not been hired for occasional service; he abides in the service of his God, and cannot be about anything but his Master's business; he eats, he drinks, he sleeps, he walks, he discourses, he findeth recreation, all by the way of serving God. *Serve the Lord with gladness.* Can you bear to be waited upon by a servant who goes moping and dejected to his every task? You would rather have no servant at all, than one who evidently finds your service cheerless and irksome. *George Bowen.* 
 
-**Verse 3.** *Know ye that the Lord he is God, * &c. From the reasons of this exhortation, learn, that such is our natural atheism, that we have need again and again to be instructed, *that the Lord is God*; of whom, and through whom, and for whom are all things. *David Dickson.* 
+**Verse 3 &mdash;** *Know ye that the Lord he is God, * &c. From the reasons of this exhortation, learn, that such is our natural atheism, that we have need again and again to be instructed, *that the Lord is God*; of whom, and through whom, and for whom are all things. *David Dickson.* 
 
-**Verse 3.** *It is he that made us&mdash; we are his.* Now, the ground of God's property in all things is his creating of all&mdash; Accordingly, you may observe in many scriptures, where the Lord's propriety is asserted, this, as the ground of it, is annexed: Ps 89:11-12, the heavens, the earth, the whole world, and all therein is thine. Why so? "Thou hast founded them." And so are all the regions and quarters of the world, northern and southern, western and eastern; for Tabor was on the west and Hermon on the east; all are thine, for thou hast created them. So sea and land, Ps 95:5. As all things measured by time, so time itself, the measure of all, Ps 74:16-17. "Thou hast made the light, " *i.e.* the moon for the night and the sun for the day. He lays claim to all the climes of the earth, and all the seasons of the year on this account; he made them. This will be more evident and unquestionable, if we take notice of these particulars:
+**Verse 3 &mdash;** *It is he that made us&mdash; we are his.* Now, the ground of God's property in all things is his creating of all&mdash; Accordingly, you may observe in many scriptures, where the Lord's propriety is asserted, this, as the ground of it, is annexed: Ps 89:11-12, the heavens, the earth, the whole world, and all therein is thine. Why so? "Thou hast founded them." And so are all the regions and quarters of the world, northern and southern, western and eastern; for Tabor was on the west and Hermon on the east; all are thine, for thou hast created them. So sea and land, Ps 95:5. As all things measured by time, so time itself, the measure of all, Ps 74:16-17. "Thou hast made the light, " *i.e.* the moon for the night and the sun for the day. He lays claim to all the climes of the earth, and all the seasons of the year on this account; he made them. This will be more evident and unquestionable, if we take notice of these particulars:
 
 1\. He made all for himself. He was not employed by any to make it for another, for in that case sometimes the maker is not the owner; but the Lord did employ himself in that great work, and for himself did he undertake and finish it. Pr 16:4 Col 1:15-16.
 
@@ -86,15 +86,15 @@ Resting on his sure word, we feel that joy which is here commanded, and in the s
 
 4\. He upholds all things in the same manner as he created, continues the being of all things in the same way as he gave it. He does it of himself, without other support, without any assistant. All would fall into nothing in a moment, if he did not every moment bear them up. So that all things on this account have still their being from him every moment, and their well-being too, and all the means which conduce to it; and therefore all are his own. *David Clarkson.* 
 
-**Verse 3.** *It is he that hath made us.* The emperor Henry, while out hunting on the Lord's day called Quinquagesima, his companions being scattered, came unattended to the entrance of a certain wood; and seeing a church hard by, he made for it, and feigning himself to be a soldier, simply requested a mass of the priest. Now that priest was a man of notable piety, but so deformed in person that he seemed a monster rather than a man. When he had attentively considered him, the emperor began to wonder exceedingly why God, from whom all beauty proceeds, should permit so deformed a man to administer his sacraments. But prescntly, when mass commenced, and they came to the passage, *Know ye that the Lord he is God, * which was chanted by a boy, the priest rebuked the boy for singing negligently, and said with a loud voice, *It is he that hath made us, and not we ourselves.* Struck by these words, and believing the priest to be a prophet, the emperor raised him, much against his will, to the archbishopric of Cologne, which see he adorned by his devotion and excellent virtues. *From "Roger of Wendover's* (1237) *Flowers of History."* 
+**Verse 3 &mdash;** *It is he that hath made us.* The emperor Henry, while out hunting on the Lord's day called Quinquagesima, his companions being scattered, came unattended to the entrance of a certain wood; and seeing a church hard by, he made for it, and feigning himself to be a soldier, simply requested a mass of the priest. Now that priest was a man of notable piety, but so deformed in person that he seemed a monster rather than a man. When he had attentively considered him, the emperor began to wonder exceedingly why God, from whom all beauty proceeds, should permit so deformed a man to administer his sacraments. But prescntly, when mass commenced, and they came to the passage, *Know ye that the Lord he is God, * which was chanted by a boy, the priest rebuked the boy for singing negligently, and said with a loud voice, *It is he that hath made us, and not we ourselves.* Struck by these words, and believing the priest to be a prophet, the emperor raised him, much against his will, to the archbishopric of Cologne, which see he adorned by his devotion and excellent virtues. *From "Roger of Wendover's* (1237) *Flowers of History."* 
 
-**Verse 3.** *It is he that hath made us&mdash; we are his.* Many a one has drawn balsatalc consolation from these words; as for instance Melancthon when disconsolately sorrowful over the body of his son in Dresden on the 12th July, 1559. But in *"He made us and we are his, "* there is also a rich mine of comfort and of admonition, for the Creator is also the Owner, his heart clings to his creature, and the creature owes itself entirely to him, without whom it would not have had a being, and would not continue in being. *F. Delitzsch.* 
+**Verse 3 &mdash;** *It is he that hath made us&mdash; we are his.* Many a one has drawn balsatalc consolation from these words; as for instance Melancthon when disconsolately sorrowful over the body of his son in Dresden on the 12th July, 1559. But in *"He made us and we are his, "* there is also a rich mine of comfort and of admonition, for the Creator is also the Owner, his heart clings to his creature, and the creature owes itself entirely to him, without whom it would not have had a being, and would not continue in being. *F. Delitzsch.* 
 
-**Verse 3.** *He that made us, i.e.* made us what we are, a people to himself; as in Ps 95:5, 1Sa 12:6, and De 32:6. It was not we that made ourselves his (compare Eze 29:3). *"He* (and not we ourselves) *made us His people, and the flock whom he feeds." Andrew A. Bonar.* 
+**Verse 3 &mdash;** *He that made us, i.e.* made us what we are, a people to himself; as in Ps 95:5, 1Sa 12:6, and De 32:6. It was not we that made ourselves his (compare Eze 29:3). *"He* (and not we ourselves) *made us His people, and the flock whom he feeds." Andrew A. Bonar.* 
 
-**Verse 3.** *Not we* is added, because any share, on the part of the church, in effecting the salvation bestowed upon her, would weaken the testimony which this bears to the exclusive Godhead of the Lord. *F. W. Hengstenberg.* 
+**Verse 3 &mdash;** *Not we* is added, because any share, on the part of the church, in effecting the salvation bestowed upon her, would weaken the testimony which this bears to the exclusive Godhead of the Lord. *F. W. Hengstenberg.* 
 
-**Verses 3, 5.** Know ye what God is in himself, and what he is to you. Knowledge is the mother of devotion, and of all obedience; blind sacrifices will never please a seeing God. "Know" it, *i.e.* consider and apply it, and then you will be more close and constant, more inward and serious, in the worship of him. Let us know, then, these seven things concerning the Lord Jehovah, with whom we have to do in all the acts of religious worship.
+**Verses 3, 5 &mdash;** Know ye what God is in himself, and what he is to you. Knowledge is the mother of devotion, and of all obedience; blind sacrifices will never please a seeing God. "Know" it, *i.e.* consider and apply it, and then you will be more close and constant, more inward and serious, in the worship of him. Let us know, then, these seven things concerning the Lord Jehovah, with whom we have to do in all the acts of religious worship.
 
 1\. *That the Lord he is God, * the only living and true God; that he is a being infinitely perfect, self-existent, and self-sufficient, and the fountain of all being.
 
@@ -110,17 +110,17 @@ Resting on his sure word, we feel that joy which is here commanded, and in the s
 
 7\. That he is a God of inviolable truth and faithfulness; *His truth endureth to all generations, * and no word of his shall fall to the ground as antiquated or revoked. *Matthew Henry.* 
 
-**Verse 4.** *Enter into his gates;* for to the most guilty are the gates of his church open. *Francis Hill Tucker.* 
+**Verse 4 &mdash;** *Enter into his gates;* for to the most guilty are the gates of his church open. *Francis Hill Tucker.* 
 
-**Verse 4.** *With thanksgiving.* On the word hrwt *the word used in Le 7:12 for sacrifices of thanksgivings], Rabbi Menachen remarks: All sacrifices will be abolished; but the sacrifice of thanksgiving will remain. George Phillips.* 
+**Verse 4 &mdash;** *With thanksgiving.* On the word hrwt *the word used in Le 7:12 for sacrifices of thanksgivings], Rabbi Menachen remarks: All sacrifices will be abolished; but the sacrifice of thanksgiving will remain. George Phillips.* 
 
-**Verse 4.** The former part of this Psalm may have been chanted by the precentor when the peace-offering was brought to the altar; and this last verse may have been the response, sung by the whole company of singers, at the moment when fire was applied to the offering. *Daniel Cresswell.* 
+**Verse 4 &mdash;** The former part of this Psalm may have been chanted by the precentor when the peace-offering was brought to the altar; and this last verse may have been the response, sung by the whole company of singers, at the moment when fire was applied to the offering. *Daniel Cresswell.* 
 
-**Verse 5.** *His mercy is everlasting.* The everlasting unchangeable mercy of God, is the first motive of our turning to him, and of our continuing stedfast in his covenant, and it shall be the subject of unceasing praise in eternity. As the Lord is good, and his mercy everlasting, so the full perfection of these attributes in a perfect state will call forth praise unwearied from hearts that ever faint. *W. Wilson.* 
+**Verse 5 &mdash;** *His mercy is everlasting.* The everlasting unchangeable mercy of God, is the first motive of our turning to him, and of our continuing stedfast in his covenant, and it shall be the subject of unceasing praise in eternity. As the Lord is good, and his mercy everlasting, so the full perfection of these attributes in a perfect state will call forth praise unwearied from hearts that ever faint. *W. Wilson.* 
 
 ## Hints to the Village Preacher
 
-**Whole Psalm.** This is a bunch of the grapes of Eshcol. It is a taste of what is still the promised land. The Jewish church came to its perfection in the reign of Solomon, but a greater than Solomon is here. The perfection of the New Testament church is here anticipated. This psalm teaches,
+**Whole Psalm &mdash;** This is a bunch of the grapes of Eshcol. It is a taste of what is still the promised land. The Jewish church came to its perfection in the reign of Solomon, but a greater than Solomon is here. The perfection of the New Testament church is here anticipated. This psalm teaches,
 
 1\. *That there will be a joyful state of the whole world* (*Ps 100:1* ). (a) To whom the address is given—to "all lands, "and all in those lands. (b) The subject of the address—"Make a joyful noise." What a doleful noise it has made! (c) By whom the address is given, by him who secures what he commands.
 
@@ -132,7 +132,7 @@ Resting on his sure word, we feel that joy which is here commanded, and in the s
 
 5\. *That this service will be perpetual;* begun on earth, continued in heaven. This face is founded—(a) Upon essential goodness. "For the Lord is good." (b) Upon everlasting mercy. "His mercy, "etc. (c) Upon immutable truth. "His truth, "etc. *G. R.* 
 
-**Verse 2.** *Serve the Lord with gladness.* 
+**Verse 2 &mdash;** *Serve the Lord with gladness.* 
 
 1\. For he is the best of beings.
 
@@ -158,15 +158,15 @@ Resting on his sure word, we feel that joy which is here commanded, and in the s
 
 4\. Is consequently joyful—"with gladness."
 
-**Verse 2.** (*first clause* ). "Serving the Lord with gladness." See "Spurgeon's Sermons, "No. 769.
+**Verse 2 &mdash;** (*first clause* ). "Serving the Lord with gladness." See "Spurgeon's Sermons, "No. 769.
 
-**Verse 3.** *Know ye that the Lord he is God.* That you may be true amid superstition, hopeful in contrition, persistent in supplication, unwearied in exertion, calm in affliction, firm in temptation, bold in persecution, and happy in dissolution. *W. J.* 
+**Verse 3 &mdash;** *Know ye that the Lord he is God.* That you may be true amid superstition, hopeful in contrition, persistent in supplication, unwearied in exertion, calm in affliction, firm in temptation, bold in persecution, and happy in dissolution. *W. J.* 
 
-**Verse 3.** *We are his people.* We have been twice born, as all his people are. We love the society of his people. We are looking unto Jesus like his people. We are separated from the world as his people. We experience the trials of his people. We prefer the employment of his people. We enjoy the privileges of his people. *W. J.* 
+**Verse 3 &mdash;** *We are his people.* We have been twice born, as all his people are. We love the society of his people. We are looking unto Jesus like his people. We are separated from the world as his people. We experience the trials of his people. We prefer the employment of his people. We enjoy the privileges of his people. *W. J.* 
 
-**Verse 4.** A Discourse of Thankfulness which is due to God for his benefits and blessings. A Sermon by Thomas Goodwin. Works, volume 9 pages 499-514. Nichol's *edition.* 
+**Verse 4 &mdash;** A Discourse of Thankfulness which is due to God for his benefits and blessings. A Sermon by Thomas Goodwin. Works, volume 9 pages 499-514. Nichol's *edition.* 
 
-**Verse 4.** 
+**Verse 4 &mdash;** 
 
 1\. The privileges of access.
 
@@ -174,7 +174,7 @@ Resting on his sure word, we feel that joy which is here commanded, and in the s
 
 3\. The reasons for enjoying both.
 
-**Verse 5.** 
+**Verse 5 &mdash;** 
 
 1\. The inexhaustible fount—the goodness of God.
 
