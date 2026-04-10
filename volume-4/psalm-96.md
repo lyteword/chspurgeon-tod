@@ -76,13 +76,10 @@ The first six verses commenced with an exhortation to sing, three times repeated
 
 *Let the heavens rejoice, and let the earth be glad.* Above and below let the joy be manifested. Let the angels who have stood in amaze at the wickedness of men, now rejoice over their repentance and restoration to favour, and let men themselves express their pleasure in seeing their true prince set upon his throne. The book of creation has two covers, and on each of these let the glory of the Lord be emblazoned in letters of joy. Let the sea roar, and the fulness thereof Let it be no more a troubled sea, wailing over shipwrecked mariners, and rehearsing the griefs of widows and orphans, but let it adopt a cheerful note, and rejoice in the kingdom of the Lord. Let it thunder out the name of the Lord when its tides are at its full, and let all its teeming life express the utmost joy because the Lord reigneth even in the depth of the sea. In common with the rest of the creation, the sea has groaned and travailed until now; is not the time close at hand in which its hollow murmur shall be exchanged for an outburst of joy? Will not every billow soon flash forth the praises of him who once trod the sea?
 
-"Waft, waft, ye winds, his story!
-
-And you ye waters, roll,
-
-Till, like a sea of glory,
-
-It spreads from pole to pole."
+> "Waft, waft, ye winds, his story!  
+> And you ye waters, roll,  
+> Till, like a sea of glory,  
+> It spreads from pole to pole."  
 
 ### Verse 12
 
@@ -90,13 +87,10 @@ It spreads from pole to pole."
 
 *Let the field be joyful, and all that is therein.* Let the cultivated plains praise the Lord. Peace enables their owners to plough and sow and reap, without fear of the rapine of invaders, and therefore in glad notes they applaud him whose empire is peace. Both men, and creatures that graze the plain, and the crops themselves are represented as swelling the praises of Jehovah, and the figure is both bold and warranted, for the day shall come when every inhabited rood of ground shall yield its song, and every farmstead shall contain a church. Then shall all the trees of the wood rejoice. He does not say, let them rejoice, but they shall do so. The faith of the psalmist turns itself from the expression of desire to the fully assured prediction of the event. Groves have in old times stood shuddering at the horrid orgies which have been performed within their shade, the time shall come when they shall sing for joy because of the holy worship, the sounds of which they shall hear. The bush is the stronghold of savage men and robbers, but it shall be sanctified to retirement and devotion. Perhaps the psalmist was thinking of the birds; so Keble must have supposed, for he versifies the passage thus—
 
-"Field exults and meadow fair,
-
-With each bud and blossom there,
-
-In the lonely woodlands now
-
-Chants aloud each rusting bough."
+> "Field exults and meadow fair,  
+> With each bud and blossom there,  
+> In the lonely woodlands now  
+> Chants aloud each rusting bough."  
 
 ### Verse 13
 
@@ -106,299 +100,143 @@ Chants aloud each rusting bough."
 
 ## Explanatory Notes & Quaint Sayings
 
-**Whole Psalm.** What has been said of Psalm 67 may be fitly applied to the present psalm. We need not hesitate to add that it is a millennial anthem. It accords with the condition of the world when Christ shall sit enthroned in the willing loyalty of our race. The nations join in an acclaim of praise to him as their rightful Judge and King. There is a unanimity in the song, as if it ascended from a world purged into a temple of holiness, and whose inhabitants were indeed a royal priesthood, with one heart to make Jesus king, with one voice to sound forth one peal of melody in praise of the name above every name. Fix the eye for a moment on the precious vision of which we thus catch a glimpse. It holds true to the deepest principles of our nature, that what we contemplate as possible, much more what we anticipate as ceertain, lends us the very hope and energy conducive to its realisation. On the contrary, despair paralyses effort. Is it on this account that everywhere in prophecy, old and new, there floats before us the ideal of a recovered and rejoicing world, at times transfigured into a loftier scene, the new heavens and new earth wherein dwelleth righteousness? So largely did this thought imbue the prophetic mind, that the language of Paul warms into the animation of poetry, when even "the creature itself, "according to his own vivid personification, like some noble bird, drooping under the weight of its chain, with neck outstretched and eyeball distended, is described as looking down into the vista of coming time for its deliverance from the bondage of corruption into the glorious liberty of the sons of God (Ro 8:19). He hastens to add, that "we are saved by hope." It is true of the soul individually, we are saved by hope. It is true of our race collectively, if ever a millennium is to dawn upon it, we are saved by such a hope. Our earth may be in ruins meanwhile, blackness on the sky, barrenness on the soil, because sin is everywhere; but a change is promised. What we hope for, we labour for all the more that our hope is no dream of fancy, but has its basis in the science and certainty of absolute truth. "For as the earth hinges forth her bud, and as the garden causeth the things that are sown in it to spring forth; so the Lord God will cause righteousness and praise to spring forth before all the nations." (Isa 61:11) The tuning of the instrument is sometimes heard before the music comes. The mother teaches her child to lisp a hymn before he comprehends its full scope and meaning. And so here, in this holy psalm, the Jerusalem from above, the mother of us all, trains us to the utterance of a song suitable to seasons of millennial glory, when the Moloch of oppression, the Mammon of our avarice, the Ashtaroth of fiery lust, every erring creed, every false religion, shall have given place to the worship of the one true and living God—to the faith and love of Christ. "Let the peoples praise thee, O God; let all the peoples praise thee." *W. H. Gould, in "The Mission Hymn of the Hebrew Church: a Sermon."* 1865.
+**Whole Psalm &mdash;** What has been said of Psalm 67 may be fitly applied to the present psalm. We need not hesitate to add that it is a millennial anthem. It accords with the condition of the world when Christ shall sit enthroned in the willing loyalty of our race. The nations join in an acclaim of praise to him as their rightful Judge and King. There is a unanimity in the song, as if it ascended from a world purged into a temple of holiness, and whose inhabitants were indeed a royal priesthood, with one heart to make Jesus king, with one voice to sound forth one peal of melody in praise of the name above every name. Fix the eye for a moment on the precious vision of which we thus catch a glimpse. It holds true to the deepest principles of our nature, that what we contemplate as possible, much more what we anticipate as ceertain, lends us the very hope and energy conducive to its realisation. On the contrary, despair paralyses effort. Is it on this account that everywhere in prophecy, old and new, there floats before us the ideal of a recovered and rejoicing world, at times transfigured into a loftier scene, the new heavens and new earth wherein dwelleth righteousness? So largely did this thought imbue the prophetic mind, that the language of Paul warms into the animation of poetry, when even "the creature itself, "according to his own vivid personification, like some noble bird, drooping under the weight of its chain, with neck outstretched and eyeball distended, is described as looking down into the vista of coming time for its deliverance from the bondage of corruption into the glorious liberty of the sons of God (Ro 8:19). He hastens to add, that "we are saved by hope." It is true of the soul individually, we are saved by hope. It is true of our race collectively, if ever a millennium is to dawn upon it, we are saved by such a hope. Our earth may be in ruins meanwhile, blackness on the sky, barrenness on the soil, because sin is everywhere; but a change is promised. What we hope for, we labour for all the more that our hope is no dream of fancy, but has its basis in the science and certainty of absolute truth. "For as the earth hinges forth her bud, and as the garden causeth the things that are sown in it to spring forth; so the Lord God will cause righteousness and praise to spring forth before all the nations." (Isa 61:11) The tuning of the instrument is sometimes heard before the music comes. The mother teaches her child to lisp a hymn before he comprehends its full scope and meaning. And so here, in this holy psalm, the Jerusalem from above, the mother of us all, trains us to the utterance of a song suitable to seasons of millennial glory, when the Moloch of oppression, the Mammon of our avarice, the Ashtaroth of fiery lust, every erring creed, every false religion, shall have given place to the worship of the one true and living God—to the faith and love of Christ. "Let the peoples praise thee, O God; let all the peoples praise thee." &mdash; *W. H. Gould, in "The Mission Hymn of the Hebrew Church: a Sermon" 1865*
 
-**Whole Psalm.** This psalm is entitled in the *Septuagint, "A Hymn of David; when the Temple was rebuilt after the Captivity, "* and this appears to be a true description of it; for the substance of it is found in 1Ch 16:23-33, where it is described as having been delivered by David into the hand of Asaph and his brethren, to thank the Lord when the Ark was brought up to Zion. David's Psalm here receives a new name, and is called a *new song (sir chadash)*, because new mercies of God were now to be celebrated; mercies greater than David had ever received, even when he brought the Ark to Zion. They who now sang the old song, which had thus become a new song, identified themselves with David, and identified him with themselves. *Chr. Wordsworth.* 
+**Whole Psalm &mdash;** This psalm is entitled in the *Septuagint, "A Hymn of David; when the Temple was rebuilt after the Captivity, "* and this appears to be a true description of it; for the substance of it is found in 1Ch 16:23-33, where it is described as having been delivered by David into the hand of Asaph and his brethren, to thank the Lord when the Ark was brought up to Zion. David's Psalm here receives a new name, and is called a *new song (sir chadash)*, because new mercies of God were now to be celebrated; mercies greater than David had ever received, even when he brought the Ark to Zion. They who now sang the old song, which had thus become a new song, identified themselves with David, and identified him with themselves. &mdash; *Chr. Wordsworth* 
 
-**Whole Psalm.** Subject.—Call to praise, in view of Christ's second advent and glorious reign.— *To apply it.* —Look forward to the glorious day of the Lord's coming; and realize its approach that you may prepare for it. *A. R. C. Dallas.* 
+**Whole Psalm &mdash;** Subject.—Call to praise, in view of Christ's second advent and glorious reign.— *To apply it.* —Look forward to the glorious day of the Lord's coming; and realize its approach that you may prepare for it. &mdash; *A. R. C. Dallas* 
 
-**Verse 1.** *O sing unto the Lord a new song, * etc. "A *new* song, " unknown to you before. Come, all ye nations of the wide earth, who, up to this hour, have been giving your worship to dead gods that were no gods at all; come and give your hearts to the true and only God in this *new* song! *Henry Cowles.* 
+**Verse 1 &mdash;** *O sing unto the Lord a new song,* etc. "A *new* song, " unknown to you before. Come, all ye nations of the wide earth, who, up to this hour, have been giving your worship to dead gods that were no gods at all; come and give your hearts to the true and only God in this *new* song! &mdash; *Henry Cowles* 
 
-**Verse 1.** *A new song.* It must be *"a new canticle, "* a beautiful canticle, and elegantly composed; also a canticle for fresh favours: in like manner, a canticle befitting men who have been regenerated, in whom avarice has been supplanted by charity; and finally, a canticle not like that of Moses, or Deborah, or any of the old canticles that could not be sung outside the land of promise, according to Ps 137:4; "How shall we sing the Lord'S song in a strange land?" but a new canticle that may be sung all over the world; and he, therefore, adds, *Sing unto the Lord, all the earth, * not only Judea, but the whole world. *Bellarmine.* 
+**Verse 1 &mdash;** *A new song.* It must be *"a new canticle, "* a beautiful canticle, and elegantly composed; also a canticle for fresh favours: in like manner, a canticle befitting men who have been regenerated, in whom avarice has been supplanted by charity; and finally, a canticle not like that of Moses, or Deborah, or any of the old canticles that could not be sung outside the land of promise, according to Ps 137:4; "How shall we sing the Lord'S song in a strange land?" but a new canticle that may be sung all over the world; and he, therefore, adds, *Sing unto the Lord, all the earth,* not only Judea, but the whole world. &mdash; *Bellarmine* 
 
-**Verse 1.** *New.* The word is used to describe that which is delightful, exquisite, precious, etc. *Martin Geier.* 
+**Verse 1 &mdash;** *New.* The word is used to describe that which is delightful, exquisite, precious, etc. &mdash; *Martin Geier* 
 
-**Verse 1.** *New.* New things are generally most approved, and especially in songs; for Pindar praises old wine and new songs. *John Cocceius, 1603-1669.* 
+**Verse 1 &mdash;** *New.* New things are generally most approved, and especially in songs; for Pindar praises old wine and new songs. &mdash; *John Cocceius, 1603-1669* 
 
-**Verse 1.** *A new song.* Our old songs were those of pride, of gluttony, of luxury, in hope of gain, prosperity, or harm to others; our *"new song"* is of praise, reverence, and obedience, and love to God, in newness of life, in the Spirit that quickeneth, no longer in the letter that killeth, but keepeth that new commandment, that we love one another, not with the narrow patriotism and fellow feeling of a small tribe, or a mere national church, but with a citizenship which embraces *all the whole earth*. *Neale and Littledale.* 
+**Verse 1 &mdash;** *A new song.* Our old songs were those of pride, of gluttony, of luxury, in hope of gain, prosperity, or harm to others; our *"new song"* is of praise, reverence, and obedience, and love to God, in newness of life, in the Spirit that quickeneth, no longer in the letter that killeth, but keepeth that new commandment, that we love one another, not with the narrow patriotism and fellow feeling of a small tribe, or a mere national church, but with a citizenship which embraces *all the whole earth*. &mdash; *Neale and Littledale* 
 
-**Verse 1.** *Sing unto the Lord.* We find it thrice said, *sing unto the Lord*, that we may understand that we are to sing unto Him with mind, and tongue, and deed. For all these things must be joined together, and the life ought to correspond with the mouth and mind. As Abbot Absalom says, *When the speech does not jar with the life, there is sweet harmony. Le Blanc.* 
+**Verse 1 &mdash;** *Sing unto the Lord.* We find it thrice said, *sing unto the Lord*, that we may understand that we are to sing unto Him with mind, and tongue, and deed. For all these things must be joined together, and the life ought to correspond with the mouth and mind. As Abbot Absalom says, *When the speech does not jar with the life, there is sweet harmony.* &mdash; *Le Blanc* 
 
-**Verse 1.** *All the earth.* It is a *missionary hymn* for all ages of the church; and it becomes more and more appropriate to our times in proportion as the heathen begin to respond to the call, "Sing unto the Lord a new song, "and in proportion as we find in the melancholy condition of the church at home occasion to look with a hopeful eye towards the heathen world. *E. W. Hengstenberg.* 
+**Verse 1 &mdash;** *All the earth.* It is a *missionary hymn* for all ages of the church; and it becomes more and more appropriate to our times in proportion as the heathen begin to respond to the call, "Sing unto the Lord a new song, "and in proportion as we find in the melancholy condition of the church at home occasion to look with a hopeful eye towards the heathen world. &mdash; *E. W. Hengstenberg* 
 
-**Verse 2.** *From day to day.* Continually; always. It is a fit subject for unceasing praise. Every man should praise God every day—on each returning morning, and on every evening—for the assurance that there is a way of salvation provided for him, and that he may be happy for ever. If we had right feelings, this would be the first thought which would burst upon the mind each morning, irradiating, as with sunbeams, all around us; and it would be the last thought which would linger in the soul as we lie down at night, and close our eyes in slumber making us grateful, calm, happy, as we sink to rest, for whether we wake or not in this world, we may be for ever happy. *Albert Barnes.* 
+**Verse 2 &mdash;** *From day to day.* Continually; always. It is a fit subject for unceasing praise. Every man should praise God every day—on each returning morning, and on every evening—for the assurance that there is a way of salvation provided for him, and that he may be happy for ever. If we had right feelings, this would be the first thought which would burst upon the mind each morning, irradiating, as with sunbeams, all around us; and it would be the last thought which would linger in the soul as we lie down at night, and close our eyes in slumber making us grateful, calm, happy, as we sink to rest, for whether we wake or not in this world, we may be for ever happy. &mdash; *Albert Barnes* 
 
-**Verse 2.** *From day to day.* Other news delights us only at first hearing; but the good news of our redemption is sweet from day to day, *ac si in codera die redemptio fuisset opereta*, saith Kimchi here, as if it were done but today. *Tam recens mihi nunc Christus est*, saith Luther, *ac si hac hora fudisset sanguinem*, Christ is now as fresh unto me as if he had shed his blood but this very hour. *John Trapp.* 
+**Verse 2 &mdash;** *From day to day.* Other news delights us only at first hearing; but the good news of our redemption is sweet from day to day, *ac si in codera die redemptio fuisset opereta*, saith Kimchi here, as if it were done but today. *Tam recens mihi nunc Christus est*, saith Luther, *ac si hac hora fudisset sanguinem*, Christ is now as fresh unto me as if he had shed his blood but this very hour. &mdash; *John Trapp* 
 
-**Verse 3.** *Declare.* The corresponding word is a *book*; and the participle is often rendered a scribe, a writer. Ps 45:1. The verb is rendered, tell, show forth, declare. The variety of verbs used in Ps 96:1-3, proves that we are to employ all proper means for making known the Saviour. One of these methods is by writing. *W. S. Plumer.* 
+**Verse 3 &mdash;** *Declare.* The corresponding word is a *book*; and the participle is often rendered a scribe, a writer. Ps 45:1. The verb is rendered, tell, show forth, declare. The variety of verbs used in Ps 96:1-3, proves that we are to employ all proper means for making known the Saviour. One of these methods is by writing. &mdash; *W. S. Plumer* 
 
-**Verse 3.** *Declare his glory* —what a glorious person the Messiah is; the brightness of his Father's glory; having all the perfections of Deity in him; how the glory of God appears in him, and in all that he has done; and especially in the work of redemption, in which the glory of divine wisdom, power, justice, truth, and faithfulness, love, grace, and mercy, is richly displayed; say what glory he is advanced unto, having done his work, being highly exalted, set at the right hand of God, and crowned with glory and honour, and what a fulness of grace there is in him, for the supply of his people; and what a glory is on him, which they shall behold to all eternity. *John Gill.* 
+**Verse 3 &mdash;** *Declare his glory* —what a glorious person the Messiah is; the brightness of his Father's glory; having all the perfections of Deity in him; how the glory of God appears in him, and in all that he has done; and especially in the work of redemption, in which the glory of divine wisdom, power, justice, truth, and faithfulness, love, grace, and mercy, is richly displayed; say what glory he is advanced unto, having done his work, being highly exalted, set at the right hand of God, and crowned with glory and honour, and what a fulness of grace there is in him, for the supply of his people; and what a glory is on him, which they shall behold to all eternity. &mdash; *John Gill* 
 
-**Verse 3.** His glory shines from every ray of light that reaches us from a thousand stars; it sparkles from the mountain tops that reflect the earliest and retain the last rays of the rising and the setting sun; it spreads over the expanse of the sea, and speaks in the murmur of its restless waves; it girdles the earth with a zone of light, and flings over it an aureole of beauty. In the varied forms of animal tribes; in the relations of our world to other worlds, in the revolutions of planets, in the springing of flowers, in the fall of waters, and in the flight of birds; in the sea, the rivers, and the air; in heights and depths, in wonders and mysteries, —Christ wears the crown, sways the sceptre, and receives from all a tribute to his sovereignty. We cannot augment it; we cannot add one ray of light to the faintness of a distant star nor give wings to an apterous insect, nor change a white hair into black. We can unfold, but not create; we can adore, but not increase; we can recognise the footprints of Deity, but not add to them. *John Cumming in "From Patmos to Paradise, "* 1873.
+**Verse 3 &mdash;** His glory shines from every ray of light that reaches us from a thousand stars; it sparkles from the mountain tops that reflect the earliest and retain the last rays of the rising and the setting sun; it spreads over the expanse of the sea, and speaks in the murmur of its restless waves; it girdles the earth with a zone of light, and flings over it an aureole of beauty. In the varied forms of animal tribes; in the relations of our world to other worlds, in the revolutions of planets, in the springing of flowers, in the fall of waters, and in the flight of birds; in the sea, the rivers, and the air; in heights and depths, in wonders and mysteries, —Christ wears the crown, sways the sceptre, and receives from all a tribute to his sovereignty. We cannot augment it; we cannot add one ray of light to the faintness of a distant star nor give wings to an apterous insect, nor change a white hair into black. We can unfold, but not create; we can adore, but not increase; we can recognise the footprints of Deity, but not add to them. &mdash; *John Cumming in "From Patmos to Paradise" 1873*
 
-**Verse 3.** *Declare his glory among the heathen, * etc. It is a part of the commission given to the ministers of the gospel, not only to teach their congregations concerning Christ, but also to have a care that they who never did hear of him, may know what he is, what he hath done and suffered, and what good may be had by his mediation. Nothing so glorious to God, nothing so wonderful in itself, as is the salvation of man by Christ; to behold God saving his enemies by the incarnation, sufferings, and obedience of Christ the eternal Son of God: *Declare his glory among the heathen, his wonders among all people. David Dickson.* 
+**Verse 3 &mdash;** *Declare his glory among the heathen,* etc. It is a part of the commission given to the ministers of the gospel, not only to teach their congregations concerning Christ, but also to have a care that they who never did hear of him, may know what he is, what he hath done and suffered, and what good may be had by his mediation. Nothing so glorious to God, nothing so wonderful in itself, as is the salvation of man by Christ; to behold God saving his enemies by the incarnation, sufferings, and obedience of Christ the eternal Son of God: *Declare his glory among the heathen, his wonders among all people.* &mdash; *David Dickson* 
 
-**Verse 3.** *Declare his glory.* It is *his* glory which should be proclaimed, not the learning, ability, and eloquence of the orator who professes to speak for Him; it is his *glory*, the loving beauty, the attractiveness of his gospel, the lavish promises to repentant sinners, the blessedness of heaven, which should be the chief themes of discourse; not threats, menaces, sermons on hell or torment to affright men, and at best make them God's trembling slaves, not his loving friends. The preaching is to be *unto all people, * in obscure country districts, amongst unpolished and illiterate congregations, and not to be confined, as fashionable preachers like to confine it, to the cultivated and critical audiences of the capital. *Hugo, quoted by Neale and Littledale.* 
+**Verse 3 &mdash;** *Declare his glory.* It is *his* glory which should be proclaimed, not the learning, ability, and eloquence of the orator who professes to speak for Him; it is his *glory*, the loving beauty, the attractiveness of his gospel, the lavish promises to repentant sinners, the blessedness of heaven, which should be the chief themes of discourse; not threats, menaces, sermons on hell or torment to affright men, and at best make them God's trembling slaves, not his loving friends. The preaching is to be *unto all people,* in obscure country districts, amongst unpolished and illiterate congregations, and not to be confined, as fashionable preachers like to confine it, to the cultivated and critical audiences of the capital. &mdash; *Hugo, quoted by Neale and Littledale* 
 
-**Verse 3.** *His glory.* What he had before called *salvation*, he now names *glory*, and afterwards *wonders*. And since this salvation, whereby the human race is redeemed from eternal death and damnation, is glorious and full of wonders, it is therefore worthy of admiration and praise. *Mollerus.* 
+**Verse 3 &mdash;** *His glory.* What he had before called *salvation*, he now names *glory*, and afterwards *wonders*. And since this salvation, whereby the human race is redeemed from eternal death and damnation, is glorious and full of wonders, it is therefore worthy of admiration and praise. &mdash; *Mollerus* 
 
-**Verse 3.** *His wonders.* What a wonderful person he is, for he is God manifest in the flesh; what wonderful love he has shown in his incarnation, obedience, sufferings, and death; what amazing miracles he wrought, and what a wonderful work he performed; the work of our redemption, the wonder of men and angels; declare his wonderful resurrection from the dead, his ascension to heaven, sitting at the right hand of God, and intercession for his people; the wonderful effusion of his Spirit, and the conquests of his grace, and the enlargement of his kingdom in the world; as also what wonders will be wrought by him when he appears a second time; how the dead will be raised and all will be judged. *John Gill.* 
+**Verse 3 &mdash;** *His wonders.* What a wonderful person he is, for he is God manifest in the flesh; what wonderful love he has shown in his incarnation, obedience, sufferings, and death; what amazing miracles he wrought, and what a wonderful work he performed; the work of our redemption, the wonder of men and angels; declare his wonderful resurrection from the dead, his ascension to heaven, sitting at the right hand of God, and intercession for his people; the wonderful effusion of his Spirit, and the conquests of his grace, and the enlargement of his kingdom in the world; as also what wonders will be wrought by him when he appears a second time; how the dead will be raised and all will be judged. &mdash; *John Gill* 
 
-**Verse 5.** *For all the gods of the nations are idols. Nothings, * nonentities, a favourite description of idols in Isaiah's later prophecies. See eg Isa 41:24, and compare Le 19:4 26:1, 1Co 8:4-6 10:19. A less probable etymology of the Hebrew word makes it a diminutive of (la) El, analogous to *godlings* as an expression of contempt. *J. A. Alexander.* 
+**Verse 5 &mdash;** *For all the gods of the nations are idols. Nothings,* nonentities, a favourite description of idols in Isaiah's later prophecies. See eg Isa 41:24, and compare Le 19:4 26:1, 1Co 8:4-6 10:19. A less probable etymology of the Hebrew word makes it a diminutive of (la) El, analogous to *godlings* as an expression of contempt. &mdash; *J. A. Alexander* 
 
-**Verse 5.** *The gods of the nations are idols.* Their Elohim are *elilim*. See 1Ch 16:26. The word *elilim* occurs in two places in the Psalms, here and Ps 97:7. It is used most frequently by Isaiah, and properly signifies *nothings*, as St. Paul says, "an *idol* is *nothing*." (1Co 8:4.) *Chr. Wordsworth.* 
+**Verse 5 &mdash;** *The gods of the nations are idols.* Their Elohim are *elilim*. See 1Ch 16:26. The word *elilim* occurs in two places in the Psalms, here and Ps 97:7. It is used most frequently by Isaiah, and properly signifies *nothings*, as St. Paul says, "an *idol* is *nothing*." (1Co 8:4.) &mdash; *Chr. Wordsworth* 
 
-**Verse 5.** *The Lord made the heavens.* Ps 96:5 is a notandum. What a tribute to astronomy is it that the Lord is so often done homage to as having made the heavens! Let the theology of nature be blended with the theology of conscience—a full recognition of the strength and the glory which shine palpably forth in the wonders of creation, with the spiritual offerings of holy worship and holy service. *Thomas Chalmers.* 
+**Verse 5 &mdash;** *The Lord made the heavens.* Ps 96:5 is a notandum. What a tribute to astronomy is it that the Lord is so often done homage to as having made the heavens! Let the theology of nature be blended with the theology of conscience—a full recognition of the strength and the glory which shine palpably forth in the wonders of creation, with the spiritual offerings of holy worship and holy service. *Thomas Chalmers.* Oh, if so much of beauty doth reveal Itself in every vein of life and nature, How beautiful must be the Source itself, The Ever Bright One! &mdash; *Esaias Tegner, 1782-1847* 
 
-Oh, if so much of beauty doth reveal
+**Verse 6 &mdash;** *In his sanctuary.* That is to say (1) his ark, tabernacle, or temple, as many writers consider. Kimchi, as quoted by Muis, suggests that where joy or beauty is mentioned as being in his temple, it is set in opposition to the perpetual grief of the Philistines when the ark was in their cities. They saw the Lord's strength, but not his beauty. (2) Others refer the word sanctuary to the church of Christ, which, as Munster remarks, is adorned with heavenly ornaments, and was typified by the magnificence of Solomon's temple. Certainly it is in the church that the spiritual power and beauty of the Lord are to be most clearly seen. (3) The passage may refer to heaven, where the divine presence is more peculiarly manifest. &mdash; *C. H. S.* 
 
-Itself in every vein of life and nature,
+**Verse 7 &mdash;** Ye kindreds of the people. There is a peculiar force, observes an early commentator *Cassiodorus*, in this phrase, *"kindreds of the people, "* much more than if we had the word *"peoples"* alone; for in every nation there are at all times strangers, aliens, sojourners abiding permanently or for a time, but not reckoned among the natives; while the phrase here includes all such, and provides that none shall be shut out because of his origin. &mdash; *Neale and Littledale* 
 
-How beautiful must be the Source itself,
+**Verse 7 &mdash;** *Ye kindreds of the people.* He calls upon them to come in kindreds or families, in allusion to the Jewish custom of families coming by themselves, on the several festival days to worship in Jerusalem; and the Holy Ghost gives us here to understand that such custom was to serve as a model for Christians, whose families should unite in coming to the church to give glory and honour to God for all the wonderful things he accomplished in the redemption of man; for it was not by our own industry, or by our merits, that we have come to grace, and to be the adopted children of God, but through God's mercy, to whom, therefore, is due all honour and glory. &mdash; *Bellarmine* 
 
-The Ever Bright One! *Esaias Tegner, 1782-1847.* 
+**Verse 8 &mdash;** *Give unto the Lord the glory due unto his name.* It is a debt; and a debt, in equity, must be paid. The honour due to his name is to acknowledge him to be holy, just, true, powerful: "The Lord, the faithful God, ""good, merciful, long suffering, "etc. Defraud not his name of the least honour. &mdash; *Adam Clarke* 
 
-**Verse 6.** *In his sanctuary.* That is to say (1) his ark, tabernacle, or temple, as many writers consider. Kimchi, as quoted by Muis, suggests that where joy or beauty is mentioned as being in his temple, it is set in opposition to the perpetual grief of the Philistines when the ark was in their cities. They saw the Lord's strength, but not his beauty. (2) Others refer the word sanctuary to the church of Christ, which, as Munster remarks, is adorned with heavenly ornaments, and was typified by the magnificence of Solomon's temple. Certainly it is in the church that the spiritual power and beauty of the Lord are to be most clearly seen. (3) The passage may refer to heaven, where the divine presence is more peculiarly manifest. *C. H. S.* 
+**Verse 8 &mdash;** *Give unto the Lord the glory due unto his name.* Is all the glory due unto God's name, and ought it, in strict justice, to have been ascribed unto him by men, ever since man began to exist? How immeasurably great then is the debt which our world has contracted, and under the burden of which it now groans! During every day and every hour which has elapsed since the apostasy of man, this debt has been increasing; for every day and every hour all men ought to have given unto Jehovah the glory which is due to his name. But no man has ever done this fully. And a vast proportion of our race have never done it at all. Now the difference between the tribute which men ought to have paid to God and that which they actually have paid constitutes the debt of which we are speaking. How vast, then, how incalculable is it! &mdash; *Edward Payson* 
 
-**Verse 7.** Ye kindreds of the people. There is a peculiar force, observes an early commentator *Cassiodorus*, in this phrase, *"kindreds of the people, "* much more than if we had the word *"peoples"* alone; for in every nation there are at all times strangers, aliens, sojourners abiding permanently or for a time, but not reckoned among the natives; while the phrase here includes all such, and provides that none shall be shut out because of his origin. *Neale and Littledale.* 
+**Verse 8 &mdash;** *Give unto the Lord the glory due unto his name.* Every glory will not serve the turn, but such glory as is proper and peculiar for that God we serve. It is a stated rule in Scripture that, *respects to God must be proportioned to the nature of God*. God is a *spirit*, therefore will be worshipped in *spirit and truth*. God is a God of *peace*, therefore lift up pure hands, without *wrath and doubting*. God is a *holy God*, therefore will be *sanctified*. They which worship the sun, among the heathens, they used a flying horse, as a thing most suitable to the swift motion of the sun. Well, then, they that will glorify and honour God with a glory due to his name, must sanctify him as well as honour him. Why? For "God is glorious in holiness, "Ex 15:11. This is that which God counteth to be his chief excellency, and the glory which he will manifest among the sons of men. &mdash; *Thomas Minton* 
 
-**Verse 7.** *Ye kindreds of the people.* He calls upon them to come in kindreds or families, in allusion to the Jewish custom of families coming by themselves, on the several festival days to worship in Jerusalem; and the Holy Ghost gives us here to understand that such custom was to serve as a model for Christians, whose families should unite in coming to the church to give glory and honour to God for all the wonderful things he accomplished in the redemption of man; for it was not by our own industry, or by our merits, that we have come to grace, and to be the adopted children of God, but through God's mercy, to whom, therefore, is due all honour and glory. *Bellarmine.* 
+**Verse 8 &mdash;** *Bring an offering.* This is language taken from the temple worship, and means that God is to be worshipped, in the manner which he has prescribed, as a suitable expression of his majesty. The word here rendered *"offering"* —hxkm, *minkhah* —is that which is commonly used to denote a bloodless offering, a thank offering. &mdash; *Albert Barnes* 
 
-**Verse 8.** *Give unto the Lord the glory due unto his name.* It is a debt; and a debt, in equity, must be paid. The honour due to his name is to acknowledge him to be holy, just, true, powerful: "The Lord, the faithful God, ""good, merciful, long suffering, "etc. Defraud not his name of the least honour. *Adam Clarke.* 
+**Verse 9 &mdash;** *In the beauty of holiness,* or, in the ornament of holiness, alluding to the splendid robes of eastern worshippers. &mdash; *W. Wilson* 
 
-**Verse 8.** *Give unto the Lord the glory due unto his name.* Is all the glory due unto God's name, and ought it, in strict justice, to have been ascribed unto him by men, ever since man began to exist? How immeasurably great then is the debt which our world has contracted, and under the burden of which it now groans! During every day and every hour which has elapsed since the apostasy of man, this debt has been increasing; for every day and every hour all men ought to have given unto Jehovah the glory which is due to his name. But no man has ever done this fully. And a vast proportion of our race have never done it at all. Now the difference between the tribute which men ought to have paid to God and that which they actually have paid constitutes the debt of which we are speaking. How vast, then, how incalculable is it! *Edward Payson.* 
+**Verse 9 &mdash;** *The beauty of holiness.* Shall I call *holiness* an attribute? Is it not rather the glorious combination of all his attributes into one perfect whole? As all his attributes proceed from the absolute, so all again converge and meet in holiness. As from the insufferable white light of the Absolute they all seem to diverge and separate into prismatic hues, so they all seem again to converge and meet and combine in the dazzling white radiance of his holiness. This, therefore, is rather the intense whiteness, purity, clearness, the infinite lustre and splendour of his perfect nature—like a gem without flaw, without stain, and without colour. All of his attributes are glorious, but in this we have a combination of all into a still more glorious whole. It is for this reason that it is so frequently in Scripture associated with the Divine beauty. The poetic nature of the psalmist is exalted to ecstasy in contemplation of the *"beauty of holiness, "* the *"beauty of the Lord."* Beauty is a combination of elements according to the laws of harmony; the more beautiful the parts or elements, and the more perfect the harmonious combination, the higher the beauty. How high and glorious, therefore, must be the beauty of this attribute which is the perfect combination of all his infinite perfections! You see, then, why this attribute is awful to us. In the ideal man all the faculties and powers, mental, moral, and bodily, work together in perfect harmony, making sweet music—the image of God is clear and pure in the human heart. But, alas! how far are we from the ideal! In the actual man the purity is stained, the beauty is defaced, the harmony is changed into jarring discord, "like sweet bells jangled out of tune." How it came so, we are not now inquiring. We all feel that it is so. Therefore is this attribute so awful to us. It is the awfulness of absolute purity in the presence of impurity; it is the awfulness of perfect beauty in the presence of deformity; it is the awfulness of honour in the presence of dishonour and shame; in one word, it is the awfulness of holiness in the presence of sinfulness. How, then, shall we approach him before whom angels bow and archangels veil their faces—him in whose sight the white radiance of heaven itself is stained with impurity? &mdash; *Joseph Le Coute, in "Religion and Science" 1874*
 
-**Verse 8.** *Give unto the Lord the glory due unto his name.* Every glory will not serve the turn, but such glory as is proper and peculiar for that God we serve. It is a stated rule in Scripture that, *respects to God must be proportioned to the nature of God*. God is a *spirit*, therefore will be worshipped in *spirit and truth*. God is a God of *peace*, therefore lift up pure hands, without *wrath and doubting*. God is a *holy God*, therefore will be *sanctified*. They which worship the sun, among the heathens, they used a flying horse, as a thing most suitable to the swift motion of the sun. Well, then, they that will glorify and honour God with a glory due to his name, must sanctify him as well as honour him. Why? For "God is glorious in holiness, "Ex 15:11. This is that which God counteth to be his chief excellency, and the glory which he will manifest among the sons of men. *Thomas Minton.* 
+**Verse 9 &mdash;** *The beauty of holiness.* The religion of the gospel of Christ is *"the beauty of holiness, "* as it concerns its Author, its plan, its fruits. First, As it concerns its *Author*. Whatever we can understand as meant by beauty or holiness, we see in the attributes of God, whether we consider them in all their harmony, or contemplate any one of them in particular&mdash; Secondly. As to its plan. Survey the gospel where we will, or regard whatever we can that is revealed concerning it, we find it to be all *"beauty"*; and we cannot call it by a more appropriate name than *"the beauty of holiness."* Thirdly, As to its *fruits*. There is a holy separation, a beautiful character of holiness, a separation as to character, feelings, and conduct; these are all the various fruits of grace; and so the man becomes beautiful in holiness. &mdash; *Leigh Richmond, 1772-1827* 
 
-**Verse 8.** *Bring an offering.* This is language taken from the temple worship, and means that God is to be worshipped, in the manner which he has prescribed, as a suitable expression of his majesty. The word here rendered *"offering"* —hxkm, *minkhah* —is that which is commonly used to denote a bloodless offering, a thank offering. *Albert Barnes.* 
+**Verse 10 &mdash;** *Say among the heathen that the Lord reigneth.* This clause reads in the old Latin version, "Tell it out among the heathen, that the Lord reigneth *from the tree.* " Justin Martyr accuses the Jews, that they have erased the words "a ligno", apo xulou, which are wanting in the original and in the Septuagint. Mrs. Charles renders the verse thus: "The truth that David learned to sing, Its deep fulfilment here attains; Tell all the earth the Lord is king! Lo, from the cross, a King he reigns!" &mdash; *From "Christ in Song. Hymns of Immanuel, with Notes by P. Schaff" 1870* 
 
-**Verse 9.** *In the beauty of holiness, * or, in the ornament of holiness, alluding to the splendid robes of eastern worshippers. *W. Wilson.* 
+**Verse 10 &mdash;** *Say among the heathen that the Lord reigneth.* It is not enough to feel *desire*; we must " *say* among the heathen, the Lord reigneth." There is a commandment given us of the Lord to "go into all the world, and preach the gospel to every creature"—to tell them what Christ hath taught us—to say to them, in fact, "The Lord reigneth."&mdash; We go among the heathen, and say, "the Lord reigneth"—point them to all the various objects in *creation* —to the stars of heaven, to the beauties of vegetation, to the daily occurrences of *providence*, to the body fearfully and wonderfully made, to its continual preservation and supply. We may easily take our text from every thing by which we are surrounded, and say, "The Lord reigneth." But we must not stop here. It is well to have right views of God as the Creator; but it is only as we view him as the God of *Redemption*, that we can praise him "in the beauty of holiness." &mdash; *Leigh Richmond* 
 
-**Verse 9.** *The beauty of holiness.* Shall I call *holiness* an attribute? Is it not rather the glorious combination of all his attributes into one perfect whole? As all his attributes proceed from the absolute, so all again converge and meet in holiness. As from the insufferable white light of the Absolute they all seem to diverge and separate into prismatic hues, so they all seem again to converge and meet and combine in the dazzling white radiance of his holiness. This, therefore, is rather the intense whiteness, purity, clearness, the infinite lustre and splendour of his perfect nature—like a gem without flaw, without stain, and without colour. All of his attributes are glorious, but in this we have a combination of all into a still more glorious whole. It is for this reason that it is so frequently in Scripture associated with the Divine beauty. The poetic nature of the psalmist is exalted to ecstasy in contemplation of the *"beauty of holiness, "* the *"beauty of the Lord."* Beauty is a combination of elements according to the laws of harmony; the more beautiful the parts or elements, and the more perfect the harmonious combination, the higher the beauty. How high and glorious, therefore, must be the beauty of this attribute which is the perfect combination of all his infinite perfections! You see, then, why this attribute is awful to us. In the ideal man all the faculties and powers, mental, moral, and bodily, work together in perfect harmony, making sweet music—the image of God is clear and pure in the human heart. But, alas! how far are we from the ideal! In the actual man the purity is stained, the beauty is defaced, the harmony is changed into jarring discord, "like sweet bells jangled out of tune." How it came so, we are not now inquiring. We all feel that it is so. Therefore is this attribute so awful to us. It is the awfulness of absolute purity in the presence of impurity; it is the awfulness of perfect beauty in the presence of deformity; it is the awfulness of honour in the presence of dishonour and shame; in one word, it is the awfulness of holiness in the presence of sinfulness. How, then, shall we approach him before whom angels bow and archangels veil their faces—him in whose sight the white radiance of heaven itself is stained with impurity? *Joseph Le Coute, in "Religion and Science, "* 1874.
+**Verse 10 &mdash;** *Say among the heathen that the Lord reigneth* must be the Christian's as it was the Israelite's motto. The earliest preaching of our Saviour and his disciples was the preaching of the gospel of the *kingdom.* It was because *all power was given unto him in heaven and in earth*, that, after his resurrection from the dead, Jesus sent forth his apostles to go and teach all nations. The substance of the apostles' subsequent preaching was, confessedly, the *kingdom* of God. &mdash; *J. F. Thrupp* 
 
-**Verse 9.** *The beauty of holiness.* The religion of the gospel of Christ is *"the beauty of holiness, "* as it concerns its Author, its plan, its fruits. First, As it concerns its *Author*. Whatever we can understand as meant by beauty or holiness, we see in the attributes of God, whether we consider them in all their harmony, or contemplate any one of them in particular&mdash; Secondly. As to its plan. Survey the gospel where we will, or regard whatever we can that is revealed concerning it, we find it to be all *"beauty"*; and we cannot call it by a more appropriate name than *"the beauty of holiness."* Thirdly, As to its *fruits*. There is a holy separation, a beautiful character of holiness, a separation as to character, feelings, and conduct; these are all the various fruits of grace; and so the man becomes beautiful in holiness. *Leigh Richmond, 1772-1827.* 
+**Verse 10 &mdash;** *Say among the heathen.* Go, ye that are already become proselytes unto him, and publish everywhere, in all countries, that the Lord *Christ* is the sovereign of the world, who alone can make it happy: for he shall settle those in peace that submit unto his government: and they shall not be so disturbed as they were wont with wars and tumults: he shall administer equal justice unto all: and neither suffer the good to be unrewarded, nor the evil to escape unpunished. &mdash; *Symon Patrick* 
 
-**Verse 10.** *Say among the heathen that the Lord reigneth.* This clause reads in the old Latin version, "Tell it out among the heathen, that the Lord reigneth *from the tree.* " Justin Martyr accuses the Jews, that they have erased the words "a ligno", apo xulou, which are wanting in the original and in the Septuagint. Mrs. Charles renders the verse thus:
+**Verse 10 &mdash;** *The world also,* etc. The natural world shall be established; the standing of the world, and its stability, is owing to the mediation of Christ. Sin had given it a shock, and still threatens it; but Christ, as redeemer, upholds all things, and preserves the course of nature. The world of mankind shall be established, shall be preserved, till all that belong to the election of grace are called in, though a guilty, provoking world. The Christian religion, as far as it is embraced, shall establish states and kingdoms, and preserve good order among men. The church in the world shall be established, that it cannot be moved, for it is built upon a rock, and the gates of hell shall never prevail against it; it is a "kingdom that cannot be shaken." &mdash; *Matthew Henry* 
 
-"The truth that David learned to sing,
+**Verse 10 &mdash;** *It shall not be moved.* When we learn from the records of geology, as they are inscribed upon the rocks, how numerous and thorough have been the revolutions of the surface and the crust of the globe in past ages; how often and how long the present dry land has been alternately above and beneath the ocean; how frequently the crust of the globe has been fractured, bent, and dislocated; now lifted upward, and now thrown downward, and now folded by lateral pressure; how frequently melted matter has been forced through its strata and through its fissures to the surface; in short, how every particle of the accessible portions of the globe has undergone entire metamorphoses; and especially when we recollect what strong evidence there is that oceans of liquid matter exist beneath the solid crust, and that probably the whole interior of the earth is in that condition, with expansive energy sufficient to rend the globe into fragments; when we review all these facts, we cannot but feel that the condition of the surface of the globe must be one of great insecurity and liability to change. But it is not so. On the contrary, the present state of the globe is one of permanent uniformity and entire security, except those comparatively slight catastrophes which result from earthquakes, volcanoes, and local deluges. Even the climate has experienced no general change within historic times, and the profound mathematical researches of Baron Fourier have demonstrated that, even though the internal parts of the globe are in an incandescent state, beneath a crust thirty or forty miles, the temperature of the surface has long since ceased to be affected by the melted central mass; that it is not now more than one seventeenth of a degree higher than it would be if the interior were ice; and that hundreds of thousands of years will not see it lowered, from this cause, more than the seventeenth part of a degree. And as to the apprehension that the entire crust of the globe may be broken through, and fall into the melted matter beneath, just reflect what solidity and strength there must be in a mass of hard rock from fifty to one hundred miles in thickness, and your fears of such a catastrophe will probably vanish. Now, such a uniformity of climate and security from general ruin are essential to the comfort and existence of animal nature. But it must have required infinite wisdom and benevolence so to arrange and balance the mighty elements of change and ruin which exist in the earth, that they should hold one another in check, and make the world a quiet, unchanged, and secure dwelling place for so many thousands of years. Surely that wisdom must have been guided by infinite benevolence. &mdash; *Edward Hitchcock, in "The Religion of Geology" 1851*
 
-Its deep fulfilment here attains;
+**Verse 11 &mdash;** *Let the heavens rejoice.* As the whole creation, both animate and inanimate, has groaned beneath the weight of the curse, so shall the whole creation partake of the great deliverance." &mdash; *The Speaker's Commentary" 1873*
 
-Tell all the earth the Lord is king!
+**Verse 11 &mdash;** *Let the sea roar.* Thou paragon of elemental powers, Mystery of waters—never slumbering sea! Impassioned orator with lips sublime, Whose waves are arguments which prove a God! &mdash; *Robert Montgomery, 1807-1855* 
 
-Lo, from the cross, a King he reigns!"
+**Verses 11-12 &mdash;** God will graciously accept the holy joys and praises of all the hearty well wishers to the kingdom of Christ, be their capacity never so mean. *The sea* can but *roar,* and how *the trees of the wood* can show that they *rejoice,* I know not; but "he that searcheth the heart, knows what is the mind of the Spirit, " and understands the language, the broken language of the weakest. &mdash; *Matthew Henry* 
 
-- *-From "Christ in Song. Hymns of Immanuel, with Notes by P. Schaff, " 1870.* 
+**Verses 11-13 &mdash;** These verses are full of comprehensive beauty and power. They present the gathering together of everything under the confessed dominion of the reigning Christ. Things in heaven, as well as things on earth, rejoice together in the acknowledged blessing of the Lord of peace. The Psalm is throughout a very sweet strain of millennial prophecy. &mdash; *Arthur Pridham* 
 
-**Verse 10.** *Say among the heathen that the Lord reigneth.* It is not enough to feel *desire*; we must " *say* among the heathen, the Lord reigneth." There is a commandment given us of the Lord to "go into all the world, and preach the gospel to every creature"—to tell them what Christ hath taught us—to say to them, in fact, "The Lord reigneth."&mdash; We go among the heathen, and say, "the Lord reigneth"—point them to all the various objects in *creation* —to the stars of heaven, to the beauties of vegetation, to the daily occurrences of *providence*, to the body fearfully and wonderfully made, to its continual preservation and supply. We may easily take our text from every thing by which we are surrounded, and say, "The Lord reigneth." But we must not stop here. It is well to have right views of God as the Creator; but it is only as we view him as the God of *Redemption*, that we can praise him "in the beauty of holiness." *Leigh Richmond.* 
+**Verses 11-13 &mdash;** Nothing can excel that noble exultation of universal nature in the 96th Psalm, which has been so often commended, where the whole animate and inanimate creation unite in the praises of their Maker. Poetry here seems to assume the highest tone of triumph and exultation, and to revel, if I may so express myself, in all the extravagance of joy. &mdash; *Robert Lowth* 
 
-**Verse 10.** *Say among the heathen that the Lord reigneth* must be the Christian's as it was the Israelite's motto. The earliest preaching of our Saviour and his disciples was the preaching of the gospel of the *kingdom.* It was because *all power was given unto him in heaven and in earth*, that, after his resurrection from the dead, Jesus sent forth his apostles to go and teach all nations. The substance of the apostles' subsequent preaching was, confessedly, the *kingdom* of God. *J. F. Thrupp.* 
+**Verses 11-13 &mdash;** Although there are some who by *heaven* understand *angels*; by the *earth, men*; by the *sea, troublesome spirits*; by *trees* and *fields*, the *Gentiles* who were to believe, yet this need not be thought strange, because such *prosopopaeias* are frequent in Scripture. &mdash; *Adam Clarke* 
 
-**Verse 10.** *Say among the heathen.* Go, ye that are already become proselytes unto him, and publish everywhere, in all countries, that the Lord *Christ* is the sovereign of the world, who alone can make it happy: for he shall settle those in peace that submit unto his government: and they shall not be so disturbed as they were wont with wars and tumults: he shall administer equal justice unto all: and neither suffer the good to be unrewarded, nor the evil to escape unpunished. *Symon Patrick.* 
+**Verse 12 &mdash;** *Let the fields be joyful,* etc. Let the husbandmen, and the shepherds, and all that dwell in the fields leap for joy; and the woodmen and foresters shout for joy, to see the happy day approaching; when all the idols that are worshipped there shall be thrown down together with their groves. &mdash; *Symon Patrick* 
 
-**Verse 10.** *The world also, * etc. The natural world shall be established; the standing of the world, and its stability, is owing to the mediation of Christ. Sin had given it a shock, and still threatens it; but Christ, as redeemer, upholds all things, and preserves the course of nature. The world of mankind shall be established, shall be preserved, till all that belong to the election of grace are called in, though a guilty, provoking world. The Christian religion, as far as it is embraced, shall establish states and kingdoms, and preserve good order among men. The church in the world shall be established, that it cannot be moved, for it is built upon a rock, and the gates of hell shall never prevail against it; it is a "kingdom that cannot be shaken." *Matthew Henry.* 
+**Verse 12 &mdash;** *Rejoice.* The verb wgr expresses the vibratory motion, either of a dancer's feet, or of a singer's lip. &mdash; *Samuel Horsley* 
 
-**Verse 10.** *It shall not be moved.* When we learn from the records of geology, as they are inscribed upon the rocks, how numerous and thorough have been the revolutions of the surface and the crust of the globe in past ages; how often and how long the present dry land has been alternately above and beneath the ocean; how frequently the crust of the globe has been fractured, bent, and dislocated; now lifted upward, and now thrown downward, and now folded by lateral pressure; how frequently melted matter has been forced through its strata and through its fissures to the surface; in short, how every particle of the accessible portions of the globe has undergone entire metamorphoses; and especially when we recollect what strong evidence there is that oceans of liquid matter exist beneath the solid crust, and that probably the whole interior of the earth is in that condition, with expansive energy sufficient to rend the globe into fragments; when we review all these facts, we cannot but feel that the condition of the surface of the globe must be one of great insecurity and liability to change. But it is not so. On the contrary, the present state of the globe is one of permanent uniformity and entire security, except those comparatively slight catastrophes which result from earthquakes, volcanoes, and local deluges. Even the climate has experienced no general change within historic times, and the profound mathematical researches of Baron Fourier have demonstrated that, even though the internal parts of the globe are in an incandescent state, beneath a crust thirty or forty miles, the temperature of the surface has long since ceased to be affected by the melted central mass; that it is not now more than one seventeenth of a degree higher than it would be if the interior were ice; and that hundreds of thousands of years will not see it lowered, from this cause, more than the seventeenth part of a degree. And as to the apprehension that the entire crust of the globe may be broken through, and fall into the melted matter beneath, just reflect what solidity and strength there must be in a mass of hard rock from fifty to one hundred miles in thickness, and your fears of such a catastrophe will probably vanish. Now, such a uniformity of climate and security from general ruin are essential to the comfort and existence of animal nature. But it must have required infinite wisdom and benevolence so to arrange and balance the mighty elements of change and ruin which exist in the earth, that they should hold one another in check, and make the world a quiet, unchanged, and secure dwelling place for so many thousands of years. Surely that wisdom must have been guided by infinite benevolence. *Edward Hitchcock, in "The Religion of Geology, "* 1851.
+**Verse 12 &mdash;** *The trees of the wood.* His praise, ye winds, that from four quarters blow, Breathe soft or loud; and wave your tops, ye Pines, With every plant, in sign of worship wave. &mdash; *John Milton* 
 
-**Verse 11.** *Let the heavens rejoice.* As the whole creation, both animate and inanimate, has groaned beneath the weight of the curse, so shall the whole creation partake of the great deliverance." *The Speaker's Commentary, "* 1873.
+**Verses 12-13 &mdash;** He cometh, etc. It chanced upon the merry, merry Christmas eve, I went sighing past the church across the moorland dreary— "Oh! never sin and want and woe this earth will leave, And the bells but mock the wailing round, they sing so cheery. How long O Lord! how long before thou come again? Still in cellar, and in garret, and on moorland dreary The orphans moan, and widows weep, and poor men toil in vain, Till earth is sick of hope deferred, though Christmas bells be cheery." Then arose a joyous clamour from the wild fowl on the mere, Beneath the stars, across the snow, like clear bells ringing. And a voice within cried. "Listen! Christmas carols even here! Though thou be dumb, yet over their work the stars and snows are singing. Blind! I live, I love, I reign: and all the nations through With the thunder of my judgments even now are ringing; Do thou fulfil thy work but as yon wild fowl do, Thou wilt heed no less the wailing, yet hear through it angels singing." &mdash; *Charles Kingsley, 1858*
 
-**Verse 11.** *Let the sea roar.* 
+**Verse 13 &mdash;** *For he cometh, for he cometh.* Because the thing was hard to be believed, the Prophet asserts twice that God should come, that he should be Judge and King, and Governor of all. &mdash; *Martinus Bucerus in Expos. Ecclesiast* 
 
-Thou paragon of elemental powers,
+**Verse 13 &mdash;** *He cometh.* Not awby, *"he shall come; "* but jpvl ab, "he cometh; "to show how near the time is. It is almost daybreak, and the court is ready to sit: "The Judge standeth at the door, "Jas 5:9. &mdash; *Thomas Watson* 
 
-Mystery of waters—never slumbering sea!
+**Verse 13 &mdash;** *To judge.* Vatablus remarks that *to judge* is the word used instead of *to reign, judicare pro regere*, because judges in the early days of the Holy Land exercised the power both of kings and magistrates. The Lord comes to be to all nations a wiser judge than Samuel, a greater champion than Samson, a mightier deliverer than Gideon. &mdash; *C. H. S.* 
 
-Impassioned orator with lips sublime,
+**Verse 13 &mdash;** *He cometh to judge the earth.* That is, to put earth in order, to be its Gideon and Samson, to be its *ruler*, to fulfil all that the Book of Judges delineates of a judge's office. It is, as Hengstenberg says, "a gracious judging, "not a time of mere adjudication of causes or pronouncing sentences—it is a day of jubilee. It is the happiest day our world has ever seen. Who would not long for it? Who is there that does not pray for it? It is the day of the Judge's glory, as well as of our world's freedom—the day when *"the judgement of this world"* (Joh 12:31 16:11), which his cross began and made sure, is completed by the total suppression of Satan's reign, and the removal of the curse. All this is anticipated here; and so we entitle this Psalm, *The glory due to him who cometh to judge the earth.* &mdash; *Andrew A. Bonar* 
 
-Whose waves are arguments which prove a God! ** 
-
-— *Robert Montgomery, 1807-1855.* 
-
-**Verses 11-12.** God will graciously accept the holy joys and praises of all the hearty well wishers to the kingdom of Christ, be their capacity never so mean. *The sea* can but *roar, * and how *the trees of the wood* can show that they *rejoice, * I know not; but "he that searcheth the heart, knows what is the mind of the Spirit, " and understands the language, the broken language of the weakest. *Matthew Henry.* 
-
-**Verses 11-13.** These verses are full of comprehensive beauty and power. They present the gathering together of everything under the confessed dominion of the reigning Christ. Things in heaven, as well as things on earth, rejoice together in the acknowledged blessing of the Lord of peace. The Psalm is throughout a very sweet strain of millennial prophecy. *Arthur Pridham.* 
-
-**Verses 11-13.** Nothing can excel that noble exultation of universal nature in the 96th Psalm, which has been so often commended, where the whole animate and inanimate creation unite in the praises of their Maker. Poetry here seems to assume the highest tone of triumph and exultation, and to revel, if I may so express myself, in all the extravagance of joy. *Robert Lowth.* 
-
-**Verses 11-13.** Although there are some who by *heaven* understand *angels*; by the *earth, men*; by the *sea, troublesome spirits*; by *trees* and *fields*, the *Gentiles* who were to believe, yet this need not be thought strange, because such *prosopopaeias* are frequent in Scripture. *Adam Clarke.* 
-
-**Verse 12.** *Let the fields be joyful, * etc. Let the husbandmen, and the shepherds, and all that dwell in the fields leap for joy; and the woodmen and foresters shout for joy, to see the happy day approaching; when all the idols that are worshipped there shall be thrown down together with their groves. *Symon Patrick.* 
-
-**Verse 12.** *Rejoice.* The verb wgr expresses the vibratory motion, either of a dancer's feet, or of a singer's lip. *Samuel Horsley.* 
-
-**Verse 12.** *The trees of the wood.* 
-
-His praise, ye winds, that from four quarters blow,
-
-Breathe soft or loud; and wave your tops, ye Pines,
-
-With every plant, in sign of worship wave. *John Milton.* 
-
-**Verses 12-13.** He cometh, etc.
-
-It chanced upon the merry, merry Christmas eve,
-
-I went sighing past the church across the moorland dreary—
-
-"Oh! never sin and want and woe this earth will leave,
-
-And the bells but mock the wailing round, they sing so cheery.
-
-How long O Lord! how long before thou come again?
-
-Still in cellar, and in garret, and on moorland dreary
-
-The orphans moan, and widows weep, and poor men toil in vain,
-
-Till earth is sick of hope deferred, though Christmas bells be cheery."
-
-Then arose a joyous clamour from the wild fowl on the mere,
-
-Beneath the stars, across the snow, like clear bells ringing.
-
-And a voice within cried. "Listen! Christmas carols even here!
-
-Though thou be dumb, yet over their work the stars and snows are singing.
-
-Blind! I live, I love, I reign: and all the nations through
-
-With the thunder of my judgments even now are ringing;
-
-Do thou fulfil thy work but as yon wild fowl do,
-
-Thou wilt heed no less the wailing, yet hear through it angels singing."
-
-— *Charles Kingsley, * 1858.
-
-**Verse 13.** *For he cometh, for he cometh.* Because the thing was hard to be believed, the Prophet asserts twice that God should come, that he should be Judge and King, and Governor of all. *Martinus Bucerus* in *Expos. Ecclesiast.* 
-
-**Verse 13.** *He cometh.* Not awby, *"he shall come; "* but jpvl ab, "he cometh; "to show how near the time is. It is almost daybreak, and the court is ready to sit: "The Judge standeth at the door, "Jas 5:9. *Thomas Watson.* 
-
-**Verse 13.** *To judge.* Vatablus remarks that *to judge* is the word used instead of *to reign, judicare pro regere*, because judges in the early days of the Holy Land exercised the power both of kings and magistrates. The Lord comes to be to all nations a wiser judge than Samuel, a greater champion than Samson, a mightier deliverer than Gideon. *C. H. S.* 
-
-**Verse 13.** *He cometh to judge the earth.* That is, to put earth in order, to be its Gideon and Samson, to be its *ruler*, to fulfil all that the Book of Judges delineates of a judge's office. It is, as Hengstenberg says, "a gracious judging, "not a time of mere adjudication of causes or pronouncing sentences—it is a day of jubilee. It is the happiest day our world has ever seen. Who would not long for it? Who is there that does not pray for it? It is the day of the Judge's glory, as well as of our world's freedom—the day when *"the judgement of this world"* (Joh 12:31 16:11), which his cross began and made sure, is completed by the total suppression of Satan's reign, and the removal of the curse. All this is anticipated here; and so we entitle this Psalm, *The glory due to him who cometh to judge the earth. Andrew A. Bonar.* 
-
-**Verse 13.** *He cometh to judge the earth, * etc. In this new song they take up the words of Enoch, the seventh from Adam (Jude 1:14), who preached of the Coming of the Lord to judge the world. *Chr. Wordsworth.* 
+**Verse 13 &mdash;** *He cometh to judge the earth,* etc. In this new song they take up the words of Enoch, the seventh from Adam (Jude 1:14), who preached of the Coming of the Lord to judge the world. &mdash; *Chr. Wordsworth* 
 
 ## Hints to the Village Preacher
 
-**Verse 1.** The novelties of grace.
+**Verse 1 &mdash;** The novelties of grace. 1\. A new salvation. 2\. Creates a new heart. 3\. Suggests a new song. 4\. Secures new testimonies, and these, 5\. Produce new converts.
 
-1\. A new salvation.
+**Verses 1-3 &mdash;** 1\. The end desired—to see the earth singing unto the Lord, and blessing his name. 2\. The means suggested—the showing forth his salvation from day to day; declaring his glory, etc. 3\. The certainly of its accomplishment. The Lord hath said it. "O sing, "etc. When he commands earth must obey. &mdash; *G. R.* 
 
-2\. Creates a new heart.
+**Verses 1-3 &mdash;** The progress of zeal. 1\. The spring of expansive desire, Ps 96:1. 2\. The streamlet of practical daily effort, Ps 96:2. 3\. The broad river of foreign missions, Ps 96:3. &mdash; *C. D.* 
 
-3\. Suggests a new song.
+**Verses 1-9 &mdash;** We are to honour God. 1\. With songs, Ps 96:1-2. 2\. With sermons, Ps 96:3. 3\. With religious services, Ps 96:7-9. &mdash; *Matthew Henry* 
 
-4\. Secures new testimonies, and these,
+**Verses 3** (*first clause*). 1\. Declare among the heathen the glory of God's perfections, that they may acknowledge him as the true God. 2\. Declare the glory of his salvation, that they may accept him as their only Redeemer. 3\. Declare the glory of his providence, that they may confide in him as their faithful guardian. 4\. Declare the glory of his word, that they may prize it as their chief treasure. 3\. Declare the glory of his service, that they may choose it as their noblest occupation. 4\. Declare the glory of his residence, that they may seek it as their best home. &mdash; *William Jackson* 
 
-5\. Produce new converts.
+**Verse 3 &mdash;** 1\. What the gospel is, "God's glory, ""his wonders." 2\. What shall we do with it—declare it. 3\. To whom. "Among the heathen, "all people.
 
-**Verses 1-3.** 
+**Verse 3** (*last clause*). *His wonders among the people.* 1\. The wonders of his Being, to inspire them with awe. 2\. The wonders of his creation, to fill them with amazement. 3\. The wonders of his judgments, to restrain them with fear. 4\. The wonders of his grace, to allure them with love. &mdash; *W. Jackson* 
 
-1\. The end desired—to see the earth singing unto the Lord, and blessing his name.
+**Verses 4-6 &mdash;** Missionary sermon. 1\. Contrast Jehovah of the Bible with gods of human device. 2\. Decide between divine worship and idolatry. 3\. Appeal for effort on behalf of idolaters. &mdash; *C. D.* 
 
-2\. The means suggested—the showing forth his salvation from day to day; declaring his glory, etc.
+**Verse 6 &mdash;** *Honour and majesty are before him.* 1\. As emanations from him. 2\. As excellencies ascribed to him. 3\. As characteristics of what is done by him. 4\. As marks of all that dwell near him. &mdash; *W. Jackson* 
 
-3\. The certainly of its accomplishment. The Lord hath said it. "O sing, "etc. When he commands earth must obey. *G. R.* 
+**Verse 6** (latter clause).—What we may see in God's sanctuary (strength, and beauty). What we may obtain there, Ps 90:17 (strength and beauty). &mdash; *C. D* 
 
-**Verses 1-3.** The progress of zeal.
+**Verse 8 &mdash;** Jehovah possesses a nature and character peculiar to himself; he sustains various offices and relations, and he has performed many works which he alone could perform. On all these accounts something is due to him from his creatures. And when we regard him with such affections, and yield him such services, as his nature, character, offices, and works deserve, then we give unto him the glory which is due to his name. 1\. Let us inquire what is due to Jehovah on account of his nature. 2\. What is due to Jehovah on account of the character he possesses. 3\. What is due to God on account of the relations and offices which he sustains—that of a creator, preserver. 4\. What is due to Jehovah on account of the works which he has performed, in nature, providence and redemption. &mdash; *E. Payson* 
 
-1\. The spring of expansive desire, Ps 96:1.
+**Verse 8 &mdash;** The object of worship. The nature of worship. The accompaniment of worship (an offering). The place of worship. &mdash; *C. D.*.
 
-2\. The streamlet of practical daily effort, Ps 96:2.
+**Verse 9 &mdash;** (first clause). An examination of true and false worship. 1\. False worship, in the obscurity of ignorance, in the dulness of formalism, in the offensiveness of indulged sin, in the hideousness of hypocrisy. 2\. True worship, in the beauty of holiness. &mdash; *C. D.* 
 
-3\. The broad river of foreign missions, Ps 96:3. *C. D.* 
+**Verse 9 &mdash;** Holy fear an essential ingredient in true religion.
 
-**Verses 1-9.** We are to honour God.
+**Verses 10-13 &mdash;** The reign of righteousness. 1\. The announcement of a righteous king and judge. 2\. The joyful reception prepared for him. 3\. His glorious coming. &mdash; *C. D.* 
 
-1\. With songs, Ps 96:1-2.
-
-2\. With sermons, Ps 96:3.
-
-3\. With religious services, Ps 96:7-9. ** 
-
-— *Matthew Henry.* 
-
-**Verses 3** (*first clause* ).
-
-1\. Declare among the heathen the glory of God's perfections, that they may acknowledge him as the true God.
-
-2\. Declare the glory of his salvation, that they may accept him as their only Redeemer.
-
-3\. Declare the glory of his providence, that they may confide in him as their faithful guardian.
-
-4\. Declare the glory of his word, that they may prize it as their chief treasure.
-
-3\. Declare the glory of his service, that they may choose it as their noblest occupation.
-
-4\. Declare the glory of his residence, that they may seek it as their best home. *William Jackson.* 
-
-**Verse 3.** 
-
-1\. What the gospel is, "God's glory, ""his wonders."
-
-2\. What shall we do with it—declare it.
-
-3\. To whom. "Among the heathen, "all people.
-
-**Verse 3** (*last clause* ). *His wonders among the people.* 
-
-1\. The wonders of his Being, to inspire them with awe.
-
-2\. The wonders of his creation, to fill them with amazement.
-
-3\. The wonders of his judgments, to restrain them with fear.
-
-4\. The wonders of his grace, to allure them with love. *W. Jackson.* 
-
-**Verses 4-6.** Missionary sermon.
-
-1\. Contrast Jehovah of the Bible with gods of human device.
-
-2\. Decide between divine worship and idolatry.
-
-3\. Appeal for effort on behalf of idolaters. *C. D.* 
-
-**Verse 6.** *Honour and majesty are before him.* 
-
-1\. As emanations from him.
-
-2\. As excellencies ascribed to him.
-
-3\. As characteristics of what is done by him.
-
-4\. As marks of all that dwell near him. *W. Jackson.* 
-
-**Verse 6** (latter clause).—What we may see in God's sanctuary (strength, and beauty). What we may obtain there, Ps 90:17 (strength and beauty). *C. D.* 
-
-**Verse 8.** Jehovah possesses a nature and character peculiar to himself; he sustains various offices and relations, and he has performed many works which he alone could perform. On all these accounts something is due to him from his creatures. And when we regard him with such affections, and yield him such services, as his nature, character, offices, and works deserve, then we give unto him the glory which is due to his name.
-
-1\. Let us inquire what is due to Jehovah on account of his nature.
-
-2\. What is due to Jehovah on account of the character he possesses.
-
-3\. What is due to God on account of the relations and offices which he sustains—that of a creator, preserver.
-
-4\. What is due to Jehovah on account of the works which he has performed, in nature, providence and redemption. *E. Payson.* 
-
-**Verse 8.** The object of worship. The nature of worship. The accompaniment of worship (an offering). The place of worship. *C. D.*.
-
-**Verse 9.** (first clause). An examination of true and false worship.
-
-1\. False worship, in the obscurity of ignorance, in the dulness of formalism, in the offensiveness of indulged sin, in the hideousness of hypocrisy.
-
-2\. True worship, in the beauty of holiness. *C. D.* 
-
-**Verse 9.** Holy fear an essential ingredient in true religion.
-
-**Verses 10-13.** The reign of righteousness.
-
-1\. The announcement of a righteous king and judge.
-
-2\. The joyful reception prepared for him.
-
-3\. His glorious coming. *C. D.* 
-
-**Verses 11-12.** The sympathy of nature with the work of grace; especially dwelling upon its fuller display in the millennial period.
+**Verses 11-12 &mdash;** The sympathy of nature with the work of grace; especially dwelling upon its fuller display in the millennial period.
 

@@ -116,345 +116,166 @@ Thou art God alone. Alone wast thou God before thy creatures were; alone in godh
 
 That they which hate me may see it, and be ashamed.
 
-"Some token of thy favour show,
-
-Some sign which all my foes may see;
-
-And filled with blank confusion know,
-
-My comfort and my help in thee."
+> "Some token of thy favour show,  
+> Some sign which all my foes may see;  
+> And filled with blank confusion know,  
+> My comfort and my help in thee."  
 
 What bodes good to me shall make them quail and blush. Disappointed and defeated, the foes of the good man would feel ashamed of what they had designed. "Because thou, Lord, hast holpen me, and comforted me." God doth nothing by halves, those whom he helps he also consoles, and so makes them not merely safe but joyful. This makes the foes of the righteous exceedingly displeased, but it brings to the Lord double honour. Lord, deal thou thus with us evermore, so will we glorify thee, world without end. Amen.
 
 ## Explanatory Notes & Quaint Sayings
 
-**Title &mdash;** —The prophet David has penned two psalms, which he has eminently appropriated to himself as his own: the one is styled *David's prayer, * though many other psalms are prayers—it is Ps 86:1-17; the other *David's praise, * Ps 145:1-21. The first his *tephilla, * the latter his *tehilla;* in each of these he makes a solemn rehearsal of the very words of Moses, in Ex 34:6-7. In Ps 86:1-17 he brings them in as they were a support unto his faith in his distresses from sins and miseries, to which use he puts them, Ps 86:3-4 6-7. And again, Ps 86:16-17, he makes a plea of these words by way of prayer. In Ps 145:1-21, he brings them in as they are an *elogium* or celebration of the glorious nature and excellencies of God, to excite the sons of men to love and praise him.— *Thomas Goodwin.* 
+**Title &mdash;** —The prophet David has penned two psalms, which he has eminently appropriated to himself as his own: the one is styled *David's prayer,* though many other psalms are prayers—it is Ps 86:1-17; the other *David's praise,* Ps 145:1-21. The first his *tephilla,* the latter his *tehilla;* in each of these he makes a solemn rehearsal of the very words of Moses, in Ex 34:6-7. In Ps 86:1-17 he brings them in as they were a support unto his faith in his distresses from sins and miseries, to which use he puts them, Ps 86:3-4 6-7. And again, Ps 86:16-17, he makes a plea of these words by way of prayer. In Ps 145:1-21, he brings them in as they are an *elogium* or celebration of the glorious nature and excellencies of God, to excite the sons of men to love and praise him. &mdash; *Thomas Goodwin* 
 
-**Title &mdash;** —This Psalm was published under the title of *A Prayer of David*; not as if David sung all his prayers, but into some of his songs he inserted prayers; for a psalm will admit the expression of any pious and devout affections. But it is observable how very plain the language of this psalm is, and how little there is in it of poetical flights or figures, in comparison with some other psalms; for the flourishes of wit are not the proper ornaments of prayer.— *Matthew Henry.* 
+**Title &mdash;** —This Psalm was published under the title of *A Prayer of David*; not as if David sung all his prayers, but into some of his songs he inserted prayers; for a psalm will admit the expression of any pious and devout affections. But it is observable how very plain the language of this psalm is, and how little there is in it of poetical flights or figures, in comparison with some other psalms; for the flourishes of wit are not the proper ornaments of prayer. &mdash; *Matthew Henry* 
 
-**Title &mdash;** —There was much, very much, of God's peculiar character, his glorious name, brought to view in the close of the last Psalm. This may account for its being followed by another, *A Prayer of David*, almost equally full of the character of Jehovah. The key note of this Psalm is Jehovah's name.— *Andrew A. Bonar.* 
+**Title &mdash;** —There was much, very much, of God's peculiar character, his glorious name, brought to view in the close of the last Psalm. This may account for its being followed by another, *A Prayer of David*, almost equally full of the character of Jehovah. The key note of this Psalm is Jehovah's name. &mdash; *Andrew A. Bonar* 
 
-**Whole Psalm.** Christ prays throughout the whole of this Psalm. All the words are spoken exclusively by Christ, who is both God and man.— *Psalt. Cassiodori, * 1491.
+**Whole Psalm &mdash;** Christ prays throughout the whole of this Psalm. All the words are spoken exclusively by Christ, who is both God and man. &mdash; *Psalt. Cassiodori, 1491*
 
-**Whole Psalm.** In this Psalm Christ the Son of God and Son of Man, one God with the Father, one man with men, to whom we pray as God, prays in the form of a servant. For he prays for us, and he prays in us, and he is prayed to by us. He prays for us as our Priest. He prays in us as our Head. He is prayed to by us as our God.— *Psalt. Pet. Lombard.* 1474.
+**Whole Psalm &mdash;** In this Psalm Christ the Son of God and Son of Man, one God with the Father, one man with men, to whom we pray as God, prays in the form of a servant. For he prays for us, and he prays in us, and he is prayed to by us. He prays for us as our Priest. He prays in us as our Head. He is prayed to by us as our God. &mdash; *Psalt. Pet. Lombard 1474*
 
-**Verse 1.** *Bow down thine ear, O Lord.* As the careful physician doth to his feeble patient: so Basil glosseth here.— *John Trapp.* 
+**Verse 1 &mdash;** *Bow down thine ear, O Lord.* As the careful physician doth to his feeble patient: so Basil glosseth here. &mdash; *John Trapp* 
 
-**Verses 1-4.** Poor, *holy*, *trusteth*, *I cry.* The petitioner is first described as *poor, * then *holy, * next *trusting, * after that *crying, * finally, *lifted up to God.* And each epithet has its fitting verb; *bow down* to the poor, *preserve* the holy, *save* the trusting, *be merciful* to him who cries, *rejoice* the lifted up. It is the whole gamut of love from the Incarnation to the Ascension; it tells us that Christ's humiliation will be our glory and joy.— *Neale and Littledale's Commentary.* 
+**Verses 1-4 &mdash;** Poor, *holy*, *trusteth*, *I cry.* The petitioner is first described as *poor,* then *holy,* next *trusting,* after that *crying,* finally, *lifted up to God.* And each epithet has its fitting verb; *bow down* to the poor, *preserve* the holy, *save* the trusting, *be merciful* to him who cries, *rejoice* the lifted up. It is the whole gamut of love from the Incarnation to the Ascension; it tells us that Christ's humiliation will be our glory and joy. &mdash; *Neale and Littledale's Commentary* 
 
-**Verse 2.** Holy. The word has been variously translated:— *Godly, * De Muis, Ainsworth and others; *charitable, * or *beneficent, * Piscator; *merciful* or *tenderhearted, * Mariana; *diligently* or *earnestly compassionate, * Vatablus; *meek, * Calvin; *a beloved one, * Version of American Bible Union; *one whom thou lovest, * Perowne; a *devoted* or *dedicated man, * — *Weiss.* 
+**Verse 2 &mdash;** Holy. The word has been variously translated:— *Godly,* De Muis, Ainsworth and others; *charitable,* or *beneficent,* Piscator; *merciful* or *tenderhearted,* Mariana; *diligently* or *earnestly compassionate,* Vatablus; *meek,* Calvin; *a beloved one,* Version of American Bible Union; *one whom thou lovest,* Perowne; a *devoted* or *dedicated man,* &mdash; *Weiss* 
 
-**Verse 2.** *For I am Holy.* Some have objected to David's pleading his own good character; but if he did not go beyond the truth, and the occasion called for it, there was nothing wrong in his so doing. Job, David, Peter, John and Paul all did it, Job 27:5 Ps 116:16 Joh 21:15-17 Re 1:10 1Co 9:1. Nor is it presumptuous to ask God to show mercy to us for we show it to others; or to forgive us for we forgive others, Mt 5:7 6:14-15.— *William S. Plumer.* 
+**Verse 2 &mdash;** *For I am Holy.* Some have objected to David's pleading his own good character; but if he did not go beyond the truth, and the occasion called for it, there was nothing wrong in his so doing. Job, David, Peter, John and Paul all did it, Job 27:5 Ps 116:16 Joh 21:15-17 Re 1:10 1Co 9:1. Nor is it presumptuous to ask God to show mercy to us for we show it to others; or to forgive us for we forgive others, Mt 5:7 6:14-15. &mdash; *William S. Plumer* 
 
-**Verse 2.** *I am holy&mdash; thy servant which trusteth in thee.* They that are holy, yet must not trust in themselves, or in their own righteousness, but only in God and his grace.— *Matthew Henry.* 
+**Verse 2 &mdash;** *I am holy&mdash; thy servant which trusteth in thee.* They that are holy, yet must not trust in themselves, or in their own righteousness, but only in God and his grace. &mdash; *Matthew Henry* 
 
-**Verse 2.** *Save thy servant that trusteth in thee.* When God saves his servant, he saves what belongs to himself; and, when he saves him that trusts in him, he shows himself to be just and faithful, in carrying out what he promised.— *Bellarmine.* 
+**Verse 2 &mdash;** *Save thy servant that trusteth in thee.* When God saves his servant, he saves what belongs to himself; and, when he saves him that trusts in him, he shows himself to be just and faithful, in carrying out what he promised. &mdash; *Bellarmine* 
 
-**Verses 2-5.** The aspirations after holiness which are found in this Psalm, coupled with its earnest invocation of mercy from the God with whom there is forgiveness, render it peculiarly applicable to those whose daily access is to a throne of needed grace. Christians know that while their *standing* is the blameless perfection of the Lord their righteouness, they are in many things offenders still. Nor do we ever fully prove the preciousness of Jesus as our portion, except we are drawn to him by that Spirit which reveals to us a nakedness and poverty within ourselves, which his blessed fulness can alone redress. There is a consciousness of personal sanctification through faith (Ps 86:2) associated with an acutely sensitive perception of intrinsic worthlessness, such as only finds relief in the remembrance of unaltered grace (Ps 86:5), which, to the exercised spirit of one really growing in the knowledge of God, will address itself with an especial acceptance.— *Arthur Pridham.* 
+**Verses 2-5 &mdash;** The aspirations after holiness which are found in this Psalm, coupled with its earnest invocation of mercy from the God with whom there is forgiveness, render it peculiarly applicable to those whose daily access is to a throne of needed grace. Christians know that while their *standing* is the blameless perfection of the Lord their righteouness, they are in many things offenders still. Nor do we ever fully prove the preciousness of Jesus as our portion, except we are drawn to him by that Spirit which reveals to us a nakedness and poverty within ourselves, which his blessed fulness can alone redress. There is a consciousness of personal sanctification through faith (Ps 86:2) associated with an acutely sensitive perception of intrinsic worthlessness, such as only finds relief in the remembrance of unaltered grace (Ps 86:5), which, to the exercised spirit of one really growing in the knowledge of God, will address itself with an especial acceptance. &mdash; *Arthur Pridham* 
 
-**Verse 3.** *Be merciful unto me.* Lest any should by the former words, (*"I am holy", * )suspect him to be a merit monger, he beggeth mercy with instancy and constancy of request.— *John Trapp.* 
+**Verse 3 &mdash;** *Be merciful unto me.* Lest any should by the former words, (*"I am holy",*)suspect him to be a merit monger, he beggeth mercy with instancy and constancy of request. &mdash; *John Trapp* 
 
-**Verse 3.** *I cry unto thee daily.* A great difference between saints and sinners in prayer is that sinners who pray at all, pray only when they are in *trouble, * whereas saints cry daily unto God. Compare Job 27:10.— *William S. Plumer.* 
+**Verse 3 &mdash;** *I cry unto thee daily.* A great difference between saints and sinners in prayer is that sinners who pray at all, pray only when they are in *trouble,* whereas saints cry daily unto God. Compare Job 27:10. &mdash; *William S. Plumer* 
 
-**Verse 4.** *Rejoice the soul of thy servant*, etc. As I have not found rest in anything created, I have raised up my soul on the wings of thought and desire to thee my Creator. Love bears one's soul up; and it has been truly said, that the soul is more where it loves, than where it actually is. Thought and desire are the wings of love; for he that loves is borne on to, and abides in, what he loves, by thinking constantly on, and longing for, the object of his love. Whoever truly, and from his heart, loves God, by thinking on him and longing for him lifts up his soul to God; while, on the contrary, whoever loves the earth, by thinking on and coveting the things of the earth, lets his soul down to its level.— *Bellarmine.* 
+**Verse 4 &mdash;** *Rejoice the soul of thy servant*, etc. As I have not found rest in anything created, I have raised up my soul on the wings of thought and desire to thee my Creator. Love bears one's soul up; and it has been truly said, that the soul is more where it loves, than where it actually is. Thought and desire are the wings of love; for he that loves is borne on to, and abides in, what he loves, by thinking constantly on, and longing for, the object of his love. Whoever truly, and from his heart, loves God, by thinking on him and longing for him lifts up his soul to God; while, on the contrary, whoever loves the earth, by thinking on and coveting the things of the earth, lets his soul down to its level. &mdash; *Bellarmine* 
 
-**Verse 4.** *Unto thee, Lord, do I lift my soul.* If thou hadst corn in thy rooms below, thou wouldest take it up higher, lest it should grow rotten. Wouldest thou remove thy corn, and dost thou suffer thy heart to rot on the earth? Thou wouldest take thy corn up higher: lift up thy heart to heaven. And how can I, dost thou say? What ropes are needed? What machines? What ladders? Thy affections are the steps; thy will the way. By loving thou mountest, by neglect thou descendest. Standing on the earth thou art in heaven, if thou lovest God. For the heart is not so raised as the body is raised: the body to be lifted up changes its place: the heart to be lifted up changes its will.— *Augstine.* 
+**Verse 4 &mdash;** *Unto thee, Lord, do I lift my soul.* If thou hadst corn in thy rooms below, thou wouldest take it up higher, lest it should grow rotten. Wouldest thou remove thy corn, and dost thou suffer thy heart to rot on the earth? Thou wouldest take thy corn up higher: lift up thy heart to heaven. And how can I, dost thou say? What ropes are needed? What machines? What ladders? Thy affections are the steps; thy will the way. By loving thou mountest, by neglect thou descendest. Standing on the earth thou art in heaven, if thou lovest God. For the heart is not so raised as the body is raised: the body to be lifted up changes its place: the heart to be lifted up changes its will. &mdash; *Augstine* 
 
-**Verse 4.** *Unto thee, O Lord, do I lift my soul*, intimates that he had brought himself to the Lord as a living sacrifice, even as the *heave offering* in the tabernacle—to show that it belonged to God and to his altar, and, that man had no part in it—was lifted up by the hands of the priests.— *Benjamin Weiss.* 
+**Verse 4 &mdash;** *Unto thee, O Lord, do I lift my soul*, intimates that he had brought himself to the Lord as a living sacrifice, even as the *heave offering* in the tabernacle—to show that it belonged to God and to his altar, and, that man had no part in it—was lifted up by the hands of the priests. &mdash; *Benjamin Weiss* 
 
-**Verse 4.** *—I lift up my soul.* It denotes the devotion, fervency, heartiness, and sincerity of his prayer; the doing of it with a true heart, the lifting up of the heart with the hands unto God, La 3:41; or by way of offering unto the Lord, not the body only, but the soul or heart also; or as a deposition committed into is hands.— *John Gill.* 
+**Verse 4 &mdash;** *—I lift up my soul.* It denotes the devotion, fervency, heartiness, and sincerity of his prayer; the doing of it with a true heart, the lifting up of the heart with the hands unto God, La 3:41; or by way of offering unto the Lord, not the body only, but the soul or heart also; or as a deposition committed into is hands. &mdash; *John Gill* 
 
-**Verse 4.** *Lord.* Here, and in all the verses in this psalm where ynda *Adonai, * occurs, many MSS read hwhy, *Yehovah.* The Jews, out of reverence to the incommunicable name Jehovah pronounce ynda where hwhy is in the text. It is, therefore, not improbable that hwhy is in the true reading in all these places.— *Note to Calvin in loc.* 
+**Verse 4 &mdash;** *Lord.* Here, and in all the verses in this psalm where ynda *Adonai,* occurs, many MSS read hwhy, *Yehovah.* The Jews, out of reverence to the incommunicable name Jehovah pronounce ynda where hwhy is in the text. It is, therefore, not improbable that hwhy is in the true reading in all these places. &mdash; *Note to Calvin in loc* 
 
-**Verse 5.** *For thou, Lord, art good*, and whither should beggars go but to the door of the good house keeper?— *Matthew Henry.* 
+**Verse 5 &mdash;** *For thou, Lord, art good*, and whither should beggars go but to the door of the good house keeper? &mdash; *Matthew Henry* 
 
-**Verse 5.** *Ready to forgive.* The mercy of God is a ready mercy, and his pardons are ready for his people; his pardons and mercies are not to seek, he hath them at hand, he is *good and ready to forgive.* Whereas most men, though they will forgive, yet they are not *ready* to forgive, they are hardly brought to it, though they do it at last. But God is *"ready to forgive";* he hath, as it were, pardons ready drawn (as a man who would be ready to do a business, he will have such writings as concern the passing of it ready); there is nothing to do but to put in the date and the name; yea indeed, the date and the name are put in from all eternity. Thus the Scripture speaks to show how forward God is to do good; he needs not set his heart to it; his heart is ever in the exactest fitness.— *Joseph Caryl.* 
+**Verse 5 &mdash;** *Ready to forgive.* The mercy of God is a ready mercy, and his pardons are ready for his people; his pardons and mercies are not to seek, he hath them at hand, he is *good and ready to forgive.* Whereas most men, though they will forgive, yet they are not *ready* to forgive, they are hardly brought to it, though they do it at last. But God is *"ready to forgive";* he hath, as it were, pardons ready drawn (as a man who would be ready to do a business, he will have such writings as concern the passing of it ready); there is nothing to do but to put in the date and the name; yea indeed, the date and the name are put in from all eternity. Thus the Scripture speaks to show how forward God is to do good; he needs not set his heart to it; his heart is ever in the exactest fitness. &mdash; *Joseph Caryl* 
 
-**Verse 5.** *Plenteous in mercy.* It is a thing marvellously satisfactory and pleasing to the heart of a man to be still taking from a great heap; and upon this ground are those proverbial sayings, There is no fishing like to a fishing in the sea; no service like the service of a king: because in one there is the greatest plenty and abundance of that kind of pleasure that fishers look after; and for them that serve, and must live by their service, there is none like that of princes, because they have abundance of reward and opportunity whereby to recompense the services of those that do wait and attend upon them&mdash; And upon the same ground is it that the Scriptures, in several places, do not only assert and testify that God is merciful and gracious, but abundant in mercy and full of grace; and not simply that there is redemption in him, but *plenteousness* of redemption: Ps 103:8 130:7 Isa 55:7; "Let the wicked forsake his way", etc.; "Let him return unto the Lord and he will have mercy; and unto our God, for lie will abundantly pardon." The commodity which we stand in need of is mercy and the pardon of our sins, in case we have been unholy and ungodly creatures; this commodity is abundantly in God. There it is treasured up as waters are in the store house of the sea; there is no end of the treasures of his grace, mercy, pardon, and compassion. There is no man, being in want, but had ten times rather go to a rich man's door to be relieved, than to the door of a poor man, if he knoweth the rich man to be as liberal and bountifully disposed as the poor man can be.— *John Goodwin.* 
+**Verse 5 &mdash;** *Plenteous in mercy.* It is a thing marvellously satisfactory and pleasing to the heart of a man to be still taking from a great heap; and upon this ground are those proverbial sayings, There is no fishing like to a fishing in the sea; no service like the service of a king: because in one there is the greatest plenty and abundance of that kind of pleasure that fishers look after; and for them that serve, and must live by their service, there is none like that of princes, because they have abundance of reward and opportunity whereby to recompense the services of those that do wait and attend upon them&mdash; And upon the same ground is it that the Scriptures, in several places, do not only assert and testify that God is merciful and gracious, but abundant in mercy and full of grace; and not simply that there is redemption in him, but *plenteousness* of redemption: Ps 103:8 130:7 Isa 55:7; "Let the wicked forsake his way", etc.; "Let him return unto the Lord and he will have mercy; and unto our God, for lie will abundantly pardon." The commodity which we stand in need of is mercy and the pardon of our sins, in case we have been unholy and ungodly creatures; this commodity is abundantly in God. There it is treasured up as waters are in the store house of the sea; there is no end of the treasures of his grace, mercy, pardon, and compassion. There is no man, being in want, but had ten times rather go to a rich man's door to be relieved, than to the door of a poor man, if he knoweth the rich man to be as liberal and bountifully disposed as the poor man can be. &mdash; *John Goodwin* 
 
-**Verse 6.** Supplications ytwnwxt, *deprecations.* The Psalmist forms a peculiar Hebrew word, feminine plural, not found elsewhere, to convey more impressively the idea of suppliant weakness.— *A. R. Fausset.* 
+**Verse 6 &mdash;** Supplications ytwnwxt, *deprecations.* The Psalmist forms a peculiar Hebrew word, feminine plural, not found elsewhere, to convey more impressively the idea of suppliant weakness. &mdash; *A. R. Fausset* 
 
-**Verses 8-10.** —There are two kinds of doubt which are wont in the hour of temptation to assail the soul: the doubt as to God's *willingness*, and the doubt as to God's *power* to succour. The first of these the Psalmist has already put from him; he now shows that he has overcome the second. God is able as well as willing to help, and every being on the face of the earth who receives help, receives it from the hand of Him who is the only God, and who shall one day be recognized (so speaks the strong prophetic hope within him, Ps 86:9) as the only God.— *J. J. S. Perowne.* 
+**Verses 8-10 &mdash;** —There are two kinds of doubt which are wont in the hour of temptation to assail the soul: the doubt as to God's *willingness*, and the doubt as to God's *power* to succour. The first of these the Psalmist has already put from him; he now shows that he has overcome the second. God is able as well as willing to help, and every being on the face of the earth who receives help, receives it from the hand of Him who is the only God, and who shall one day be recognized (so speaks the strong prophetic hope within him, Ps 86:9) as the only God. &mdash; *J. J. S. Perowne* 
 
-**Verses 9-10.** All nations shall worship before thee, because as *King of Nations, * thou art great, thy sovereignty absolute and incontestable, thy Majesty terrible and unsupportable, thy power universal and irresistible, thy riches vast and inexhaustible, thy dominion boundless and unquestionable; and for the proof of this, *thou doest wondrous things*, which all nations admire, and from whence they might easily infer that *thou art God alone*; not only none like thee, but none beside thee.— *Matthew Henry.* 
+**Verses 9-10 &mdash;** All nations shall worship before thee, because as *King of Nations,* thou art great, thy sovereignty absolute and incontestable, thy Majesty terrible and unsupportable, thy power universal and irresistible, thy riches vast and inexhaustible, thy dominion boundless and unquestionable; and for the proof of this, *thou doest wondrous things*, which all nations admire, and from whence they might easily infer that *thou art God alone*; not only none like thee, but none beside thee. &mdash; *Matthew Henry* 
 
-**Verse 11.** *Teach me thy way*: *I will walk in thy truth: unite my heart.* Here is the "Via, Veritas, Vita" of the Gospel (Joh 14:6). "Via tua, Veritas tua, Vita tua, Christus." Christ is our Way, Truth, and Life, because he is Man united to God, and is one substance with the Father.— *Christopher Wordsworth.* 
+**Verse 11 &mdash;** *Teach me thy way*: *I will walk in thy truth: unite my heart.* Here is the "Via, Veritas, Vita" of the Gospel (Joh 14:6). "Via tua, Veritas tua, Vita tua, Christus." Christ is our Way, Truth, and Life, because he is Man united to God, and is one substance with the Father. &mdash; *Christopher Wordsworth* 
 
-**Verse 11.** *Teach me.* There is no point on which the world is more dark than that of its own ignorance—we might truly say, "it is ignorant of its ignorance"—it knows enough when it learns by rote a few first principles of religion; it comforts itself that it is not atheistical because it believes that there is a God; but as to knowing his ways, laws, mind, or any such things, with them it has nothing at all to do. The people of the world do not care for enlightenment; they feel no pressing need for it; in all probability they have an instinctive feeling that if enlightened they would know a little more than they wish to know, that their newly acquired knowledge would interfere with their old habits and ways, and this is one reason why all spiritual teaching which goes beneath the surface is distasteful to the majority of men. They cannot bear to be brought into contact with God, in anything but a general way; the particulars of his character may not agree over well with the particulars of their lives! It is the fashion in the present day to talk of man's enlightenment, and to represent human nature as upheaving under its load, as straining towards a knowledge of truth; such is not in reality the case, and whenever there is an effort in the mind untaught of the Spirit, it is directed towards God as the great *moral* and not as the great *spiritual* Being. A man untaught of the Holy Ghost may long to know a *moral, * he can never desire to know a *spiritual* Being.— *John Hyatt, * 1767-1826.
+**Verse 11 &mdash;** *Teach me.* There is no point on which the world is more dark than that of its own ignorance—we might truly say, "it is ignorant of its ignorance"—it knows enough when it learns by rote a few first principles of religion; it comforts itself that it is not atheistical because it believes that there is a God; but as to knowing his ways, laws, mind, or any such things, with them it has nothing at all to do. The people of the world do not care for enlightenment; they feel no pressing need for it; in all probability they have an instinctive feeling that if enlightened they would know a little more than they wish to know, that their newly acquired knowledge would interfere with their old habits and ways, and this is one reason why all spiritual teaching which goes beneath the surface is distasteful to the majority of men. They cannot bear to be brought into contact with God, in anything but a general way; the particulars of his character may not agree over well with the particulars of their lives! It is the fashion in the present day to talk of man's enlightenment, and to represent human nature as upheaving under its load, as straining towards a knowledge of truth; such is not in reality the case, and whenever there is an effort in the mind untaught of the Spirit, it is directed towards God as the great *moral* and not as the great *spiritual* Being. A man untaught of the Holy Ghost may long to know a *moral,* he can never desire to know a *spiritual* Being. &mdash; *John Hyatt, 1767-1826*
 
-**Verse 11.** *Teach.* The common version of the verb here is too vague, as it fails to bring out the peculiar suitableness of the term to express the kind of teaching here specifically meant. The original meaning of the Hebrew word is *to point out* or *mark* the way.— *J. A. Alexander.* 
+**Verse 11 &mdash;** *Teach.* The common version of the verb here is too vague, as it fails to bring out the peculiar suitableness of the term to express the kind of teaching here specifically meant. The original meaning of the Hebrew word is *to point out* or *mark* the way. &mdash; *J. A. Alexander* 
 
-**Verse 11.** *I will walk in thy truth.* Conform to Scripture. Let us lead Scripture lives. Oh that the Bible might be seen to be printed in our lives! Do what the Word commands. Obedience is an excellent way of commenting upon the Bible. Let the Word be the sun dial by which you set your life. What are we the better for having the Scriptures, if we do not direct all our speeches and actions according to it? What is a carpenter better for his rule about him, if he sticks it at his back, and never makes use of it for measuring and squaring? So, what are we the better for the rule of the Word, if we do not make use of it, and regulate our lives by it?— *Thomas Watson.* 
+**Verse 11 &mdash;** *I will walk in thy truth.* Conform to Scripture. Let us lead Scripture lives. Oh that the Bible might be seen to be printed in our lives! Do what the Word commands. Obedience is an excellent way of commenting upon the Bible. Let the Word be the sun dial by which you set your life. What are we the better for having the Scriptures, if we do not direct all our speeches and actions according to it? What is a carpenter better for his rule about him, if he sticks it at his back, and never makes use of it for measuring and squaring? So, what are we the better for the rule of the Word, if we do not make use of it, and regulate our lives by it? &mdash; *Thomas Watson* 
 
-**Verse 11.** *I will walk in thy truth. Walking, * in the Scripture, takes in the whole of our conversation or conduct: and to walk *in* anything, intends a fulness of it. For a man to *walk in* pride, is something more than to be proud: it says, that pride is his way, his element; that he is wholly under the influence of it.— *William Jay.* 
+**Verse 11 &mdash;** *I will walk in thy truth. Walking,* in the Scripture, takes in the whole of our conversation or conduct: and to walk *in* anything, intends a fulness of it. For a man to *walk in* pride, is something more than to be proud: it says, that pride is his way, his element; that he is wholly under the influence of it. &mdash; *William Jay* 
 
-**Verse 11.** *Unite my heart to fear thy name.* The *end* which he desired to secure was that he might truly fear God, or properly reverence and honour him; the *means* which he saw to be necessary for this was that his *"heart"* might be *"united"* in this one great object; that is, that his heart might be single in its views and purposes; that there might be no distracting purposes; that one great aim might be always before him. The *word* rendered *unite* —dxy, *yahhad* —occurs as a verb only in three places. In Ge 49:6 it is rendered *united:* "Unto their assembly, mine honour, be not thou *united*." In Isa 14:20 it is translated *joined:* "Thou shalt not be *joined* unto them." The *adverb* —dxy *ya-hhad* —occurs often, and is rendered together, Ge 13:6 22:6, 8, 19 36:7; *et soepe.* The *idea* is that of union, or conjunction; of being together; of constituting one; and this is accomplished in the heart when there is one great ruling object before the mind which nothing is allowed to interfere with. It may be added, that there is no more appropriate prayer which a man can offer than that his heart may have such unity of purpose, and that nothing may be allowed to interfere with that one supreme purpose.— *Albert Barnes.* 
+**Verse 11 &mdash;** *Unite my heart to fear thy name.* The *end* which he desired to secure was that he might truly fear God, or properly reverence and honour him; the *means* which he saw to be necessary for this was that his *"heart"* might be *"united"* in this one great object; that is, that his heart might be single in its views and purposes; that there might be no distracting purposes; that one great aim might be always before him. The *word* rendered *unite* —dxy, *yahhad* —occurs as a verb only in three places. In Ge 49:6 it is rendered *united:* "Unto their assembly, mine honour, be not thou *united*." In Isa 14:20 it is translated *joined:* "Thou shalt not be *joined* unto them." The *adverb* —dxy *ya-hhad* —occurs often, and is rendered together, Ge 13:6 22:6, 8, 19 36:7; *et soepe.* The *idea* is that of union, or conjunction; of being together; of constituting one; and this is accomplished in the heart when there is one great ruling object before the mind which nothing is allowed to interfere with. It may be added, that there is no more appropriate prayer which a man can offer than that his heart may have such unity of purpose, and that nothing may be allowed to interfere with that one supreme purpose. &mdash; *Albert Barnes* 
 
-**Verse 11.** *Unite my heart*, etc. Sincerity drives but one design, and that is to please and enjoy God; and what can more establish and fix the soul in the hour of temptation than this? The reason why the hypocrite is unstable in all his ways, is given us by the apostle: he is "a double minded man", a man of two souls in one body; as a profane wretch once boasted, that he had one soul for God, and another for anything. But all the designs of a gracious heart are united in one; and so the entire stream of his affections runs strong. It is base by ends and self interests, that, like a great many ditches cut out of the bank of a river, draw away the stream out of its proper channel, and make its waters fail. But if the heart be united for God, then we may say of such a Christian, as was said of a young Roman, "What he does is done with all his might." A man of only one design, puts out all his strength to carry it; nothing can stand before him. Sincerity brings a man's will into subjection to the will of God; and this being done, the greatest danger and difficulty is over with such a man. This is that holy oil which makes the wheels of the soul run nimbly, even in the difficult paths of obedienee.— *John Flavel.* 
+**Verse 11 &mdash;** *Unite my heart*, etc. Sincerity drives but one design, and that is to please and enjoy God; and what can more establish and fix the soul in the hour of temptation than this? The reason why the hypocrite is unstable in all his ways, is given us by the apostle: he is "a double minded man", a man of two souls in one body; as a profane wretch once boasted, that he had one soul for God, and another for anything. But all the designs of a gracious heart are united in one; and so the entire stream of his affections runs strong. It is base by ends and self interests, that, like a great many ditches cut out of the bank of a river, draw away the stream out of its proper channel, and make its waters fail. But if the heart be united for God, then we may say of such a Christian, as was said of a young Roman, "What he does is done with all his might." A man of only one design, puts out all his strength to carry it; nothing can stand before him. Sincerity brings a man's will into subjection to the will of God; and this being done, the greatest danger and difficulty is over with such a man. This is that holy oil which makes the wheels of the soul run nimbly, even in the difficult paths of obedienee. &mdash; *John Flavel* 
 
-**Verse 11.** *Unite my heart.* 
+**Verse 11 &mdash;** *Unite my heart.* Give me thine heart but as I gave it thee: Or give it me at least as I Have given mine To purchase thine. I halved it not when I did die; But gave myself wholly to set thee free. The heart I gave thee was a living heart; And when thy heart by sin was slain, I laid down mine To ransom thine, That thy dead heart might live again, And live entirely perfect, not in part. But whilst thine heart's divided, it is dead; Dead unto me, unless it live To me alone, It is all one To keep all, and a part to give: For what's a body worth without an head! Yet, this is worse, that what thou keepest from me Thou dost bestow upon my foes And those not mine Alone, but thine; The proper causes of thy woes, From whom I gave my life to set thee free. Have I betrothed thee to myself, and shall The devil, and the world, intrude Upon my right, Eeen in my sight? Think not thou canst me so delude: I will have none, unless I may have all. I made it all, I gave it all to thee, I gave all that I had for it: If I must lose, I would rather choose Mine interest in all to quit: Or keep it whole, or give it whole to me. &mdash; *Francis Quarles, in "The School of the Heart"* 
 
-Give me thine heart but as I gave it thee:
+**Verse 11 &mdash;** *Unite my heart to fear thy name.* In knotts, to be loosed never, Knitt my heart to thee forever, That I to thy name may beare Fearful love and loving feare. &mdash; *Francis Davison* 
 
-Or give it me at least as I
+**Verse 12 &mdash;** *I will praise thee, O Lord my God, with all my heart: and I will glorify thy name.* We glorify God by praising him. Doxology, or praise, is a God exalting work. Ps 50:23. "Whoso offereth praise glorifieth me." The Hebrew word, *Bara,* to create, and *Barak,* to praise, are little different, because the end of creation is to praise God. Though nothing can add to God's essential glory, yet praise exalts him in the eyes of others. When we praise God, we spread his fame and renown, we display the trophies of his excellency. In this manner the angels glorify him; they are the choristers of heaven, and do trumpet forth his praise. Praising God is one of the highest and purest acts of religion. In prayer we act like men; in praise we act like angels. Believers are called "temples of God", 1Co 3:16. When our tongues praise, then the organs of God's spiritual temple are sounding. How sad it is that God hath no more glory from us in this way! Many are full of murmuring and discontent, but seldom bring glory to God, by giving him the praise due to his name. We read of the saints having harps in their hands, the emblems of praise. Many have tears in their eyes and complaints in their mouths, but few have harps in their hands, blessing and glorifying God. Let us honour God this way. Praise is the quit rent we pay to God: while God renews our lease, we must renew our rent. &mdash; *Thomas Watson* 
 
-Have given mine
+**Verse 12 &mdash;** *I will praise thee, O Lord*, & c. Such a soul as David was is enlarged to talk high of God: *I will praise thee, O Lord my God, with all my heart; and I will glorify thy name for evermore.* Alas! poor creature, how canst thou proclaim him *"for evermore"?* A soul fired with desire to praise God, burns after both more perfect things and more lasting than it is able to perform. "To will is present with it", etc. See but the reachings and longings of such a soul, how it swells in desires to glorify God! &mdash; *Thomas Goodwin* 
 
-To purchase thine.
+**Verse 12 &mdash;** *With all my heart.* When my *heart* is *united* to fear thy name, then shall I praise thee with my whole heart. &mdash; *Adam Clarke* 
 
-I halved it not when I did die;
+**Verse 13 &mdash;** *Hell* is put metaphorically for great and extreme dangers, or miseries which seem irrecoverable and remediless; these are figuratively called hell, because *hell,* properly taken, is a place from whence there is no recovery. There's no release from the chains of darkness: all changes are on earth; heaven and hell know none. When David praises the Lord *for delivering his soul from the lowest hell,* he meaneth an estate on earth of the lowest and deepest danger imaginable: mercy helped him at the worst. To be as low as hell, is to be at the lowest. &mdash; *Joseph Caryl* 
 
-But gave myself wholly to set thee free.
+**Verse 13 &mdash;** *The lowest hell.* According to Jewish traditions, there are seven different regions, in the abode of departed souls. &mdash; *Daniel Creswell* 
 
-The heart I gave thee was a living heart;
+**Verse 13 &mdash;** *Thou hast delivered my soul from the lowest hell.* Someone having a troublesome cause was to be sent to prison: another comes and defends him; what does he say when he thanks him? Thou hast delivered my soul out of prison. A debtor was to be tortured: his debt is paid; he is said to be delivered from being tortured. They were not in all these evils; but because they were in such due course towards them, that unless aid had been brought, they would have been in them, they rightly say that they are delivered from thence, whither they were not suffered by their deliverers to be taken. &mdash; *Augustine* 
 
-And when thy heart by sin was slain,
+**Verses 13, 16 &mdash;** There is no stronger argument of God's infallible readiness to grant our requests, than the experience of his former concessions. So David reasons, "The Lord that delivered me out of the paw of the lion, and out of the paw of the bear, he will deliver me out of the hand of this Philistine", 1Sa 17:37. This is the argument *a priori,* the voice of a strong faith, that persuades the conscience God will be gracious to him, because he hath been gracious. The prophet thus often comforted his soul: "Thou hast enlarged me when I was in distress"; therefore, "have mercy upon me, and hear my prayer", Ps 4:1. So, *Thou hast delivered my soul from the lowest hell*; therefore, *O turn unto me, and have mercy upon me.* Let the justiciaries deduce arguments from their own present merits, my soul from God's former mercies. Thou, O Lord, madest me good, restoredst me when I was evil; therefore have mercy upon me, miserable sinner, and give me thy salvation. Thus Paul grounded his assurance: because the Lord had stood with him, and delivered him out of the lion's mouth; therefore the Lord shall deliver me still, from every evil work, and preserve me unto his heavenly kingdom. 2Ti 4:17-18. &mdash; *Thomas Adams* 
 
-I laid down mine
+**Verse 15 &mdash;** *Thou, O Lord, Adonai, art a God*; El, the strong God, *full of compassion*; the same words as Moses useth. Instead of *Jehovah, Adonai* is used, "O Lord"; but then *El,* strong God, is the same word. The meaning is, let all the strength and power thou the strong God hast in thee be for my advantage. Now, is it not a bold request to say, Lord, wilt thou give me all thy strength to help me? A very bold request indeed; but his mercy moves him to grant it. Thus then petition him: Thou art a God merciful and gracious, give thy strength to me! Thou, O God, givest all thy attributes up to thy children, to serve their advantage, as well as to serve thy own glory; give me thy strength! &mdash; *Thomas Goodwin* 
 
-To ransom thine,
+**Verse 15 &mdash;** *Full of compassion.* The original word *Rachum* is very emphatical; it signifies such tenderness as parents have toward their children when their bowels yearn within them. &mdash; *"Critical and Practical Exposition of the Pentateuch" 1748*
 
-That thy dead heart might live again,
+**Verse 16 &mdash;** *Save the son of thine handmaid.* Deliver me, who am as completely thy property, as the offspring of a female slave born in her master's house, and which belongs of right to him. Ge 14:14 Jer 2:14. &mdash; *William Keatinge Clay* 
 
-And live entirely perfect, not in part.
+**Verse 17 &mdash;** *Shew me a token for good.* These words do not, as some think, necessarily imply David's asking for some specific or miraculous token; he regards deliverance itself as a token. We ask whether it be not true, that in the same measnre as we recognise the mysteriously governing influence of God in every day events, we regard those things as signs and miracles, which to others appear common place? &mdash; *Augustus F. Tholuck* 
 
-But whilst thine heart's divided, it is dead;
+**Verse 17 &mdash;** Perhaps, the *token for good* means that spiritual joy which he asked for in the beginning of the Psalm, when he said, *"Rejoice the soul of thy servant"* for such joy to a holy soul in tribulation is the clearest sign of the grace of God, and on the sight of it all manner of persecutors are confounded; and then the meaning would be, *"shew me a token for good";* give me the grace of that spiritual joy that will appear exteriorily in my countenance, "that they which hate me may see" such calmness and tranquillity of soul, *"and be confounded";* for thou, O Lord, hast helped me in the struggle, consoled me in my sorrow, and hast already converted my sadness into interior joy and gladness. &mdash; *Robert Bellarmine* 
 
-Dead unto me, unless it live To me alone,
+**Verse 17 &mdash;** *Shew me a token for good*, may be rendered "make me a sign for good." Weiss paraphrases it, "make of me such a sign or monument of good that all my enemies may be arrested by it, and be daunted at injuring a man so assisted by the Lord."
 
-It is all one
-
-To keep all, and a part to give:
-
-For what's a body worth without an head!
-
-Yet, this is worse, that what thou keepest from me
-
-Thou dost bestow upon my foes
-
-And those not mine
-
-Alone, but thine;
-
-The proper causes of thy woes,
-
-From whom I gave my life to set thee free.
-
-Have I betrothed thee to myself, and shall
-
-The devil, and the world, intrude
-
-Upon my right,
-
-Eeen in my sight?
-
-Think not thou canst me so delude:
-
-I will have none, unless I may have all.
-
-I made it all, I gave it all to thee,
-
-I gave all that I had for it:
-
-If I must lose,
-
-I would rather choose
-
-Mine interest in all to quit:
-
-Or keep it whole, or give it whole to me.
-
- *—Francis Quarles, in "The School of the Heart."* 
-
-**Verse 11.** *Unite my heart to fear thy name.* 
-
-In knotts, to be loosed never,
-
-Knitt my heart to thee forever,
-
-That I to thy name may beare
-
-Fearful love and loving feare.
-
- *—Francis Davison.* 
-
-**Verse 12.** *I will praise thee, O Lord my God, with all my heart: and I will glorify thy name.* We glorify God by praising him. Doxology, or praise, is a God exalting work. Ps 50:23. "Whoso offereth praise glorifieth me." The Hebrew word, *Bara, * to create, and *Barak, * to praise, are little different, because the end of creation is to praise God. Though nothing can add to God's essential glory, yet praise exalts him in the eyes of others. When we praise God, we spread his fame and renown, we display the trophies of his excellency. In this manner the angels glorify him; they are the choristers of heaven, and do trumpet forth his praise. Praising God is one of the highest and purest acts of religion. In prayer we act like men; in praise we act like angels. Believers are called "temples of God", 1Co 3:16. When our tongues praise, then the organs of God's spiritual temple are sounding. How sad it is that God hath no more glory from us in this way! Many are full of murmuring and discontent, but seldom bring glory to God, by giving him the praise due to his name. We read of the saints having harps in their hands, the emblems of praise. Many have tears in their eyes and complaints in their mouths, but few have harps in their hands, blessing and glorifying God. Let us honour God this way. Praise is the quit rent we pay to God: while God renews our lease, we must renew our rent.— *Thomas Watson.* 
-
-**Verse 12.** *I will praise thee, O Lord*, & c. Such a soul as David was is enlarged to talk high of God: *I will praise thee, O Lord my God, with all my heart; and I will glorify thy name for evermore.* Alas! poor creature, how canst thou proclaim him *"for evermore"?* A soul fired with desire to praise God, burns after both more perfect things and more lasting than it is able to perform. "To will is present with it", etc. See but the reachings and longings of such a soul, how it swells in desires to glorify God!— *Thomas Goodwin.* 
-
-**Verse 12.** *With all my heart.* When my *heart* is *united* to fear thy name, then shall I praise thee with my whole heart.— *Adam Clarke.* 
-
-**Verse 13.** *Hell* is put metaphorically for great and extreme dangers, or miseries which seem irrecoverable and remediless; these are figuratively called hell, because *hell, * properly taken, is a place from whence there is no recovery. There's no release from the chains of darkness: all changes are on earth; heaven and hell know none. When David praises the Lord *for delivering his soul from the lowest hell, * he meaneth an estate on earth of the lowest and deepest danger imaginable: mercy helped him at the worst. To be as low as hell, is to be at the lowest.— *Joseph Caryl.* 
-
-**Verse 13.** *The lowest hell.* According to Jewish traditions, there are seven different regions, in the abode of departed souls.— *Daniel Creswell.* 
-
-**Verse 13.** *Thou hast delivered my soul from the lowest hell.* Someone having a troublesome cause was to be sent to prison: another comes and defends him; what does he say when he thanks him? Thou hast delivered my soul out of prison. A debtor was to be tortured: his debt is paid; he is said to be delivered from being tortured. They were not in all these evils; but because they were in such due course towards them, that unless aid had been brought, they would have been in them, they rightly say that they are delivered from thence, whither they were not suffered by their deliverers to be taken.— *Augustine.* 
-
-**Verses 13, 16.** There is no stronger argument of God's infallible readiness to grant our requests, than the experience of his former concessions. So David reasons, "The Lord that delivered me out of the paw of the lion, and out of the paw of the bear, he will deliver me out of the hand of this Philistine", 1Sa 17:37. This is the argument *a priori, * the voice of a strong faith, that persuades the conscience God will be gracious to him, because he hath been gracious. The prophet thus often comforted his soul: "Thou hast enlarged me when I was in distress"; therefore, "have mercy upon me, and hear my prayer", Ps 4:1. So, *Thou hast delivered my soul from the lowest hell*; therefore, *O turn unto me, and have mercy upon me.* Let the justiciaries deduce arguments from their own present merits, my soul from God's former mercies. Thou, O Lord, madest me good, restoredst me when I was evil; therefore have mercy upon me, miserable sinner, and give me thy salvation. Thus Paul grounded his assurance: because the Lord had stood with him, and delivered him out of the lion's mouth; therefore the Lord shall deliver me still, from every evil work, and preserve me unto his heavenly kingdom. 2Ti 4:17-18.— *Thomas Adams.* 
-
-**Verse 15.** *Thou, O Lord, Adonai, art a God*; El, the strong God, *full of compassion*; the same words as Moses useth. Instead of *Jehovah, Adonai* is used, "O Lord"; but then *El, * strong God, is the same word. The meaning is, let all the strength and power thou the strong God hast in thee be for my advantage. Now, is it not a bold request to say, Lord, wilt thou give me all thy strength to help me? A very bold request indeed; but his mercy moves him to grant it. Thus then petition him: Thou art a God merciful and gracious, give thy strength to me! Thou, O God, givest all thy attributes up to thy children, to serve their advantage, as well as to serve thy own glory; give me thy strength!— *Thomas Goodwin.* 
-
-**Verse 15.** *Full of compassion.* The original word *Rachum* is very emphatical; it signifies such tenderness as parents have toward their children when their bowels yearn within them.— *"Critical and Practical Exposition of the Pentateuch."* 1748.
-
-**Verse 16.** *Save the son of thine handmaid.* Deliver me, who am as completely thy property, as the offspring of a female slave born in her master's house, and which belongs of right to him. Ge 14:14 Jer 2:14.— *William Keatinge Clay.* 
-
-**Verse 17.** *Shew me a token for good.* These words do not, as some think, necessarily imply David's asking for some specific or miraculous token; he regards deliverance itself as a token. We ask whether it be not true, that in the same measnre as we recognise the mysteriously governing influence of God in every day events, we regard those things as signs and miracles, which to others appear common place?— *Augustus F. Tholuck.* 
-
-**Verse 17.** Perhaps, the *token for good* means that spiritual joy which he asked for in the beginning of the Psalm, when he said, *"Rejoice the soul of thy servant"* for such joy to a holy soul in tribulation is the clearest sign of the grace of God, and on the sight of it all manner of persecutors are confounded; and then the meaning would be, *"shew me a token for good";* give me the grace of that spiritual joy that will appear exteriorily in my countenance, "that they which hate me may see" such calmness and tranquillity of soul, *"and be confounded";* for thou, O Lord, hast helped me in the struggle, consoled me in my sorrow, and hast already converted my sadness into interior joy and gladness.— *Robert Bellarmine.* 
-
-**Verse 17.** *Shew me a token for good*, may be rendered "make me a sign for good." Weiss paraphrases it, "make of me such a sign or monument of good that all my enemies may be arrested by it, and be daunted at injuring a man so assisted by the Lord."
-
-**Verse 17.** *Hast holpen me*, in struggle; *and comforted me*, in sorrow.— *Augustine.* 
+**Verse 17 &mdash;** *Hast holpen me*, in struggle; *and comforted me*, in sorrow. &mdash; *Augustine* 
 
 ## Hints to the Village Preacher
 
-**Verse 1.** 
+**Verse 1 &mdash;** 1\. A singular request—that the Lord should bow his ear. 2\. A singular plea— *"I am poor and needy."* 3\. The singular grace of God will answer the request, because singular grace has made the petitioner feel his need.
 
-1\. A singular request—that the Lord should bow his ear.
+**Verse 2 &mdash;** 1\. The blessing sought is present, spiritual, complete and final preservation. 2\. Our reasons for expecting it are— (a) Our belonging to God— *"I am holy."* (b) God's belonging to us— *"my God."* (c) Our faith, which has the promise. (d) Our fruits, which prove our faith— *"thy servant"* 
 
-2\. A singular plea— *"I am poor and needy."* 
+**Verse 3 &mdash;** —Importunity. 1\. When she pleads— *"daily."* 2\. How she pleads— *"I cry."* 3\. To whom she pleads— *"unto thee."* 4\. For what she pleads— *"be merciful."* 
 
-3\. The singular grace of God will answer the request, because singular grace has made the petitioner feel his need.
+**Verse 3 &mdash;** — *I will cry daily* for pardoning, sanctifying, assisting, preserving, providing and guiding mercy. &mdash; *William Jay* 
 
-**Verse 2.** 
+**Verse 4 &mdash;** 1\. The believer's joy is from God— *"Rejoice"*, & c. 2\. The believer's joy is in God— *"unto thee"*, etc. &mdash; *G. R.*
 
-1\. The blessing sought is present, spiritual, complete and final preservation.
+**Verse 4 &mdash;** 1\. The great lift. 2\. The heavy weight— *"my soul".* 3\. The weak worker— *"I lift".* 4\. The great height— *"unto thee".* 5\. The appointed machinery—means of grace; and, 6\. The expected aid— *"Rejoice"*, etc.
 
-2\. Our reasons for expecting it are—
+**Verse 5 &mdash;** —Encouraging thoughts of God. 1\. He has goodness in his essence. 2\. He has forgiveness in readiness. 3\. He has mercy in action, flowing forth from him plenteously. 4\. His very discrimination is gracious—"all them that call upon him."
 
-(a) Our belonging to God— *"I am holy."* 
+**Verse 6 &mdash;** The praying man desires above all things an answer. Objections to such an expectation. Grounds for continuing to expect, and duties incumbent upon those who realise such expectations.
 
-(b) God's belonging to us— *"my God."* 
+**Verse 6 &mdash;** *The voice of supplication.* It is the voice of weakness, of penitence, of faith, of hope, of the new nature, of knowledge, & c.
 
-(c) Our faith, which has the promise.
+**Verse 7 &mdash;** 1\. Help needed. 2\. Help sought. 3\. Help found. &mdash; *G. R.*
 
-(d) Our fruits, which prove our faith— *"thy servant"* 
+**Verse 7 &mdash;** 1\. A time to be expected— *"day of my trouble."* 2\. A resolve to be practised— *"I will call upon thee."* 3\. A result to be experienced— *"thou wilt answer me."* 
 
-**Verse 3.** —Importunity.
+**Verse 7 &mdash;** —Prayer is the design of trouble, the evidence that it is sanctified, its solace, and the medium of deliverance from it. &mdash; *William Jay* 
 
-1\. When she pleads— *"daily."* 
+**Verse 8 &mdash;** 1\. God is one; the only God: characters of false gods inferior far. 2\. His works are unique. Nature, providence, grace, all peculiar in many respects. A good theme for a thoughtful preacher.
 
-2\. How she pleads— *"I cry."* 
+**Verse 9 &mdash;** The certain conversion of the world as opposed to modern theories.
 
-3\. To whom she pleads— *"unto thee."* 
+**Verse 10 &mdash;** 1\. God is *"great",* therefore great things may be expected of him. 2\. He is unsearchable, therefore *"wondrous things"* may be expected of him. 3\. He is irresistible, therefore impossibihties to others may be expected of him: *"Thou art God alone".* &mdash; *G. R*
 
-4\. For what she pleads— *"be merciful."* 
+**Verse 11 &mdash;** In the disposition of mind which is expressed in these words, the believer stands opposed to four descriptions of character. 1\. The ignorant and thoughtless sinner, who neither regards his way nor his end. 2\. The Antinomian, who is zealous for doctrines, and averse from the practice of religion. 3\. The Pharisee, who disregards religious sentiment, and makes practice all in all. 4\. The hypocrite, who appears to be divided between religion and the world. &mdash; *John Hyatt, 1811*
 
-**Verse 3.** — *I will cry daily* for pardoning, sanctifying, assisting, preserving, providing and guiding mercy.— *William Jay.* 
-
-**Verse 4.** 
-
-1\. The believer's joy is from God— *"Rejoice"*, & c.
-
-2\. The believer's joy is in God— *"unto thee"*, & c.—G. R.
-
-**Verse 4.** 
-
-1\. The great lift.
-
-2\. The heavy weight— *"my soul".* 
-
-3\. The weak worker— *"I lift".* 
-
-4\. The great height— *"unto thee".* 
-
-5\. The appointed machinery—means of grace; and,
-
-6\. The expected aid— *"Rejoice"*, etc.
-
-**Verse 5.** —Encouraging thoughts of God.
-
-1\. He has goodness in his essence.
-
-2\. He has forgiveness in readiness.
-
-3\. He has mercy in action, flowing forth from him plenteously.
-
-4\. His very discrimination is gracious—"all them that call upon him."
-
-**Verse 6.** The praying man desires above all things an answer. Objections to such an expectation. Grounds for continuing to expect, and duties incumbent upon those who realise such expectations.
-
-**Verse 6.** *The voice of supplication.* It is the voice of weakness, of penitence, of faith, of hope, of the new nature, of knowledge, & c.
-
-**Verse 7.** 
-
-1\. Help needed.
-
-2\. Help sought.
-
-3\. Help found.—G. R.
-
-**Verse 7.** 
-
-1\. A time to be expected— *"day of my trouble."* 
-
-2\. A resolve to be practised— *"I will call upon thee."* 
-
-3\. A result to be experienced— *"thou wilt answer me."* 
-
-**Verse 7.** —Prayer is the design of trouble, the evidence that it is sanctified, its solace, and the medium of deliverance from it.— *William Jay.* 
-
-**Verse 8.** 
-
-1\. God is one; the only God: characters of false gods inferior far.
-
-2\. His works are unique. Nature, providence, grace, all peculiar in many respects. A good theme for a thoughtful preacher.
-
-**Verse 9.** The certain conversion of the world as opposed to modern theories.
-
-**Verse 10.** 
-
-1\. God is *"great", * therefore great things may be expected of him.
-
-2\. He is unsearchable, therefore *"wondrous things"* may be expected of him.
-
-3\. He is irresistible, therefore impossibihties to others may be expected of him: *"Thou art God alone".* —G. R.
-
-**Verse 11.** In the disposition of mind which is expressed in these words, the believer stands opposed to four descriptions of character.
-
-1\. The ignorant and thoughtless sinner, who neither regards his way nor his end.
-
-2\. The Antinomian, who is zealous for doctrines, and averse from the practice of religion.
-
-3\. The Pharisee, who disregards religious sentiment, and makes practice all in all.
-
-4\. The hypocrite, who appears to be divided between religion and the world.— *John Hyatt, * 1811.
-
-**Verse 11.** The Christian as a scholar, a man of action, and a man of devotion.
+**Verse 11 &mdash;** The Christian as a scholar, a man of action, and a man of devotion.
 
 **Verse 11**. Holiness taught, truth practised, God adored; and thus the life perfected.
 
-**Verse 11.** (*middle clause* ). We should walk in the belief of the truth, its practice, enjoyment, and profession.— *William Jay.* 
+**Verse 11 &mdash;** (*middle clause*). We should walk in the belief of the truth, its practice, enjoyment, and profession. &mdash; *William Jay* 
 
-**Verse 11.** (*third clause* ). The necessity, benefit, and reasonableness of whole heartedhess in religion.
+**Verse 11 &mdash;** (*third clause*). The necessity, benefit, and reasonableness of whole heartedhess in religion.
 
-**Verse 12.** —The art of praising God by heart.
+**Verse 12 &mdash;** —The art of praising God by heart.
 
-**Verse 13.** 
+**Verse 13 &mdash;** 1\. Where I might have been— *"the lowest hell."* 2\. What thou hast done for me— *"hast delivered."* 3\. What thou art doing— *"great is thy mercy."* 
 
-1\. Where I might have been— *"the lowest hell."* 
+**Verse 13 &mdash;** (*first clause*).—God's mercy *great* in election, redemption, calling, pardon, upholding, etc. It is so, at this very moment, in supplying my needs, preserving from danger, consoling in sorrow, etc. Great is thy mercy *towards me* —so great a sinner, with such needs, so provoking, so full of doubts, etc.
 
-2\. What thou hast done for me— *"hast delivered."* 
+**Verses 13-15 &mdash;** The three verses describe salvation, consequent persecution, and all sufficient consolation.
 
-3\. What thou art doing— *"great is thy mercy."* 
+**Verse 15 &mdash;** The shades of the light of love. Compassion upon suffering, grace towards unworthiness, long suffering to provocation, mercy towards sin, truth towards the promise.
 
-**Verse 13.** (*first clause* ).—God's mercy *great* in election, redemption, calling, pardon, upholding, etc. It is so, at this very moment, in supplying my needs, preserving from danger, consoling in sorrow, etc. Great is thy mercy *towards me* —so great a sinner, with such needs, so provoking, so full of doubts, etc.
+**Verse 16 &mdash;** 1\. My pedigree— *"son of thine handmaid."* 2\. My occupation—"thy servant." 3\. My character—needing *"mercy."* 4\. My request *"turn unto me."* 
 
-**Verses 13-15.** The three verses describe salvation, consequent persecution, and all sufficient consolation.
+**Verse 16 &mdash;** In what respects a servant of God may be girt with divine power.
 
-**Verse 15.** The shades of the light of love. Compassion upon suffering, grace towards unworthiness, long suffering to provocation, mercy towards sin, truth towards the promise.
-
-**Verse 16.** 
-
-1\. My pedigree— *"son of thine handmaid."* 
-
-2\. My occupation—"thy servant."
-
-3\. My character—needing *"mercy."* 
-
-4\. My request *"turn unto me."* 
-
-**Verse 16.** In what respects a servant of God may be girt with divine power.
-
-**Verse 17.** What inward feelings and outward providences are *"tokens for good."* 
+**Verse 17 &mdash;** What inward feelings and outward providences are *"tokens for good."* 
 
