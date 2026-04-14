@@ -22,63 +22,35 @@ weight: 117
 
 ## Explanatory Notes & Quaint Sayings
 
-**Whole Psalm &mdash;** A very short Psalm if you regard the words, but of very great compass and most excellent if you thoughtfully consider the meaning. There are here five principal points of doctrine.
+**Whole Psalm &mdash;** A very short Psalm if you regard the words, but of very great compass and most excellent if you thoughtfully consider the meaning. There are here five principal points of doctrine. First, *the calling of the Gentiles*, the Apostle being the interpreter, Ro 15:11; but in vain might the Prophet invite the Gentiles to praise Jehovah, unless they were to be gathered into the unity of the faith together with the children of Abraham. Second, *The Summary of the Gospel*, namely, the manifestation of grace and truth, the Holy Spirit being the interpreter, Joh 1:17. Third, *The end of so great a blessing*, namely, the worship of God in spirit and in truth, as we know that the kingdom of the Messiah is spiritual. Fourth, *the employment of the subjects of the great King* is to praise and glorify Jehovah. Lastly, *the privilege of these servants*: that, as to the Jews, so also to the Gentiles, who know and serve God the Saviour, eternal life and blessedness are brought, assured in this life, and prepared in heaven. &mdash; *Mollerus* 
 
-First, *the calling of the Gentiles*, the Apostle being the interpreter, Ro 15:11; but in vain might the Prophet invite the Gentiles to praise Jehovah, unless they were to be gathered into the unity of the faith together with the children of Abraham.
+**Whole Psalm &mdash;** This Psalm, the shortest portion of the Book of God, is quoted and given much value to, in Ro 15:11. And upon this it has been profitably observed, "It is a small portion of Scripture, and such as we might easily overlook it. But not so the Holy Ghost. He gleans up this precious little testimony which speaks of grace to the Gentiles, and presses it on our attention." &mdash; *From Bellett's Short Meditations on the Psalms, chiefly in their Prophetic character, 1871*
 
-Second, *The Summary of the Gospel*, namely, the manifestation of grace and truth, the Holy Spirit being the interpreter, Joh 1:17.
+**Whole Psalm &mdash;** The occasion and the author of this Psalm are alike unknown. De Wette regards it as a *Temple Psalm*, and agrees with Rosenmueller in the supposition that it was sung either at the beginning or the end of the service it the temple. Knapp supposes that it was used as an intermediate service, sung during the progress of the general service, to vary the devotion, and to awaken a new interest in the service, either sung by the choir or by the whole people. &mdash; *Albert Barnes* 
 
-Third, *The end of so great a blessing*, namely, the worship of God in spirit and in truth, as we know that the kingdom of the Messiah is spiritual.
+**Whole Psalm &mdash;** In God's worship it is not always necessary to be long; few words sometimes say what is sufficient, as this short Psalm giveth us to understand. &mdash; *David Dickson* 
 
-Fourth, *the employment of the subjects of the great King* is to praise and glorify Jehovah.
+**Whole Psalm &mdash;** This is the shortest, and the next but one is the longest, of the Psalms. There are times for short hymns and long hymns, for short prayers and long prayers, for short sermons and long sermons, for short speeches and long speeches. It is better to be too short than too long, as it can more easily be mended. Short addresses need no formal divisions: long addresses require them, as in the next Psalm but one. &mdash; *G. Rogers* 
 
-Lastly, *the privilege of these servants*: that, as to the Jews, so also to the Gentiles, who know and serve God the Saviour, eternal life and blessedness are brought, assured in this life, and prepared in heaven. *Mollerus.* 
+**Verse 1 &mdash;** *O praise the Lord,* etc. The praise of God is here made both the beginning and the end of the Psalm; to show, that in praising God the saints are never satisfied with their own efforts, and would infinitely magnify him, even as his perfections are infinite. Here they make a circle, the beginning, middle, and end whereof is *hallelujah*. In the last Psalm, when David had said, "Let everything that hath breath praise the Lord, "and so in all likelihood had made an end, yet he repeats the *hallelujah* again, and cries, "Praise ye the Lord." The Psalmist had made an end and yet he had not done; to signify, that when we have said our utmost for God's praise, we must not be content, but begin anew. There is hardly any duty more pressed in the Old Testament upon us, though less practised, than this of praising God. To quicken us therefore to a duty so necessary, but so much neglected, this and many other Psalms were penned by David, purposely to excite us, that are the *nations* here meant, to consecrate our whole lives to the singing and setting forth of God's worthy praises. &mdash; *Abraham Wright* 
 
-**Whole Psalm &mdash;** This Psalm, the shortest portion of the Book of God, is quoted and given much value to, in Ro 15:11. And upon this it has been profitably observed, "It is a small portion of Scripture, and such as we might easily overlook it. But not so the Holy Ghost. He gleans up this precious little testimony which speaks of grace to the Gentiles, and presses it on our attention." *From Bellett's Short Meditations on the Psalms, chiefly in their Prophetic character,* 1871.
+**Verse 1 &mdash;** *All ye nations.* Note: each nation of the world has some special gift bestowed on it by God, which is not given to the others, whether you have regard to nature or grace, for which it ought to praise God. &mdash; *Le Blanc* 
 
-**Whole Psalm &mdash;** The occasion and the author of this Psalm are alike unknown. De Wette regards it as a *Temple Psalm*, and agrees with Rosenmueller in the supposition that it was sung either at the beginning or the end of the service it the temple. Knapp supposes that it was used as an intermediate service, sung during the progress of the general service, to vary the devotion, and to awaken a new interest in the service, either sung by the choir or by the whole people. *Albert Barnes.* 
+**Verse 1 &mdash;** *Praise him.* A different word is here used for *"praise"* than in the former clause: a word which is more frequently used in the Chaldee, Syriac, Arabic, and Ethiopic languages; and signifies the celebration of the praises of God with a high voice. &mdash; *John Gill* 
 
-**Whole Psalm &mdash;** In God's worship it is not always necessary to be long; few words sometimes say what is sufficient, as this short Psalm giveth us to understand. *David Dickson.* 
+**Verse 2 &mdash;** *For his merciful kindness is great toward us.* We cannot part from this Psalm without remarking that even in the Old Testament we have more than one instance of a recognition on the part of those that were without the pale of the church that God's favour to Israel was a source of blessing to themselves. Such were probably to some extent the sentiments of Hiram and the Queen of Sheba, the contemporaries of Solomon; such the experience of Naaman; such the virtual acknowledgments of Nebuchadnezzar and Darius the Mede. They beheld "his merciful *kindness* "towards his servants of the house of Israel, and they praised him accordingly. &mdash; *John Francis Thrupp* 
 
-**Whole Psalm &mdash;** This is the shortest, and the next but one is the longest, of the Psalms. There are times for short hymns and long hymns, for short prayers and long prayers, for short sermons and long sermons, for short speeches and long speeches. It is better to be too short than too long, as it can more easily be mended. Short addresses need no formal divisions: long addresses require them, as in the next Psalm but one. *G. Rogers.* 
+**Verse 2 &mdash;** *For his merciful kindness is great toward us.* Albeit there be matter of praise unto God in himself, though we should not be partakers of any benefit from him, yet the Lord doth give his people cause to praise him for favours to them in their own particular cases. &mdash; *David Dickson* 
 
-**Verse 1 &mdash;** *O praise the Lord,* etc. The praise of God is here made both the beginning and the end of the Psalm; to show, that in praising God the saints are never satisfied with their own efforts, and would infinitely magnify him, even as his perfections are infinite. Here they make a circle, the beginning, middle, and end whereof is *hallelujah*. In the last Psalm, when David had said, "Let everything that hath breath praise the Lord, "and so in all likelihood had made an end, yet he repeats the *hallelujah* again, and cries, "Praise ye the Lord." The Psalmist had made an end and yet he had not done; to signify, that when we have said our utmost for God's praise, we must not be content, but begin anew. There is hardly any duty more pressed in the Old Testament upon us, though less practised, than this of praising God. To quicken us therefore to a duty so necessary, but so much neglected, this and many other Psalms were penned by David, purposely to excite us, that are the *nations* here meant, to consecrate our whole lives to the singing and setting forth of God's worthy praises. *Abraham Wright.* 
+**Verse 2 &mdash;** *For his merciful kindness is great.* rbg, *gabar*, is *strong*: it is not only great in *bulk* or *number*; but it is *powerful*; it prevails over sin, Satan, death, and hell. &mdash; *Adam Clarke* 
 
-**Verse 1 &mdash;** *All ye nations.* Note: each nation of the world has some special gift bestowed on it by God, which is not given to the others, whether you have regard to nature or grace, for which it ought to praise God. *Le Blanc.* 
-
-**Verse 1 &mdash;** *Praise him.* A different word is here used for *"praise"* than in the former clause: a word which is more frequently used in the Chaldee, Syriac, Arabic, and Ethiopic languages; and signifies the celebration of the praises of God with a high voice. *John Gill.* 
-
-**Verse 2 &mdash;** *For his merciful kindness is great toward us.* We cannot part from this Psalm without remarking that even in the Old Testament we have more than one instance of a recognition on the part of those that were without the pale of the church that God's favour to Israel was a source of blessing to themselves. Such were probably to some extent the sentiments of Hiram and the Queen of Sheba, the contemporaries of Solomon; such the experience of Naaman; such the virtual acknowledgments of Nebuchadnezzar and Darius the Mede. They beheld "his merciful *kindness* "towards his servants of the house of Israel, and they praised him accordingly. *John Francis Thrupp.* 
-
-**Verse 2 &mdash;** *For his merciful kindness is great toward us.* Albeit there be matter of praise unto God in himself, though we should not be partakers of any benefit from him, yet the Lord doth give his people cause to praise him for favours to them in their own particular cases. *David Dickson.* 
-
-**Verse 2 &mdash;** *For his merciful kindness is great.* rbg, *gabar*, is *strong*: it is not only great in *bulk* or *number*; but it is *powerful*; it prevails over sin, Satan, death, and hell. *Adam Clarke* 
-
-**Verse 2 &mdash;** *Merciful kindness&mdash; and the truth of the Lord.* Here, and so in divers other Psalms, God's mercy and truth are joined together; to show that all passages and proceedings, both in ordinances and in providence, whereby he comes and communicates himself to his people are not only mercy, though that is very sweet, but truth also. Their blessings come to them in the way of promise from God, as bound to them by the truth of his covenant. This is soul satisfying indeed; this turns all that a man hath to cream, when every mercy is a present sent from heaven by virtue of a promise. Upon this account, God's mercy is ordinarily in the Psalms bounded by his truth; that none may either presume him more merciful than he hath declared himself in his word; nor despair of finding mercy *gratis*, according to the truth of his promise. Therefore though thy sins be great, believe the text, and know that God's mercy is greater than the sins. The high heaven covereth as well tall mountains as small mole hills, and mercy can cover all. The more desperate thy disease, the greater is the glory of thy physician, who hath perfectly cured thee. *Abraham Wright* 
+**Verse 2 &mdash;** *Merciful kindness&mdash; and the truth of the Lord.* Here, and so in divers other Psalms, God's mercy and truth are joined together; to show that all passages and proceedings, both in ordinances and in providence, whereby he comes and communicates himself to his people are not only mercy, though that is very sweet, but truth also. Their blessings come to them in the way of promise from God, as bound to them by the truth of his covenant. This is soul satisfying indeed; this turns all that a man hath to cream, when every mercy is a present sent from heaven by virtue of a promise. Upon this account, God's mercy is ordinarily in the Psalms bounded by his truth; that none may either presume him more merciful than he hath declared himself in his word; nor despair of finding mercy *gratis*, according to the truth of his promise. Therefore though thy sins be great, believe the text, and know that God's mercy is greater than the sins. The high heaven covereth as well tall mountains as small mole hills, and mercy can cover all. The more desperate thy disease, the greater is the glory of thy physician, who hath perfectly cured thee. &mdash; *Abraham Wright* 
 
 ## Hints to the Village Preacher
 
-**Whole Psalm &mdash;** The universal kingdom.
+**Whole Psalm &mdash;** The universal kingdom. 1\. The same God. 2\. The same worship. 3\. The same reason for it.
 
-1\. The same God.
+**Verse 2 &mdash;** *Merciful kindness.* In God's kindness there is mercy, because, 1\. Our sin deserves the reverse of kindness. 2\. Our weakness requires great tenderness. 3\. Our fears can only be so removed.
 
-2\. The same worship.
-
-3\. The same reason for it.
-
-**Verse 2 &mdash;** *Merciful kindness.* In God's kindness there is mercy, because,
-
-1\. Our sin deserves the reverse of kindness.
-
-2\. Our weakness requires great tenderness.
-
-3\. Our fears can only be so removed.
-
-**Verse 2** (*last clause*)
-
-1\. In his attribute—he is always faithful.
-
-2\. In his revelation—always infallible.
-
-3\. In his action—always according to promise.
+**Verse 2** (*last clause*) 1\. In his attribute—he is always faithful. 2\. In his revelation—always infallible. 3\. In his action—always according to promise.
 
