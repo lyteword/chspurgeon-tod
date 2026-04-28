@@ -167,3 +167,34 @@ As to the remaining word "way," that occurs but twice as a characteristic word, 
  {{< card link="./verses-153-160" title="Verses 153 to 160" icon="book-open" >}}
  {{< card link="./verses-161-168" title="Verses 161 to 168" icon="book-open" >}}
 {{< /cards >}}
+
+## Works Upon The One-Hundred-Nineteenth Psalm
+
+Two and Twentie Sermons of Maister Iohn Caluin. In which Sermons is most religiously handled, the hundredth and nineteenth Psalme of Dauid, by eight verses apart according to the Hebrew Alphabet. Translated out of French into Englishe by
+Thomas Stocker. Imprinted at London for John Harison and Thomas Man. 1580. 4to
+
+"An Exposition on the 119 Psalme." In "The Workes of...M. RICHARD GREENHAM" pp. 379-608, folio, 1612.
+
+A Holy Alphabet for Sion's Scholars; Full of Spiritval Instrvctions, and Heavenly Consolations, to direct and encourage them in their Progresse towards the New Jerusaleum: Deliuered, by way of Commentary vpon the whole 119 Psalme. By
+WILLIAM COWPER, Minister of God's Word, and B. of Galloway...4to. London... 1613. Also in Bishop Cowper's Works pp. 359 474, folio, 1629.
+
+"Summary and Holy Observations collected out of the route first Octonaries or parts of the hundred and nineteenth Psalme."
+
+The above will be found in "A Commentarie upon the first and second chapters of Saint Paul to the Colossians...together with divers places of Scripture briefly explained. By Mr. Paul Bayne, B. D. London: 1635." 4to
+
+One Hundred and Ninety Sermons on the Hundred and Nineteenth Psalm. By the Rev. THOMAS MANTON, D.D., Folio. London, 1725. Also 3 vols., 8vo., 1842; 3 vols. (with Life), 1845; and in vols. 7,8, and 9 of Nichol's (now Nisbet's) edition of
+Manton's Works.
+
+An Hundred, Seventy and Six, SACRED OBSERVATIONS. Upon the Several VERSES of (The Sweetest of PSALMES) the Hundred and Nineteenth PSALM, Stated, Opened, and Applied (as a brief Exposition thereon) to the People of WEST COWES, in the Isle
+of WIGHT, being the Exercise of my Publick Ministry, in their New Chappel, lately Consecrated by the Right Reverend Father in God, George Lord Bishop of WINTON.
+
+The preceding forms the latter part of a very small 8 vo. entitled "MOSES REVIVED, "on "The Unlawfulness of Eating Blood"; by John Moore, 1669. The exposition is simply worthless, and we notice it merely to save collectors of Psalm
+literature trouble and expense.
+
+Exposition of Psalms 119:0 as illustrative of the Character and Exercises of Christian Experience. By the Rev. CHARLES BRIDGES, M.A. 12mo 1827, and many subsequent editions.
+
+Lord's Day Literature: or, Illustrations of the Book of Psalms, from the Hundred and Nineteenth Psalm consecutively. By R. B. SANDERSON, Esq., B.A. 12mo 1842.
+
+The Utterance of the 119. Psalm; expounded in a Series of Lectures. By the Rev. JOHN STEPHEN, A.M. Free John Knox's, Aberdeen... 1861. 2mo
+
+
