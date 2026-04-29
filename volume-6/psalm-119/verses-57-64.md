@@ -2,1410 +2,277 @@
 
 ## Exposition Verse 57
 
-In this section the Psalmist seems to take firm hold upon God himself;
-appropriating him (Psa 119:57), crying out for him (Psa 119:58), returning to
-him (Psa 119:59), solacing himself in him (Psa 119:61-62), associating with
-his people (Psa 119:63), and sighing for personal experience of his goodness
-(Psa 119:64). Note how the first verse of this octave is linked to the last of
-the former one, of which indeed it is an expanded repetition. "This I had
-because I kept thy precepts. Thou art my portion, O Lord: I have said that I
-would keep thy words."
+> *Thou art* my portion, O LORD: I have said that I would keep thy words. 
 
-**Verse 57.** \---"_Thou art my portion_ , _O_ LORD." A broken sentence. The
-translators have mended it by insertions, but perhaps it had been better to
-have left it alone, and then it would have appeared as an exclamation,---"My
-portion, O Lord!" The poet is lost in wonder while he sees that the great and
-glorious God is all his own! Well might he be so, for there is no possession
-like Jehovah himself. The form of the sentence expresses joyous recognition
-and appropriation,---"My portion, O Jehovah!" David had often seen the prey
-divided, and heard the victors shouting over it; here he rejoices as one who
-seizes his share of the spoil; he chooses the Lord to be his part of the
-treasure. Like the Levites, he took God to be his portion, and left other
-matters to those who coveted them. This is a large and lasting heritage, for
-it includes all, and more than all, and it outlasts all; and yet no man
-chooses it for himself until God has chosen and renewed him. Who that is truly
-wise could hesitate for a moment when the infinitely blessed God is set before
-him to be the object of his choice? David leaped at the opportunity, and
-grasped the priceless boon. Our author here dares exhibit the title deeds of
-his portion before the eye of the Lord himself, for he addresses his joyful
-utterance directly to God whom he boldly calls his own. With much else to
-choose from, for he was a king, and a man of great resources, Ire deliberately
-turns from all the treasures of the world, and declares that the Lord, even
-Jehovah, is his portion.
+In this section the Psalmist seems to take firm hold upon God himself; appropriating him (Psa 119:57), crying out for him (Psa 119:58), returning to him (Psa 119:59), solacing himself in him (Psa 119:61-62), associating with his people (Psa 119:63), and sighing for personal experience of his goodness (Psa 119:64). Note how the first verse of this octave is linked to the last of the former one, of which indeed it is an expanded repetition. "This I had because I kept thy precepts. Thou art my portion, O Lord: I have said that I would keep thy words."
 
-"_I have said that I would keep thy words_." We cannot always look back with
-comfort upon what we have said, but in this instance David had spoken wisely
-and well. He had declared his choice: he preferred the word of God to the
-wealth of worldlings. It was his firm resolve to keep---that is, treasure up
-and observe---the words of his God, and as he had aforetime solemnly expressed
-it in the presence of the Lord himself, so here he confesses the binding
-obligation of his former vow. Jesus said, "If a man love me, he will keep my
-words, "and this is a case which he might have quoted as an illustration; for
-the Psalmist's love to God as his portion led to his keeping the words of God.
-David took God to be his Prince as well as his Portion. He was confident as to
-his interest in God, and therefore he was resolute in his obedience to him.
-Full assurance is a powerful source of holiness. The very words of God are to
-be stored up; for whether they relate to doctrine, promise, or precept, they
-are most precious. When the heart is determined to keep these words, and has
-registered its purpose in the court of heaven, it is prepared for all the
-temptations and trials that may befall it; for, with God as its heritage, it
-is always in good case.
+"*Thou art my portion* , *O* LORD." A broken sentence. The translators have mended it by insertions, but perhaps it had been better to have left it alone, and then it would have appeared as an exclamation,---"My portion, O Lord!" The poet is lost in wonder while he sees that the great and glorious God is all his own! Well might he be so, for there is no possession like Jehovah himself. The form of the sentence expresses joyous recognition and appropriation,---"My portion, O Jehovah!" David had often seen the prey divided, and heard the victors shouting over it; here he rejoices as one who seizes his share of the spoil; he chooses the Lord to be his part of the treasure. Like the Levites, he took God to be his portion, and left other matters to those who coveted them. This is a large and lasting heritage, for it includes all, and more than all, and it outlasts all; and yet no man chooses it for himself until God has chosen and renewed him. Who that is truly wise could hesitate for a moment when the infinitely blessed God is set before him to be the object of his choice? David leaped at the opportunity, and grasped the priceless boon. Our author here dares exhibit the title deeds of his portion before the eye of the Lord himself, for he addresses his joyful utterance directly to God whom he boldly calls his own. With much else to choose from, for he was a king, and a man of great resources, Ire deliberately turns from all the treasures of the world, and declares that the Lord, even Jehovah, is his portion.
+
+"*I have said that I would keep thy words*." We cannot always look back with comfort upon what we have said, but in this instance David had spoken wisely and well. He had declared his choice: he preferred the word of God to the wealth of worldlings. It was his firm resolve to keep---that is, treasure up and observe---the words of his God, and as he had aforetime solemnly expressed it in the presence of the Lord himself, so here he confesses the binding obligation of his former vow. Jesus said, "If a man love me, he will keep my words, "and this is a case which he might have quoted as an illustration; for the Psalmist's love to God as his portion led to his keeping the words of God. David took God to be his Prince as well as his Portion. He was confident as to his interest in God, and therefore he was resolute in his obedience to him. Full assurance is a powerful source of holiness. The very words of God are to be stored up; for whether they relate to doctrine, promise, or precept, they are most precious. When the heart is determined to keep these words, and has registered its purpose in the court of heaven, it is prepared for all the temptations and trials that may befall it; for, with God as its heritage, it is always in good case.
 
 ### Explanatory Notes and Quaint Sayings
 
-This begins a new division of the Psalm, indicated by the Hebrew letter Cheth,
-which may be represented in English by _ch_.
+This begins a new division of the Psalm, indicated by the Hebrew letter Cheth, which may be represented in English by *ch*. *Albert Barnes*.
 
-\---_Albert Barnes_.
+**Verses 57-64 &mdash;** In this section David laboureth to confirm his faith, and to comfort himself in the certainty of his regeneration, by eight properties of a sound believer, or eight marks of a new creature. The first whereof is his choosing of God for his portion. Whence learn, 1. Such as God hath chosen and effectually called, they get grace to make God their choice, their delight, and their portion; and such as have chosen God for their portion have an evidence of their regeneration and election also; for here David maketh this a mark of his regeneration: "*Thou art my portion*." 2. It is another mark of regeneration, after believing in God, and choosing him for our portion, to resolve to bring forth the fruits of faith in new obedience, as David did: "*I have said that I would keep thy words*." 3. As it is usual for God's children, now and then because of sin falling out, to be exercised with a sense of God's displeasure, so it is a mark of a new creature not to lie stupid and senseless under this exercise, but to deal with God earnestly, for restoring the sense of reconciliation, and giving new experience of his mercy, as the Psalmist did; "*I intreated thy favour with my whole heart* ;" and this is the third evidence of a new creature. 4. The penitent believer hath the word of grace and the covenant of God for his assurance to be heard when he seeketh mercy: "*Be merciful unto me according to thy word*." 5. The searching in what condition we are in, and examination of our ways according to the word, and renewing of repentance, with an endeavour of amendment, is a fourth mark of a new creature: "*I thought on my ways, and turned my feet unto thy testimonies*." 6. When we do see our sin we are naturally slow to amend our doings; but the sooner we turn us to the way of God's obedience, we speed the better, and the more speedy the reforming of our life be, the more sound mark is it of a new creature: "*I made haste, and delayed not to keep thy commandments*." 7. Enduring of persecution and spoiling of our goods, for adhering to God's word, without forsaking of his cause, is a fifth mark of a new creature: "*The bands of the wicked have robbed me: but I have not forgotten thy law*." 8. As it is the lot of God's children who resolve to be godly, to suffer persecution, and to be forced either to lose their temporal goods or else to lose a good cause and a good conscience; so it is the wisdom of the godly to remember what the Lord's word requireth of us and speaketh unto us, and this shall comfort our conscience more than the loss of things temporal can trouble our minds: "*The bands of the wicked have robbed me: but I have not forgotten thy law*." 9. A sixth mark of a new creature is, to be so far from fretting under hard exercise as to thank God in secret cheerfully for his gracious word, and for all the passages of his providence, where none seeth us, and where there is no hazard of ostentation: "*At midnight I will rise to give thanks unto thee because of thy righteous judgments*." 10. A seventh mark of a renewed creature is, to associate ourselves and keep communion with such as are truly gracious, and do fear God indeed, as we are able to discern them: "*I am a companion of all them that fear thee*." 11. The fear of God is evidenced by believing and obeying the doctrine and direction of the Scripture, and no other ways: "*I am a companion of all them that fear thee, and of them that keep thy precepts*." 12. The eighth mark of a new creature is, not to rest in any measure of renovation, but earnestly to deal with God for the increase of saving knowledge, and fruitful obedience of it; for, "*Teach me thy statutes* ," is the prayer of the man of God, in whom all the former marks are found. 13. As the whole of the creatures are witnesses of God's bounty to man, and partakers of that bounty themselves, so are they pawns of God's pleasure to bestow upon his servants greater gifts than these, even the increase of sanctification, in further illumination of mind and reformation of life: for this the Psalmist useth for an argument to be more and more sanctified: "*The earth, O Lord, is full of thy mercy: teach me thy statutes*." *David Dickson*.
 
-**Verses 57-64.** \---In this section David laboureth to confirm his faith,
-and to comfort himself in the certainty of his regeneration, by eight
-properties of a sound believer, or eight marks of a new creature. The first
-whereof is his choosing of God for his portion. Whence learn,
+**Verse 57 &mdash;** "*Thou art my portion* , *O* LORD." The sincerity of this claim may be gathered, because he speaks by way of address to God. He doth not say barely, "He is my portion;" but challengeth God to his face: "*Thou art my portion* , *O* LORD." Elsewhere it is said, "*The Lord is my portion, saith my soul* " (Lam 3:24). There he doth not speak it by way of address to God, but he adds, "*saith my soul* ;" but here to God himself, who knows the secrets of the heart. To speak thus of God to God, argues our sincerity, when to God's face we avow our trust and choice; as Peter, "*Lord, thou knowest all things; thou knowest that I love thee* " (John 21:17). *Thomas Manton*.
 
-  1. Such as God hath chosen and effectually called, they get grace to make God their choice, their delight, and their portion; and such as have chosen God for their portion have an evidence of their regeneration and election also; for here David maketh this a mark of his regeneration: "_Thou art my portion_."
+**Verse 57 &mdash;** "*Thou art my portion* , *O* LORD." Luther counsels every Christian to answer all temptations with this short saying, "*Christianus sum* ," I am a Christian; and I would counsel every Christian to answer all temptations with this short saying, "The Lord is my portion." O Christian, when Satan or the world shall tempt thee with honours, answer, "The Lord is my portion;" when they shall tempt thee with riches, answer, "The Lord is my portion;" when they shall tempt thee with preferments, answer, "The Lord is my portion;" and when they shall tempt thee with the favours of great ones, answer, "The Lord is my portion;" yea, and when this persecuting world shall threaten thee with the loss of thy estate, answer, "The Lord is my portion:" and when they shall threaten thee with the loss of thy liberty, answer, "The Lord is my portion;" and when they shall threaten thee with the loss of friends, answer, "The Lord is my portion;" and when they shall threaten thee with the loss of life, answer, "The Lord is my portion." O, sir, if Satan should come to thee with an apple, as once he did to Eve, tell him that "the Lord is your portion;" or with a grape, as once he did to Noah, tell him that "the Lord is your portion;" or with a change of raiment, as once he did to Gehazi, tell him that "the Lord is your portion;" or with a wedge of gold, as once he did to Achan, tell him that "the Lord is your portion;" or with a bag of money, as once he did to Judas, tell him that "the Lord is your portion;" or with a crown, a kingdom, as once he did to Moses, tell him that "the Lord is your portion." *Thomas Brooks*.
 
-  2. It is another mark of regeneration, after believing in God, and choosing him for our portion, to resolve to bring forth the fruits of faith in new obedience, as David did: "_I have said that I would keep thy words_."
+**Verse 57 &mdash;** "*Thou art my portion* , *O* LORD." God is all sufficient; get him for your "*portion* ," and you have all; then you have infinite wisdom to direct you, infinite knowledge to teach you, infinite mercy to pity, and save you, infinite love to care and comfort you, and infinite power to protect and keep you. If God be yours, all his attributes are yours; all his creatures, all his works of providence, shall do you good, as you have need of them. He is an eternal, full, satisfactory portion. He is an ever living, ever loving, ever present friend; and without him you are a cursed creature in every condition, and all things will work against you. *John Mason* , 1694.
 
-  3. As it is usual for God's children, now and then because of sin falling out, to be exercised with a sense of God's displeasure, so it is a mark of a new creature not to lie stupid and senseless under this exercise, but to deal with God earnestly, for restoring the sense of reconciliation, and giving new experience of his mercy, as the Psalmist did; "_I intreated thy favour with my whole heart_ ;" and this is the third evidence of a new creature.
+**Verse 57 &mdash;** "*Thou art my portion* , *O* LORD" If there was a moment in the life of David in which one might feel inclined to envy him, it would not be in that flush of youthful victory, when Goliath lay prostrate at his feet, nor in that hour of even greater triumph, when the damsels of Israel sang his praise in the dance, saying, "Saul hath slain his thousands, and David his ten thousands;" it would not be on that royal day, when his undisputed claim to the throne of Israel was acknowledged on every side and by every tribe; but it would be in that moment when, with a loving and trustful heart, he looked up to God and said, "*Thou art my portion*." In a later Psalm (Psa 142), which bears with it as its title, "A prayer of David, when he was in the cave, "we have the very same expression:"I said, Thou art my refuge and my portion in the land of the living." It adds immeasurably to such an expression, if we believe it to have been uttered at a time when every other possession and inheritance was taken from him, and the Lord alone was his portion. *Barton Bouchier*.
 
-  4. The penitent believer hath the word of grace and the covenant of God for his assurance to be heard when he seeketh mercy: "_Be merciful unto me according to thy word_."
+**Verse 57 &mdash;** He is an exceedingly covetous fellow to whom God is not sufficient; and he is an exceeding fool to whom the world is sufficient. For God is all inexhaustible treasury of all riches, sufficing innumerable men; while the world has mere trifles and fascinations to offer, and leads the soul into deep and sorrowful poverty. *Thomas Le Blanc*.
 
-  5. The searching in what condition we are in, and examination of our ways according to the word, and renewing of repentance, with an endeavour of amendment, is a fourth mark of a new creature: "_I thought on my ways, and turned my feet unto thy testimonies_."
+**Verse 57 &mdash;** They who are without an ample patrimony in this life, may make to themselves a portion in heavenly blessedness. *Solomon Gessler*.
 
-  6. When we do see our sin we are naturally slow to amend our doings; but the sooner we turn us to the way of God's obedience, we speed the better, and the more speedy the reforming of our life be, the more sound mark is it of a new creature: "_I made haste, and delayed not to keep thy commandments_."
+**Verse 57 &mdash;** "*I have said that I would keep thy words*." This he brings in by way of proving that which he said in the former words. Many will say with David, that God is their portion; but here is the point: how do they prove it? If God were their portion, they would love him; if they loved him they would love his word; if they loved his word they would live by it and make it the rule of their life. *William Cowper*.
 
-  7. Enduring of persecution and spoiling of our goods, for adhering to God's word, without forsaking of his cause, is a fifth mark of a new creature: "_The bands of the wicked have robbed me: but I have not forgotten thy law_."
-
-  8. As it is the lot of God's children who resolve to be godly, to suffer persecution, and to be forced either to lose their temporal goods or else to lose a good cause and a good conscience; so it is the wisdom of the godly to remember what the Lord's word requireth of us and speaketh unto us, and this shall comfort our conscience more than the loss of things temporal can trouble our minds: "_The bands of the wicked have robbed me: but I have not forgotten thy law_."
-
-  9. A sixth mark of a new creature is, to be so far from fretting under hard exercise as to thank God in secret cheerfully for his gracious word, and for all the passages of his providence, where none seeth us, and where there is no hazard of ostentation: "_At midnight I will rise to give thanks unto thee because of thy righteous judgments_."
-
-  10. A seventh mark of a renewed creature is, to associate ourselves and keep communion with such as are truly gracious, and do fear God indeed, as we are able to discern them: "_I am a companion of all them that fear thee_."
-
-  11. The fear of God is evidenced by believing and obeying the doctrine and direction of the Scripture, and no other ways: "_I am a companion of all them that fear thee, and of them that keep thy precepts_."
-
-  12. The eighth mark of a new creature is, not to rest in any measure of renovation, but earnestly to deal with God for the increase of saving knowledge, and fruitful obedience of it; for, "_Teach me thy statutes_ ," is the prayer of the man of God, in whom all the former marks are found.
-
-  13. As the whole of the creatures are witnesses of God's bounty to man, and partakers of that bounty themselves, so are they pawns of God's pleasure to bestow upon his servants greater gifts than these, even the increase of sanctification, in further illumination of mind and reformation of life: for this the Psalmist useth for an argument to be more and more sanctified: "_The earth, O Lord, is full of thy mercy: teach me thy statutes_."
-
-\---_David Dickson_.
-
-**Verse 57.** \---"_Thou art my portion_ , _O_ LORD." The sincerity of this
-claim may be gathered, because he speaks by way of address to God. He doth not
-say barely, "He is my portion;" but challengeth God to his face:
-
-"_Thou art my portion_ , _O_ LORD." Elsewhere it is said, "_The Lord is my
-portion, saith my soul_ " (Lam 3:24). There he doth not speak it by way of
-address to God, but he adds, "_saith my soul_ ;" but here to God himself, who
-knows the secrets of the heart. To speak thus of God to God, argues our
-sincerity, when to God's face we avow our trust and choice; as Peter, "_Lord,
-thou knowest all things; thou knowest that I love thee_ " (John 21:17).
-
-\---_Thomas Manton_.
-
-**Verse 57.** \---"_Thou art my portion_ , _O_ LORD." Luther counsels every
-Christian to answer all temptations with this short saying, "_Christianus sum_
-," I am a Christian; and I would counsel every Christian to answer all
-temptations with this short saying, "The Lord is my portion." O Christian,
-when Satan or the world shall tempt thee with honours, answer, "The Lord is my
-portion;" when they shall tempt thee with riches, answer, "The Lord is my
-portion;" when they shall tempt thee with preferments, answer, "The Lord is my
-portion;" and when they shall tempt thee with the favours of great ones,
-answer, "The Lord is my portion;" yea, and when this persecuting world shall
-threaten thee with the loss of thy estate, answer, "The Lord is my portion:"
-and when they shall threaten thee with the loss of thy liberty, answer, "The
-Lord is my portion;" and when they shall threaten thee with the loss of
-friends, answer, "The Lord is my portion;" and when they shall threaten thee
-with the loss of life, answer, "The Lord is my portion." O, sir, if Satan
-should come to thee with an apple, as once he did to Eve, tell him that "the
-Lord is your portion;" or with a grape, as once he did to Noah, tell him that
-"the Lord is your portion;" or with a change of raiment, as once he did to
-Gehazi, tell him that "the Lord is your portion;" or with a wedge of gold, as
-once he did to Achan, tell him that "the Lord is your portion;" or with a bag
-of money, as once he did to Judas, tell him that "the Lord is your portion;"
-or with a crown, a kingdom, as once he did to Moses, tell him that "the Lord
-is your portion."
-
-\---_Thomas Brooks_.
-
-**Verse 57.** \---"_Thou art my portion_ , _O_ LORD." God is all sufficient;
-get him for your "_portion_ ," and you have all; then you have infinite wisdom
-to direct you, infinite knowledge to teach you, infinite mercy to pity, and
-save you, infinite love to care and comfort you, and infinite power to protect
-and keep you. If God be yours, all his attributes are yours; all his
-creatures, all his works of providence, shall do you good, as you have need of
-them. He is an eternal, full, satisfactory portion. He is an ever living, ever
-loving, ever present friend; and without him you are a cursed creature in
-every condition, and all things will work against you.
-
-\---_John Mason_ , 1694.
-
-**Verse 57.** \---"_Thou art my portion_ , _O_ LORD" If there was a moment in
-the life of David in which one might feel inclined to envy him, it would not
-be in that flush of youthful victory, when Goliath lay prostrate at his feet,
-nor in that hour of even greater triumph, when the damsels of Israel sang his
-praise in the dance, saying, "Saul hath slain his thousands, and David his ten
-thousands;" it would not be on that royal day, when his undisputed claim to
-the throne of Israel was acknowledged on every side and by every tribe; but it
-would be in that moment when, with a loving and trustful heart, he looked up
-to God and said, "_Thou art my portion_." In a later Psalm (Psa 142), which
-bears with it as its title, "A prayer of David, when he was in the cave, "we
-have the very same expression:"I said, Thou art my refuge and my portion in
-the land of the living." It adds immeasurably to such an expression, if we
-believe it to have been uttered at a time when every other possession and
-inheritance was taken from him, and the Lord alone was his portion.
-
-\---_Barton Bouchier_.
-
-**Verse 57.** \---He is an exceedingly covetous fellow to whom God is not
-sufficient; and he is an exceeding fool to whom the world is sufficient. For
-God is all inexhaustible treasury of all riches, sufficing innumerable men;
-while the world has mere trifles and fascinations to offer, and leads the soul
-into deep and sorrowful poverty.
-
-\---_Thomas Le Blanc_.
-
-**Verse 57.** \---They who are without an ample patrimony in this life, may
-make to themselves a portion in heavenly blessedness.
-
-\---_Solomon Gessler_.
-
-**Verse 57.** \---"_I have said that I would keep thy words_." This he brings
-in by way of proving that which he said in the former words. Many will say
-with David, that God is their portion; but here is the point: how do they
-prove it? If God were their portion, they would love him; if they loved him
-they would love his word; if they loved his word they would live by it and
-make it the rule of their life.
-
-\---_William Cowper_.
-
-**Verse 57.** \---"_I have said that I would keep thy words_." He was resolved
-to keep his commandments, lay up his promises, observe his ordinances, profess
-and retain a belief in his doctrines.
-
-\---_John, Gill_.
+**Verse 57 &mdash;** "*I have said that I would keep thy words*." He was resolved to keep his commandments, lay up his promises, observe his ordinances, profess and retain a belief in his doctrines. *John, Gill*.
 
 ### Hints to Preachers
 
-**Verses 57-64.** \---The believer's portion. The Lord is the believer's
-portion (Psa 119:57); heartily sought (Psa 119:58-60); remaining though all
-else be taken away (Psa 119:61); causing joy even at midnight (Psa 119:62),
-and the selection of congenial company (Psa 119:63-64).
+**Verses 57-64 &mdash;** The believer's portion. The Lord is the believer's portion (Psa 119:57); heartily sought (Psa 119:58-60); remaining though all else be taken away (Psa 119:61); causing joy even at midnight (Psa 119:62), and the selection of congenial company (Psa 119:63-64). *Outlines Upon Keywords of the Psalm* , *by Pastor C. A. Davis*.
 
-\---_Outlines Upon Keywords of the Psalm_ , _by Pastor C. A. Davis_.
+**Verse 57 &mdash;** 1. The infinite possession: "*Thou art my portion* , *O* LORD." Notice--- a. *A clear distinction* made by the Psalmist between his portion and that of the ungodly here and hereafter: See Psa 48:2. b. *positive claim* : "Thou art my portion, *O* LORD." This "portion" is boundless, abiding, appropriate, satisfying, elevating, all of grace. 2. The appropriate resolution: "I have said that I would keep thy words." a. Notice the preface: "I have said." b. The link between the portion possessed and the resolution made. c. The work of keeping God's words. Keep him who is the Word---Christ Jesus. Keep the word of the gospel--- doctrines, precepts, promises (kept in the heart to comfort the believer). This blessed subject suggests a solemn contrast. See the portion of that servant who did not keep his Lord's word: Mat 24:48-51 See "Spurgeon's Sermons," No. 1372; "God our Portion, and His Word our Treasure."
 
-**Verse 57.** \---
+**Verse 57 &mdash;** (*first clause*).---The believer's portion. 1. Show the validity of his claim: "my." a. A gift by covenant: Heb 8:10-13. b. Involved in joint heirship with Christ: Rom 8:17. c. Confirmed by the experience of faith. 2. Survey the superlative value of his possession: "The Lord." a. Absolutely good. b. Infinitely precious. c. Inexhaustibly full. d. Everlastingly sure. 3. Suggest a method of deriving the greatest present advantage from it. a. Meditate much upon God, under the conviction that he is your portion. b. Carry all cares to him, and cast every burden on him. c. Refer every temptation to the word of his law, and every doubt to the word of his promise. d. Draw largely upon his riches to meet every need as it arises. *John Field, of Sevenoaks* , 1882.
 
-  1. The infinite possession: "_Thou art my portion_ , _O_ LORD." Notice---
-
-a. _A clear distinction_ made by the Psalmist between his portion and that of
-the ungodly here and hereafter: See Psa 48:2.
-
-b. _positive claim_ : "Thou art my portion, _O_ LORD." This "portion" is
-boundless, abiding, appropriate, satisfying, elevating, all of grace.
-
-  2. The appropriate resolution: "I have said that I would keep thy words."
-
-a. Notice the preface: "I have said."
-
-b. The link between the portion possessed and the resolution made.
-
-c. The work of keeping God's words. Keep him who is the Word---Christ Jesus.
-Keep the word of the gospel--- doctrines, precepts, promises (kept in the
-heart to comfort the believer). This blessed subject suggests a solemn
-contrast. See the portion of that servant who did not keep his Lord's word:
-Mat 24:48-51
-
-\---See "Spurgeon's Sermons," No. 1372; "God our Portion, and His Word our
-Treasure."
-
-**Verse 57.** (_first clause_).---The believer's portion.
-
-  1. Show the validity of his claim: "my."
-
-a. A gift by covenant: Heb 8:10-13.
-
-b. Involved in joint heirship with Christ: Rom 8:17.
-
-c. Confirmed by the experience of faith.
-
-  2. Survey the superlative value of his possession: "The Lord."
-
-a. Absolutely good.
-
-b. Infinitely precious.
-
-c. Inexhaustibly full.
-
-d. Everlastingly sure.
-
-  3. Suggest a method of deriving the greatest present advantage from it.
-
-a. Meditate much upon God, under the conviction that he is your portion.
-
-b. Carry all cares to him, and cast every burden on him.
-
-c. Refer every temptation to the word of his law, and every doubt to the word
-of his promise.
-
-d. Draw largely upon his riches to meet every need as it arises.
-
-\---_John Field, of Sevenoaks_ , 1882.
-
-**Verses 57-58.** \---The believer's estate, profession, and petition.
+**Verses 57-58 &mdash;** The believer's estate, profession, and petition.
 
 ## Exposition Verse 58
 
-**Verse 58.** \---"_I intreated thy favour with my whole heart_." A fully
-assured possession of God does not set aside prayer, but rather urges us to
-it; he who knows God to be his God will seek his face, longing for his
-presence. Seeking God's presence is the idea conveyed by the marginal reading,
-"thy face, "and this is true to the Hebrew. The presence of God is the highest
-form of his favour, and therefore it is the most urgent desire of gracious
-souls: the light of his countenance gives us an antepast of heaven. O that we
-always enjoyed it! The good man entreated God's smile as one who begged for
-his life, and the entire strength of his desire went with the entreaty. Such
-eager pleadings are sure of success; that which comes from our heart will
-certainly go to God's heart. The whole of God's favours are ready for those
-who seek them with their whole hearts.
+> I intreated thy favour with *my* whole heart: be merciful unto me according to thy word. 
 
-"_Be merciful unto me according to thy word_." He has entreated favour, and
-the form in which he most needs it is that of mercy, for he is more a sinner
-than anything else. He asks nothing beyond the promise, he only begs for such
-mercy as the word reveals. And what more could he want or wish for? God has
-revealed such an infinity of mercy in his word that it would be impossible to
-conceive of more. See how the Psalmist dwells upon favour and mercy, he never
-dreams of merit. He does not demand, but entreat; for he feels his own
-unworthiness. Note how he remains a suppliant, though he knows that he has all
-things in his God. God is his portion, and yet he begs for a look at his face.
-The idea of any other standing before God than that of an undeserving but
-favoured one never entered his head. Here we have his "Be merciful unto me"
-rising with as much intensity of humble pleading as if he still remained among
-the most trembling of penitents. The confidence of faith makes us bold in
-prayer, but it never teaches us to live without prayer, or justifies us in
-being other than humble beggars at mercy's gate.
+"*I intreated thy favour with my whole heart*." A fully assured possession of God does not set aside prayer, but rather urges us to it; he who knows God to be his God will seek his face, longing for his presence. Seeking God's presence is the idea conveyed by the marginal reading, "thy face, "and this is true to the Hebrew. The presence of God is the highest form of his favour, and therefore it is the most urgent desire of gracious souls: the light of his countenance gives us an antepast of heaven. O that we always enjoyed it! The good man entreated God's smile as one who begged for his life, and the entire strength of his desire went with the entreaty. Such eager pleadings are sure of success; that which comes from our heart will certainly go to God's heart. The whole of God's favours are ready for those who seek them with their whole hearts.
+
+"*Be merciful unto me according to thy word*." He has entreated favour, and the form in which he most needs it is that of mercy, for he is more a sinner than anything else. He asks nothing beyond the promise, he only begs for such mercy as the word reveals. And what more could he want or wish for? God has revealed such an infinity of mercy in his word that it would be impossible to conceive of more. See how the Psalmist dwells upon favour and mercy, he never dreams of merit. He does not demand, but entreat; for he feels his own unworthiness. Note how he remains a suppliant, though he knows that he has all things in his God. God is his portion, and yet he begs for a look at his face. The idea of any other standing before God than that of an undeserving but favoured one never entered his head. Here we have his "Be merciful unto me" rising with as much intensity of humble pleading as if he still remained among the most trembling of penitents. The confidence of faith makes us bold in prayer, but it never teaches us to live without prayer, or justifies us in being other than humble beggars at mercy's gate.
 
 ### Explanatory Notes and Quaint Sayings
 
-**Verse 58.** \---"_I entreated thy favour_ ," or; I seek thy face. To seek
-the face is to come into the presence. Thus the Hebrews speak when desirous of
-expressing that familiar intercourse to which God admits his people when he
-bids them make known their requests. It is truly the same as speaking face to
-face with God.
+**Verse 58 &mdash;** "*I entreated thy favour* ," or; I seek thy face. To seek the face is to come into the presence. Thus the Hebrews speak when desirous of expressing that familiar intercourse to which God admits his people when he bids them make known their requests. It is truly the same as speaking face to face with God. *Franciscus Vatablus* , 1545.
 
-\---_Franciscus Vatablus_ , 1545.
+**Verse 58 &mdash;** "*I entreated thy favour with my whole heart* " I have often remarked how graciously and lovingly the Lord delights to return an answer to prayer in the very words that have gone up before him, as if to assure us that they have reached his ear, and been speeded back again from him laden with increase. "I entreated thy favour with my whole heart." Hear the Lord's answer to his praying people: "I will rejoice over them to do them good assuredly with my whole heart and with my whole soul." *Barton Bouchier*.
 
-**Verse 58.** \---"_I entreated thy favour with my whole heart_ " I have often
-remarked how graciously and lovingly the Lord delights to return an answer to
-prayer in the very words that have gone up before him, as if to assure us that
-they have reached his ear, and been speeded back again from him laden with
-increase. "I entreated thy favour with my whole heart." Hear the Lord's answer
-to his praying people: "I will rejoice over them to do them good assuredly
-with my whole heart and with my whole soul."
+**Verse 58 &mdash;** "*With my whole heart*." The Hebrew expresses great earnestness and humility in supplication. *A. R. Fausset*.
 
-\---_Barton Bouchier_.
+**Verse 58 &mdash;** "*With my whole heart*." Prayer is chiefly a heart work. God heareth the heart without the mouth, but never heareth the mouth acceptably without the heart. *Walter Marshall*.
 
-**Verse 58.** \---"_With my whole heart_." The Hebrew expresses great
-earnestness and humility in supplication.
+**Verse 58 &mdash;** "*Be merciful unto me* ," etc. He protested before that he sought the Lord with his whole heart, and now he prayeth that he may find mercy. So indeed it shall be; boldly may that man look for mercy at God's hand who seeks him truly. Mercy and truth are wont to meet together, and embrace one another: where truth is in the soul to seek, there cannot but be mercy in God to embrace. If truth be in us to confess our sins and forsake them, we shall find mercy in God to pardon and forgive them. *William Cowper*.
 
-\---_A. R. Fausset_.
+**Verse 58 &mdash;** "*According to thy word*." He prayeth not for what he lusteth after, but for that which the Lord promised; for St. James saith, "You pray and have not," etc., and this is the cause, that we have not the thing we pray for, because we pray not according to the word. His word must be the rule of our prayers, and then we shall receive; as Solomon prayed and obtained. God hath promised forgiveness of sins, the knowledge of his word, and many other blessings. If we have these, let not our hearts be set on other things. *Richard Greenham*.
 
-**Verse 58.** \---"_With my whole heart_." Prayer is chiefly a heart work. God
-heareth the heart without the mouth, but never heareth the mouth acceptably
-without the heart.
+**Verse 58 &mdash;** "*According to thy word*." The Word of God may be divided into three parts; into commandments, threatenings, and promises; and though a Christian must not neglect the commanding and threatening word, yet if ever he would make the Word a channel for Divine comfort, he must study the promising word; for the promises are a Christian's magna charta for heaven. All comfort must be built upon a Scripture promise, else it is presumption, not true comfort. The promises are *pabulum fidei, et anima fidei* , the food of faith, and the soul of faith. As faith is the life of a Christian, so the promises are the life of faith: faith is a dead faith if it hath no promise to quicken it. As the promises are of no use without faith to apply them, so faith is of no use without a promise to lay hold on. *Edmund Calamy*.
 
-\---_Walter Marshall_.
-
-**Verse 58.** \---"_Be merciful unto me_ ," etc. He protested before that he
-sought the Lord with his whole heart, and now he prayeth that he may find
-mercy. So indeed it shall be; boldly may that man look for mercy at God's hand
-who seeks him truly. Mercy and truth are wont to meet together, and embrace
-one another: where truth is in the soul to seek, there cannot but be mercy in
-God to embrace. If truth be in us to confess our sins and forsake them, we
-shall find mercy in God to pardon and forgive them.
-
-\---_William Cowper_.
-
-**Verse 58.** \---"_According to thy word_." He prayeth not for what he
-lusteth after, but for that which the Lord promised; for St. James saith, "You
-pray and have not," etc., and this is the cause, that we have not the thing we
-pray for, because we pray not according to the word. His word must be the rule
-of our prayers, and then we shall receive; as Solomon prayed and obtained. God
-hath promised forgiveness of sins, the knowledge of his word, and many other
-blessings. If we have these, let not our hearts be set on other things.
-
-\---_Richard Greenham_.
-
-**Verse 58.** \---"_According to thy word_." The Word of God may be divided
-into three parts; into commandments, threatenings, and promises; and though a
-Christian must not neglect the commanding and threatening word, yet if ever he
-would make the Word a channel for Divine comfort, he must study the promising
-word; for the promises are a Christian's magna charta for heaven. All comfort
-must be built upon a Scripture promise, else it is presumption, not true
-comfort. The promises are _pabulum fidei, et anima fidei_ , the food of faith,
-and the soul of faith. As faith is the life of a Christian, so the promises
-are the life of faith: faith is a dead faith if it hath no promise to quicken
-it. As the promises are of no use without faith to apply them, so faith is of
-no use without a promise to lay hold on.
-
-\---_Edmund Calamy_.
-
-**Verse 58.** \---The rule and ground of confidence is, "_according to thy
-word_." God's word is the rule of our confidence; for therein is God's stated
-course. If we would have favour and mercy from God, it must be upon his own
-terms. God will accept of us in Christ, if we repent, believe, and obey, and
-seek his favour diligently: he will not deny those who seek, ask, knock. Many
-would have mercy, but will not observe God's direction. We must ask according
-to God's will, not without a promise, nor against a command. God is made a
-voluntary debtor by his promise. These are notable props of faith, when we are
-encouraged to seek by the offer, and urged to apply by the promise. We thrive
-no more in a comfortable sense of God's love, because we take not this course.
-
-\---_Thomas Manton_.
+**Verse 58 &mdash;** The rule and ground of confidence is, "*according to thy word*." God's word is the rule of our confidence; for therein is God's stated course. If we would have favour and mercy from God, it must be upon his own terms. God will accept of us in Christ, if we repent, believe, and obey, and seek his favour diligently: he will not deny those who seek, ask, knock. Many would have mercy, but will not observe God's direction. We must ask according to God's will, not without a promise, nor against a command. God is made a voluntary debtor by his promise. These are notable props of faith, when we are encouraged to seek by the offer, and urged to apply by the promise. We thrive no more in a comfortable sense of God's love, because we take not this course. *Thomas Manton*.
 
 ### Hints to Preachers
 
-**Verse 58.** \---The soul's sunshine.
+**Verse 58 &mdash;** The soul's sunshine. 1. God's favour the one thing needful. 2. Wholeheartedness the one mode of entreating it. 3. Covenant mercy the one plea for obtaining it. *C. A. D.*
 
-  1. God's favour the one thing needful.
-
-  2. Wholeheartedness the one mode of entreating it.
-
-  3. Covenant mercy the one plea for obtaining it.
-
-\---_C. A. D._
-
-**Verse 58.** \---We may learn how a seeker may come to enjoy saving favour,
-by a careful study of---
-
-  1. The Profession: "_I intreated thy favour with my whole heart_."
-
-a. What he did: "I intreated." Heb. "I painfully sought thy face." Earnest
-desire. Importunate supplication. Painful sorrow for sin.
-
-b. How he did it: "With my whole heart." The intellect, affections, will, all
-engaged and concentrating effort. Otherwise, seeking is solemn trifling. This
-only worthy of our purpose, pleasing to God, and successful.
-
-c. The evidence that we are doing it. Frequent prayer, searching the word,
-often enquiring. The first and main business---Giving up for Christ.
-
-  2. The Petition: "_Be merciful unto me_."
-
-a. God's favour to be expected on the terms of mercy only.
-
-b. Happily, this is a prayer every sinner can and should use.
-
-c. Blessedly true it is, that it never fails.
-
-  3. The Plea: "_According to thy word_."
-
-a. A plea that cannot be gainsaid is a great thing in an entreaty.
-
-b. The promise of God is just such a plea.
-
-c. Seek it out, lay hold of it, and urge it.
-
-\---_J.F._
+**Verse 58 &mdash;** We may learn how a seeker may come to enjoy saving favour, by a careful study of--- 1. The Profession: "*I intreated thy favour with my whole heart*." a. What he did: "I intreated." Heb. "I painfully sought thy face." Earnest desire. Importunate supplication. Painful sorrow for sin. b. How he did it: "With my whole heart." The intellect, affections, will, all engaged and concentrating effort. Otherwise, seeking is solemn trifling. This only worthy of our purpose, pleasing to God, and successful. c. The evidence that we are doing it. Frequent prayer, searching the word, often enquiring. The first and main business---Giving up for Christ. 2. The Petition: "*Be merciful unto me*." a. God's favour to be expected on the terms of mercy only. b. Happily, this is a prayer every sinner can and should use. c. Blessedly true it is, that it never fails. 3. The Plea: "*According to thy word*." a. A plea that cannot be gainsaid is a great thing in an entreaty. b. The promise of God is just such a plea. c. Seek it out, lay hold of it, and urge it. *J.F.*
 
 ## Exposition Verse 59
 
-**Verse 59.** \---"_I thought on my ways, and turned my feet unto thy
-testimonies_." While studying the word he was led to study his own life, and
-this caused a mighty revolution. He came to the word, and then he came to
-himself, and this made him arise and go to his Father. Consideration is the
-commencement of conversion: first we think and then we turn. When the mind
-repents of ill ways the feet are soon led into good ways; but there will be no
-repenting until there is deep, earnest thought. Many men are averse to thought
-of any kind, and as to thought upon their ways, they cannot endure it, for
-their ways will not bear thinking of. David's ways had not been all that he
-could have wished them to be, and so his thoughts were sobered over with the
-pale cast of regret; but he did not end with idle lamentations, he set about a
-practical amendment; he turned and returned, he sought the testimonies of the
-Lord, and hastened to enjoy once more the conscious favour of his heavenly
-friend. Action without thought is folly, and thought without action is sloth:
-to think carefully and then to act promptly is a happy combination. He had
-entreated for renewed fellowship, and now he proved the genuineness of his
-desire by renewed obedience. If we are in the dark, and mourn an absent God,
-our wisest method will be not so much to think upon our sorrows as upon our
-ways: though we cannot turn the course of providence, we can turn the way of
-our walking, and this will soon mend matters. If we can get our feet right as
-to holy walking, we shall soon get our hearts right as to happy living. God
-will turn to his saints when they turn to him; yea, he has already favoured
-them with the light of his face when they begin to think and turn.
+> I thought on my ways, and turned my feet unto thy testimonies. 
+
+"*I thought on my ways, and turned my feet unto thy testimonies*." While studying the word he was led to study his own life, and this caused a mighty revolution. He came to the word, and then he came to himself, and this made him arise and go to his Father. Consideration is the commencement of conversion: first we think and then we turn. When the mind repents of ill ways the feet are soon led into good ways; but there will be no repenting until there is deep, earnest thought. Many men are averse to thought of any kind, and as to thought upon their ways, they cannot endure it, for their ways will not bear thinking of. David's ways had not been all that he could have wished them to be, and so his thoughts were sobered over with the pale cast of regret; but he did not end with idle lamentations, he set about a practical amendment; he turned and returned, he sought the testimonies of the Lord, and hastened to enjoy once more the conscious favour of his heavenly friend. Action without thought is folly, and thought without action is sloth: to think carefully and then to act promptly is a happy combination. He had entreated for renewed fellowship, and now he proved the genuineness of his desire by renewed obedience. If we are in the dark, and mourn an absent God, our wisest method will be not so much to think upon our sorrows as upon our ways: though we cannot turn the course of providence, we can turn the way of our walking, and this will soon mend matters. If we can get our feet right as to holy walking, we shall soon get our hearts right as to happy living. God will turn to his saints when they turn to him; yea, he has already favoured them with the light of his face when they begin to think and turn.
 
 ### Explanatory Notes and Quaint Sayings
 
-**Verse 59.** \---"_I thought on my ways, and turned my feet unto thy
-testimonies_." The transition which is made in the text from the occasion of
-this alteration, "I thought on my ways, "to the change itself, is very lofty
-and elegant. He does not tell us that, after a review of them, he saw the
-folly and danger of sin, the debasedness of its pleasures, and the poison of
-its delights; or that, upon a search into God's law, he was convinced that
-what he imagined so severe, rigid, and frightful before, was now all amiable
-and lovely; no, but immediately adds, "I turned my feet unto thy testimonies;"
-than which I can conceive nothing more noble or strong; for it emphatically
-says, that there was no need to express the appearance his ways had when once
-he thought upon them. What must be the consequence of his deliberation was so
-plain, namely, that sin never prevails but where it is masked over with some
-false beauties, and the inconsiderate, foolish sinner credulously gives ear to
-its enchantments, and is not at pains and care to enquire into them; for a
-deep, thorough search would soon discover that its fairest appearances are but
-lying vanities, and that he who is captivated with that empty show is in the
-same circumstances with a person in a dream, who can please himself with his
-fancy only while asleep, and that his awakening out of it no sooner or more
-certainly discovers the cheat, than a serious thinking upon the ways of
-iniquity and rebellion against God will manifest the fatal madness of men in
-ever pursuing them.
+**Verse 59 &mdash;** "*I thought on my ways, and turned my feet unto thy testimonies*." The transition which is made in the text from the occasion of this alteration, "I thought on my ways, "to the change itself, is very lofty and elegant. He does not tell us that, after a review of them, he saw the folly and danger of sin, the debasedness of its pleasures, and the poison of its delights; or that, upon a search into God's law, he was convinced that what he imagined so severe, rigid, and frightful before, was now all amiable and lovely; no, but immediately adds, "I turned my feet unto thy testimonies;" than which I can conceive nothing more noble or strong; for it emphatically says, that there was no need to express the appearance his ways had when once he thought upon them. What must be the consequence of his deliberation was so plain, namely, that sin never prevails but where it is masked over with some false beauties, and the inconsiderate, foolish sinner credulously gives ear to its enchantments, and is not at pains and care to enquire into them; for a deep, thorough search would soon discover that its fairest appearances are but lying vanities, and that he who is captivated with that empty show is in the same circumstances with a person in a dream, who can please himself with his fancy only while asleep, and that his awakening out of it no sooner or more certainly discovers the cheat, than a serious thinking upon the ways of iniquity and rebellion against God will manifest the fatal madness of men in ever pursuing them. *William Dunlop, 1692-1720.*
 
-\---_William Dunlop, 1692-1720._
+**Verse 59 &mdash;** "*I thought on my ways, and turned my feet unto thy testimonies*." Some translate the original, I looked on both sides upon my ways, I considered them every way, "and turned my feet unto thy testimonies" I considered that I was wandering like a lost sheep, and then I returned. *George Swinnock*.
 
-**Verse 59.** \---"_I thought on my ways, and turned my feet unto thy
-testimonies_." Some translate the original, I looked on both sides upon my
-ways, I considered them every way, "and turned my feet unto thy testimonies" I
-considered that I was wandering like a lost sheep, and then I returned.
+**Verse 59 &mdash;** "*I thought on my ways* ," etc. The Hebrew word חשב that is here used for thinking, signifies to think on a man's ways accurately, advisedly, seriously, studiously, curiously. This holy man of God thought exactly and curiously on all his purposes and practices, on all his doings and sayings, on all his words and works, and finding too many of them to be short of the rule, yea, to be against the rule, he turned his feet to God's testimonies; having found out his errors, upon a diligent search, a strict scrutiny, he turned over a new leaf, and framed his course more exactly by rule. O Christians, you must look as well to your spiritual wants as to your spiritual enjoyments; you must look as well to your layings out as to your layings up; you must look as well forward to what you should be, as backward to what you are. Certainly that Christian will never be eminent in holiness that hath many eyes to behold a little holiness, and never an eye to see his further want of holiness. *Thomas Brooks*.
 
-\---_George Swinnock_.
+**Verse 59 &mdash;** "*I thought on my ways*." The word signifies a fixed, abiding thought. Some make it an allusion to those that work embroidery; that are very exact and careful to cover the least flaw; or to those that cast accounts. Reckon with yourselves, What do I owe? what am I worth? "I thought" not only on my wealth, as the covetous man, Psa 69:11; but "on my ways;" not what I have, but what I do; because what we do will follow us into another world, when what we have must be left behind. Many are critical enough in their remarks upon other people's ways that never think of their own, but "let every man prove his own work." This account which David here gives of himself may refer either to his constant practice every day; he reflected on his ways at night, directed his feet to God's testimonies in the morning, and what his hand found to do that was good he did it without delay: or it may refer to his first acquaintance with God and religion, when he began to throw off the vanity of childhood and youth, and to remember his Creator; that blessed change was by the grace of God thus wrought. Note, 1. Conversion begins in serious consideration; Eze 18:28; Luk 15:17. 2. Consideration must end in a sound conversion. To what purpose have we thought on our ways, if we do not turn our feet with all speed to God's testimonies? *Matthew Henry*.
 
-**Verse 59.** \---"_I thought on my ways_ ," etc. The Hebrew word חשב that is
-here used for thinking, signifies to think on a man's ways accurately,
-advisedly, seriously, studiously, curiously. This holy man of God thought
-exactly and curiously on all his purposes and practices, on all his doings and
-sayings, on all his words and works, and finding too many of them to be short
-of the rule, yea, to be against the rule, he turned his feet to God's
-testimonies; having found out his errors, upon a diligent search, a strict
-scrutiny, he turned over a new leaf, and framed his course more exactly by
-rule. O Christians, you must look as well to your spiritual wants as to your
-spiritual enjoyments; you must look as well to your layings out as to your
-layings up; you must look as well forward to what you should be, as backward
-to what you are. Certainly that Christian will never be eminent in holiness
-that hath many eyes to behold a little holiness, and never an eye to see his
-further want of holiness.
+**Verse 59 &mdash;** "*I thought on my ways*." Be frequent in this work of serious consideration. If daily you called yourselves to an account, all acts of grace would thrive the better. Seneca asked of Sextius, *Quod hodie malum sanasti? cui vitio obstitisti*? You have God's example in reviewing every day's work, and in dealing with Adam before he slept. The man that was unclean was to wash his clothes at eventide. *Thomas Manton*.
 
-\---_Thomas Brooks_.
+**Verse 59 &mdash;** "*I thought on my ways* ," etc. Poisons may be made curable. Let the thoughts of old sins stir up a commotion of anger and hatred. We shiver in our spirits, and a motion in our blood, at the very thought of a bitter potion we have formerly taken. Why may we not do that spiritually, which the very frame and constitution of our bodies doth naturally, upon the calling a loathsome thing to mind? The Romans' sins were transient, but the shame was renewed every time they reflected on them: Rom 6:21, "Whereof ye are now ashamed." They reacted the detestation instead of the pleasure: so should the reviving of old sins in our memories be entertained with our sighs, rather than with joy. We should also manage the opportunity, so as to promote some further degrees of our conversion: "I thought or, my ways, and turned my feet unto thy testimonies." There is not the most hellish motion, but we may strike some sparks from it, to kindle our love to God, renew our repentance, raise our thankfulness, or quicken our obedience. *Stephen Charnock*.
 
-**Verse 59.** \---"_I thought on my ways_." The word signifies a fixed,
-abiding thought. Some make it an allusion to those that work embroidery; that
-are very exact and careful to cover the least flaw; or to those that cast
-accounts. Reckon with yourselves, What do I owe? what am I worth? "I thought"
-not only on my wealth, as the covetous man, Psa 69:11; but "on my ways;" not
-what I have, but what I do; because what we do will follow us into another
-world, when what we have must be left behind. Many are critical enough in
-their remarks upon other people's ways that never think of their own, but "let
-every man prove his own work."
+**Verse 59 &mdash;** "*And turned my feet unto thy testimonies*." Mentioning this passage, Philip Henry observed, that the great turn to be made in heart and life is, from all other things to the word of God. Conversion turns us to the word of God, as our touchstone, to examine ourselves, our state, our ways, spirits, doctrines, worships, customs; as our glass, to dress by, James 1; as our rule to walk and work by, Gal 6:16; as our water, to wash us, Psa 119:9; as our fire to warm us, Luk 24:32; as our food to nourish us, Job 23:12; as our sword to fight with, Eph 6:13-17; as our counsellor, in all our doubts, Psa 119:24; as our cordial, to comfort us; as our heritage, to enrich us.
 
-This account which David here gives of himself may refer either to his
-constant practice every day; he reflected on his ways at night, directed his
-feet to God's testimonies in the morning, and what his hand found to do that
-was good he did it without delay: or it may refer to his first acquaintance
-with God and religion, when he began to throw off the vanity of childhood and
-youth, and to remember his Creator; that blessed change was by the grace of
-God thus wrought. Note, 1. Conversion begins in serious consideration; Eze
-18:28; Luk 15:17. 2. Consideration must end in a sound conversion. To what
-purpose have we thought on our ways, if we do not turn our feet with all speed
-to God's testimonies?
+**Verse 59 &mdash;** "*And turned my feet unto thy testimonies*." No itinerary to the heavenly city is simpler or fuller than the ready answer made by an English prelate to a scoffer who asked him the way to heaven; "First turn to the right, and keep straight on." *Neale and Littledale*.
 
-\---_Matthew Henry_.
-
-**Verse 59.** \---"_I thought on my ways_." Be frequent in this work of
-serious consideration. If daily you called yourselves to an account, all acts
-of grace would thrive the better. Seneca asked of Sextius, _Quod hodie malum
-sanasti? cui vitio obstitisti_? You have God's example in reviewing every
-day's work, and in dealing with Adam before he slept. The man that was unclean
-was to wash his clothes at eventide.
-
-\---_Thomas Manton_.
-
-**Verse 59.** \---"_I thought on my ways_ ," etc. Poisons may be made curable.
-Let the thoughts of old sins stir up a commotion of anger and hatred. We
-shiver in our spirits, and a motion in our blood, at the very thought of a
-bitter potion we have formerly taken. Why may we not do that spiritually,
-which the very frame and constitution of our bodies doth naturally, upon the
-calling a loathsome thing to mind? The Romans' sins were transient, but the
-shame was renewed every time they reflected on them: Rom 6:21, "Whereof ye are
-now ashamed." They reacted the detestation instead of the pleasure: so should
-the reviving of old sins in our memories be entertained with our sighs, rather
-than with joy. We should also manage the opportunity, so as to promote some
-further degrees of our conversion: "I thought or, my ways, and turned my feet
-unto thy testimonies." There is not the most hellish motion, but we may strike
-some sparks from it, to kindle our love to God, renew our repentance, raise
-our thankfulness, or quicken our obedience.
-
-\---_Stephen Charnock_.
-
-**Verse 59.** \---"_And turned my feet unto thy testimonies_." Mentioning this
-passage, Philip Henry observed, that the great turn to be made in heart and
-life is, from all other things to the word of God. Conversion turns us to the
-word of God, as our touchstone, to examine ourselves, our state, our ways,
-spirits, doctrines, worships, customs; as our glass, to dress by, James 1; as
-our rule to walk and work by, Gal 6:16; as our water, to wash us, Psa 119:9;
-as our fire to warm us, Luk 24:32; as our food to nourish us, Job 23:12; as
-our sword to fight with, Eph 6:13-17; as our counsellor, in all our doubts,
-Psa 119:24; as our cordial, to comfort us; as our heritage, to enrich us.
-
-**Verse 59.** \---"_And turned my feet unto thy testimonies_." No itinerary to
-the heavenly city is simpler or fuller than the ready answer made by an
-English prelate to a scoffer who asked him the way to heaven; "First turn to
-the right, and keep straight on."
-
-\---_Neale and Littledale_.
-
-**Verse 59.** \---"_And turned_." Turn to God, and he will turn to you; then
-you are happy, though all the world turn against you.
-
-\---_John Mason_.
+**Verse 59 &mdash;** "*And turned*." Turn to God, and he will turn to you; then you are happy, though all the world turn against you. *John Mason*.
 
 ### Hints to Preachers
 
-**Verse 59.** \---
+**Verse 59 &mdash;** 1. *Self examination* : "I thought on" my private "ways"---my social ways---my sacred ways---my public ways. 2. *Its advantages* : "And turned my feet," etc. *G. R.*
 
-  1. _Self examination_ : "I thought on" my private "ways"---my social ways---my sacred ways---my public ways.
+**Verse 59 &mdash;** 1. Unthinking and straying. 2. Thinking and turning. *C. A. D.*
 
-  2. _Its advantages_ : "And turned my feet," etc.
+**Verse 59 &mdash;** 1. Conviction. 2. Conversion. *W. D.*
 
-\---_G. R._
+**Verse 59 &mdash;** Thinking on our own ways. Enquire, 1. Why so generally neglected? a. Want of courage. b. Occupied too much. c. Unpleasant, and therefore the chief care of many is to banish it. 2. When is it wisely conducted? a. When honestly engaged in. b. When thoroughly carried out. c. When Scripture is made the referee and standard. d. When Divine help is sought. 3. What end will it serve? a. Turn us from our own ways with shame and penitence. b. Turn us to God's testimonies with earnestness, reverence, and hopefulness. *J.F.*
 
-**Verse 59.** \---
-
-  1. Unthinking and straying.
-
-  2. Thinking and turning.
-
-\---_C. A. D._
-
-**Verse 59.** \---
-
-  1. Conviction.
-
-  2. Conversion.
-
-\---_W. D._
-
-**Verse 59.** \---Thinking on our own ways. Enquire,
-
-  1. Why so generally neglected?
-
-a. Want of courage.
-
-b. Occupied too much.
-
-c. Unpleasant, and therefore the chief care of many is to banish it.
-
-  2. When is it wisely conducted?
-
-a. When honestly engaged in.
-
-b. When thoroughly carried out.
-
-c. When Scripture is made the referee and standard.
-
-d. When Divine help is sought.
-
-  3. What end will it serve?
-
-a. Turn us from our own ways with shame and penitence.
-
-b. Turn us to God's testimonies with earnestness, reverence, and hopefulness.
-
-\---_J.F._
-
-**Verse 59.** \---
-
-  1. _Right thinking_ : "I thought on my ways."
-
-a. That this thought upon his ways caused the Psalmist dissatisfaction is
-evident.
-
-b. Right thinking upon our ways will suggest a practical change.
-
-c. The retrospect we take of our life should suggest that any turn we make
-should be towards God: "Unto thy testimonies."
-
-d. Right thinking also suggests that such a turning is possible.
-
-  2. _Right turning._ The turn was---
-
-a. Complete.
-
-b. Practical.
-
-c. Spiritual.
-
-d. Immediate.
-
-e. It must be a divine work.
-
-\---See "Spurgeon's Sermons," No. 1181; "Thinking and Turning."
+**Verse 59 &mdash;** 1. *Right thinking* : "I thought on my ways." a. That this thought upon his ways caused the Psalmist dissatisfaction is evident. b. Right thinking upon our ways will suggest a practical change. c. The retrospect we take of our life should suggest that any turn we make should be towards God: "Unto thy testimonies." d. Right thinking also suggests that such a turning is possible. 2. *Right turning.* The turn was--- a. Complete. b. Practical. c. Spiritual. d. Immediate. e. It must be a divine work. See "Spurgeon's Sermons," No. 1181; "Thinking and Turning."
 
 ## Exposition Verse 60
 
-**Verse 60.** \---"_I made haste, and delayed not to keep thy commandments_."
-He made all speed to get back into the royal road from which he had wandered,
-and to run in that road upon the King's errands. Speed in repentance and speed
-in obedience are two excellent things. We are too often in haste to sin; O
-that we may be in a greater hurry to obey. Delay in sin is increase of sin. To
-be slow to keep the commands is really to break them. There is much evil in a
-lagging pace when God's command is to be followed. A holy alacrity in service
-is much to be cultivated. It is wrought in us by the Spirit of God, and the
-preceding verses describe the method of it: we are made to perceive and mourn
-our errors, we are led to return to the right path, and then we are eager to
-make up for lost time by dashing forward to fulfil the precept.
+> I made haste, and delayed not to keep thy commandments. 
 
-Whatever may be the slips and wanderings of an honest heart, there remains
-enough of true life in it to produce ardent piety when once it is quickened by
-the visitations of God. The Psalmist entreated for mercy, and when he received
-it he became eager and vehement in the Lord's ways. He had always loved them,
-and hence when he was enriched with grace he displayed great vivacity and
-delight in them. He made double speed; for positively he "made haste," and
-negatively he refused to yield to any motive which suggested procrastination,
----he "delayed not." Thus he made rapid advances and accomplished much
-service, fulfilling thereby the vow which is recorded in Psa 119:57: "I said
-that I would keep thy words." The commands which he was so eager to obey were
-not ordinances of man, but precepts of the Most High. Many are zealots to obey
-custom and society, and yet they are slack in serving God. It is a crying
-shame that men should be served post haste, and that God's work should have
-the go by, or be performed with dreamy negligence.
+"*I made haste, and delayed not to keep thy commandments*." He made all speed to get back into the royal road from which he had wandered, and to run in that road upon the King's errands. Speed in repentance and speed in obedience are two excellent things. We are too often in haste to sin; O that we may be in a greater hurry to obey. Delay in sin is increase of sin. To be slow to keep the commands is really to break them. There is much evil in a lagging pace when God's command is to be followed. A holy alacrity in service is much to be cultivated. It is wrought in us by the Spirit of God, and the preceding verses describe the method of it: we are made to perceive and mourn our errors, we are led to return to the right path, and then we are eager to make up for lost time by dashing forward to fulfil the precept.
+
+Whatever may be the slips and wanderings of an honest heart, there remains enough of true life in it to produce ardent piety when once it is quickened by the visitations of God. The Psalmist entreated for mercy, and when he received it he became eager and vehement in the Lord's ways. He had always loved them, and hence when he was enriched with grace he displayed great vivacity and delight in them. He made double speed; for positively he "made haste," and negatively he refused to yield to any motive which suggested procrastination, ---he "delayed not." Thus he made rapid advances and accomplished much service, fulfilling thereby the vow which is recorded in Psa 119:57: "I said that I would keep thy words." The commands which he was so eager to obey were not ordinances of man, but precepts of the Most High. Many are zealots to obey custom and society, and yet they are slack in serving God. It is a crying shame that men should be served post haste, and that God's work should have the go by, or be performed with dreamy negligence.
 
 ### Explanatory Notes and Quaint Sayings
 
-**Verse 60.** \---"_I made haste, and delayed not_ ," etc. Duty discovered
-should instantly be discharged. There is peril attending every step which is
-taken in the indulgence of any known sin, or in the neglect of any
-acknowledged obligation. A tender conscience will not trifle with its
-convictions, lest the heart should be hardened through the deceitfulness of
-sin. It is unsafe, it is unreasonable, it is highly criminal to hesitate to
-carry that reformation into effect which conscience dictates. He who delays
-when duty calls may never have it in his power to evince the sincerity of his
-contrition for past folly and neglect. "I made haste," said the Psalmist, "and
-delayed not to keep thy commandments;" that is, being fully convinced of the
-necessity and excellency of obedience, I instantly resolved upon it, and
-immediately put it into execution.
+**Verse 60 &mdash;** "*I made haste, and delayed not* ," etc. Duty discovered should instantly be discharged. There is peril attending every step which is taken in the indulgence of any known sin, or in the neglect of any acknowledged obligation. A tender conscience will not trifle with its convictions, lest the heart should be hardened through the deceitfulness of sin. It is unsafe, it is unreasonable, it is highly criminal to hesitate to carry that reformation into effect which conscience dictates. He who delays when duty calls may never have it in his power to evince the sincerity of his contrition for past folly and neglect. "I made haste," said the Psalmist, "and delayed not to keep thy commandments;" that is, being fully convinced of the necessity and excellency of obedience, I instantly resolved upon it, and immediately put it into execution. *John Morison*.
 
-\---_John Morison_.
+**Verse 60 &mdash;** "*I made haste, and delayed not to keep thy commandments*." We often hear the saying, "Second thoughts are best." This does not hold in the religious life. In the context the Psalmist says, "I thought on my ways, and turned my feet unto thy testimonies, "that is, I did not wait to think again. In religion it may be a deadly habit to take time to reflect. Make haste. *Henry Melvill*.
 
-**Verse 60.** \---"_I made haste, and delayed not to keep thy commandments_."
-We often hear the saying, "Second thoughts are best." This does not hold in
-the religious life. In the context the Psalmist says, "I thought on my ways,
-and turned my feet unto thy testimonies, "that is, I did not wait to think
-again. In religion it may be a deadly habit to take time to reflect. Make
-haste.
+**Verse 60 &mdash;** "*I made haste, and delayed not*." When anyone is lawfully called either to the study of theology, or to the teaching it in the church, he ought not to hesitate, as Moses, or turn away, as Jonah; but, leaving all things, he should obey God who calls him; as David says, "I made haste, and delayed not." Mat 4:20; Luk 9:62. *Solomon Gesner*.
 
-\---_Henry Melvill_.
+**Verse 60 &mdash;** "*I made haste, and delayed not*." Sound faith is neither suspicious, nor curious; it believes what God says, without sight, without examining. For since it is impossible for God to lie (for how should truth lie?) it is fit his word be credited for itself's sake. It must not be examined with hows and whys. That which the Psalmist says of observing the law, that must the Christian say of receiving the gospel. לא הִתְמַהְמָהְתִּי, "I disputed not, "saith David; I argued not with God. The word is very elegant in the original tongue, derived in the Hebrew from the pronoun מָתּ, which signifieth *quid*. Faith reasons not with God, asketh no *quids* , no *quares* , no *quomodos* , no whats, no hows, no wherefores: it moveth no questions. It meekly yields assent, and humbly says Amen to every word of God. This is the faith of which our Saviour wondered in the centurion's story. *Richard Clerke* , ---1634.
 
-**Verse 60.** \---"_I made haste, and delayed not_." When anyone is lawfully
-called either to the study of theology, or to the teaching it in the church,
-he ought not to hesitate, as Moses, or turn away, as Jonah; but, leaving all
-things, he should obey God who calls him; as David says, "I made haste, and
-delayed not." Mat 4:20; Luk 9:62.
+**Verse 60 &mdash;** "*I made haste, and delayed not*." The original word, which we translate "delayed not," is amazingly emphatic. ולא התמהמהתי, "velo hithmahmahti," I did not stand *what-what-whating* ; or, as we used to express the same sentiment, shilly shallying with myself: I was *determined* , and so set out. The Hebrew word as well as the English, strongly marks indecision of mind, positive action being suspended, because the mind is so unfixed as not to be able to make a choice. *Adam Clarke*.
 
-\---_Solomon Gesner_.
+**Verse 60 &mdash;** Take heed of delays and procrastination, of putting it off from day to day, by saying there will be time enough hereafter; it will be time enough for me to look after heaven when I have got enough of the world; if I do it in the last year of my life, in the last month of the last year, in the last week of the last month, it will serve. O take heed of delays; this putting off repentance hath ruined thousands of souls; shun that pit into which many have fallen, shun that rock upon which many have suffered shipwreck; say with David, "*I made haste, and delayed not to keep thy commandments*." *James Nalton* , 1664.
 
-**Verse 60.** \---"_I made haste, and delayed not_." Sound faith is neither
-suspicious, nor curious; it believes what God says, without sight, without
-examining. For since it is impossible for God to lie (for how should truth
-lie?) it is fit his word be credited for itself's sake. It must not be
-examined with hows and whys. That which the Psalmist says of observing the
-law, that must the Christian say of receiving the gospel. לא הִתְמַהְמָהְתִּי,
-"I disputed not, "saith David; I argued not with God. The word is very elegant
-in the original tongue, derived in the Hebrew from the pronoun מָתּ, which
-signifieth _quid_. Faith reasons not with God, asketh no _quids_ , no _quares_
-, no _quomodos_ , no whats, no hows, no wherefores: it moveth no questions. It
-meekly yields assent, and humbly says Amen to every word of God. This is the
-faith of which our Saviour wondered in the centurion's story.
+**Verse 60 &mdash;** "*I made haste, and delayed not* ," etc. In the verse immediately preceding, the man of God speaks of repentance as the fruit of consideration and self examining: "I thought on my ways, and turned my feet unto thy testimonies." But when did he turn? for, though we see the evil of our ways, we are naturally slow to get it redressed. Therefore David did not only turn to God, but he did it speedily: we have an account of that in this verse, "I made haste," etc. This readiness in the work of obedience is doubly expressed; affirmatively, and negatively. Affirmatively, "I made haste;" negatively, "I delayed not." This double expression increaseth the sense according to the manner of the Hebrews; as, "I shall not die, but live" (Psa 118:17); that is, surely live; so here, "I made haste, and delayed not;" that is, I verily delayed not a moment; as soon as he had thought of his ways, and taken up the resolution to walk closely with God, he did put it into practice. The Septuagint read the words thus, "I was ready, and was not troubled or diverted by fear of danger." Indeed, besides our natural slowness to good, this is one usual ground of delays; we distract ourselves with fears; and, when God hath made known his will to us in many duties, we think of tarrying till the times are more quiet, and favourable to our practice, or till our affairs are in a better posture. A good improvement may be made of that translation; but the words run better, as they run more generally, with us, "I made haste, and delayed not," etc. David delayed not. When we dare not flatly deny, then we delay. *Non vacat* , that is the sinner's plea, "I am not at leisure;" but, *Non placet* , there is the reality. They which were invited to the wedding varnished their denial over with an excuse (Mat 22:5). Delay is a denial; for, if they were willing, there would be no excuse. To be rid of importunate and troublesome creditors, we promise them payment another time: though we know our estate will be more wasted by that time, it is but to put them off: so this delay and putting off of God is but a shift. Here is the misery, God always comes unseasonably to a carnal heart. It was the devils that said, "Art thou come hither to torment us before the time?" (Mat 8:29). Good things are a torment to a carnal heart; and they always come out of time. Certainly, that is the best time when the word is pressed upon thy heart with evidence, light, and power, and when God treats with thee about thine eternal peace. *Thomas Manton*.
 
-\---_Richard Clerke_ , ---1634.
+**Verse 60 &mdash;** "*Delayed* " *Hithmahmah* ; the word used of Lot's lingering, in Gen 19:16. *William Kay*.
 
-**Verse 60.** \---"_I made haste, and delayed not_." The original word, which
-we translate "delayed not," is amazingly emphatic. ולא התמהמהתי, "velo
-hithmahmahti," I did not stand _what-what-whating_ ; or, as we used to express
-the same sentiment, shilly shallying with myself: I was _determined_ , and so
-set out. The Hebrew word as well as the English, strongly marks indecision of
-mind, positive action being suspended, because the mind is so unfixed as not
-to be able to make a choice.
+**Verse 60 &mdash;** Delay in the Lord's errands is next to disobedience, and generally springs out of it, or issues in it. "*God commanded me to make haste* " (2Ch 35:21). Let us see to it that we can say, "*I made haste, and delayed not to keep thy commandments*." *Frances Ridley Havergal*.
 
-\---_Adam Clarke_.
+**Verse 60 &mdash;** "Avoid all delay in the performance of this great work of believing in Christ. Until we have performed it we continue under the power of sin and Satan, and under the wrath of God; and there is nothing between hell and us besides the breath of our nostrils. It is dangerous for Lot to linger in Sodom, lest fire and brimstone come down from heaven upon him. The manslayer must fly with all haste to the city of refuge, lest the avenger of blood pursue him, while his heart is hot, and slay him. We should make haste, and not delay to keep God's commandments. *Walter Marshall*.
 
-**Verse 60.** \---Take heed of delays and procrastination, of putting it off
-from day to day, by saying there will be time enough hereafter; it will be
-time enough for me to look after heaven when I have got enough of the world;
-if I do it in the last year of my life, in the last month of the last year, in
-the last week of the last month, it will serve. O take heed of delays; this
-putting off repentance hath ruined thousands of souls; shun that pit into
-which many have fallen, shun that rock upon which many have suffered
-shipwreck; say with David, "_I made haste, and delayed not to keep thy
-commandments_."
-
-\---_James Nalton_ , 1664.
-
-**Verse 60.** \---"_I made haste, and delayed not_ ," etc. In the verse
-immediately preceding, the man of God speaks of repentance as the fruit of
-consideration and self examining: "I thought on my ways, and turned my feet
-unto thy testimonies." But when did he turn? for, though we see the evil of
-our ways, we are naturally slow to get it redressed. Therefore David did not
-only turn to God, but he did it speedily: we have an account of that in this
-verse, "I made haste," etc. This readiness in the work of obedience is doubly
-expressed; affirmatively, and negatively. Affirmatively, "I made haste;"
-negatively, "I delayed not." This double expression increaseth the sense
-according to the manner of the Hebrews; as, "I shall not die, but live" (Psa
-118:17); that is, surely live; so here, "I made haste, and delayed not;" that
-is, I verily delayed not a moment; as soon as he had thought of his ways, and
-taken up the resolution to walk closely with God, he did put it into practice.
-The Septuagint read the words thus, "I was ready, and was not troubled or
-diverted by fear of danger." Indeed, besides our natural slowness to good,
-this is one usual ground of delays; we distract ourselves with fears; and,
-when God hath made known his will to us in many duties, we think of tarrying
-till the times are more quiet, and favourable to our practice, or till our
-affairs are in a better posture. A good improvement may be made of that
-translation; but the words run better, as they run more generally, with us, "I
-made haste, and delayed not," etc.
-
-David delayed not. When we dare not flatly deny, then we delay. _Non vacat_ ,
-that is the sinner's plea, "I am not at leisure;" but, _Non placet_ , there is
-the reality. They which were invited to the wedding varnished their denial
-over with an excuse (Mat 22:5). Delay is a denial; for, if they were willing,
-there would be no excuse. To be rid of importunate and troublesome creditors,
-we promise them payment another time: though we know our estate will be more
-wasted by that time, it is but to put them off: so this delay and putting off
-of God is but a shift. Here is the misery, God always comes unseasonably to a
-carnal heart. It was the devils that said, "Art thou come hither to torment us
-before the time?" (Mat 8:29). Good things are a torment to a carnal heart; and
-they always come out of time. Certainly, that is the best time when the word
-is pressed upon thy heart with evidence, light, and power, and when God treats
-with thee about thine eternal peace.
-
-\---_Thomas Manton_.
-
-**Verse 60.** \---"_Delayed_ " _Hithmahmah_ ; the word used of Lot's
-lingering, in Gen 19:16.
-
-\---_William Kay_.
-
-**Verse 60.** \---Delay in the Lord's errands is next to disobedience, and
-generally springs out of it, or issues in it. "_God commanded me to make
-haste_ " (2Ch 35:21). Let us see to it that we can say, "_I made haste, and
-delayed not to keep thy commandments_."
-
-\---_Frances Ridley Havergal_.
-
-**Verse 60.** \---"Avoid all delay in the performance of this great work of
-believing in Christ. Until we have performed it we continue under the power of
-sin and Satan, and under the wrath of God; and there is nothing between hell
-and us besides the breath of our nostrils. It is dangerous for Lot to linger
-in Sodom, lest fire and brimstone come down from heaven upon him. The
-manslayer must fly with all haste to the city of refuge, lest the avenger of
-blood pursue him, while his heart is hot, and slay him. We should make haste,
-and not delay to keep God's commandments.
-
-\---_Walter Marshall_.
-
-**Verse 60.** \---If convictions begin to work, instantly yield to their
-influence. If any worldly or sinful desire is touched, let this be the moment
-for its crucifixion. If any affection is kindled towards the Saviour, give
-immediate expression to its voice. If any grace is reviving, let it be called
-forth into instant duty. This is the best, the only, expedient to fix and
-detain the motion of the Spirit now striving in the heart; and who knoweth but
-the improvement of the present advantage, may be the moment of victory over
-difficulties hitherto found insuperable, and may open our path to heaven with
-less interruption and more steady progress?
-
-\---_Charles Bridges_.
+**Verse 60 &mdash;** If convictions begin to work, instantly yield to their influence. If any worldly or sinful desire is touched, let this be the moment for its crucifixion. If any affection is kindled towards the Saviour, give immediate expression to its voice. If any grace is reviving, let it be called forth into instant duty. This is the best, the only, expedient to fix and detain the motion of the Spirit now striving in the heart; and who knoweth but the improvement of the present advantage, may be the moment of victory over difficulties hitherto found insuperable, and may open our path to heaven with less interruption and more steady progress? *Charles Bridges*.
 
 ### Hints to Preachers
 
-**Verse 60.** \---The dangers of delay. The reasons for prompt action.
+**Verse 60 &mdash;** The dangers of delay. The reasons for prompt action.
 
-**Verse 60.** \---A sermon to loiterers.
+**Verse 60 &mdash;** A sermon to loiterers. 1. Reflection. Keeping God's commandments is my duty; is my welfare. Commandments delayed may be never kept. Delay is in itself disobedience. Alacrity is the soul of obedience. 2. Resolve. I will make haste and delay not. *C. A. D.*
 
-  1. Reflection. Keeping God's commandments is my duty; is my welfare. Commandments delayed may be never kept. Delay is in itself disobedience. Alacrity is the soul of obedience.
+**Verse 60 &mdash;** 1. Quick. 2. Sure. *W.D.*
 
-  2. Resolve. I will make haste and delay not.
-
-\---_C. A. D._
-
-**Verse 60.** \---
-
-  1. Quick.
-
-  2. Sure.
-
-\---_W.D._
-
-**Verse 60.** \---Procrastination considered in its most important
-application; that is, to religion.
-
-  1. This procrastination is irrational.
-
-  2. It is unpleasant, disagreeable, painful.
-
-  3. It is disgraceful.
-
-  4. It is sinful, and that is the highest degree.
-
-  5. It is dangerous.
-
-\---_John Angell James_.
+**Verse 60 &mdash;** Procrastination considered in its most important application; that is, to religion. 1. This procrastination is irrational. 2. It is unpleasant, disagreeable, painful. 3. It is disgraceful. 4. It is sinful, and that is the highest degree. 5. It is dangerous. *John Angell James*.
 
 ## Exposition Verse 61
 
-**Verse 61.** \---"_The bands of the wicked have robbed me_." Aforetime they
-derided him, and now they have defrauded him. Ungodly men grow worse, aria
-become more and more daring, so that they go from ridicule to robbery. Much of
-this bold opposition arose from their being banded together: men will dare to
-do in company what they durst not have thought of alone. When firebrands are
-laid together there is no telling what a flame they will create. It seems that
-whole bands of men assailed this one child of God, they are cowardly enough
-for anything; though they could not kill him, they robbed him; the dogs of
-Satan will worry saints if they cannot devour them. David's enemies did their
-utmost: first the serpents hissed, and then they stung. Since words availed
-not, the wicked fell to blows. How much the ungodly have plundered the saints
-in all ages, and how often have the righteous borne gladly the spoiling of
-their goods!
+> The bands of the wicked have robbed me: *but* I have not forgotten thy law. 
 
-"_But I have not forgotten thy law_." This was well. Neither his sense of
-injustice, nor his sorrow at his losses, nor his attempts at defence diverted
-him from the ways of God. He would not do wrong to prevent the suffering of
-wrong, nor do ill to avenge ill. He carried the law in his heart, and
-therefore no disturbance of mind could take him off from following it. He
-might have forgotten himself if he had forgotten the law: as it was, he was
-ready to forgive and forget the injuries done him, for his heart was taken up
-with the word of God. The bands of the wicked had not robbed him of his
-choicest treasure, since they had left him his holiness and his happiness.
+"*The bands of the wicked have robbed me*." Aforetime they derided him, and now they have defrauded him. Ungodly men grow worse, aria become more and more daring, so that they go from ridicule to robbery. Much of this bold opposition arose from their being banded together: men will dare to do in company what they durst not have thought of alone. When firebrands are laid together there is no telling what a flame they will create. It seems that whole bands of men assailed this one child of God, they are cowardly enough for anything; though they could not kill him, they robbed him; the dogs of Satan will worry saints if they cannot devour them. David's enemies did their utmost: first the serpents hissed, and then they stung. Since words availed not, the wicked fell to blows. How much the ungodly have plundered the saints in all ages, and how often have the righteous borne gladly the spoiling of their goods!
 
-Some read this passage, "The bands of the wicked environ me." They hemmed him
-in, they cut him off from succour, they shut up every avenue of escape, but
-the man of God had his protector with him; a clear conscience relied upon the
-promise, and a brave resolve stuck to the precept. He could not be either
-bribed or bullied into sin. The cordon of the ungodly could not keep God from
-him, nor him from God: this was because God was his portion, and none could
-deprive him of it neither by force or fraud. That is true grace which can
-endure the test: some are barely gracious among the circle of their friends,
-but this man was holy amid a ring of foes.
+"*But I have not forgotten thy law*." This was well. Neither his sense of injustice, nor his sorrow at his losses, nor his attempts at defence diverted him from the ways of God. He would not do wrong to prevent the suffering of wrong, nor do ill to avenge ill. He carried the law in his heart, and therefore no disturbance of mind could take him off from following it. He might have forgotten himself if he had forgotten the law: as it was, he was ready to forgive and forget the injuries done him, for his heart was taken up with the word of God. The bands of the wicked had not robbed him of his choicest treasure, since they had left him his holiness and his happiness.
+
+Some read this passage, "The bands of the wicked environ me." They hemmed him in, they cut him off from succour, they shut up every avenue of escape, but the man of God had his protector with him; a clear conscience relied upon the promise, and a brave resolve stuck to the precept. He could not be either bribed or bullied into sin. The cordon of the ungodly could not keep God from him, nor him from God: this was because God was his portion, and none could deprive him of it neither by force or fraud. That is true grace which can endure the test: some are barely gracious among the circle of their friends, but this man was holy amid a ring of foes.
 
 ### Explanatory Notes and Quaint Sayings
 
-**Verse 61.** \---"_The bands of the wicked have robbed me_." Two readings
-remain, either of which may be admitted: The cords of the wicked have caught
-hold of me, or, _The companies of the wicked have robbed me_. Whether we adopt
-the one or the other of these readings, what the prophet intends to declare
-is, that when Satan assailed the principles of piety in his soul, by grievous
-temptations, he continued with undeviating steadfastness in the love, and
-practice of God's law. Cords may, however, be understood in two ways; either,
-first, as denoting the deceptive allurements by which the wicked endeavoured
-to get him entangled in their society; or, secondly, the frauds which they
-practised to effect his ruin.
+**Verse 61 &mdash;** "*The bands of the wicked have robbed me*." Two readings remain, either of which may be admitted: The cords of the wicked have caught hold of me, or, *The companies of the wicked have robbed me*. Whether we adopt the one or the other of these readings, what the prophet intends to declare is, that when Satan assailed the principles of piety in his soul, by grievous temptations, he continued with undeviating steadfastness in the love, and practice of God's law. Cords may, however, be understood in two ways; either, first, as denoting the deceptive allurements by which the wicked endeavoured to get him entangled in their society; or, secondly, the frauds which they practised to effect his ruin. *John Calvin*.
 
-\---_John Calvin_.
+**Verse 61 &mdash;** "*The bands of the wicked have robbed me*." Some have it, "Cords of wicked men have entwined me." Others, "Snares of wicked men surround me." The meaning is that wicked men by their plots and contrivances had beset him, as men would ensnare a wild beast in their toils. They might, indeed, hem him round about in the wilderness, but they could not enthral the free mind; he would still feel at liberty in spirit, he would not forget God's law. *John, Stephen*.
 
-**Verse 61.** \---"_The bands of the wicked have robbed me_." Some have it,
-"Cords of wicked men have entwined me." Others, "Snares of wicked men surround
-me." The meaning is that wicked men by their plots and contrivances had beset
-him, as men would ensnare a wild beast in their toils. They might, indeed, hem
-him round about in the wilderness, but they could not enthral the free mind;
-he would still feel at liberty in spirit, he would not forget God's law.
+**Verse 61 &mdash;** "*The bands of the wicked have robbed me*." They set upon his goods, and spoiled him of them, either by plunder in the time of war, or by fines and confiscations under colour of law. Saul (it is likely) seized his effects; Absalom his palace; the Amalekites rifled Ziklag. *Matthew Henry*.
 
-\---_John, Stephen_.
+**Verse 61 &mdash;** The friendship of the wicked must be shunned. First, because it binds us, as they are bound together---"bands of the wicked." Every sinner is a gladiator with net and sword, going down into the arena, and endeavouring to enmesh any one who comes near him. A second reason for shunning the friendship of the wicked, which may be taken from the Hebrew word, is their cruelty and barbarity: for not only do the wicked bind their friends, but they make a spoil and a prey of them: "have robbed me." They are decoying thieves, journeying with an unwary traveller, until they have led him into thick and dark woods, where they strip him of heavenly riches. *Thomas Le Blanc*.
 
-**Verse 61.** \---"_The bands of the wicked have robbed me_." They set upon
-his goods, and spoiled him of them, either by plunder in the time of war, or
-by fines and confiscations under colour of law. Saul (it is likely) seized his
-effects; Absalom his palace; the Amalekites rifled Ziklag.
+**Verse 61 &mdash;** "*The bands of the wicked have robbed me*." Then said Christian to his fellow, Now I call to remembrance that which was told me of a thing that happened to a good man hereabout. The name of the man was *Little Faith* , but a good man, and he dwelt in the town of Sincere. The thing was this; at the entering in of this passage there comes down from *Broadway gate* a lane called *Dead man's lane* ; so called because of the murders that are commonly done there. And this Little Faith going on pilgrimage, as we do now, chanced to sit down there and slept. Now there happened, at that time, to come down that lane from Broadway gate three sturdy rogues, and their names were *Faint heart* , *Mistrust* , and *Guilt* , (three brothers,) and they espying Little Faith where he was came galloping up with speed. Now the good man was just awaked from his sleep, and was getting up to go on his journey. So they came all up to him, and with threatening language bid him stand. At this, Little Faith looked as white as a cloud, and had neither power to *fight* nor *flee*. Then said Faint heart, Deliver thy purse; but he making no haste to do it, (for he was loath to lose his money,)Mistrust ran up to him, and thrusting his hand into his pocket, pulled out thence a bag of silver. Then he cried out, Thieves! Thieves! With that Guilt, with a great club that was in his hand, struck Little Faith on the head, and with that blow felled him flat to the ground, where he lay bleeding as one that would bleed to death...The place where his jewels were they never ransacked, so those he kept still; but, as I was told, the good man was much afflicted for his loss. For the thieves got most of his spending money. That which they got not (as I said) were jewels, also he had a little odd money left, but scarce enough to bring him to his journey's end; nay, (if I was not misinformed,)he was forced to beg as he went, to keep himself alive (for his jewels he might not sell). But beg, and do what he could he went (as we say) with many a hungry belly, the most part of the rest of the way. *John Bunyan*.
 
-\---_Matthew Henry_.
+**Verse 61 &mdash;** "*Bands*." Howsoever, to strengthen themselves in an evil course, the wicked go together by bands and companies, yet shall it not avail them, nor hurt us. Babel's builders; Moab, Ammon, Edom, conspiring in one, may tell us, "Though hand join in hand, the wicked shall not escape unpunished." The wicked are like thorns before the fire; their multitude may well embolden the flame, but cannot resist it. *William Cowper*.
 
-**Verse 61.** \---The friendship of the wicked must be shunned. First, because
-it binds us, as they are bound together---"bands of the wicked." Every sinner
-is a gladiator with net and sword, going down into the arena, and endeavouring
-to enmesh any one who comes near him. A second reason for shunning the
-friendship of the wicked, which may be taken from the Hebrew word, is their
-cruelty and barbarity: for not only do the wicked bind their friends, but they
-make a spoil and a prey of them: "have robbed me." They are decoying thieves,
-journeying with an unwary traveller, until they have led him into thick and
-dark woods, where they strip him of heavenly riches.
-
-\---_Thomas Le Blanc_.
-
-**Verse 61.** \---"_The bands of the wicked have robbed me_." Then said
-Christian to his fellow, Now I call to remembrance that which was told me of a
-thing that happened to a good man hereabout. The name of the man was _Little
-Faith_ , but a good man, and he dwelt in the town of Sincere. The thing was
-this; at the entering in of this passage there comes down from _Broadway gate_
-a lane called _Dead man's lane_ ; so called because of the murders that are
-commonly done there. And this Little Faith going on pilgrimage, as we do now,
-chanced to sit down there and slept. Now there happened, at that time, to come
-down that lane from Broadway gate three sturdy rogues, and their names were
-_Faint heart_ , _Mistrust_ , and _Guilt_ , (three brothers,) and they espying
-Little Faith where he was came galloping up with speed. Now the good man was
-just awaked from his sleep, and was getting up to go on his journey. So they
-came all up to him, and with threatening language bid him stand. At this,
-Little Faith looked as white as a cloud, and had neither power to _fight_ nor
-_flee_. Then said Faint heart, Deliver thy purse; but he making no haste to do
-it, (for he was loath to lose his money,)Mistrust ran up to him, and thrusting
-his hand into his pocket, pulled out thence a bag of silver. Then he cried
-out, Thieves! Thieves! With that Guilt, with a great club that was in his
-hand, struck Little Faith on the head, and with that blow felled him flat to
-the ground, where he lay bleeding as one that would bleed to death...The place
-where his jewels were they never ransacked, so those he kept still; but, as I
-was told, the good man was much afflicted for his loss. For the thieves got
-most of his spending money. That which they got not (as I said) were jewels,
-also he had a little odd money left, but scarce enough to bring him to his
-journey's end; nay, (if I was not misinformed,)he was forced to beg as he
-went, to keep himself alive (for his jewels he might not sell). But beg, and
-do what he could he went (as we say) with many a hungry belly, the most part
-of the rest of the way.
-
-\---_John Bunyan_.
-
-**Verse 61.** \---"_Bands_." Howsoever, to strengthen themselves in an evil
-course, the wicked go together by bands and companies, yet shall it not avail
-them, nor hurt us. Babel's builders; Moab, Ammon, Edom, conspiring in one, may
-tell us, "Though hand join in hand, the wicked shall not escape unpunished."
-The wicked are like thorns before the fire; their multitude may well embolden
-the flame, but cannot resist it.
-
-\---_William Cowper_.
-
-**Verse 61.** \---It is a salutary reflection to bear in mind, that thousands
-of spiritual adversaries are ever watching to make us their prey.
-
-\---_John Morison_.
+**Verse 61 &mdash;** It is a salutary reflection to bear in mind, that thousands of spiritual adversaries are ever watching to make us their prey. *John Morison*.
 
 ### Hints to Preachers
 
-**Verse 61.** \---
-
-  1. Spiritual highway robbery.
-
-  2. The traveller keeping his road. Or, what enemies can do, and what they cannot do.
+**Verse 61 &mdash;** 1. Spiritual highway robbery. 2. The traveller keeping his road. Or, what enemies can do, and what they cannot do.
 
 ## Exposition Verse 62
 
-**Verse 62.** \---"_At midnight I will rise to give thanks unto thee because
-of thy righteous judgments_." He was not afraid of the robbers; he rose, not
-to watch his house, but to praise his God. Midnight is the hour for burglars,
-and there were bands of them around David, but they did not occupy his
-thoughts; these were all up and away with the Lord his God. He thought not of
-thieves, but of thanks; not of what _they_ would steal, but of what _he_ would
-give to his God. A thankful heart is such a blessing that it drives out fear
-and makes room for praise. Thanksgiving turns night into day, and consecrates
-all hours to the worship of God. Every hour is canonical to a saint.
+> At midnight I will rise to give thanks unto thee because of thy righteous judgments. 
 
-The Psalmist observed posture; he did not lie in bed and praise. There is not
-much in the position of the body, but there is something, and that something
-is to be observed whenever it is helpful to devotion and expressive of our
-diligence or humility. Many kneel without praying, some pray without kneeling;
-but the best is to kneel and pray: so here, it would have been no virtue to
-rise without giving thanks, and it would have been no sin to give thanks
-without rising; but to rise and give thanks is a happy combination. As for the
-season, it was quiet, lonely, and such as proved his zeal. At midnight he
-would be unobserved and undisturbed; it was his own time which he saved from
-his sleep, and so he would be free from the charge of sacrificing public
-duties to private devotions. Midnight ends one day and begins another, it was
-therefore meet to give the solemn moments to communion with the Lord. At the
-turn of the night he turned to his God. He had thanks to give for mercies
-which God had given: he had on his mind the truth of Psa 119:57, "Thou art my
-portion, "and if anything can make a man sing in the middle of the night that
-is it.
+"*At midnight I will rise to give thanks unto thee because of thy righteous judgments*." He was not afraid of the robbers; he rose, not to watch his house, but to praise his God. Midnight is the hour for burglars, and there were bands of them around David, but they did not occupy his thoughts; these were all up and away with the Lord his God. He thought not of thieves, but of thanks; not of what *they* would steal, but of what *he* would give to his God. A thankful heart is such a blessing that it drives out fear and makes room for praise. Thanksgiving turns night into day, and consecrates all hours to the worship of God. Every hour is canonical to a saint.
 
-The _righteous_ doings of the great Judge gladdened the heart of this godly
-man. His _judgments_ are the terrible side of God, but they have no terror to
-the righteous; they admire them, and adore the Lord for them: they rise at
-night to bless God that he will avenge his own elect. Some hate the very
-notion of divine justice, and in this they are wide as the poles asunder from
-this man of God, who was filled with joyful gratitude at the memory of the
-sentences of the Judge of all the earth. Doubtless in the expression, "thy
-righteous judgments, "David refers also to the written judgments of God upon
-various points of moral conduct; indeed, all the divine precepts may be viewed
-in that light; they are all of them the legal decisions of the Supreme Arbiter
-of right and wrong. David was charmed with these judgments. Like Paul, he
-could say, "I delight in the law of God after the inward man." He could not
-find time enough by day to study the words of divine wisdom, or to bless God
-for them, and so he gave up his sleep that he might tell out his gratitude for
-such a law and such a Lawgiver.
+The Psalmist observed posture; he did not lie in bed and praise. There is not much in the position of the body, but there is something, and that something is to be observed whenever it is helpful to devotion and expressive of our diligence or humility. Many kneel without praying, some pray without kneeling; but the best is to kneel and pray: so here, it would have been no virtue to rise without giving thanks, and it would have been no sin to give thanks without rising; but to rise and give thanks is a happy combination. As for the season, it was quiet, lonely, and such as proved his zeal. At midnight he would be unobserved and undisturbed; it was his own time which he saved from his sleep, and so he would be free from the charge of sacrificing public duties to private devotions. Midnight ends one day and begins another, it was therefore meet to give the solemn moments to communion with the Lord. At the turn of the night he turned to his God. He had thanks to give for mercies which God had given: he had on his mind the truth of Psa 119:57, "Thou art my portion, "and if anything can make a man sing in the middle of the night that is it.
 
-This verse is an advance upon the sense of Psa 119:52, and contains in
-addition the essence of Psa 119:55. Our author never repeats himself: though
-he runs up and down the same scale, his music has an infinite variety. The
-permutations and combinations which may be formed in connection with a few
-vital truths are innumerable.
+The *righteous* doings of the great Judge gladdened the heart of this godly man. His *judgments* are the terrible side of God, but they have no terror to the righteous; they admire them, and adore the Lord for them: they rise at night to bless God that he will avenge his own elect. Some hate the very notion of divine justice, and in this they are wide as the poles asunder from this man of God, who was filled with joyful gratitude at the memory of the sentences of the Judge of all the earth. Doubtless in the expression, "thy righteous judgments, "David refers also to the written judgments of God upon various points of moral conduct; indeed, all the divine precepts may be viewed in that light; they are all of them the legal decisions of the Supreme Arbiter of right and wrong. David was charmed with these judgments. Like Paul, he could say, "I delight in the law of God after the inward man." He could not find time enough by day to study the words of divine wisdom, or to bless God for them, and so he gave up his sleep that he might tell out his gratitude for such a law and such a Lawgiver.
+
+This verse is an advance upon the sense of Psa 119:52, and contains in addition the essence of Psa 119:55. Our author never repeats himself: though he runs up and down the same scale, his music has an infinite variety. The permutations and combinations which may be formed in connection with a few vital truths are innumerable.
 
 ### Explanatory Notes and Quaint Sayings
 
-**Verse 62.** \---"_At midnight I will rise to give thanks_." Though we cannot
-enforce the particular observance upon you, yet there are many notable lessons
-to be drawn from David's practice.
+**Verse 62 &mdash;** "*At midnight I will rise to give thanks*." Though we cannot enforce the particular observance upon you, yet there are many notable lessons to be drawn from David's practice. 1. The ardency of his devotion, or his earnest desire to praise God: "at midnight," when sleep doth most invade men's eyes, then he would rise up. His heart was so set upon the praising of God, and the sense of his righteous providence did so affect him, and urge and excite him to this duty, that he would not only employ himself in this work in the daytime, and so show his love to God, but he would rise out of his bed to worship God and celebrate his praise. That which hindereth the sleep of ordinary men, is either the cares of this world, the impatient resentment of injuries, or the sting of an evil conscience: these keep others waking, but David was awaked by a desire to praise God. No hour is unseasonable to a gracious heart: he is expressing his affection to God when others take their rest. Thus we read of our Lord Christ, that he spent whole nights in prayer (Luk 6:12). It is said of the glorified saints in heaven, that they praise God continually: "Therefore are they before the throne of God, and serve him day and night in his temple: and he that sitteth on the throne shall dwell among them" (Rev 7:15). Now, holy men, though much hindered by their bodily necessities, will come as near to continual praise as present frailty will permit. Alas, we oftentimes begin the day with some fervency of prayer and praise, but we faint ere the evening comes. 2. His sincerity, seen in his secrecy. David would profess his faith in God when he had no witness by him; "at midnight," when there was no hazard of ostentation. It was a secret cheerfulness and delighting in God: when alone he could have no respect to the applause of men, but only to approve himself to God who seeth in secret. See Christ's direction: "But thou, when thou prayest, enter into thy closet, and when thou hast shut thy door, pray to thy Father which is in secret; and thy Father which seeth in secret shall reward thee openly" (Mat 6:6). Note also Christ's own practice: "Rising up a great while before day, he went out, and departed into a solitary place, and there prayed" (Mar 1:35): before day he went into a desert to pray; both time and place implied secrecy. 3. We learn hence the preciousness of time: it was so to David; see how he spendeth the time of his life. We read of David, when he lay down at night, he watered his couch with his tears, after the examination of his heart (Psa 6:6); at midnight he rose to give thanks; in the morning he prevented the morning watches; and seven times a day he praised God: morning, noon, and night he consecrated. These are all acts of eminent piety. We should not content ourselves with so much grace as will merely serve to save us. Alas! we have much idle time hanging upon our hands: if we would give that to God, it were well. 4. The value of godly exercises above our natural refreshing. The word is sweeter than appointed food: "I have esteemed the words of his mouth more than my necessary food" (Job 23:12). David prefers the praises of God before his sleep and rest in the night. Surely, this should shame us for our sensuality. We can dispense with other things for our vain pleasures: we have done as much for sin, for vain sports, etc.; and shall we not deny ourselves for God? 5. The great reverence to be used in secret adoration. David did not only raise up his spirits to praise God, but rise up out of his bed, to bow the knee to him. Secret duties should be performed with solemnity, not slubbered over. Praise, a special act of adoration, requireth the worship of body and soul. *Thomas Manton*.
 
-  1. The ardency of his devotion, or his earnest desire to praise God: "at midnight," when sleep doth most invade men's eyes, then he would rise up. His heart was so set upon the praising of God, and the sense of his righteous providence did so affect him, and urge and excite him to this duty, that he would not only employ himself in this work in the daytime, and so show his love to God, but he would rise out of his bed to worship God and celebrate his praise. That which hindereth the sleep of ordinary men, is either the cares of this world, the impatient resentment of injuries, or the sting of an evil conscience: these keep others waking, but David was awaked by a desire to praise God. No hour is unseasonable to a gracious heart: he is expressing his affection to God when others take their rest. Thus we read of our Lord Christ, that he spent whole nights in prayer (Luk 6:12). It is said of the glorified saints in heaven, that they praise God continually: "Therefore are they before the throne of God, and serve him day and night in his temple: and he that sitteth on the throne shall dwell among them" (Rev 7:15). Now, holy men, though much hindered by their bodily necessities, will come as near to continual praise as present frailty will permit. Alas, we oftentimes begin the day with some fervency of prayer and praise, but we faint ere the evening comes.
+**Verse 62 &mdash;** "*At midnight I will rise to give thanks*." He had praised God in the courts of the Lord's house, and yet he will do it in his bedchamber. Public worship will not excuse us from secret worship. *Matthew Henry*.
 
-  2. His sincerity, seen in his secrecy. David would profess his faith in God when he had no witness by him; "at midnight," when there was no hazard of ostentation. It was a secret cheerfulness and delighting in God: when alone he could have no respect to the applause of men, but only to approve himself to God who seeth in secret. See Christ's direction: "But thou, when thou prayest, enter into thy closet, and when thou hast shut thy door, pray to thy Father which is in secret; and thy Father which seeth in secret shall reward thee openly" (Mat 6:6). Note also Christ's own practice: "Rising up a great while before day, he went out, and departed into a solitary place, and there prayed" (Mar 1:35): before day he went into a desert to pray; both time and place implied secrecy.
+**Verse 62 &mdash;** "*At midnight I will rise to give thanks unto thee*." Was he not ready also to praise God at midday? Certainly; but he says "at midnight," that he may express the ardour and longing of his soul. We are wont to assure our friends of our good will by saying that we will rise at midnight to consult about their affairs. *Wolfgang Musculus*.
 
-  3. We learn hence the preciousness of time: it was so to David; see how he spendeth the time of his life. We read of David, when he lay down at night, he watered his couch with his tears, after the examination of his heart (Psa 6:6); at midnight he rose to give thanks; in the morning he prevented the morning watches; and seven times a day he praised God: morning, noon, and night he consecrated. These are all acts of eminent piety. We should not content ourselves with so much grace as will merely serve to save us. Alas! we have much idle time hanging upon our hands: if we would give that to God, it were well.
+**Verse 62 &mdash;** "*At midnight I will rise to give thanks* ," etc. In these words observe three things:--- 1. David's holy employment, or the duty promised, giving thanks to God. 2. His earnestness and fervency implied in the time mentioned, "At midnight I will rise;" he would rather interrupt his sleep and rest, than God should want his praise. 3. The cause or matter of his thanksgiving, "because of thy righteous judgments:" whereby he meaneth the dispensations of God's providence in delivering the godly and punishing the wicked, according to his word. *Thomas Manton*.
 
-  4. The value of godly exercises above our natural refreshing. The word is sweeter than appointed food: "I have esteemed the words of his mouth more than my necessary food" (Job 23:12). David prefers the praises of God before his sleep and rest in the night. Surely, this should shame us for our sensuality. We can dispense with other things for our vain pleasures: we have done as much for sin, for vain sports, etc.; and shall we not deny ourselves for God?
-
-  5. The great reverence to be used in secret adoration. David did not only raise up his spirits to praise God, but rise up out of his bed, to bow the knee to him. Secret duties should be performed with solemnity, not slubbered over. Praise, a special act of adoration, requireth the worship of body and soul.
-
-\---_Thomas Manton_.
-
-**Verse 62.** \---"_At midnight I will rise to give thanks_." He had praised
-God in the courts of the Lord's house, and yet he will do it in his
-bedchamber. Public worship will not excuse us from secret worship.
-
-\---_Matthew Henry_.
-
-**Verse 62.** \---"_At midnight I will rise to give thanks unto thee_." Was he
-not ready also to praise God at midday? Certainly; but he says "at midnight,"
-that he may express the ardour and longing of his soul. We are wont to assure
-our friends of our good will by saying that we will rise at midnight to
-consult about their affairs.
-
-\---_Wolfgang Musculus_.
-
-**Verse 62.** \---"_At midnight I will rise to give thanks_ ," etc. In these
-words observe three things:---
-
-  1. David's holy employment, or the duty promised, giving thanks to God.
-
-  2. His earnestness and fervency implied in the time mentioned, "At midnight I will rise;" he would rather interrupt his sleep and rest, than God should want his praise.
-
-  3. The cause or matter of his thanksgiving, "because of thy righteous judgments:" whereby he meaneth the dispensations of God's providence in delivering the godly and punishing the wicked, according to his word.
-
-\---_Thomas Manton_.
-
-**Verse 62.** \---"_At midnight I will rise to give thanks_." Cares of this
-world, impatience of wrongs, a bad conscience, keep awake the ungodly and
-disturb their sleep (_Rivetus_); but what I awake for is to give thanks to
-thee.
-
-\---_A. R. Faussett_.
+**Verse 62 &mdash;** "*At midnight I will rise to give thanks*." Cares of this world, impatience of wrongs, a bad conscience, keep awake the ungodly and disturb their sleep (*Rivetus*); but what I awake for is to give thanks to thee. *A. R. Faussett*.
 
 ### Hints to Preachers
 
-**Verse 62.** \---
+**Verse 62 &mdash;** 1. The duty of gratitude: "give thanks." 2. The subject for gratitude: "thy righteous judgments." 3. The season for gratitude: at night as well as in the day. *G. R.*
 
-  1. The duty of gratitude: "give thanks."
+**Verse 62 &mdash;** Up in the night. Singing in the night. Reasons for such singular conduct.
 
-  2. The subject for gratitude: "thy righteous judgments."
-
-  3. The season for gratitude: at night as well as in the day.
-
-\---_G. R._
-
-**Verse 62.** \---Up in the night. Singing in the night. Reasons for such
-singular conduct.
-
-**Verse 62.** \---The nightingale.
-
-  1. A natural association of thought: "midnight" and "judgments." Exodus 7, etc.
-
-  2. An incongruous association of feeling: "thanks" and "judgments."
-
-  3. A full justification of this apparent incongruity: "thanks because of thy righteous judgments."
-
-  4. A vigorous performance of an incumbent duty: "at midnight I will rise to give thanks."
-
-\---_C. A. D._
+**Verse 62 &mdash;** The nightingale. 1. A natural association of thought: "midnight" and "judgments." Exodus 7, etc. 2. An incongruous association of feeling: "thanks" and "judgments." 3. A full justification of this apparent incongruity: "thanks because of thy righteous judgments." 4. A vigorous performance of an incumbent duty: "at midnight I will rise to give thanks." *C. A. D.*
 
 ## Exposition Verse 63
 
-**Verse 63.** \---"_I am a companion of all them that fear thee_." The last
-verse said, "I will," and this says, "I am." We can hardly hope to be right in
-the future unless we are right now. The holy man spent his nights with God and
-his days with God's people. Those who fear God love those who fear him, and
-they make small choice in their company so long as the men are truly God
-fearing. David was a king, and yet he consorted with "_all_ " who feared the
-Lord, whether they were obscure or famous, poor or rich. He was a fellow
-commoner of the College of All saints.
+> I *am* a companion of all *them* that fear thee, and of them that keep thy precepts. 
 
-He did not select a few specially eminent saints and leave ordinary believers
-alone. No, he was glad of the society of those who had only the beginning of
-wisdom in the shape of "the fear of the Lord:" he was pleased to sit with them
-on the lower forms of the school of faith. He looked for inward godly fear,
-but he also expected to see outward piety in those whom he admitted to his
-society; hence he adds, _and of them that keep thy precepts._ If they would
-keep the Lord's commands the Lord's servant would keep their company. David
-was known to be on the godly side, he was ever of the Puritanic party: the men
-of Belial hated him for this, and no doubt despised him for keeping such
-unfashionable company as that of humble men and women who are straitlaced and
-religious; but the man of God is by no means ashamed of his associates; so far
-from this, he even glories to avow his union with them, let his enemies make
-what they can of it. He found both pleasure and profit in saintly society: he
-grew better by consorting with the good, and derived honour from keeping right
-honourable company. What says the reader? Does he relish holy society? Is he
-at home among gracious people? If so he may derive comfort from the fact.
-Birds of a feather flock together. A man is known by his company. Those who
-have no fear of God before their eyes seldom desire the society of saints; it
-is too slow, too dull for them. Be this our comfort, that when we are let go
-by death we shall go to our own company, and those who loved the saints on
-earth shall be numbered with them in heaven.
+"*I am a companion of all them that fear thee*." The last verse said, "I will," and this says, "I am." We can hardly hope to be right in the future unless we are right now. The holy man spent his nights with God and his days with God's people. Those who fear God love those who fear him, and they make small choice in their company so long as the men are truly God fearing. David was a king, and yet he consorted with "*all* " who feared the Lord, whether they were obscure or famous, poor or rich. He was a fellow commoner of the College of All saints.
 
-There is a measure of parallelism between this seventh of its octave and the
-seventh or Teth (Psa 119:71) and of Jod (Psa 119:79); but, as a rule, the
-similarities which were so manifest in earlier verses are now becoming dim. As
-the sense deepens, the artificial form of expression is less regarded.
+He did not select a few specially eminent saints and leave ordinary believers alone. No, he was glad of the society of those who had only the beginning of wisdom in the shape of "the fear of the Lord:" he was pleased to sit with them on the lower forms of the school of faith. He looked for inward godly fear, but he also expected to see outward piety in those whom he admitted to his society; hence he adds, *and of them that keep thy precepts.* If they would keep the Lord's commands the Lord's servant would keep their company. David was known to be on the godly side, he was ever of the Puritanic party: the men of Belial hated him for this, and no doubt despised him for keeping such unfashionable company as that of humble men and women who are straitlaced and religious; but the man of God is by no means ashamed of his associates; so far from this, he even glories to avow his union with them, let his enemies make what they can of it. He found both pleasure and profit in saintly society: he grew better by consorting with the good, and derived honour from keeping right honourable company. What says the reader? Does he relish holy society? Is he at home among gracious people? If so he may derive comfort from the fact. Birds of a feather flock together. A man is known by his company. Those who have no fear of God before their eyes seldom desire the society of saints; it is too slow, too dull for them. Be this our comfort, that when we are let go by death we shall go to our own company, and those who loved the saints on earth shall be numbered with them in heaven.
+
+There is a measure of parallelism between this seventh of its octave and the seventh or Teth (Psa 119:71) and of Jod (Psa 119:79); but, as a rule, the similarities which were so manifest in earlier verses are now becoming dim. As the sense deepens, the artificial form of expression is less regarded.
 
 ### Explanatory Notes and Quaint Sayings
 
-**Verse 63.** \---"_I am a companion_ " etc. He said in the first verse of
-this section that God was his portion; now he saith, that all the saints of
-God are his companions. These two go together---the love of God and the love
-of his saints. He that loveth not his brother, made in God's image, whom he
-seeth, how shall he love God whom he hath not seen? Seeing our goodness
-extends not to the Lord; if it be showed to his saints and excellent ones upon
-earth, for his sake, it shall be no small argument of our loving affection
-towards himself.
+**Verse 63 &mdash;** "*I am a companion* " etc. He said in the first verse of this section that God was his portion; now he saith, that all the saints of God are his companions. These two go together---the love of God and the love of his saints. He that loveth not his brother, made in God's image, whom he seeth, how shall he love God whom he hath not seen? Seeing our goodness extends not to the Lord; if it be showed to his saints and excellent ones upon earth, for his sake, it shall be no small argument of our loving affection towards himself. Godly David, when Jonathan was dead, made diligent inquisition. Is there none of Jonathan's posterity to whom I may show kindness for Jonathan's sake? and at length he found a silly, lame Mephibosheth. So if we enquire diligently, is there none upon earth to whom I may show kindness for Christ's sake who is in heaven? We shall ever find some, to whom whatsoever we do shall be accepted as done to himself. His great modesty is to be marked. He saith not, I am companion of all that follow thee, but of all that fear thee. The fear of God is the beginning of wisdom. He places himself among novices in humility, though he excelled ancients in piety.---*William Cowper.*
 
-Godly David, when Jonathan was dead, made diligent inquisition. Is there none
-of Jonathan's posterity to whom I may show kindness for Jonathan's sake? and
-at length he found a silly, lame Mephibosheth. So if we enquire diligently, is
-there none upon earth to whom I may show kindness for Christ's sake who is in
-heaven? We shall ever find some, to whom whatsoever we do shall be accepted as
-done to himself.
+**Verse 63 &mdash;** "*I am a companion of all them that fear thee*." How weak is human nature! Verily there are times when the presence of one so great as the Almighty becomes oppressive, and we feel our need of one like ourselves to sympathize with us. And there have been provided for us by the way many kind, sympathizing friends, like Jesus. As we pass on, we get the human supports which the Lord hath provided. We get them for fellowship too. *John Stephen*.
 
-His great modesty is to be marked. He saith not, I am companion of all that
-follow thee, but of all that fear thee. The fear of God is the beginning of
-wisdom. He places himself among novices in humility, though he excelled
-ancients in piety.---_William Cowper._
+**Verse 63 &mdash;** "*I am a companion of all them that fear thee*." Birds of a feather will flock together. Servants of the same Lord, if faithful, will join with their fellows, and not with the servants of his enemy. When a man comes to an inn you may give a notable guess for what place he is bound by the company he enquires after. His question,---"Do you know of any travelling towards London? I should be heartily glad of their company," will speak his mind and his course. If he hear of any bound for another coast he regards them not; but if he know of any honest passengers that are to ride in the same road, and set out for the same city with himself he sends to them, and begs the favour of their good company. This world is an inn, all men are in some sense pilgrims and strangers, they have no abiding place here. Now the company they enquire after, and delight in, whether those that walk in the "broad way" of the flesh, or those who walk in the "narrow way" of the Spirit, will declare whether they are going towards heaven or towards hell. A wicked man will not desire the company of them who walk in a contrary way, nor a saint delight in their society who go cross to his journey. "Can two walk together except they be agreed?" The young partridges hatched under a hen go for a time along with her chickens, and keep them company, scraping in the earth together; but when they are grown up, and their wings fit for the purpose, they mount up into the air, and seek for birds of their own nature. A Christian, before his conversion, is brought up under the prince of darkness, and walks in company with his cursed crew, according to the course of this world; but when the Spirit changes his disposition, he quickly changes his companions, and delights only in the saints that are on earth. *George Swinnock*.
 
-**Verse 63.** \---"_I am a companion of all them that fear thee_." How weak is
-human nature! Verily there are times when the presence of one so great as the
-Almighty becomes oppressive, and we feel our need of one like ourselves to
-sympathize with us. And there have been provided for us by the way many kind,
-sympathizing friends, like Jesus. As we pass on, we get the human supports
-which the Lord hath provided. We get them for fellowship too.
+**Verse 63 &mdash;** "*I am a companion of all them that fear thee*." p> 1. The person speaking. The disparity of the persons is to be observed. David, who was a great prophet, yea, a king, yet saith, "I am a companion of all them that fear thee." Christ himself called them his "fellows:" "Thy God hath anointed thee with the oil of gladness above thy fellows" (Psa 65:7); and therefore David might well say, "I am a companion." 2. The persons spoken of. David saith of "all them that fear thee." The universal particle is to be observed; not only some, but "all:" when any lighted upon him, or he upon any of them, they were welcome to him. How well would it be for the world, if the great potentates of the earth would thus think, speak, and do, "I am a companion, of all them that fear thee." Self love reigneth in most men: we love the rich and despise the poor, and so have the faith of our Lord Jesus Christ with respect of persons (Jas 2:1): therefore this universality is to be regarded. Hearing of your faith and love to all the saints (Eph 1:15), to the mean as well as the greatest. Meanness doth not take away church relations (1Co 11:20). There are many differences in worldly respects between one Christian and another; yea, in spiritual gifts, some weaker, some stronger; but we must love all; for all are children of one Father, all owned by Christ: "He is not ashamed to call them brethren" (Heb 2:11). This, I say, is observable, the disparity of the persons: on the one side, David, on the other, all the people of God. *Thomas Manton*.
 
-\---_John Stephen_.
+**Verse 63 &mdash;** "*I am a companion* " etc., as if he would say, This is a sign to me that I belong to thy family; because "I am the companion of all those fearing thee" with a filial fear, and keeping "thy precepts." *Paulus Palanterius*.
 
-**Verse 63.** \---"_I am a companion of all them that fear thee_." Birds of a
-feather will flock together. Servants of the same Lord, if faithful, will join
-with their fellows, and not with the servants of his enemy. When a man comes
-to an inn you may give a notable guess for what place he is bound by the
-company he enquires after. His question,---"Do you know of any travelling
-towards London? I should be heartily glad of their company," will speak his
-mind and his course. If he hear of any bound for another coast he regards them
-not; but if he know of any honest passengers that are to ride in the same
-road, and set out for the same city with himself he sends to them, and begs
-the favour of their good company. This world is an inn, all men are in some
-sense pilgrims and strangers, they have no abiding place here. Now the company
-they enquire after, and delight in, whether those that walk in the "broad way"
-of the flesh, or those who walk in the "narrow way" of the Spirit, will
-declare whether they are going towards heaven or towards hell. A wicked man
-will not desire the company of them who walk in a contrary way, nor a saint
-delight in their society who go cross to his journey. "Can two walk together
-except they be agreed?" The young partridges hatched under a hen go for a time
-along with her chickens, and keep them company, scraping in the earth
-together; but when they are grown up, and their wings fit for the purpose,
-they mount up into the air, and seek for birds of their own nature. A
-Christian, before his conversion, is brought up under the prince of darkness,
-and walks in company with his cursed crew, according to the course of this
-world; but when the Spirit changes his disposition, he quickly changes his
-companions, and delights only in the saints that are on earth.
+**Verse 63 &mdash;** "*A companion* " properly is such an one as I do choose to walk and converse with ordinarily in a way of friendship; so that company keeping doth imply three things; first, it is a matter of choice, and therefore relations, as such, are not properly said to be our companions; secondly, it implies a constant walking and converse with another, and so it is expressed, Job 34:8; Pro 13:20. And, thirdly, this ordinary converse or walking with another, must be in a way of friendship. *William Bridge* , 1600-1670.
 
-\---_George Swinnock_.
-
-**Verse 63.** \---"_I am a companion of all them that fear thee_." p>
-
-  1. The person speaking. The disparity of the persons is to be observed. David, who was a great prophet, yea, a king, yet saith, "I am a companion of all them that fear thee." Christ himself called them his "fellows:" "Thy God hath anointed thee with the oil of gladness above thy fellows" (Psa 65:7); and therefore David might well say, "I am a companion."
-
-  2. The persons spoken of. David saith of "all them that fear thee." The universal particle is to be observed; not only some, but "all:" when any lighted upon him, or he upon any of them, they were welcome to him. How well would it be for the world, if the great potentates of the earth would thus think, speak, and do, "I am a companion, of all them that fear thee." Self love reigneth in most men: we love the rich and despise the poor, and so have the faith of our Lord Jesus Christ with respect of persons (Jas 2:1): therefore this universality is to be regarded. Hearing of your faith and love to all the saints (Eph 1:15), to the mean as well as the greatest. Meanness doth not take away church relations (1Co 11:20). There are many differences in worldly respects between one Christian and another; yea, in spiritual gifts, some weaker, some stronger; but we must love all; for all are children of one Father, all owned by Christ: "He is not ashamed to call them brethren" (Heb 2:11).
-
-This, I say, is observable, the disparity of the persons: on the one side,
-David, on the other, all the people of God.
-
-\---_Thomas Manton_.
-
-**Verse 63.** \---"_I am a companion_ " etc., as if he would say, This is a
-sign to me that I belong to thy family; because "I am the companion of all
-those fearing thee" with a filial fear, and keeping "thy precepts."
-
-\---_Paulus Palanterius_.
-
-**Verse 63.** \---"_A companion_ " properly is such an one as I do choose to
-walk and converse with ordinarily in a way of friendship; so that company
-keeping doth imply three things; first, it is a matter of choice, and
-therefore relations, as such, are not properly said to be our companions;
-secondly, it implies a constant walking and converse with another, and so it
-is expressed, Job 34:8; Pro 13:20. And, thirdly, this ordinary converse or
-walking with another, must be in a way of friendship.
-
-\---_William Bridge_ , 1600-1670.
-
-**Verse 63.** \---Shun the company that shuns God, and keep the company that
-God keeps. Look on the society of the carnal or profane as infectious, but
-reckon serious, praying persons the excellent ones of the earth. Such will
-serve to quicken you when and warm you when cold. Make the liveliest of God's
-people your greatest intimates, and see that their love and likeness to Christ
-be the great motive of your love to them, more than their love or likeness to
-you.
-
-\---_John Willison_ , 1680-1750.
+**Verse 63 &mdash;** Shun the company that shuns God, and keep the company that God keeps. Look on the society of the carnal or profane as infectious, but reckon serious, praying persons the excellent ones of the earth. Such will serve to quicken you when and warm you when cold. Make the liveliest of God's people your greatest intimates, and see that their love and likeness to Christ be the great motive of your love to them, more than their love or likeness to you. *John Willison* , 1680-1750.
 
 ### Hints to Preachers
 
-**Verse 63.** \---
+**Verse 63 &mdash;** 1. True religion is friendly. 2. Our friendliness should be catholic. 3. Our friendliness should be discriminating. 4. Such friendliness is most useful.
 
-  1. True religion is friendly.
+**Verse 63 &mdash;** Of good and bad company. How to avoid the one, and improve the other. See *W. Bridge's Sermon* , *in his works, vol. v. p.*90. *Tegg's edition* , 1845.
 
-  2. Our friendliness should be catholic.
-
-  3. Our friendliness should be discriminating.
-
-  4. Such friendliness is most useful.
-
-**Verse 63.** \---Of good and bad company. How to avoid the one, and improve
-the other.
-
-\---See _W. Bridge's Sermon_ , *in his works, vol. v. p.*90. _Tegg's edition_
-, 1845.
-
-**Verse 63.** \---The believer's choice of companions.
-
-  1. Ought to be decided by their piety: "Them that fear thee."
-
-  2. Is directed by their conduct: "Them that keep thy precepts."
-
-  3. Should be extended as far as: possible: "All."
-
-  4. Involves reciprocal obligation: "I am a companion."
-
-\---_J.F._
+**Verse 63 &mdash;** The believer's choice of companions. 1. Ought to be decided by their piety: "Them that fear thee." 2. Is directed by their conduct: "Them that keep thy precepts." 3. Should be extended as far as: possible: "All." 4. Involves reciprocal obligation: "I am a companion." *J.F.*
 
 ## Exposition Verse 64
 
-**Verse 64.** \---"_The earth_ , _O_ LORD, _is full of thy mercy_." David had
-been exiled, but he had never been driven beyond the range of mercy, for he
-found the world to be everywhere filled with it. He had wandered in deserts
-and hidden in caves, and there he had seen and felt the loving kindness of the
-Lord. He had learned that far beyond the bounds of the land of promise and She
-race of Israel the love of Jehovah extended, and in this verse he expressed
-that large hearted idea of God which is so seldom seen in the modern Jew. How
-sweet it is to us to know that not only is there mercy all over the world, but
-there is such an abundance of it that the earth is "full" of it. It is little
-wonder that the Psalmist, since he knew the Lord to be his portion, hoped to
-obtain a measure of this mercy for himself, and so was encouraged to pray,
+> The earth, O LORD, is full of thy mercy: teach me thy statutes. 
 
-"_Teach me thy statutes_." It was to him the _beau ideal_ of mercy to be
-taught of God, and taught in God's own law. He could not think of a greater
-mercy than this. Surely he who fills the universe with his grace will grant
-such a request as this to his own child. Let us breathe the desire to the All
-merciful Jehovah, and we may be assured of its fulfilment.
+"*The earth* , *O* LORD, *is full of thy mercy*." David had been exiled, but he had never been driven beyond the range of mercy, for he found the world to be everywhere filled with it. He had wandered in deserts and hidden in caves, and there he had seen and felt the loving kindness of the Lord. He had learned that far beyond the bounds of the land of promise and She race of Israel the love of Jehovah extended, and in this verse he expressed that large hearted idea of God which is so seldom seen in the modern Jew. How sweet it is to us to know that not only is there mercy all over the world, but there is such an abundance of it that the earth is "full" of it. It is little wonder that the Psalmist, since he knew the Lord to be his portion, hoped to obtain a measure of this mercy for himself, and so was encouraged to pray,
 
-The first verse of this eight is fragrant with full assurance and strong
-resolve, and this last verse overflows with a sense of the divine fulness, and
-of the Psalmist's personal dependence. This is an illustration of the fact
-that full assurance neither damps prayer nor hinders humility. It would be no
-error if we said that it creates lowliness and suggests supplication. "Thou
-art my portion, O Lord," is well followed by "teach me;" for the heir of a
-great estate should be thoroughly educated, that his behaviour may comport
-with his fortune. What manner of disciples ought we to be whose inheritance is
-the Lord of hosts? Those who have God for their Portion long to have him for
-their Teacher. Moreover, those who have resolved to obey are the most eager to
-be taught. "I have said that I would keep thy words" is beautifully succeeded
-by "teach me thy statutes." Those who wish to keep a law are anxious to know
-all its clauses and provisions lest they should offend through inadvertence.
-He who does not care to be instructed of the Lord has never honestly resolved
-to be holy.
+"*Teach me thy statutes*." It was to him the *beau ideal* of mercy to be taught of God, and taught in God's own law. He could not think of a greater mercy than this. Surely he who fills the universe with his grace will grant such a request as this to his own child. Let us breathe the desire to the All merciful Jehovah, and we may be assured of its fulfilment.
+
+The first verse of this eight is fragrant with full assurance and strong resolve, and this last verse overflows with a sense of the divine fulness, and of the Psalmist's personal dependence. This is an illustration of the fact that full assurance neither damps prayer nor hinders humility. It would be no error if we said that it creates lowliness and suggests supplication. "Thou art my portion, O Lord," is well followed by "teach me;" for the heir of a great estate should be thoroughly educated, that his behaviour may comport with his fortune. What manner of disciples ought we to be whose inheritance is the Lord of hosts? Those who have God for their Portion long to have him for their Teacher. Moreover, those who have resolved to obey are the most eager to be taught. "I have said that I would keep thy words" is beautifully succeeded by "teach me thy statutes." Those who wish to keep a law are anxious to know all its clauses and provisions lest they should offend through inadvertence. He who does not care to be instructed of the Lord has never honestly resolved to be holy.
 
 ### Explanatory Notes and Quaint Sayings
 
-**Verse 64.** \---"_The earth_ , _O_ LORD, _is full of thy mercy_." The humble
-and devoted servant of God does not look with a jaundiced eye upon that scene
-through which he is passing to his eternal home. Amidst many sorrows and
-privations, the necessary fruits of sin, he beholds all nature and providence
-shining forth in the rich expression of God's paternal benignity and mercy to
-the children of men.
+**Verse 64 &mdash;** "*The earth* , *O* LORD, *is full of thy mercy*." The humble and devoted servant of God does not look with a jaundiced eye upon that scene through which he is passing to his eternal home. Amidst many sorrows and privations, the necessary fruits of sin, he beholds all nature and providence shining forth in the rich expression of God's paternal benignity and mercy to the children of men. *John Morison*.
 
-\---_John Morison_.
+**Verse 64 &mdash;** "*The earth* , *O* LORD, *is full of thy mercy*." The molten sea, the shewbread, the sweet incense, the smoke of the sacrifices, Aaron's breastplate, the preaching of the cross, the keys of the kingdom of heaven: do not all these proclaim mercy? Who could enter a sanctuary, search conscience, look up to heaven, pray or sacrifice, call upon God, or think of the tree of life in the midst of the paradise of God, if there were no mercy? Do not all visions, covenants, promises, messages, mysteries, legal purifications, evangelical pacification, confirm this? Yes, mercy is in the air which we breathe, the daily light which shines upon us, the gracious rain of God's inheritance; it is the public spring for all the thirsty, the common hospital for all the needy; all the streets of the church are paved with these stones. What would become of the children if there were not these breasts of consolation? How should the bride, the Lamb's wife, be trimmed, if her bridegroom did not deck her with these habiliments? How should Eden appear like the Garden of God, if it were not watered by these rivers? It is mercy that takes us out of the womb, feeds us in the days of our pilgrimage, furnishes us with spiritual provisions, closes our eyes in peace, and translates us to a secure resting place. It is the first petitioner's suit, and the first believer's article, the contemplation of Enoch, the confidence of Abraham, the burden of the Prophetic Songs, the glory of all the apostles, the plea of the penitent, the ecstasies of the reconciled, the believer's hosannah, the angel's hallelujah Ordinances, oracles, altars, pulpits, the gates of the grave, and the gates of heaven, do all depend upon mercy. It is the load star of the wandering, the ransom of the captive, the antidote of the tempted, the prophet of the living, and the effectual comfort of the dying:---there would not be one regenerate saint upon earth, nor one glorified saint in heaven, if it were not for mercy. From *G. S. Bowes's* "*Illustrative Gatherings* ," 1869.
 
-**Verse 64.** \---"_The earth_ , _O_ LORD, _is full of thy mercy_." The molten
-sea, the shewbread, the sweet incense, the smoke of the sacrifices, Aaron's
-breastplate, the preaching of the cross, the keys of the kingdom of heaven: do
-not all these proclaim mercy? Who could enter a sanctuary, search conscience,
-look up to heaven, pray or sacrifice, call upon God, or think of the tree of
-life in the midst of the paradise of God, if there were no mercy? Do not all
-visions, covenants, promises, messages, mysteries, legal purifications,
-evangelical pacification, confirm this? Yes, mercy is in the air which we
-breathe, the daily light which shines upon us, the gracious rain of God's
-inheritance; it is the public spring for all the thirsty, the common hospital
-for all the needy; all the streets of the church are paved with these stones.
-What would become of the children if there were not these breasts of
-consolation? How should the bride, the Lamb's wife, be trimmed, if her
-bridegroom did not deck her with these habiliments? How should Eden appear
-like the Garden of God, if it were not watered by these rivers? It is mercy
-that takes us out of the womb, feeds us in the days of our pilgrimage,
-furnishes us with spiritual provisions, closes our eyes in peace, and
-translates us to a secure resting place. It is the first petitioner's suit,
-and the first believer's article, the contemplation of Enoch, the confidence
-of Abraham, the burden of the Prophetic Songs, the glory of all the apostles,
-the plea of the penitent, the ecstasies of the reconciled, the believer's
-hosannah, the angel's hallelujah Ordinances, oracles, altars, pulpits, the
-gates of the grave, and the gates of heaven, do all depend upon mercy. It is
-the load star of the wandering, the ransom of the captive, the antidote of the
-tempted, the prophet of the living, and the effectual comfort of the
-dying:---there would not be one regenerate saint upon earth, nor one glorified
-saint in heaven, if it were not for mercy.
-
-\---From _G. S. Bowes's_ "_Illustrative Gatherings_ ," 1869.
-
-**Verse 64.** \---
-
-> The earth, O LORD, is full of thy mercy.  
->  Why bursts such melody from tree and bush,  
->  The overflowing of each songster's heart,  
->  So filling mine that it can scarcely hush  
->  Awhile to listen, but would take its part?  
->  It is but one song I hear where ever I rove,  
->  Though countless be the notes, that God is Love.  
->  
->  Why leaps the streamlet down the mountainside?  
->  Hasting so swiftly to the vale beneath,  
->  To cheer the shepherd's thirsty flock, or glide  
->  Where the hot sun has left a faded wreath,  
->  Or, rippling, aid the music of a grove?  
->  Its own glad voice replies, that God is Love!  
->  
->  Is it a fallen world on which I gaze?  
->  Am I as deeply fallen as the rest,  
->  Yet joys partaking, past my utmost praise,  
->  Instead of wandering forlorn, unblessed?  
->  It is as if an unseen spirit strove  
->  To grave upon my heart, that God is Love!
->
-> \---_Thomas Davis_ , 1864.
+**Verse 64 &mdash;** The earth, O LORD, is full of thy mercy. Why bursts such melody from tree and bush, The overflowing of each songster's heart, So filling mine that it can scarcely hush Awhile to listen, but would take its part? It is but one song I hear where ever I rove, Though countless be the notes, that God is Love. Why leaps the streamlet down the mountainside? Hasting so swiftly to the vale beneath, To cheer the shepherd's thirsty flock, or glide Where the hot sun has left a faded wreath, Or, rippling, aid the music of a grove? Its own glad voice replies, that God is Love! Is it a fallen world on which I gaze? Am I as deeply fallen as the rest, Yet joys partaking, past my utmost praise, Instead of wandering forlorn, unblessed? It is as if an unseen spirit strove To grave upon my heart, that God is Love! *Thomas Davis* , 1864.
 
 ### Hints to Preachers
 
-**Verse 64.** \---The sum and substance of this verse will be comprised in
-these five propositions:---
+**Verse 64 &mdash;** The sum and substance of this verse will be comprised in these five propositions:--- 1. That saving knowledge is a benefit that must be asked of God. 2. That this benefit cannot be too often or sufficiently enough asked: it is his continual request. 3. In asking, we are encouraged by the bounty or mercy of God. 4. That God is merciful all his creatures declare. 5. That his goodness to all his creatures should confirm us in: hoping for saving grace or spiritual good things. *Thomas Manton*.
 
-  1. That saving knowledge is a benefit that must be asked of God.
+**Verse 64 &mdash;** 1. Observations in the school of nature. 2. Supplications enter the school of grace.
 
-  2. That this benefit cannot be too often or sufficiently enough asked: it is his continual request.
-
-  3. In asking, we are encouraged by the bounty or mercy of God.
-
-  4. That God is merciful all his creatures declare.
-
-  5. That his goodness to all his creatures should confirm us in: hoping for saving grace or spiritual good things.
-
-\---_Thomas Manton_.
-
-**Verse 64.** \---
-
-  1. Observations in the school of nature.
-
-  2. Supplications enter the school of grace.
-
-**Verse 64.** \---The mercy of God in nature and his mercy as revealed in
-word.
-
-  1. The one excellent; the other super excellent.
-
-  2. The one easily given; the other coming through a great sacrifice.
-
-  3. The one may enjoyed, and even increase condemnation; the other, if enjoyed, is salvation.
-
-  4. The one should lead to repentance; the other is s adapted for the penitent's restoration to holiness.
-
-\---_J.F._
+**Verse 64 &mdash;** The mercy of God in nature and his mercy as revealed in word. 1. The one excellent; the other super excellent. 2. The one easily given; the other coming through a great sacrifice. 3. The one may enjoyed, and even increase condemnation; the other, if enjoyed, is salvation. 4. The one should lead to repentance; the other is s adapted for the penitent's restoration to holiness. *J.F.*
 

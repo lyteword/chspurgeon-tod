@@ -2,1402 +2,258 @@
 
 ## Exposition Verse 65
 
-In this ninth section the verses all begin with the letter Teth. They are the
-witness of experience, testifying to the goodness of God, the graciousness of
-his dealings, and the preciousness of his word. Especially the Psalmist
-proclaims the excellent uses of adversity, and the goodness of God in
-afflicting him. The sixty-fifth verse is the text of the entire octave.
+> Thou hast dealt well with thy servant, O LORD, according unto thy word. 
 
-**Verse 65.** \---"_Thou hast dealt well with thy servant, O Lord, according
-unto thy word_." This is the summary of his life, and assuredly it is the sum
-of ours. The Psalmist tells the Lord the verdict of his heart; he cannot be
-silent, he must speak his gratitude in the, presence of Jehovah, his God. From
-the universal goodness of God in nature, in Psa 119:64, it is an easy and
-pleasant step to a confession of the Lord's uniform goodness to ourselves
-personally. It is something that God has dealt at all with such insignificant
-and undeserving beings as we are, and it is far more that he has dealt well
-with us, and so well, so wondrously well. He hath done all things well: the
-rule has no exception. In providence and in grace, in giving prosperity and
-sending adversity, in everything Jehovah hath dealt well with us. It is
-dealing well on our part to tell the Lord that we feel that he hath dealt well
-with us; for praise of this kind is specially fitting and comely. This
-kindness of the Lord is, however, no chance matter: he promised to do so, and
-he has done it according to his word. It is very precious to see the word of
-the Lord fulfilled in our happy experience; it endears the Scripture to us,
-and makes us love the Lord of the Scripture. The book of providence tallies
-with the book of promise: what we read in the page of inspiration we meet with
-again in the leaves of our life story. We may not have thought that it would
-be so, but our unbelief is repented of now that we see the mercy of the Lord
-to us, and his faithfulness to his word; henceforth we are bound to display a
-firmer faith both in God and in his promise. He has spoken well, and he has
-dealt well. He is the best of Masters; for it is to a very unworthy and
-incapable servant that he has acted thus blessedly: does not this cause us to
-delight in his service more and more? We cannot say that we have dealt well
-with our Master; for when we have done all, we are unprofitable servants; but
-as for our Lord, he has given us light work, large maintenance, loving
-encouragement, and liberal wages. It is a wonder that he has not long ago
-discharged us, or at least reduced our allowances, or handled us roughly; yet
-we have had no hard dealings, all has been ordered with as much consideration
-as if we had rendered perfect obedience. We have bad bread enough and to
-spare, our livery has been duly supplied, and his service has ennobled us and
-made us happy as kings. Complaints we have none. We lose ourselves in adoring
-thanksgiving, and find ourselves again in careful thanks living.
+In this ninth section the verses all begin with the letter Teth. They are the witness of experience, testifying to the goodness of God, the graciousness of his dealings, and the preciousness of his word. Especially the Psalmist proclaims the excellent uses of adversity, and the goodness of God in afflicting him. The sixty-fifth verse is the text of the entire octave.
+
+"*Thou hast dealt well with thy servant, O Lord, according unto thy word*." This is the summary of his life, and assuredly it is the sum of ours. The Psalmist tells the Lord the verdict of his heart; he cannot be silent, he must speak his gratitude in the, presence of Jehovah, his God. From the universal goodness of God in nature, in Psa 119:64, it is an easy and pleasant step to a confession of the Lord's uniform goodness to ourselves personally. It is something that God has dealt at all with such insignificant and undeserving beings as we are, and it is far more that he has dealt well with us, and so well, so wondrously well. He hath done all things well: the rule has no exception. In providence and in grace, in giving prosperity and sending adversity, in everything Jehovah hath dealt well with us. It is dealing well on our part to tell the Lord that we feel that he hath dealt well with us; for praise of this kind is specially fitting and comely. This kindness of the Lord is, however, no chance matter: he promised to do so, and he has done it according to his word. It is very precious to see the word of the Lord fulfilled in our happy experience; it endears the Scripture to us, and makes us love the Lord of the Scripture. The book of providence tallies with the book of promise: what we read in the page of inspiration we meet with again in the leaves of our life story. We may not have thought that it would be so, but our unbelief is repented of now that we see the mercy of the Lord to us, and his faithfulness to his word; henceforth we are bound to display a firmer faith both in God and in his promise. He has spoken well, and he has dealt well. He is the best of Masters; for it is to a very unworthy and incapable servant that he has acted thus blessedly: does not this cause us to delight in his service more and more? We cannot say that we have dealt well with our Master; for when we have done all, we are unprofitable servants; but as for our Lord, he has given us light work, large maintenance, loving encouragement, and liberal wages. It is a wonder that he has not long ago discharged us, or at least reduced our allowances, or handled us roughly; yet we have had no hard dealings, all has been ordered with as much consideration as if we had rendered perfect obedience. We have bad bread enough and to spare, our livery has been duly supplied, and his service has ennobled us and made us happy as kings. Complaints we have none. We lose ourselves in adoring thanksgiving, and find ourselves again in careful thanks living.
 
 ### Explanatory Notes and Quaint Sayings
 
-**TETH.** \---In the original each stanza begins with 'T', and in our own
-version it is so in all but Psa 119:67, 70, which can easily be made to do so
-by reading, "Till I was afflicted," and "It is good for me that I have been
-afflicted."
+**TETH &mdash;** In the original each stanza begins with 'T', and in our own version it is so in all but Psa 119:67, 70, which can easily be made to do so by reading, "Till I was afflicted," and "It is good for me that I have been afflicted." *C. H. S.*
 
-\---_C. H. S._
+**Verse 65 &mdash;** "*Thou hast dealt well with thy servant, Lord*." 1. The party dealing is God himself: all good is to be referred to God as the author of it. 2. The benefit received is generally expressed, "Thou hast dealt well." Some translate it out of the Hebrew, "*Bonum fecisti* ," thou hast done good with thy servant; the Septuagint, Χ *ρηστότητα ἑποίησας μετα του δουλου σου* , thou hast made goodness to or with thy servant; out of them, the Vulgate, "*Bonitatern fecisti* ". Some take this clause generally, "Whatever thou dost for thy servants is good:" they count it so, though it be never so contrary to the interest of the flesh: sickness is good, loss of friends is good; and so are poverty and loss of goods, to an humble and thankful mind. But surely David speaketh here of some supply and deliverance wherein God had made good some promise to him. The Jewish rabbis understand it of his return to the kingdom; but most Christian writers understand it of some spiritual benefit; that good which God had done to him. If anything may be collected from the subsequent verses, it was certainly some spiritual good. The Septuagint repeats *χρηστότητα* twice in this and the following verse, as if he acknowledged the benefit of that good judgment and knowledge of which there he begs an increase. It was in part given him already, and that learned by afflictions, as we see, in the third verse of this portion: "Before I was afflicted, I went astray, but now have I kept thy word." His prayer is---Now, then, go on to increase this work, this goodness which thou hast shown to thy servant. 3. The object, *thy servant* :" it is an honourable, comfortable style; David delighted in it. God is a bountiful and a gracious master, ready to do good to his servants, rewarding them with grace here, and crowning that grace with glory hereafter: "He that cometh to God, must believe that he is, and that he is a rewarder of them that diligently seek him" (Heb 11:6). *Thomas Manton*.
 
-**Verse 65.** \---"_Thou hast dealt well with thy servant, Lord_."
+**Verse 65 &mdash;** "*Thou hast dealt well*." If the children of God did but know what was best for them, they would perceive that God did that which was best for them. *John Mason*.
 
-  1. The party dealing is God himself: all good is to be referred to God as the author of it.
+**Verse 65 &mdash;** "*Thou hast dealt well with thy servant*." He knew that God's gifts are without repentance, and that he is not weary of well doing, but will finish the thing he hath begun; and therefore he pleads past favours. Nothing is more forcible to obtain mercy than to lay God's former mercies before him. Here are two grounds, First. If he dealt well with him when he was not regenerate, how much more will he now? and Secondly, all the gifts of God shall be perfectly finished, therefore he will go on to deal well with his servant. Here is a difference between faith and an accusing conscience: the accusing conscience is afraid to ask more, because it hath abused the former mercies: but faith, assuring us that all God's benefits are tokens of his love bestowed on us according to his word, is bold to ask for more. *Richard Greenham*.
 
-  2. The benefit received is generally expressed, "Thou hast dealt well." Some translate it out of the Hebrew, "_Bonum fecisti_ ," thou hast done good with thy servant; the Septuagint, Χ _ρηστότητα ἑποίησας μετα του δουλου σου_ , thou hast made goodness to or with thy servant; out of them, the Vulgate, "_Bonitatern fecisti_ ". Some take this clause generally, "Whatever thou dost for thy servants is good:" they count it so, though it be never so contrary to the interest of the flesh: sickness is good, loss of friends is good; and so are poverty and loss of goods, to an humble and thankful mind. But surely David speaketh here of some supply and deliverance wherein God had made good some promise to him. The Jewish rabbis understand it of his return to the kingdom; but most Christian writers understand it of some spiritual benefit; that good which God had done to him. If anything may be collected from the subsequent verses, it was certainly some spiritual good. The Septuagint repeats _χρηστότητα_ twice in this and the following verse, as if he acknowledged the benefit of that good judgment and knowledge of which there he begs an increase. It was in part given him already, and that learned by afflictions, as we see, in the third verse of this portion: "Before I was afflicted, I went astray, but now have I kept thy word." His prayer is---Now, then, go on to increase this work, this goodness which thou hast shown to thy servant.
+**Verse 65 &mdash;** "*Thou hast dealt well with thy servant*." No doubt," said the late Rev. J. Brown, of Haddington, Scotland. "I have met with trials as well as others; yet so kind has God been to me, that I think if he were to give me as many years as I have already lived in the world, I should not desire one single circumstance in my lot changed, except that I wish I had less sin. It might be written on my coffin, 'Here lies one of the cares of Providence, who early wanted both father and mother, and yet never missed them.'" *Arvine's Anecdotes*.
 
-  3. The object, _thy servant_ :" it is an honourable, comfortable style; David delighted in it. God is a bountiful and a gracious master, ready to do good to his servants, rewarding them with grace here, and crowning that grace with glory hereafter: "He that cometh to God, must believe that he is, and that he is a rewarder of them that diligently seek him" (Heb 11:6).
-
-\---_Thomas Manton_.
-
-**Verse 65.** \---"_Thou hast dealt well_." If the children of God did but
-know what was best for them, they would perceive that God did that which was
-best for them.
-
-\---_John Mason_.
-
-**Verse 65.** \---"_Thou hast dealt well with thy servant_." He knew that
-God's gifts are without repentance, and that he is not weary of well doing,
-but will finish the thing he hath begun; and therefore he pleads past favours.
-Nothing is more forcible to obtain mercy than to lay God's former mercies
-before him. Here are two grounds, First. If he dealt well with him when he was
-not regenerate, how much more will he now? and Secondly, all the gifts of God
-shall be perfectly finished, therefore he will go on to deal well with his
-servant. Here is a difference between faith and an accusing conscience: the
-accusing conscience is afraid to ask more, because it hath abused the former
-mercies: but faith, assuring us that all God's benefits are tokens of his love
-bestowed on us according to his word, is bold to ask for more.
-
-\---_Richard Greenham_.
-
-**Verse 65.** \---"_Thou hast dealt well with thy servant_." No doubt," said
-the late Rev. J. Brown, of Haddington, Scotland. "I have met with trials as
-well as others; yet so kind has God been to me, that I think if he were to
-give me as many years as I have already lived in the world, I should not
-desire one single circumstance in my lot changed, except that I wish I had
-less sin. It might be written on my coffin, 'Here lies one of the cares of
-Providence, who early wanted both father and mother, and yet never missed
-them.'"
-
-\---_Arvine's Anecdotes_.
-
-**Verse 65.** \---"_Thou hast dealt well with thy servant, O Lord, according
-unto thy word_." The expression, "according to thy word," is so often repeated
-in this psalm, that we are apt to overlook it, or to give it only the general
-meaning of "because of thy promise." But in reality it implies much more. Had
-God dealt "well" with David according to man's idea? If so, what mean such
-expressions as these---"O forsake me not utterly," (Psa 119:8)---"I am a
-stranger in the earth," (Psa 119:19)---"My soul cleaveth unto the dust," (Psa
-119:25)---"My soul melteth for heaviness," (Psa 119:28)---"Turn away my
-reproach which I fear," (Psa 119:39)---"The proud have had me greatly in
-derision," (Psa 119:51)---"Horror hath taken hold upon me" (Psa 119:53)?
-
-In view of such passages as these, can it be said that God "dealt well" with
-David, according to man's idea? David's experience was one of very great and
-very varied trial. There is not a phase of our feelings in sorrow which does
-not find ample expression in his psalms. And yet he says, "Thou hast dealt
-well with thy servant, according to thy word."
-
-How, then, are we to interpret the expression, so often repeated here, in
-accordance with the facts of David's spiritual life?
-
-God dealt well with him "_according to his word_ ," in the sense of dealing
-with him according to what his word explained was the true good---not
-delivering him from all trial, but sending him such trial as he specially
-required. He felt truly that God had dealt well with him when he could say
-(Psa 119:67), "Before I was afflicted I went astray, but now have I kept thy
-word." Again, (Psa 119:71), "It is good for me that I have been afflicted,
-that I might learn thy statutes." Such dealing was hard for flesh and blood to
-bear, but it was indeed "well," in the sense of accomplishing most blessed
-results.
-
-It was "_according to his word_ " too, in the sense of being in accordance
-with his revealed manner of dealing with his people, who are chastened for
-their profit.
-
-Again, God had "dealt well" with David according to his word or covenant; the
-present fulfilment (even if in itself bitter) being a sure earnest of his
-final perfecting of his work, and glorifying himself in the entire fulfilment
-of his word, in the completed salvation of his servant.
-
-According to thy word, O Lord, thou hast dealt well with thy servant. Thy word
-is the light and lamp that shows things in their true aspect, and teaches us
-to know that all things work together for good to thy people; that thou doest
-all things well. "Open thou mine eyes, O Lord, that I may see wondrous things
-out of thy law." What can be more wonderful than such views to our eyes?
-
-"_According to thy word_ " not only "_because of thy promise_ ," but in such a
-manner and measure as thy word declares. See how such an understanding of the
-expression opens out the idea of "_Be merciful to me according to thy word_ "
-(Psa 119:58). All the sweet promises and declarations of God's infinite mercy
-rise before us, and make it a vast request. Again, "Quicken thou me," and
-"strengthen thou me according to thy word"---up to the full measure of what
-thou hast promised and provided for thy people. See the fulness in this view,
-of Psa 119:76, "_Let, I pray thee, thy merciful kindness be for my comfort,
-according to thy word_." Again, Psa 119:169, "_Give me understanding according
-to thy word_ ;" Psa 119:170, "_Deliver me according to thy word_." In each of
-these we are led to feel that the request includes the thought of all that the
-word teaches on the subject.
-
-Let our prayer then for mercy, and strength, and comfort, and understanding,
-and deliverance, ever be a prayer for these, in the full measure in which they
-are revealed and promised in the word of God.
-
-\---_Mary B. M. Duncan_ (1825-1865), _in_ "_Under the Shadow_ "
+**Verse 65 &mdash;** "*Thou hast dealt well with thy servant, O Lord, according unto thy word*." The expression, "according to thy word," is so often repeated in this psalm, that we are apt to overlook it, or to give it only the general meaning of "because of thy promise." But in reality it implies much more. Had God dealt "well" with David according to man's idea? If so, what mean such expressions as these---"O forsake me not utterly," (Psa 119:8)---"I am a stranger in the earth," (Psa 119:19)---"My soul cleaveth unto the dust," (Psa 119:25)---"My soul melteth for heaviness," (Psa 119:28)---"Turn away my reproach which I fear," (Psa 119:39)---"The proud have had me greatly in derision," (Psa 119:51)---"Horror hath taken hold upon me" (Psa 119:53)? In view of such passages as these, can it be said that God "dealt well" with David, according to man's idea? David's experience was one of very great and very varied trial. There is not a phase of our feelings in sorrow which does not find ample expression in his psalms. And yet he says, "Thou hast dealt well with thy servant, according to thy word." How, then, are we to interpret the expression, so often repeated here, in accordance with the facts of David's spiritual life? God dealt well with him "*according to his word* ," in the sense of dealing with him according to what his word explained was the true good---not delivering him from all trial, but sending him such trial as he specially required. He felt truly that God had dealt well with him when he could say (Psa 119:67), "Before I was afflicted I went astray, but now have I kept thy word." Again, (Psa 119:71), "It is good for me that I have been afflicted, that I might learn thy statutes." Such dealing was hard for flesh and blood to bear, but it was indeed "well," in the sense of accomplishing most blessed results. It was "*according to his word* " too, in the sense of being in accordance with his revealed manner of dealing with his people, who are chastened for their profit. Again, God had "dealt well" with David according to his word or covenant; the present fulfilment (even if in itself bitter) being a sure earnest of his final perfecting of his work, and glorifying himself in the entire fulfilment of his word, in the completed salvation of his servant. According to thy word, O Lord, thou hast dealt well with thy servant. Thy word is the light and lamp that shows things in their true aspect, and teaches us to know that all things work together for good to thy people; that thou doest all things well. "Open thou mine eyes, O Lord, that I may see wondrous things out of thy law." What can be more wonderful than such views to our eyes? "*According to thy word* " not only "*because of thy promise* ," but in such a manner and measure as thy word declares. See how such an understanding of the expression opens out the idea of "*Be merciful to me according to thy word* " (Psa 119:58). All the sweet promises and declarations of God's infinite mercy rise before us, and make it a vast request. Again, "Quicken thou me," and "strengthen thou me according to thy word"---up to the full measure of what thou hast promised and provided for thy people. See the fulness in this view, of Psa 119:76, "*Let, I pray thee, thy merciful kindness be for my comfort, according to thy word*." Again, Psa 119:169, "*Give me understanding according to thy word* ;" Psa 119:170, "*Deliver me according to thy word*." In each of these we are led to feel that the request includes the thought of all that the word teaches on the subject. Let our prayer then for mercy, and strength, and comfort, and understanding, and deliverance, ever be a prayer for these, in the full measure in which they are revealed and promised in the word of God. *Mary B. M. Duncan* (1825-1865), *in* "*Under the Shadow* "
 
 ### Hints to Preachers
 
-**Verses 65-72.** \---The Lord's dealings. Gratefully acknowledged (Psa
-119:65), and their instructiveness still desired (Psa 119:66), even affliction
-from him is "good" (Psa 119:67-68), and with its beneficial result is
-preferred to the prosperity of the wicked (Psa 119:69-72).
+**Verses 65-72 &mdash;** The Lord's dealings. Gratefully acknowledged (Psa 119:65), and their instructiveness still desired (Psa 119:66), even affliction from him is "good" (Psa 119:67-68), and with its beneficial result is preferred to the prosperity of the wicked (Psa 119:69-72). *Outlines Upon Keywords of the Psalm* , *by Pastor C. A. Davis*.
 
-\---_Outlines Upon Keywords of the Psalm_ , _by Pastor C. A. Davis_.
+**Verse 65 &mdash;** The servant giving his master a character; or, tallying with Scripture: two fruitful themes.
 
-**Verse 65.** \---The servant giving his master a character; or, tallying with
-Scripture: two fruitful themes.
+**Verse 65 &mdash;** 1. Experience confirmed by the word. 2. The word by experience. *G. R.*
 
-**Verse 65.** \---
-
-  1. Experience confirmed by the word.
-
-  2. The word by experience.
-
-\---_G. R._
-
-**Verse 65.** \---A servant's story.
-
-  1. Although he knew my faults he engaged me.
-
-  2. Although I am so far beneath him, yet he familiarly teaches me.
-
-  3. Although I am always ailing, he is very kind to me in my afflictions.
-
-  4. Although I am one of the meanest of his servants, he permits me to feast at his own table.
-
-  5. Although I do little work, he will pay me good
-
-  6. Although I am to have such great wages, I have very many perquisites.
-
-  7. Although my Master is all this to me (can you believe it?) I murmur and repine at him if he crosses me in anything. Application:---
-
-a. Does the word: "servant" sound like a misnomer?---"not servants ...but I
-have called you friends."
-
-b. Though he calls me "friend," I shall never cease to call him "Master."
-
-\---_Richard Andrew Griffin_ , _in_ "_Stems and Twigs_."
+**Verse 65 &mdash;** A servant's story. 1. Although he knew my faults he engaged me. 2. Although I am so far beneath him, yet he familiarly teaches me. 3. Although I am always ailing, he is very kind to me in my afflictions. 4. Although I am one of the meanest of his servants, he permits me to feast at his own table. 5. Although I do little work, he will pay me good 6. Although I am to have such great wages, I have very many perquisites. 7. Although my Master is all this to me (can you believe it?) I murmur and repine at him if he crosses me in anything. Application:--- a. Does the word: "servant" sound like a misnomer?---"not servants ...but I have called you friends." b. Though he calls me "friend," I shall never cease to call him "Master." *Richard Andrew Griffin* , *in* "*Stems and Twigs*."
 
 ## Exposition Verse 66
 
-**Verse 66.** \---"_Teach me good judgment and knowledge_." Again he begs for
-teaching, as in verse 64, and again he uses God's mercy as an argument. Since
-God had dealt well with him, he is encouraged to pray for judgment to
-appreciate the Lord's goodness. Good judgment is the form of goodness which
-the godly man most needs and most desires, and it is one which the Lord is
-most ready to bestow. David felt that he had frequently failed in judgment in
-the matter of the Lord's dealings with him: from want of knowledge he had
-misjudged the chastening hand of the heavenly Father, and therefore he now
-asks to be better instructed, since he perceives the injustice which he had
-done to the Lord by his hasty conclusions. He means to say---Lord, thou didst
-deal well with me when I thought thee hard and stern, be pleased to give me
-more wit, that I may not a second time think so ill of my Lord. A sight of our
-errors and a sense of our ignorance should make us teachable. We are not able
-to judge, for our knowledge is so sadly inaccurate and imperfect; if the Lord
-teaches us knowledge we shall attain to good judgment, but not otherwise. The
-Holy Ghost alone can fill us with light, and set the understanding upon a
-proper balance: let us ardently long for his teachings, since it is most
-desirable that we should be no longer mere children in knowledge and
-understanding.
+> Teach me good judgment and knowledge: for I have believed thy commandments. 
 
-"_For I have believed thy commandments_." His heart was right, and therefore
-he hoped his head would be made right. He had faith, and therefore he hoped to
-receive wisdom. His mind had been settled in the conviction that the precepts
-of the word were from the Lord, and were therefore just, wise, kind, and
-profitable; he believed in holiness, and as that belief is no mean work of
-grace upon the soul, he looked for yet further operations of divine grace. He
-who believes the commands is the man to know and understand the doctrines and
-the promises. If in looking back upon our mistakes and ignorance we can yet
-see that we heartily loved the precepts of the divine will, we have good
-reason to hope that we are Christ's disciples, and that he will teach us and
-make us men of good judgment and sound knowledge. A man who has learned
-discernment by experience, and has thus become a man of sound judgment, is a
-valuable member of a church, and the means of much edification to others. Let
-all who would be greatly useful offer the prayer of this verse: "Teach me good
-judgment and knowledge."
+"*Teach me good judgment and knowledge*." Again he begs for teaching, as in verse 64, and again he uses God's mercy as an argument. Since God had dealt well with him, he is encouraged to pray for judgment to appreciate the Lord's goodness. Good judgment is the form of goodness which the godly man most needs and most desires, and it is one which the Lord is most ready to bestow. David felt that he had frequently failed in judgment in the matter of the Lord's dealings with him: from want of knowledge he had misjudged the chastening hand of the heavenly Father, and therefore he now asks to be better instructed, since he perceives the injustice which he had done to the Lord by his hasty conclusions. He means to say---Lord, thou didst deal well with me when I thought thee hard and stern, be pleased to give me more wit, that I may not a second time think so ill of my Lord. A sight of our errors and a sense of our ignorance should make us teachable. We are not able to judge, for our knowledge is so sadly inaccurate and imperfect; if the Lord teaches us knowledge we shall attain to good judgment, but not otherwise. The Holy Ghost alone can fill us with light, and set the understanding upon a proper balance: let us ardently long for his teachings, since it is most desirable that we should be no longer mere children in knowledge and understanding.
+
+"*For I have believed thy commandments*." His heart was right, and therefore he hoped his head would be made right. He had faith, and therefore he hoped to receive wisdom. His mind had been settled in the conviction that the precepts of the word were from the Lord, and were therefore just, wise, kind, and profitable; he believed in holiness, and as that belief is no mean work of grace upon the soul, he looked for yet further operations of divine grace. He who believes the commands is the man to know and understand the doctrines and the promises. If in looking back upon our mistakes and ignorance we can yet see that we heartily loved the precepts of the divine will, we have good reason to hope that we are Christ's disciples, and that he will teach us and make us men of good judgment and sound knowledge. A man who has learned discernment by experience, and has thus become a man of sound judgment, is a valuable member of a church, and the means of much edification to others. Let all who would be greatly useful offer the prayer of this verse: "Teach me good judgment and knowledge."
 
 ### Explanatory Notes and Quaint Sayings
 
-**Verse 66.** \---"_Teach me good judgment_ ," etc. David, who discovered a
-holy taste (Psa 19:10; 104:34; 119:103) and recommended it to others (Psa
-34:8), requests in our text to have it increased. For the word rendered
-"judgment," properly signifies taste, and denotes that relish for divine
-truth, and for the divine goodness and holiness, which is peculiar to true
-saints. I propose therefore to consider the nature and objects of that
-spiritual taste which is possessed by every gracious soul, and which all true
-saints desire to possess in a still greater degree.
+**Verse 66 &mdash;** "*Teach me good judgment* ," etc. David, who discovered a holy taste (Psa 19:10; 104:34; 119:103) and recommended it to others (Psa 34:8), requests in our text to have it increased. For the word rendered "judgment," properly signifies taste, and denotes that relish for divine truth, and for the divine goodness and holiness, which is peculiar to true saints. I propose therefore to consider the nature and objects of that spiritual taste which is possessed by every gracious soul, and which all true saints desire to possess in a still greater degree. The original word, which is often applied to those objects of sense which are distinguished by the palate, is here used in a metaphorical sense, as the corresponding term frequently is in our own language. "*Doth not the ear try words? and the mouth taste his meat*?" (Job 12:11). Our translators in this place render it, "judgment," which is nearly the same thing; yet as the terms are applied among us, there is a difference between them. Taste is that which enables a man to form a more compendious judgment. Judgment is slower in its operations than taste; it forms its decisions in a more circuitous way. So we apply the term taste to many objects of mental decision, to the beauty of a poem, to excellence of style, to elegance of dress or of deportment, to painting, to music, etc., in which a good taste will lead those who possess it, to decide speedily, and yet accurately, on the beauty, excellence, and propriety of the objects with which it has long been conversant without laborious examination. Just so, true saints have a power of receiving pleasure from the beauty of holiness, which shines forth resplendently in the word of God, in the divine character, in the law, in the gospel, in the cross of Christ, in the example of Christ, and in the conduct of all his true followers, so far as they are conformed to his lovely image. I do not mean by this that they are influenced by a blind instinct, for which they can assign no sufficient reason: the genuine feelings of a true Christian can all of them be justified by the soundest reason: but those feelings which were first produced by renewing grace, are so strengthened by daily communion with God, and by frequent contemplation of spiritual things, that they acquire a delicacy and readiness of perception, which no one can possess who has never tasted how gracious the Lord is. You cannot touch, as it were, a certain string, but the renewed heart must needs answer to it. Whatever truly tends to exalt God, to bring the soul near to him, and to insure his being glorified and enjoyed, will naturally attract the notice, excite the affections, and influence the conduct of one who is born of God. "*Sweeter also than honey, and the honeycomb*." "*My meditation of thee shall be sweet*." "*How sweet are thy words to my taste! sweeter than honey to my mouth*." "*O taste and see that the Lord is good*." *John Ryland* , 1753-1825.
 
-The original word, which is often applied to those objects of sense which are
-distinguished by the palate, is here used in a metaphorical sense, as the
-corresponding term frequently is in our own language. "_Doth not the ear try
-words? and the mouth taste his meat_?" (Job 12:11). Our translators in this
-place render it, "judgment," which is nearly the same thing; yet as the terms
-are applied among us, there is a difference between them. Taste is that which
-enables a man to form a more compendious judgment. Judgment is slower in its
-operations than taste; it forms its decisions in a more circuitous way. So we
-apply the term taste to many objects of mental decision, to the beauty of a
-poem, to excellence of style, to elegance of dress or of deportment, to
-painting, to music, etc., in which a good taste will lead those who possess
-it, to decide speedily, and yet accurately, on the beauty, excellence, and
-propriety of the objects with which it has long been conversant without
-laborious examination.
+**Verse 66 &mdash;** "*Teach me good judgment and knowledge* ," etc. Literally it may be rendered thus,---Teach me goodness, discernment and knowledge; for I have believed or confided in thy commandments. In our system of divine things, we might be inclined to place knowledge and discernment first, as begetting the "goodness." But it is a well ascertained fact, that the intellectual and moral powers are reciprocal---that the moral also give strength to the intellectual. Moreover, it is only the spiritual man that discerns the things of God. The state of being spiritually minded, and also conversant with divine things, gives a rigour and breadth to the intellect itself, that remarkably appears in the lives of eminent men. And if you remark that some have been eminent who were devoid of spiritual qualities, the reply might be---How much more eminent would they have been had they possessed these qualities. The petition is, "Teach me goodness, discernment, and knowledge." The principle of pleasing God may be within, and yet the mind may require to be enlightened in all duty; and again, though all duty be known, we may require spiritual discernment to see and feel it aright. *John Stephen*.
 
-Just so, true saints have a power of receiving pleasure from the beauty of
-holiness, which shines forth resplendently in the word of God, in the divine
-character, in the law, in the gospel, in the cross of Christ, in the example
-of Christ, and in the conduct of all his true followers, so far as they are
-conformed to his lovely image. I do not mean by this that they are influenced
-by a blind instinct, for which they can assign no sufficient reason: the
-genuine feelings of a true Christian can all of them be justified by the
-soundest reason: but those feelings which were first produced by renewing
-grace, are so strengthened by daily communion with God, and by frequent
-contemplation of spiritual things, that they acquire a delicacy and readiness
-of perception, which no one can possess who has never tasted how gracious the
-Lord is. You cannot touch, as it were, a certain string, but the renewed heart
-must needs answer to it. Whatever truly tends to exalt God, to bring the soul
-near to him, and to insure his being glorified and enjoyed, will naturally
-attract the notice, excite the affections, and influence the conduct of one
-who is born of God. "_Sweeter also than honey, and the honeycomb_." "_My
-meditation of thee shall be sweet_." "_How sweet are thy words to my taste!
-sweeter than honey to my mouth_." "_O taste and see that the Lord is good_."
+**Verse 66 &mdash;** "*Teach me good judgment*." In a lecture of Sir John Lubbock's *on the fertilization of flowers by the agency of insects* , a striking distinction is noted in regard to this operation between beautiful and hideous plants. Bees, it would appear, delight in pleasant odours and bright colours, and invariably choose those plants which give pleasure to man. If we watch the course of these insects on their visit to a garden, we shall observe them settling upon the rose, the lavender, and all other similar agreeable flowers of brilliant hues or sweet scent. In marked contrast with this is the conduct of flies, which always show a preference for livid yellow or dingy red plants, and those which possess an unpleasant smell. The bee is a creature of fine and sensitive tastes. The fly is "a species of insectoid vulture," naturally turning to such vegetable food as resembles carrion. Let two plates be placed on a lawn, at a little distance apart, the one containing that ill scented underground fungus, the Stink horn, and the other a handful of moss roses, and this difference will be immediately discerned. The foul odour and unsightly fungus will soon be covered with flies, while the bees will resort to the plate of roses. To this love of bees for fine colours and fragrant perfumes we are indebted for our choicest flowers. For by taking the pollen dust of some conspicuous flower to the stigma of another, they have by this union produced the seed of a still richer variety. Thus, age after age, many blossoms have been growing increasingly beautiful. On the other hand, strange to say, through a similar process, a progress in the opposite direction has taken place in those plants which are frequented by flies, and their unwholesome and repulsive qualities have become intensified. So is it with the two great classes into which mankind may be divided---the men of this world, and the men of the next. While the purified affections of the one centre continually on "whatsoever things are honest, whatsoever things are just, whatsoever things are pure, whatsoever things are lovely, whatsoever things are of good report," so the earthward and vile affections of the other fasten on corruption. Not more surely does the laborious bee fly from one beautiful flower to another, than does the Christian seek of set purpose all that is fairest, sweetest, and best on earth. His prayer is that of David, in Psa 119:66, "*Teach me good taste* " (which is the literal translation); and "*if there be any virtue, and if there be any praise* ," he thinks on these things. *James Neil* , *in* "*Rays from the Realms of Nature* ," 1879.
 
-\---_John Ryland_ , 1753-1825.
+**Verse 66 &mdash;** "*Good judgment and knowledge*." No blessings are more suitable than "good judgment and knowledge"---"knowledge" of ourselves, of our Saviour, of the way of obedience---and "good judgment" to direct and apply this knowledge to some valuable end. These two parts of our intellectual furniture have a most important connexion and dependence upon each other. "Knowledge" is the speculative perception of general truth. "Judgment" is the practical application of it to the heart and conduct. *Charles Bridges*.
 
-**Verse 66.** \---"_Teach me good judgment and knowledge_ ," etc. Literally it
-may be rendered thus,---Teach me goodness, discernment and knowledge; for I
-have believed or confided in thy commandments. In our system of divine things,
-we might be inclined to place knowledge and discernment first, as begetting
-the "goodness." But it is a well ascertained fact, that the intellectual and
-moral powers are reciprocal---that the moral also give strength to the
-intellectual. Moreover, it is only the spiritual man that discerns the things
-of God. The state of being spiritually minded, and also conversant with divine
-things, gives a rigour and breadth to the intellect itself, that remarkably
-appears in the lives of eminent men. And if you remark that some have been
-eminent who were devoid of spiritual qualities, the reply might be---How much
-more eminent would they have been had they possessed these qualities. The
-petition is, "Teach me goodness, discernment, and knowledge." The principle of
-pleasing God may be within, and yet the mind may require to be enlightened in
-all duty; and again, though all duty be known, we may require spiritual
-discernment to see and feel it aright.
+**Verse 66 &mdash;** "*For I have believed thy commandments*." These words deserve a little consideration, because believing is here joined to an unusual object. Had it been, "for I have believed thy promises, "or, "obeyed thy commandments, "the sense of the clause had been more obvious to every vulgar apprehension. To believe commandments, sounds as harsh to a common ear, as to see with the ear, and hear with the eye; but, for all this, the commandments are the object; and of them he saith, not, "I have obeyed;" but, "I have believed." To take off the seeming asperity of the phrase, some interpreters conceive that "commandments" is put for the word in general; and so promises are included, yea, they think, principally intended, especially those promises which encouraged him to look to God for necessary things, such as good judgment and knowledge are. But this interpretation would divert us from the weight and force of these significant words. Therefore let us note,--- 1. Certainly there is a faith in the commandments, as well as in the promises. We must believe that God is their author, and that they are the expressions of his commanding and legislative will, which we are bound to obey. Faith must discern the sovereignty and goodness of the law maker and believe that his commands are holy, just, and good; it must also teach us that God loves those who keep his law and is angry with those who transgress, and that he will see to it that His law is vindicated at the last great day. 2. Faith in the commandments is as necessary as faith in the promises; for, as the promises are not esteemed, embraced, and improved, unless they are believed to be of God, so neither are the precepts: they do not sway the conscience, nor incline the affections, except as they are believed to be divine. 3. Faith in the commands must be as lively as faith in the promises. As the promises are not believed with a lively faith, unless they draw off the heart from carnal vanities to seek that happiness which they offer to us; so the precepts are not believed rightly, unless we be fully resolved to acquiesce in them as the only rule to guide us in obtaining that happiness, and unless we are determined to adhere to them, and obey them. As the king's laws are not kept as soon as they are believed to be the king's laws, unless also, upon the consideration of his authority and power, we subject ourselves to them; so this believing notes a ready alacrity to hear God's voice and obey it, and to govern our hearts and actions according to his counsel and direction in the word. *Thomas Manton*.
 
-\---_John Stephen_.
-
-**Verse 66.** \---"_Teach me good judgment_." In a lecture of Sir John
-Lubbock's _on the fertilization of flowers by the agency of insects_ , a
-striking distinction is noted in regard to this operation between beautiful
-and hideous plants. Bees, it would appear, delight in pleasant odours and
-bright colours, and invariably choose those plants which give pleasure to man.
-If we watch the course of these insects on their visit to a garden, we shall
-observe them settling upon the rose, the lavender, and all other similar
-agreeable flowers of brilliant hues or sweet scent. In marked contrast with
-this is the conduct of flies, which always show a preference for livid yellow
-or dingy red plants, and those which possess an unpleasant smell. The bee is a
-creature of fine and sensitive tastes. The fly is "a species of insectoid
-vulture," naturally turning to such vegetable food as resembles carrion. Let
-two plates be placed on a lawn, at a little distance apart, the one containing
-that ill scented underground fungus, the Stink horn, and the other a handful
-of moss roses, and this difference will be immediately discerned. The foul
-odour and unsightly fungus will soon be covered with flies, while the bees
-will resort to the plate of roses. To this love of bees for fine colours and
-fragrant perfumes we are indebted for our choicest flowers. For by taking the
-pollen dust of some conspicuous flower to the stigma of another, they have by
-this union produced the seed of a still richer variety. Thus, age after age,
-many blossoms have been growing increasingly beautiful. On the other hand,
-strange to say, through a similar process, a progress in the opposite
-direction has taken place in those plants which are frequented by flies, and
-their unwholesome and repulsive qualities have become intensified.
-
-So is it with the two great classes into which mankind may be divided---the
-men of this world, and the men of the next. While the purified affections of
-the one centre continually on "whatsoever things are honest, whatsoever things
-are just, whatsoever things are pure, whatsoever things are lovely, whatsoever
-things are of good report," so the earthward and vile affections of the other
-fasten on corruption. Not more surely does the laborious bee fly from one
-beautiful flower to another, than does the Christian seek of set purpose all
-that is fairest, sweetest, and best on earth. His prayer is that of David, in
-Psa 119:66, "_Teach me good taste_ " (which is the literal translation); and
-"_if there be any virtue, and if there be any praise_ ," he thinks on these
-things.
-
-\---_James Neil_ , _in_ "_Rays from the Realms of Nature_ ," 1879.
-
-**Verse 66.** \---"_Good judgment and knowledge_." No blessings are more
-suitable than "good judgment and knowledge"---"knowledge" of ourselves, of our
-Saviour, of the way of obedience---and "good judgment" to direct and apply
-this knowledge to some valuable end. These two parts of our intellectual
-furniture have a most important connexion and dependence upon each other.
-"Knowledge" is the speculative perception of general truth. "Judgment" is the
-practical application of it to the heart and conduct.
-
-\---_Charles Bridges_.
-
-**Verse 66.** \---"_For I have believed thy commandments_." These words
-deserve a little consideration, because believing is here joined to an unusual
-object. Had it been, "for I have believed thy promises, "or, "obeyed thy
-commandments, "the sense of the clause had been more obvious to every vulgar
-apprehension. To believe commandments, sounds as harsh to a common ear, as to
-see with the ear, and hear with the eye; but, for all this, the commandments
-are the object; and of them he saith, not, "I have obeyed;" but, "I have
-believed."
-
-To take off the seeming asperity of the phrase, some interpreters conceive
-that "commandments" is put for the word in general; and so promises are
-included, yea, they think, principally intended, especially those promises
-which encouraged him to look to God for necessary things, such as good
-judgment and knowledge are. But this interpretation would divert us from the
-weight and force of these significant words. Therefore let us note,---
-
-  1. Certainly there is a faith in the commandments, as well as in the promises. We must believe that God is their author, and that they are the expressions of his commanding and legislative will, which we are bound to obey. Faith must discern the sovereignty and goodness of the law maker and believe that his commands are holy, just, and good; it must also teach us that God loves those who keep his law and is angry with those who transgress, and that he will see to it that His law is vindicated at the last great day.
-
-  2. Faith in the commandments is as necessary as faith in the promises; for, as the promises are not esteemed, embraced, and improved, unless they are believed to be of God, so neither are the precepts: they do not sway the conscience, nor incline the affections, except as they are believed to be divine.
-
-  3. Faith in the commands must be as lively as faith in the promises. As the promises are not believed with a lively faith, unless they draw off the heart from carnal vanities to seek that happiness which they offer to us; so the precepts are not believed rightly, unless we be fully resolved to acquiesce in them as the only rule to guide us in obtaining that happiness, and unless we are determined to adhere to them, and obey them. As the king's laws are not kept as soon as they are believed to be the king's laws, unless also, upon the consideration of his authority and power, we subject ourselves to them; so this believing notes a ready alacrity to hear God's voice and obey it, and to govern our hearts and actions according to his counsel and direction in the word.
-
-\---_Thomas Manton_.
-
-**Verse 66.** \---"_For I have believed thy commandments_." The commandments
-of God are not alone; but they have promises of grace on the right hand, and
-threatenings of wrath on the left: upon both of these faith exercises itself,
-and without such faith no one will be able to render obedience to God's
-commands,
-
-\---_Wolfgang Musculus_.
+**Verse 66 &mdash;** "*For I have believed thy commandments*." The commandments of God are not alone; but they have promises of grace on the right hand, and threatenings of wrath on the left: upon both of these faith exercises itself, and without such faith no one will be able to render obedience to God's commands, *Wolfgang Musculus*.
 
 ### Hints to Preachers
 
-**Verse 66.** \---
+**Verse 66 &mdash;** 1. Singular faith: "I have believed thy commandments." 2. Special petition based upon it: "Teach me."
 
-  1. Singular faith: "I have believed thy commandments."
-
-  2. Special petition based upon it: "Teach me."
-
-**Verse 66.** \---The value of a good judgment to sound knowledge.
-
-  1. It carefully discriminates between truth and error.
-
-  2. It puts each truth in its proper relation to other truths.
-
-  3. It holds every truth firmly, but has the greater care for the more important.
-
-  4. It rather avoids the curious and the speculative, but really loves the plain and useful.
-
-  5. Knowing that truths are rightly held only, when applied, it turns all to practical account.
-
-  6. Knowing also, that good food may, under some circumstances, become poisonous, it is careful in its selection and use of truths.
-
-\---_J. F._
+**Verse 66 &mdash;** The value of a good judgment to sound knowledge. 1. It carefully discriminates between truth and error. 2. It puts each truth in its proper relation to other truths. 3. It holds every truth firmly, but has the greater care for the more important. 4. It rather avoids the curious and the speculative, but really loves the plain and useful. 5. Knowing that truths are rightly held only, when applied, it turns all to practical account. 6. Knowing also, that good food may, under some circumstances, become poisonous, it is careful in its selection and use of truths. *J. F.*
 
 ## Exposition Verse 67
 
-**Verse 67.** \---"_Before I was afflicted I went astray_." Partly, perhaps,
-through the absence of trial. Often our trials act as a thorn hedge to keep us
-in the good pasture, but our prosperity is a gap through which we go astray.
-If any of us remember a time in which we had no trouble, we also probably
-recollect that then grace was low and temptation was strong. It may be that
-some believer cries, "O that it were with me as in those summer days before I
-was afflicted." Such a sigh is most unwise, and arises from a carnal love of
-ease: the spiritual man who prizes growth in grace will bless God that those
-dangerous days are over, and that if the weather be more stormy it is also
-more healthy. It is well when the mind is open and candid, as in this
-instance: perhaps David would never have known and confessed his own straying
-if he had not smarted under the rod. Let us join in his humble
-acknowledgments, for doubtless we have imitated him in his straying. Why is it
-that a little ease works in us so much disease? Can we never rest without
-rusting? Never be filled without waxing fat? Never rise as to one world
-without going down as to another! What weak creatures we are to be unable to
-bear a little pleasure! What base hearts are those which turn the abundance of
-God's goodness into an occasion for sin.
+> Before I was afflicted I went astray: but now have I kept thy word. 
 
-"_But now have I kept thy word_." Grace is in that heart which profits by its
-chastening. It is of no use to plough barren soil. When there is no spiritual
-life affliction works no spiritual benefit; but where the heart is sound
-trouble awakens conscience, wandering is confessed, the soul becomes again
-obedient to the command, and continues to be so. Whipping will not turn a
-rebel into a child; but to the true child a touch of the rod is a sure
-corrective. In the Psalmist's case the medicine of affliction worked a
-change---"but;" an immediate change---"now;" a lasting change---"have I" an
-inward change---"have I kept;" a change towards God---"thy word." Before his
-trouble he wandered, but after it he kept within the hedge of the word, and
-found good pasture for his soul: the trial tethered him to his proper place;
-it kept him, and then he kept God's word. Sweet are the uses of adversity, and
-this is one of them, it puts a bridle upon transgression and furnishes a spur
-for holiness.
+"*Before I was afflicted I went astray*." Partly, perhaps, through the absence of trial. Often our trials act as a thorn hedge to keep us in the good pasture, but our prosperity is a gap through which we go astray. If any of us remember a time in which we had no trouble, we also probably recollect that then grace was low and temptation was strong. It may be that some believer cries, "O that it were with me as in those summer days before I was afflicted." Such a sigh is most unwise, and arises from a carnal love of ease: the spiritual man who prizes growth in grace will bless God that those dangerous days are over, and that if the weather be more stormy it is also more healthy. It is well when the mind is open and candid, as in this instance: perhaps David would never have known and confessed his own straying if he had not smarted under the rod. Let us join in his humble acknowledgments, for doubtless we have imitated him in his straying. Why is it that a little ease works in us so much disease? Can we never rest without rusting? Never be filled without waxing fat? Never rise as to one world without going down as to another! What weak creatures we are to be unable to bear a little pleasure! What base hearts are those which turn the abundance of God's goodness into an occasion for sin.
+
+"*But now have I kept thy word*." Grace is in that heart which profits by its chastening. It is of no use to plough barren soil. When there is no spiritual life affliction works no spiritual benefit; but where the heart is sound trouble awakens conscience, wandering is confessed, the soul becomes again obedient to the command, and continues to be so. Whipping will not turn a rebel into a child; but to the true child a touch of the rod is a sure corrective. In the Psalmist's case the medicine of affliction worked a change---"but;" an immediate change---"now;" a lasting change---"have I" an inward change---"have I kept;" a change towards God---"thy word." Before his trouble he wandered, but after it he kept within the hedge of the word, and found good pasture for his soul: the trial tethered him to his proper place; it kept him, and then he kept God's word. Sweet are the uses of adversity, and this is one of them, it puts a bridle upon transgression and furnishes a spur for holiness.
 
 ### Explanatory Notes and Quaint Sayings
 
-**Verse 67.** \---"_Before I was afflicted I went astray_ ," etc. Not that he
-wilfully, wickedly, maliciously, and through contempt, departed from his God;
-this lie denies (Psa 18:21); but through the weakness of the flesh, the
-prevalence of corruption, and the force of temptation, and very much through a
-careless, heedless, and negligent frame of spirit, he got out of the right
-way, and wandered from it before he was well aware. The word is used of erring
-through ignorance (Lev 5:18). This was in his time of prosperity, when, though
-he might not, like Jeshurun, wax fat and kick, and forsake and lightly esteem
-the Rock of his salvation; or fall into temptations and hurtful lusts, and err
-from the faith, and be pierced with many sorrows; yet he might become
-inattentive to the duties of religion, and be negligent of them, which is a
-common case.
+**Verse 67 &mdash;** "*Before I was afflicted I went astray* ," etc. Not that he wilfully, wickedly, maliciously, and through contempt, departed from his God; this lie denies (Psa 18:21); but through the weakness of the flesh, the prevalence of corruption, and the force of temptation, and very much through a careless, heedless, and negligent frame of spirit, he got out of the right way, and wandered from it before he was well aware. The word is used of erring through ignorance (Lev 5:18). This was in his time of prosperity, when, though he might not, like Jeshurun, wax fat and kick, and forsake and lightly esteem the Rock of his salvation; or fall into temptations and hurtful lusts, and err from the faith, and be pierced with many sorrows; yet he might become inattentive to the duties of religion, and be negligent of them, which is a common case. *John Gill*.
 
-\---_John Gill_.
+**Verse 67 &mdash;** "*Before I was afflicted*." The Septuagint and Latin Vulgate, "Before I was humbled." The Hebrew word has the general sense of being afflicted, and may refer to any kind of trial. *Albert Barnes*.
 
-**Verse 67.** \---"_Before I was afflicted_." The Septuagint and Latin
-Vulgate, "Before I was humbled." The Hebrew word has the general sense of
-being afflicted, and may refer to any kind of trial.
+**Verse 67 &mdash;** "*Before I was afflicted*." Prosperity is a more refined and severe test of character titan adversity, as one hour of summer sunshine produces greater corruption than the longest winter day. *Eliza Cook*.
 
-\---_Albert Barnes_.
+**Verse 67 &mdash;** "*I was afflicted*." God in wisdom deals with us as some great person would do with a disobedient son, that forsakes his house, and riots among his tenants. His father gives orders that they should treat him ill, affront, and chase him from them, and all, that he might bring him back. The same doth God: man is his wild and debauched son; he flies from the commands of his father, and cannot endure to live under his strict and severe government. He resorts to the pleasures of the world, and revels and riots among the creatures. But God resolves to recover him, and therefore commands every creature to handle him roughly. "Burn him, fire; toss him, tempests, and shipwreck his estate; forsake him, friends; designs, fail him; children, be rebellious to him, as he is to me; let his supports and dependencies sink under him, his riches melt away, leave him poor, and despised, and destitute." These are all God's servants, and must obey his will. And to what end is all this, but that, seeing himself forsaken of all, he may at length, like the beggared prodigal, return to his father? *Ezekiel Hopkins* , 1633-1690.
 
-**Verse 67.** \---"_Before I was afflicted_." Prosperity is a more refined and
-severe test of character titan adversity, as one hour of summer sunshine
-produces greater corruption than the longest winter day.
+**Verse 67 &mdash;** "*I was afflicted*." As men clip the feathers of fowls, when they begin to fly too high or too far; even so doth God diminish our riches, etc., that we should not pass our bounds, and glory too much of such gifts. *Otho Wermullerus*.
 
-\---_Eliza Cook_.
+**Verse 67 &mdash;** "*But now have I kept thy word*." Affliction Brings Man Home. Man like a silly sheep doth often stray, Not knowing of his way, Blind deserts and the wilderness of sin He daily travels in; There's nothing will reduce him sooner than Afflictions to his pen. He wanders in the sunshine, but in rain And stormy weather hastens home again. Thou, the great Shepherd of my soul, O keep Me, my unworthy sheep From gadding: or if fair means will not do it, Let foul, then, bring me to it. Rather then I should perish in my error, Lord bring me back with terror; Better I be chastised with thy rod And Shepherd's staff, than stray from thee, my God. Though for the present stripes do grieve me sore, At last they profit more, And make me to observe thy word, which I Neglected formerly; Let me come home rather by weeping cross Than still be at a loss. For health I would rather take a bitter pill, Than eating sweet meats to be always ill. *Thomas Washbourne* , 1606-1687.
 
-**Verse 67.** \---"_I was afflicted_." God in wisdom deals with us as some
-great person would do with a disobedient son, that forsakes his house, and
-riots among his tenants. His father gives orders that they should treat him
-ill, affront, and chase him from them, and all, that he might bring him back.
-The same doth God: man is his wild and debauched son; he flies from the
-commands of his father, and cannot endure to live under his strict and severe
-government. He resorts to the pleasures of the world, and revels and riots
-among the creatures. But God resolves to recover him, and therefore commands
-every creature to handle him roughly. "Burn him, fire; toss him, tempests, and
-shipwreck his estate; forsake him, friends; designs, fail him; children, be
-rebellious to him, as he is to me; let his supports and dependencies sink
-under him, his riches melt away, leave him poor, and despised, and destitute."
-These are all God's servants, and must obey his will. And to what end is all
-this, but that, seeing himself forsaken of all, he may at length, like the
-beggared prodigal, return to his father?
+**Verse 67 &mdash;** From the countless throng before the throne of God and the Lamb, we may yet hear the words of the Psalmist, "Before I was afflicted I went astray: but now have I kept thy word." There is many an one who will say, "Behold, happy is the man whom God correcteth" (Job 5:17). One would tell you that his worldly undoing was the making of his heavenly prospects; and another that the loss of all things was the gain of All in All. There are multitudes whom God has afflicted with natural blindness that they might gain spiritual sight; and those who under bodily infirmities and diseases of divers sorts have pined and wasted away this earthly life, gladly laying hold on glory, honour, and immortality instead. *William Garrett Lewis* , *in* "*Westbourne Grove Sermons* ," 1872.
 
-\---_Ezekiel Hopkins_ , 1633-1690.
-
-**Verse 67.** \---"_I was afflicted_." As men clip the feathers of fowls, when
-they begin to fly too high or too far; even so doth God diminish our riches,
-etc., that we should not pass our bounds, and glory too much of such gifts.
-
-\---_Otho Wermullerus_.
-
-**Verse 67.** \---"_But now have I kept thy word_."
-
-Affliction Brings Man Home.
-
-> Man like a silly sheep doth often stray,  
->  Not knowing of his way,  
->  Blind deserts and the wilderness of sin  
->  He daily travels in;  
->  There's nothing will reduce him sooner than  
->  Afflictions to his pen.  
->  He wanders in the sunshine, but in rain  
->  And stormy weather hastens home again.  
->  
->  Thou, the great Shepherd of my soul, O keep  
->  Me, my unworthy sheep  
->  From gadding: or if fair means will not do it,  
->  Let foul, then, bring me to it.  
->  Rather then I should perish in my error,  
->  Lord bring me back with terror;  
->  Better I be chastised with thy rod  
->  And Shepherd's staff, than stray from thee, my God.  
->  
->  Though for the present stripes do grieve me sore,  
->  At last they profit more,  
->  And make me to observe thy word, which I  
->  Neglected formerly;  
->  Let me come home rather by weeping cross  
->  Than still be at a loss.  
->  For health I would rather take a bitter pill,  
->  Than eating sweet meats to be always ill.
->
-> \---_Thomas Washbourne_ , 1606-1687.
-
-**Verse 67.** \---From the countless throng before the throne of God and the
-Lamb, we may yet hear the words of the Psalmist, "Before I was afflicted I
-went astray: but now have I kept thy word." There is many an one who will say,
-"Behold, happy is the man whom God correcteth" (Job 5:17). One would tell you
-that his worldly undoing was the making of his heavenly prospects; and another
-that the loss of all things was the gain of All in All. There are multitudes
-whom God has afflicted with natural blindness that they might gain spiritual
-sight; and those who under bodily infirmities and diseases of divers sorts
-have pined and wasted away this earthly life, gladly laying hold on glory,
-honour, and immortality instead.
-
-\---_William Garrett Lewis_ , _in_ "_Westbourne Grove Sermons_ ," 1872.
-
-**Verse 67.** \---By affliction God separates the sin which he hates from the
-soul which he loves.---_John Mason._
+**Verse 67 &mdash;** By affliction God separates the sin which he hates from the soul which he loves.---*John Mason.*
 
 ### Hints to Preachers
 
-**Verse 67.** \---
+**Verse 67 &mdash;** 1. The dangers of prosperity. 2. The benefits of adversity. *G. R.*
 
-  1. The dangers of prosperity.
+**Verse 67 &mdash;** The restraining power of affliction
 
-  2. The benefits of adversity.
-
-\---_G. R._
-
-**Verse 67.** \---The restraining power of affliction
-
-**Verses 67, 71, 75.** \---Affliction thrice viewed and thrice blessed.
-
-  1. Before affliction: straying.
-
-  2. In affliction: learning.
-
-  3. After affliction: knowing.
-
-\---_C. A. D._
+**Verses 67, 71, 75 &mdash;** Affliction thrice viewed and thrice blessed. 1. Before affliction: straying. 2. In affliction: learning. 3. After affliction: knowing. *C. A. D.*
 
 ## Exposition Verse 68
 
-**Verse 68.** \---"_Thou art good, and doest good_." Even in affliction God is
-good, and does good. This is the confession of experience. God is essential
-goodness in himself, and in every attribute of his nature he is good in the
-fullest sense of the term; indeed, he has a monopoly of goodness, for there is
-none good but one, that is God. His acts are according to his nature: from a
-pure source flow pure streams. God is not latent and ill active goodness; he
-displays himself by his doings, he is actively beneficent, he does good. How
-much good he does no tongue can tell! How good he is no heart can conceive! It
-is well to worship the Lord as the poet here does by describing him. Facts
-about God are the best praise of God. All the glory we can give to God is to
-reflect his own glory upon himself. We can say no more good of God than God is
-and does. We believe in his goodness, and so honour him by our faith; we
-admire that goodness, and so glorify him by our love; we declare that
-goodness, and so magnify him by our testimony.
+> Thou *art* good, and doest good; teach me thy statutes. 
 
-**Verse 68.** \---"_Teach me thy statutes_." The same prayer as before, backed
-with the same argument. He prays, "Lord be good, and do good to me that I may
-both be good and do good through thy teaching." The man of God was a learner,
-and delighted to learn: he ascribed this to the goodness of the Lord, and
-hoped that for the same reason he would be allowed to remain in the school and
-learn on till he could perfectly practise every lesson. His chosen class book
-was the royal statutes, he wanted no other. He knew the sad result of breaking
-those statutes, and by a painful experience he had been led back to the way of
-righteousness; and therefore he begged as the greatest possible instance of
-the divine goodness that he might be taught a perfect knowledge of the law,
-and a complete conformity to it. He who mourns that he has not kept the word
-longs to be taught it, and he who rejoices that by grace he has been taught to
-keep it is not less anxious for the like instruction to be continued to him.
+"*Thou art good, and doest good*." Even in affliction God is good, and does good. This is the confession of experience. God is essential goodness in himself, and in every attribute of his nature he is good in the fullest sense of the term; indeed, he has a monopoly of goodness, for there is none good but one, that is God. His acts are according to his nature: from a pure source flow pure streams. God is not latent and ill active goodness; he displays himself by his doings, he is actively beneficent, he does good. How much good he does no tongue can tell! How good he is no heart can conceive! It is well to worship the Lord as the poet here does by describing him. Facts about God are the best praise of God. All the glory we can give to God is to reflect his own glory upon himself. We can say no more good of God than God is and does. We believe in his goodness, and so honour him by our faith; we admire that goodness, and so glorify him by our love; we declare that goodness, and so magnify him by our testimony.
 
-In **verse 12** which is the fourth verse of Beth, we have much the same sense
-as in this fourth verse of Teth.
+"*Teach me thy statutes*." The same prayer as before, backed with the same argument. He prays, "Lord be good, and do good to me that I may both be good and do good through thy teaching." The man of God was a learner, and delighted to learn: he ascribed this to the goodness of the Lord, and hoped that for the same reason he would be allowed to remain in the school and learn on till he could perfectly practise every lesson. His chosen class book was the royal statutes, he wanted no other. He knew the sad result of breaking those statutes, and by a painful experience he had been led back to the way of righteousness; and therefore he begged as the greatest possible instance of the divine goodness that he might be taught a perfect knowledge of the law, and a complete conformity to it. He who mourns that he has not kept the word longs to be taught it, and he who rejoices that by grace he has been taught to keep it is not less anxious for the like instruction to be continued to him.
+
+In verse 12 which is the fourth verse of Beth, we have much the same sense as in this fourth verse of Teth.
 
 ### Explanatory Notes and Quaint Sayings
 
-**Verse 68.** \---"_Thou art good, and doest good_." There is a good God set
-before us, that we may not take tip with any low pattern of goodness. He is
-represented to us as all goodness. He is good in his nature; and his work is
-agreeable to his nature; nothing is wanting to it, or defective in it. Nothing
-can be added to it to make it better. Philo saith, "Ὁ _ὄντως ὢν το πρῶτον
-αγαθόν_ " the first being must needs be the first good." As soon as we
-conceive that there is a God, we presently conceive that he is good, he is
-good of himself, good in himself, goodness itself, and both the fountain and
-the pattern of all the good that is in the creatures.
+**Verse 68 &mdash;** "*Thou art good, and doest good*." There is a good God set before us, that we may not take tip with any low pattern of goodness. He is represented to us as all goodness. He is good in his nature; and his work is agreeable to his nature; nothing is wanting to it, or defective in it. Nothing can be added to it to make it better. Philo saith, "Ὁ *ὄντως ὢν το πρῶτον αγαθόν* " the first being must needs be the first good." As soon as we conceive that there is a God, we presently conceive that he is good, he is good of himself, good in himself, goodness itself, and both the fountain and the pattern of all the good that is in the creatures. 1. As to his nature, he is originally "good," good in himself, and good to others; as the sun hath light in himself, and giveth light to all other things. Essentially good; not only good, but goodness itself. Goodness in us is an accessory quality or superadded gift; but in God it is not a quality, but his essence. In a vessel that is gilded with gold the gilding or lustre is a superadded quality; but in a vessel all of gold, the lustre and the substance is the same. God is infinitely good; the creatures' good is limited, but there is nothing to limit the perfection of God, or give it any measure. He is an ocean of goodness without banks or bottom. Alas! what is our drop to this ocean! God is immutably good; his goodness can never be more or less than it is; as there can be no addition to it, so no subtraction from it. Man in his innocency was *peccabilis* , or liable to sin, afterwards *peccator* ,or an actual sinner; but God ever was and is good. Now this is the pattern propounded to us, but his nature is a great deep. Therefore--- 2. As to his work; "*he doeth good*." What hath God been acting upon the great theatre of the world but goodness for these six thousand years? Act 14:17, "*Nevertheless he left not himself without witness, in that he did good, and gave us rain from heaven, and fruitful seasons, filling our hearts with food and gladness*." He left not himself without a witness, *ἀγαθοποιῶν* , not by taking vengeance of their idolatries, but by distributing benefits. This is propounded to our imitation, that our whole life may be nothing else but doing good: Mat 5:48, "*Be ye therefore perfect, even as your Father which is in heaven is perfect*." Well, therefore, doth the Psalmist say, "*Teach me thy statutes*." *Thomas Manton*.
 
-  1. As to his nature, he is originally "good," good in himself, and good to others; as the sun hath light in himself, and giveth light to all other things. Essentially good; not only good, but goodness itself. Goodness in us is an accessory quality or superadded gift; but in God it is not a quality, but his essence. In a vessel that is gilded with gold the gilding or lustre is a superadded quality; but in a vessel all of gold, the lustre and the substance is the same. God is infinitely good; the creatures' good is limited, but there is nothing to limit the perfection of God, or give it any measure. He is an ocean of goodness without banks or bottom. Alas! what is our drop to this ocean! God is immutably good; his goodness can never be more or less than it is; as there can be no addition to it, so no subtraction from it. Man in his innocency was _peccabilis_ , or liable to sin, afterwards _peccator_ ,or an actual sinner; but God ever was and is good. Now this is the pattern propounded to us, but his nature is a great deep. Therefore---
+**Verse 68 &mdash;** "*Thou art good and doest good*." We should bless the Lord at all times, and keep up good thoughts of God, on every occasion, especially in the time of affliction. Hence we are commanded to glorify God in the fires (Isa 24:15); and this the three children did in the hottest furnace... I grant, indeed, we cannot give thanks for affliction as affliction, but either as it is the means of some good to us, or as the gracious hand of God is some way remarkable therein toward us. In this respect there is no condition on this side of hell but we have reason to praise God in it, though it be the greatest of calamities. Hence it was that David, when he speaks of his affliction, adds presently, "*Thou art good, and doest good* ;" and he declares (Psa 119:65), "*Thou hast dealt well with thy servant, O Lord, according unto thy word*." Hence Paul and Silas praised God when they were scourged and imprisoned. *John Willison* , 1680-1750.
 
-  2. As to his work; "_he doeth good_." What hath God been acting upon the great theatre of the world but goodness for these six thousand years? Act 14:17, "_Nevertheless he left not himself without witness, in that he did good, and gave us rain from heaven, and fruitful seasons, filling our hearts with food and gladness_." He left not himself without a witness, _ἀγαθοποιῶν_ , not by taking vengeance of their idolatries, but by distributing benefits. This is propounded to our imitation, that our whole life may be nothing else but doing good: Mat 5:48, "_Be ye therefore perfect, even as your Father which is in heaven is perfect_." Well, therefore, doth the Psalmist say, "_Teach me thy statutes_."
-
-\---_Thomas Manton_.
-
-**Verse 68.** \---"_Thou art good and doest good_." We should bless the Lord
-at all times, and keep up good thoughts of God, on every occasion, especially
-in the time of affliction. Hence we are commanded to glorify God in the fires
-(Isa 24:15); and this the three children did in the hottest furnace... I
-grant, indeed, we cannot give thanks for affliction as affliction, but either
-as it is the means of some good to us, or as the gracious hand of God is some
-way remarkable therein toward us. In this respect there is no condition on
-this side of hell but we have reason to praise God in it, though it be the
-greatest of calamities. Hence it was that David, when he speaks of his
-affliction, adds presently, "_Thou art good, and doest good_ ;" and he
-declares (Psa 119:65), "_Thou hast dealt well with thy servant, O Lord,
-according unto thy word_." Hence Paul and Silas praised God when they were
-scourged and imprisoned.
-
-\---_John Willison_ , 1680-1750.
-
-**Verse 68.** \---"_Thou art good_." The blessed effects of chastisement, as a
-special instance of the Lord's goodness, might naturally lead to an
-acknowledgment of his general goodness, in his own character, and in his
-unwearied dispensations of love. Judging in unbelieving haste of his
-providential and gracious dealings, feeble sense imagines a frown, when the
-eye of faith discerns a smile upon his face; and therefore in proportion as
-faith is exercised in the review of the past, and the experience of the
-present, we shall be prepared with the ascription of praise---"_Thou art good_
-".
-
-\---_Charles Bridges_.
+**Verse 68 &mdash;** "*Thou art good*." The blessed effects of chastisement, as a special instance of the Lord's goodness, might naturally lead to an acknowledgment of his general goodness, in his own character, and in his unwearied dispensations of love. Judging in unbelieving haste of his providential and gracious dealings, feeble sense imagines a frown, when the eye of faith discerns a smile upon his face; and therefore in proportion as faith is exercised in the review of the past, and the experience of the present, we shall be prepared with the ascription of praise---"*Thou art good* ". *Charles Bridges*.
 
 ### Hints to Preachers
 
-**Verse 68.** \---The double plea for a choice blessing. The goodness of God
-the hope of our ignorance.
+**Verse 68 &mdash;** The double plea for a choice blessing. The goodness of God the hope of our ignorance.
 
-**Verse 68.** \---"_Thou art good and doest good_." The nature and work of God
-are manifest in nature, providence, grace, and glory. They are morally good;
-beneficially good; perfectly good; immeasurably good; immutably good;
-experimentally good; satisfactorily good.
+**Verse 68 &mdash;** "*Thou art good and doest good*." The nature and work of God are manifest in nature, providence, grace, and glory. They are morally good; beneficially good; perfectly good; immeasurably good; immutably good; experimentally good; satisfactorily good. *W. J.*
 
-\---_W. J._
-
-**Verse 68.** (_first clause_)---A sermon on God's goodness.
-
-  1. The perfectness of it.
-
-  2. The proofs of it.
-
-  3. The power it should have over us.
-
-\---_J. F._
+**Verse 68 &mdash;** (*first clause*)---A sermon on God's goodness. 1. The perfectness of it. 2. The proofs of it. 3. The power it should have over us. *J. F.*
 
 ## Exposition Verse 69
 
-**Verse 69.** \---"_The proud have forged a lie against me_." They first
-derided him (Psa 119:51), then defrauded him (Psa 119:61), and now they have
-defamed him. To injure his character they resorted to falsehood, for they
-could find nothing against him if they spoke the truth. They forged a lie as a
-blacksmith beats out a weapon of iron, or they counterfeited the truth as men
-forge false coin. The original may suggest a common expression---"_They have
-patched up a lie against me_." They were not too proud to lie. Pride is a lie,
-and when a proud man utters lies "he speaketh of his own." Proud men are
-usually the bitterest opponents of the righteous: they are envious of their
-good fame and are eager to ruin it. Slander is a cheap and handy weapon if the
-object is the destruction of a gracious reputation; and when many proud ones
-conspire to concoct, exaggerate, and spread abroad a malicious falsehood, they
-generally succeed in wounding their victim, and it is no fault of theirs if
-they do not kill him outright. O the venom which lies under the tongue of a
-liar! Many a happy life has been embittered by it, and many a good repute has
-been poisoned as with the deadliest drug. It is painful to the last degree to
-hear unscrupulous men hammering away at the devil's anvil forging a new
-calumny; the only help against it is the sweet promise, "_No weapon that is
-formed against thee shall prosper, and every tongue that riseth against thee
-in judgment thou shalt condemn_." (Isa 54:17)
+> The proud have forged a lie against me: *but* I will keep thy precepts with *my* whole heart. 
 
-"_But I will keep thy precepts with my whole heart_." My one anxiety shall be
-to mind my own business and stick to the commandments of the Lord. If the mud
-which is thrown at us does not blind our eyes or bruise our integrity it will
-do us little harm. If we keep the precepts, the precepts will keep us in the
-day of contumely and slander. David renews his resolve---"_I will keep_ ;" he
-takes a new look at the commands, and sees them to be really the
-Lord's---"_thy precepts_ ;" and he arouses his entire nature to the
-work---"_with my whole heart_." When slanders drive us to more resolute and
-careful obedience they work our lasting good; falsehood hurled against us may
-be made to promote our fidelity to the truth, and the malice of men may
-increase our love to God. If we try to answer lies by our words we may be
-beaten in the battle; but a holy life is an unanswerable refutation of all
-calumnies. Spite is balked if we persevere in holiness despite all opposition.
+"*The proud have forged a lie against me*." They first derided him (Psa 119:51), then defrauded him (Psa 119:61), and now they have defamed him. To injure his character they resorted to falsehood, for they could find nothing against him if they spoke the truth. They forged a lie as a blacksmith beats out a weapon of iron, or they counterfeited the truth as men forge false coin. The original may suggest a common expression---"*They have patched up a lie against me*." They were not too proud to lie. Pride is a lie, and when a proud man utters lies "he speaketh of his own." Proud men are usually the bitterest opponents of the righteous: they are envious of their good fame and are eager to ruin it. Slander is a cheap and handy weapon if the object is the destruction of a gracious reputation; and when many proud ones conspire to concoct, exaggerate, and spread abroad a malicious falsehood, they generally succeed in wounding their victim, and it is no fault of theirs if they do not kill him outright. O the venom which lies under the tongue of a liar! Many a happy life has been embittered by it, and many a good repute has been poisoned as with the deadliest drug. It is painful to the last degree to hear unscrupulous men hammering away at the devil's anvil forging a new calumny; the only help against it is the sweet promise, "*No weapon that is formed against thee shall prosper, and every tongue that riseth against thee in judgment thou shalt condemn*." (Isa 54:17)
+
+"*But I will keep thy precepts with my whole heart*." My one anxiety shall be to mind my own business and stick to the commandments of the Lord. If the mud which is thrown at us does not blind our eyes or bruise our integrity it will do us little harm. If we keep the precepts, the precepts will keep us in the day of contumely and slander. David renews his resolve---"*I will keep* ;" he takes a new look at the commands, and sees them to be really the Lord's---"*thy precepts* ;" and he arouses his entire nature to the work---"*with my whole heart*." When slanders drive us to more resolute and careful obedience they work our lasting good; falsehood hurled against us may be made to promote our fidelity to the truth, and the malice of men may increase our love to God. If we try to answer lies by our words we may be beaten in the battle; but a holy life is an unanswerable refutation of all calumnies. Spite is balked if we persevere in holiness despite all opposition.
 
 ### Explanatory Notes and Quaint Sayings
 
-**Verse 69.** \---"_The proud have forged a lie against me_." If in the
-present day the enemies of the truth in their lying writings rail against the
-orthodox teachers in the Church, that is a very old artifice of the Devil,
-since David complains that in his day it happened unto him.
+**Verse 69 &mdash;** "*The proud have forged a lie against me*." If in the present day the enemies of the truth in their lying writings rail against the orthodox teachers in the Church, that is a very old artifice of the Devil, since David complains that in his day it happened unto him. *Solomon Gesner*.
 
-\---_Solomon Gesner_.
+**Verse 69 &mdash;** "*The proud have forged a lie*." They trim up lies with shadows of truth and neat language; they have mints to frame their lies curiously in, and presses to print their lies withal. *William Greenhill* , 1591-1677.
 
-**Verse 69.** \---"_The proud have forged a lie_." They trim up lies with
-shadows of truth and neat language; they have mints to frame their lies
-curiously in, and presses to print their lies withal.
+**Verse 69 &mdash;** "*The proud*." Faith humbleth, and infidelity maketh proud. Faith humbleth, because it letteth us see our sins, and the punishments thereof, and that we have no dealing with God but through the mediation of Christ; and that we can do no good, nor avoid evil, but by grace. But when men know not this, then they think much of themselves, and therefore are proud. Therefore all ignorant men, all heretics, and worldlings are proud. They that are humbled under God's hands, are humble to men; but they that despise God do also persecute his servants. *Richard Greenham*.
 
-\---_William Greenhill_ , 1591-1677.
+**Verse 69 &mdash;** "*Forged a lie*." Vatablus translates it, "*coneinnarunt mendacta* ". So Tremellius: they have trimmed up lies. As Satan can transform himself into an angel of light, so he can trim up his lies under coverings of truth, to make them the more plausible unto men. And indeed this is no small temptation, when lies made against the godly are trimmed up with the shadows of truth, and wicked men cover their unrighteous dealings with appearances of righteousness. Thus, not only are the godly unjustly persecuted, but simple ones are made to believe that they have most justly deserved it. In this case the godly are to sustain themselves by the testimony of a good conscience. *William Cowper*.
 
-**Verse 69.** \---"_The proud_." Faith humbleth, and infidelity maketh proud.
-Faith humbleth, because it letteth us see our sins, and the punishments
-thereof, and that we have no dealing with God but through the mediation of
-Christ; and that we can do no good, nor avoid evil, but by grace. But when men
-know not this, then they think much of themselves, and therefore are proud.
-Therefore all ignorant men, all heretics, and worldlings are proud. They that
-are humbled under God's hands, are humble to men; but they that despise God do
-also persecute his servants.
+**Verse 69 &mdash;** "*Forged*." expresses the essential meaning of the Hebrew word, but not its figurative form which seems to be that of sewing, analogous to that of weaving, as applied to the same thing, both in Hebrew and in other languages. We may also compare our figurative phrase, to patch up, which, however, is not so much suggestive of artifice or skill as of the want of it. The connection of the clauses is, that all the craft and malice of his enemies should only lead him to obey God, with a more undivided heart than ever. *Joseph Addison Alexander*.
 
-\---_Richard Greenham_.
+**Verse 69 &mdash;** "*Forged*." The metaphor may be like the Greek (ράπτειν δόλουσ), from sewing or patching up: or, from *smearing* , or *daubing* (Delitzsch, Moll, etc.), a wall, so as to hide the real substance. The Psalmist remains true to God despite the falsehoods with which the proud smear and hide his true fidelity. *The Speaker's Commentary*.
 
-**Verse 69.** \---"_Forged a lie_." Vatablus translates it, "_coneinnarunt
-mendacta_ ". So Tremellius: they have trimmed up lies. As Satan can transform
-himself into an angel of light, so he can trim up his lies under coverings of
-truth, to make them the more plausible unto men. And indeed this is no small
-temptation, when lies made against the godly are trimmed up with the shadows
-of truth, and wicked men cover their unrighteous dealings with appearances of
-righteousness. Thus, not only are the godly unjustly persecuted, but simple
-ones are made to believe that they have most justly deserved it. In this case
-the godly are to sustain themselves by the testimony of a good conscience.
+**Verse 69 &mdash;** "*A lie*." Satan's two arms by which he wrestles against the godly are violence and lies: where he cannot, or dare not, use violence, there be sure he will not fail to fight with lies. And herein doth the Lord greatly show his careful providence, in fencing his children against Satan's malice and the proud brags of his instruments, in such sort, that their proudest hearts are forced to forge lies; their malice being so great that they must do evil; and yet their power so bridled that they cannot do what they would. *William Cowper*.
 
-\---_William Cowper_.
-
-**Verse 69.** \---"_Forged_." expresses the essential meaning of the Hebrew
-word, but not its figurative form which seems to be that of sewing, analogous
-to that of weaving, as applied to the same thing, both in Hebrew and in other
-languages. We may also compare our figurative phrase, to patch up, which,
-however, is not so much suggestive of artifice or skill as of the want of it.
-The connection of the clauses is, that all the craft and malice of his enemies
-should only lead him to obey God, with a more undivided heart than ever.
-
-\---_Joseph Addison Alexander_.
-
-**Verse 69.** \---"_Forged_." The metaphor may be like the Greek (ράπτειν
-δόλουσ), from sewing or patching up: or, from _smearing_ , or _daubing_
-(Delitzsch, Moll, etc.), a wall, so as to hide the real substance. The
-Psalmist remains true to God despite the falsehoods with which the proud smear
-and hide his true fidelity.
-
-\---_The Speaker's Commentary_.
-
-**Verse 69.** \---"_A lie_." Satan's two arms by which he wrestles against the
-godly are violence and lies: where he cannot, or dare not, use violence, there
-be sure he will not fail to fight with lies. And herein doth the Lord greatly
-show his careful providence, in fencing his children against Satan's malice
-and the proud brags of his instruments, in such sort, that their proudest
-hearts are forced to forge lies; their malice being so great that they must do
-evil; and yet their power so bridled that they cannot do what they would.
-
-\---_William Cowper_.
-
-**Verse 69.** \---"_I will keep thy precepts with my whole heart_." Let the
-word of the Lord come, let it come; and if we had six hundred necks, we would
-submit them all to his dictates.
-
-\---_Augustine_.
+**Verse 69 &mdash;** "*I will keep thy precepts with my whole heart*." Let the word of the Lord come, let it come; and if we had six hundred necks, we would submit them all to his dictates. *Augustine*.
 
 ### Hints to Preachers
 
-**Verse 69.** \---Wholehearted obedience the best solace under slander; the
-best answer to it; and the best way of converting the slanderers.
+**Verse 69 &mdash;** Wholehearted obedience the best solace under slander; the best answer to it; and the best way of converting the slanderers.
 
 ## Exposition Verse 70
 
-**Verse 70.** \---"_Their heart is as fat as grease_." They delight in
-fatness, but I delight in thee. Their hearts, through sensual indulgence, have
-grown insensible, coarse, and grovelling; but thou hast saved me from such a
-fate through thy chastening hand. Proud men grow fat through carnal luxuries,
-and this makes them prouder still. They riot in their prosperity, and fill
-their hearts therewith till they become insensible, effeminate, and self
-indulgent. A greasy heart is something horrible; it is a fatness which makes a
-man fatuous, a fatty degeneration of the heart which leads to feebleness and
-death. The fat in such men is killing the life in them. Dryden wrote,
+> Their heart is as fat as grease; *but* I delight in thy law. 
 
-> O souls! In whom no heavenly fire is found,  
->  Fat minds and ever grovelling on the ground.
+"*Their heart is as fat as grease*." They delight in fatness, but I delight in thee. Their hearts, through sensual indulgence, have grown insensible, coarse, and grovelling; but thou hast saved me from such a fate through thy chastening hand. Proud men grow fat through carnal luxuries, and this makes them prouder still. They riot in their prosperity, and fill their hearts therewith till they become insensible, effeminate, and self indulgent. A greasy heart is something horrible; it is a fatness which makes a man fatuous, a fatty degeneration of the heart which leads to feebleness and death. The fat in such men is killing the life in them. Dryden wrote,
 
-In this condition men have no heart except for luxury, their very being seems
-to swim and stew in the fat of cookery and banqueting. Living on the fat of
-the land, their nature is subdued to that which they have fed upon; the muscle
-of their nature has gone to softness and grease.
+> O souls! In whom no heavenly fire is found,
+> Fat minds and ever grovelling on the ground.
 
-"_But I delight in thy law_." How much better is it to joy in the law of the
-Lord than to joy in sensual indulgences! This makes the heart healthy, and
-keeps the mind lowly. No one who loves holiness has the slightest cause to
-envy the prosperity of the worldling. Delight in the law elevates and
-ennobles, while carnal pleasure clogs the intellect and degrades the
-affections. There is and always ought to be a vivid contrast between the
-believer and the sensualist, and that contrast is as much seen in the
-affections of the heart as in the actions of the life: their heart is as fat
-as grease, and our heart is delighted with the law of the Lord. Our delights
-are a better test of our character than anything else: as a man's heart is, so
-is the man. David oiled the wheels of life with his delight in God's law, and
-not with the fat of sensuality. He had his relishes and dainties, his
-festivals and delights, and all these he found in doing the will of the Lord
-his God. When law becomes delight, obedience is bliss. Holiness in the heart
-causes the soul to eat the fat of the land. To have the law for our delight
-will breed in our hearts the very opposite of the effects of pride; deadness,
-sensuality, and obstinacy will be cured, and we shall become teachable,
-sensitive, and spiritual. How careful should we be to live under the influence
-of the divine law that we fall not under the law of sin and death.
+In this condition men have no heart except for luxury, their very being seems to swim and stew in the fat of cookery and banqueting. Living on the fat of the land, their nature is subdued to that which they have fed upon; the muscle of their nature has gone to softness and grease.
+
+"*But I delight in thy law*." How much better is it to joy in the law of the Lord than to joy in sensual indulgences! This makes the heart healthy, and keeps the mind lowly. No one who loves holiness has the slightest cause to envy the prosperity of the worldling. Delight in the law elevates and ennobles, while carnal pleasure clogs the intellect and degrades the affections. There is and always ought to be a vivid contrast between the believer and the sensualist, and that contrast is as much seen in the affections of the heart as in the actions of the life: their heart is as fat as grease, and our heart is delighted with the law of the Lord. Our delights are a better test of our character than anything else: as a man's heart is, so is the man. David oiled the wheels of life with his delight in God's law, and not with the fat of sensuality. He had his relishes and dainties, his festivals and delights, and all these he found in doing the will of the Lord his God. When law becomes delight, obedience is bliss. Holiness in the heart causes the soul to eat the fat of the land. To have the law for our delight will breed in our hearts the very opposite of the effects of pride; deadness, sensuality, and obstinacy will be cured, and we shall become teachable, sensitive, and spiritual. How careful should we be to live under the influence of the divine law that we fall not under the law of sin and death.
 
 ### Explanatory Notes and Quaint Sayings
 
-**Verse 70.** \---"_Their heart is as fat as grease_." The word מָפשׁ occurs
-nowhere else in Scripture, but with the Chaldees מְפַש signifies _to fatten_ ,
-_to make fat_ ; also _to make stupid and doltish_ , because such the fat
-ofttimes are... For this reason the proud, who are mentioned in the preceding
-verse, are described by their fixed resolve in evil, because they are almost
-insensible; as is to be seen in pigs, who pricked through the skin with a
-bodkin, and that slowly, as long as the bodkin only touches the fat, do not
-feel the prick until it reaches to the flesh. Thus the proud, whose great
-prosperity is elsewhere likened to fatness, have a heart totally
-insusceptible, which is insensible to the severe reproofs of the Divine word,
-and also to its holy delights and pleasures, by reason of the affluence of
-carnal things; aye, more, is altogether unfitted for good impulses; just as
-elsewhere is to be seen with fat animals, how slow they are and unfit for
-work, when, on the contrary, those are agile and quick which are not hindered
-by this same fatness.
+**Verse 70 &mdash;** "*Their heart is as fat as grease*." The word מָפשׁ occurs nowhere else in Scripture, but with the Chaldees מְפַש signifies *to fatten* , *to make fat* ; also *to make stupid and doltish* , because such the fat ofttimes are... For this reason the proud, who are mentioned in the preceding verse, are described by their fixed resolve in evil, because they are almost insensible; as is to be seen in pigs, who pricked through the skin with a bodkin, and that slowly, as long as the bodkin only touches the fat, do not feel the prick until it reaches to the flesh. Thus the proud, whose great prosperity is elsewhere likened to fatness, have a heart totally insusceptible, which is insensible to the severe reproofs of the Divine word, and also to its holy delights and pleasures, by reason of the affluence of carnal things; aye, more, is altogether unfitted for good impulses; just as elsewhere is to be seen with fat animals, how slow they are and unfit for work, when, on the contrary, those are agile and quick which are not hindered by this same fatness. *Martin Geier*.
 
-\---_Martin Geier_.
+**Verse 70 &mdash;** "*Their heart is as fat as grease*." This makes them--- 1. Senseless and secure; they are past feeling: thus the phrase is used (Isa 6:10): "Make the heart of the people fat." They are not sensible of the teaching of the word of God, or his rod. 2. Sensual and voluptuous: "Their eyes stand out with fatness" (Psa 73:7); they roll themselves in the pleasures of sense, and take up with them as their chief good; and much good may it do them: I would not change conditions with them; "*delight in thy law*." *Matthew Henry*.
 
-**Verse 70.** \---"_Their heart is as fat as grease_." This makes them---
-
-  1. Senseless and secure; they are past feeling: thus the phrase is used (Isa 6:10): "Make the heart of the people fat." They are not sensible of the teaching of the word of God, or his rod.
-
-  2. Sensual and voluptuous: "Their eyes stand out with fatness" (Psa 73:7); they roll themselves in the pleasures of sense, and take up with them as their chief good; and much good may it do them: I would not change conditions with them; "_delight in thy law_."
-
-\---_Matthew Henry_.
-
-**Verse 70.** \---"_Their heart is as fat as grease; but I delight in thy law_
-" as if he should say, My heart is a lean heart, a hungry heart, my soul
-loveth and rejoiceth in thy word. I have nothing else to fill it but thy word,
-and the comforts I have from it; but their hearts are fat hearts: fat with the
-world, fat with lust: they hate the word. As a full stomach loatheth meat and
-cannot digest it; so wicked men hate the word, it will not go down with them,
-it will not gratify their lusts.
-
-\---_William Fenner_.
-
-Being anxious to know the medical significance of fatty heart, I applied to an
-eminent gentleman who is well known as having been President of the College of
-Physicians. His reply shows that the language is rather figurative than
-literal. He kindly replied to me as follows:---
-
-There are two forms of so called "fatty heart." In the one there is an
-excessive amount of fatty tissue covering the exterior of the organ,
-especially about the base. This may be observed in all cases where the body of
-the animal is throughout over fat, as in animals fattened for slaughter. It
-does not necessarily interfere with the action of the heart, and may not be of
-much importance in a medical point of view. The second form is, however, a
-much more serious condition. In this, the muscular structure of the heart, on
-which its all important function, as the central propelling power, depends,
-undergoes a degenerative change, by which the contractile fibres of the
-muscles are converted into a structure having none of the properties of the
-natural fibres, and in which are found a number of fatty, oily globules, which
-can be readily seen by means of the microscope. This condition, if at all
-extensive, renders the action of the heart feeble and irregular, and is very
-perilous, not infrequently causing sudden death. It is found in connection
-with a general unhealthy condition of system, and is evidence of general mal-
-nutrition. It is brought about by an indolent, luxurious mode of living, or,
-at all events, by neglect of bodily exercise and those hygienic rules which
-are essential for healthy nutrition. It cannot, however, be said to be
-incompatible with mental rigour, and certainly is not necessarily associated
-with stupidity. But the heart, in this form of disease, is literally,
-"greasy," and may be truly described as "fat as grease." So much for
-physiology and pathology. May I venture on the sacred territory of biblical
-exegesis without risking the charge of fatuousness. Is not the Psalmist
-contrasting those who lead an animal, self indulgent, vicious life, by which
-body and mind are incapacitated for their proper uses, and those who can run
-in the way of God's commandments, delight to do his will, and meditate on his
-precepts? Sloth, fatness and stupidity, versus activity, firm muscles, and
-mental rigour. Body versus mind. Man become as a beast versus man retaining
-the image of God.
-
-\---_Sir James Risdon Bennett_ , 1881.
+**Verse 70 &mdash;** "*Their heart is as fat as grease; but I delight in thy law* " as if he should say, My heart is a lean heart, a hungry heart, my soul loveth and rejoiceth in thy word. I have nothing else to fill it but thy word, and the comforts I have from it; but their hearts are fat hearts: fat with the world, fat with lust: they hate the word. As a full stomach loatheth meat and cannot digest it; so wicked men hate the word, it will not go down with them, it will not gratify their lusts. *William Fenner*. Being anxious to know the medical significance of fatty heart, I applied to an eminent gentleman who is well known as having been President of the College of Physicians. His reply shows that the language is rather figurative than literal. He kindly replied to me as follows:--- There are two forms of so called "fatty heart." In the one there is an excessive amount of fatty tissue covering the exterior of the organ, especially about the base. This may be observed in all cases where the body of the animal is throughout over fat, as in animals fattened for slaughter. It does not necessarily interfere with the action of the heart, and may not be of much importance in a medical point of view. The second form is, however, a much more serious condition. In this, the muscular structure of the heart, on which its all important function, as the central propelling power, depends, undergoes a degenerative change, by which the contractile fibres of the muscles are converted into a structure having none of the properties of the natural fibres, and in which are found a number of fatty, oily globules, which can be readily seen by means of the microscope. This condition, if at all extensive, renders the action of the heart feeble and irregular, and is very perilous, not infrequently causing sudden death. It is found in connection with a general unhealthy condition of system, and is evidence of general mal- nutrition. It is brought about by an indolent, luxurious mode of living, or, at all events, by neglect of bodily exercise and those hygienic rules which are essential for healthy nutrition. It cannot, however, be said to be incompatible with mental rigour, and certainly is not necessarily associated with stupidity. But the heart, in this form of disease, is literally, "greasy," and may be truly described as "fat as grease." So much for physiology and pathology. May I venture on the sacred territory of biblical exegesis without risking the charge of fatuousness. Is not the Psalmist contrasting those who lead an animal, self indulgent, vicious life, by which body and mind are incapacitated for their proper uses, and those who can run in the way of God's commandments, delight to do his will, and meditate on his precepts? Sloth, fatness and stupidity, versus activity, firm muscles, and mental rigour. Body versus mind. Man become as a beast versus man retaining the image of God. *Sir James Risdon Bennett* , 1881.
 
 ### Hints to Preachers
 
-**Verse 70.** \---
+**Verse 70 &mdash;** 1. Fatty degeneration of the heart. 2. Thorough regeneration of the heart.
 
-  1. Fatty degeneration of the heart.
-
-  2. Thorough regeneration of the heart.
-
-**Verse 70.** \---"_A fatty heart_."
-
-  1. The diagnosis of the disease.
-
-  2. Its symptoms. Pride; no delight in God, nor in his law; dislike to his people; readiness to lie: Psa 119:69.
-
-  3. Its fatal character.
-
-  4. Its only cure. Psa 51:10; Eze 36:26.
-
-\---_C. A. D._
+**Verse 70 &mdash;** "*A fatty heart*." 1. The diagnosis of the disease. 2. Its symptoms. Pride; no delight in God, nor in his law; dislike to his people; readiness to lie: Psa 119:69. 3. Its fatal character. 4. Its only cure. Psa 51:10; Eze 36:26. *C. A. D.*
 
 ## Exposition Verse 71
 
-**Verse 71.** \---"_It is good for me that I have been afflicted_." Even
-though the affliction came from bad men, it was overruled for good ends:
-though it was bad as it came from them, it was good for David. It benefited
-him in many ways, and he knew it. Whatever he may have thought while under the
-trial, he perceived himself to be the better for it when it was over. It was
-not good to the proud to be prosperous, for their hearts grew sensual and
-insensible; but affliction was good for the Psalmist. Our worst is better for
-us than the sinner's best. It is bad for sinners to rejoice, and good for
-saints to sorrow. A thousand benefits have come to us through our pains and
-griefs, and among the rest is this---that we have thus been schooled in the
-law.
+> *It is* good for me that I have been afflicted; that I might learn thy statutes. 
 
-"_That I might learn thy statutes_." These we have come to know and to keep by
-feeling the smart of the rod. We prayed the Lord to teach us (Psa 119:66), and
-now we see how he has already been doing it. Truly he has dealt well with us,
-for he has dealt wisely with us. We have been kept from the ignorance of the
-greasy hearted by our trials, and this, if there were nothing else, is just
-cause for constant gratitude. To be larded by prosperity, is not good for the
-proud; but for the truth to be learned by adversity is good for the humble.
-Very little is to be learned without affliction. If we would be scholars we
-must be sufferers. As the Latins say, "_Experientia docet_ ," experience
-teaches. There is no royal road to learning the royal statutes; God's commands
-are best read by eyes wet with tears.
+"*It is good for me that I have been afflicted*." Even though the affliction came from bad men, it was overruled for good ends: though it was bad as it came from them, it was good for David. It benefited him in many ways, and he knew it. Whatever he may have thought while under the trial, he perceived himself to be the better for it when it was over. It was not good to the proud to be prosperous, for their hearts grew sensual and insensible; but affliction was good for the Psalmist. Our worst is better for us than the sinner's best. It is bad for sinners to rejoice, and good for saints to sorrow. A thousand benefits have come to us through our pains and griefs, and among the rest is this---that we have thus been schooled in the law.
+
+"*That I might learn thy statutes*." These we have come to know and to keep by feeling the smart of the rod. We prayed the Lord to teach us (Psa 119:66), and now we see how he has already been doing it. Truly he has dealt well with us, for he has dealt wisely with us. We have been kept from the ignorance of the greasy hearted by our trials, and this, if there were nothing else, is just cause for constant gratitude. To be larded by prosperity, is not good for the proud; but for the truth to be learned by adversity is good for the humble. Very little is to be learned without affliction. If we would be scholars we must be sufferers. As the Latins say, "*Experientia docet* ," experience teaches. There is no royal road to learning the royal statutes; God's commands are best read by eyes wet with tears.
 
 ### Explanatory Notes and Quaint Sayings
 
-**Verse 71.** \---"_It is good for me_ ," etc. I am mended by my sickness,
-enriched by my poverty, and strengthened by my weakness, and with S. Bernard
-desire, "_Irasecaris mihi; Domine_ ," O Lord, be angry with me. For if you
-chide me not, you consider me not; if I taste no bitterness, I have no physic;
-if thou correct me not, I am not thy son. Thus was it with the great
-grandchild of David, Manasseh, when he was in affliction, "_He besought the
-Lord his God_ :" even that king's iron was more precious to him than his gold,
-his jail a more happy lodging than his palace, Babylon a better school than
-Jerusalem. What fools are we, then to frown upon our afflictions! These, how
-crabbed soever, are our best friends. They are not indeed for our pleasure,
-they are for our profit; their issue makes them worthy of a welcome. What do
-we care how bitter that potion be that brings health.
+**Verse 71 &mdash;** "*It is good for me* ," etc. I am mended by my sickness, enriched by my poverty, and strengthened by my weakness, and with S. Bernard desire, "*Irasecaris mihi; Domine* ," O Lord, be angry with me. For if you chide me not, you consider me not; if I taste no bitterness, I have no physic; if thou correct me not, I am not thy son. Thus was it with the great grandchild of David, Manasseh, when he was in affliction, "*He besought the Lord his God* :" even that king's iron was more precious to him than his gold, his jail a more happy lodging than his palace, Babylon a better school than Jerusalem. What fools are we, then to frown upon our afflictions! These, how crabbed soever, are our best friends. They are not indeed for our pleasure, they are for our profit; their issue makes them worthy of a welcome. What do we care how bitter that potion be that brings health. *Abraham Wright*.
 
-\---_Abraham Wright_.
+**Verse 71 &mdash;** "*It is good for me that I have been afflicted*." Saints are great gainers by affliction, because "*godliness* ," which is "*great gain* ," which is "*profitable for all things* ," is more powerful than before. The rod of correction, by a miracle of grace, like that of Aaron's, buds and blossoms, and brings forth the fruits of righteousness, which are most excellent. A rare sight it is indeed to see a man coming out of a bed of languishing, or any other furnace of affliction, more like to angels in purity, more like to Christ who was holy, harmless, undefiled, and separate from sinners; more like unto God himself, being more exactly righteous in all his ways, and more exemplarily holy in all manner of conversation. *Nathanael Vincent* , 1697.
 
-**Verse 71.** \---"_It is good for me that I have been afflicted_." Saints are
-great gainers by affliction, because "_godliness_ ," which is "_great gain_ ,"
-which is "_profitable for all things_ ," is more powerful than before. The rod
-of correction, by a miracle of grace, like that of Aaron's, buds and blossoms,
-and brings forth the fruits of righteousness, which are most excellent. A rare
-sight it is indeed to see a man coming out of a bed of languishing, or any
-other furnace of affliction, more like to angels in purity, more like to
-Christ who was holy, harmless, undefiled, and separate from sinners; more like
-unto God himself, being more exactly righteous in all his ways, and more
-exemplarily holy in all manner of conversation.
+**Verse 71 &mdash;** "*It is good for me that I have been afflicted*." If I have no cross to bear today, I shall not advance heavenwards. A cross (that is anything that disturbs our peace), is the spur which stimulates, and without which we should most likely remain stationary, blinded with empty vanities, and sinking deeper into sin. A cross helps us onwards, in spite of our apathy and resistance. To lie quietly on a bed of down, may seem a very sweet existence; but, pleasant ease and rest are not the lot of a Christian: if he would mount higher and higher, it must be by a rough road. Alas! for those who have no daily cross! Alas! for those who repine and fret against it! From "*Gold Dust* ," 1880.
 
-\---_Nathanael Vincent_ , 1697.
+**Verse 71 &mdash;** "*It is good for me* ," etc. There are some things good but not pleasant, as *sorrow* and *affliction*. Sin is pleasant, but unprofitable; and sorrow is profitable, but unpleasant. As waters are purest when they are in motion, so saints are generally holiest when in affliction. Some Christians resemble those children who will learn their books no longer than while the rod is on their backs. It is well known that by the greatest affliction the Lord has sealed the sweetest instruction. Many are not bettered by the judgments they see, when they are by the judgments they have felt. The purest gold is the most pliable. That is the best blade which bends well without retaining its crooked figure. *William Secker* , 1660.
 
-**Verse 71.** \---"_It is good for me that I have been afflicted_." If I have
-no cross to bear today, I shall not advance heavenwards. A cross (that is
-anything that disturbs our peace), is the spur which stimulates, and without
-which we should most likely remain stationary, blinded with empty vanities,
-and sinking deeper into sin. A cross helps us onwards, in spite of our apathy
-and resistance. To lie quietly on a bed of down, may seem a very sweet
-existence; but, pleasant ease and rest are not the lot of a Christian: if he
-would mount higher and higher, it must be by a rough road. Alas! for those who
-have no daily cross! Alas! for those who repine and fret against it!
+**Verse 71 &mdash;** "*It is good for me* ," etc. Piety hath a wondrous virtue to change all things into matter of consolation and joy. No condition in effect can be evil or sad to a pious man: his very sorrows are pleasant, his infirmities are wholesome, his wants enrich him, his disgraces adorn him, his burdens ease him; his duties are privileges, his falls are the grounds of advancement, his very sins (as breeding contrition, humility, circumspection, and vigilance), do better and profit him: whereas impiety doth spoil every condition, doth corrupt and embase all good things, doth embitter all the conveniences and comforts of life. *Isaac Barrow* , 1630-1677.
 
-\---From "_Gold Dust_ ," 1880.
+**Verse 71 &mdash;** "*It is good for me that I have been afflicted*." In Miss E. J. Whately's very interesting *Life of her Father* , the celebrated Archbishop of Dublin, a fact is recorded, as told by Dr. Whately, with reference to the introduction of the larch tree into England. When the plants were first brought, the gardener, hearing that they came from the south of Europe, and taking it for granted that they would require warmth,---forgetting that might grow near the snow line,---put them into a hothouse. Day by day they withered, until the gardener in disgust threw them on a dung heap outside; there they began to revive and bud, and at last grew into trees. They needed the cold. The great Husbandman often saves his plants by throwing them out into the cold. The nipping frosts of trial and affliction are ofttimes needed, if God's larches are to grow. It is under such discipline that new thoughts and feelings appear. The heart becomes more dead to the world and self. From the night of sorrow rises the morning of joy. Winter is the harbinger of spring. From the crucifixion of the old man comes the resurrection of the new, as in nature life is the child of death. "The night is the mother of the day, And winter of the spring; And ever upon old decay, The greenest mosses spring." *James Wareing Bardsicy* , in *Illustrated Texts and Texts Illustrated* , 1876.
 
-**Verse 71.** \---"_It is good for me_ ," etc. There are some things good but
-not pleasant, as _sorrow_ and _affliction_. Sin is pleasant, but unprofitable;
-and sorrow is profitable, but unpleasant. As waters are purest when they are
-in motion, so saints are generally holiest when in affliction. Some Christians
-resemble those children who will learn their books no longer than while the
-rod is on their backs. It is well known that by the greatest affliction the
-Lord has sealed the sweetest instruction. Many are not bettered by the
-judgments they see, when they are by the judgments they have felt. The purest
-gold is the most pliable. That is the best blade which bends well without
-retaining its crooked figure.
+**Verse 71 &mdash;** "*It is good for me that I have been afflicted*." It is a remarkable circumstance that the most brilliant colours of plants are to be seen on the highest mountains, in spots that are most exposed to the wildest weather. The brightest lichens and mosses, the loveliest gems of wild flowers, abound far up on the bleak, storm scalped peak. One of the richest displays of organic colouring I ever beheld was near the summit of Mount Chenebettaz, a hill about 10,000 feet high, immediately above the great St. Bernard Hospice. The whole face of an extensive rock was covered with a most vivid yellow lichen, which shone in the sunshine like the golden battlement of an enchanted castle. There, in that lofty region, amid the most frowning desolation, exposed to the fiercest tempest of the sky, this lichen exhibited a glory of colour such as it never showed in the sheltered valley. I have two specimens of the same lichen before me while I write these lines, one from the great St. Bernard, and the other from the wall of a Scottish castle, deeply embosomed among sycamore trees; and the difference in point of form and colouring between them is most striking. The specimen nurtured amid the wild storms of the mountain peak is of a lovely primrose hue, and is smooth in texture and complete in outline; while the specimen nurtured amid the soft airs and the delicate showers of the lowland valley is of a dim rusty hue, and is scurfy in texture, and broken in outline. And is it not so with the Christian who is afflicted, tempest tossed, and not comforted? Till the storms and vicissitudes of God's providence beat upon him again and again, his character appears marred and clouded by selfish and worldly influences. But trials clear away the obscurity, perfect the outlines of his disposition, and give brightness and blessings to his piety. Amidst my list of blessings infinite stands this the foremost that my heart has bled; For all I bless thee, most for the severe. *Hugh Macmillan*.
 
-\---_William Secker_ , 1660.
+**Verse 71 &mdash;** "*That I might fear thy statutes*." He speaks not of that learning which is gotten by hearing or reading of God's word; but of the learning which he had gotten by experience; that he had felt the truth and comfort of God's word more effectual and lively in trouble than he could do without trouble; which also made him more godly, wise, and religious when the trouble was gone. *William Cowper*.
 
-**Verse 71.** \---"_It is good for me_ ," etc. Piety hath a wondrous virtue to
-change all things into matter of consolation and joy. No condition in effect
-can be evil or sad to a pious man: his very sorrows are pleasant, his
-infirmities are wholesome, his wants enrich him, his disgraces adorn him, his
-burdens ease him; his duties are privileges, his falls are the grounds of
-advancement, his very sins (as breeding contrition, humility, circumspection,
-and vigilance), do better and profit him: whereas impiety doth spoil every
-condition, doth corrupt and embase all good things, doth embitter all the
-conveniences and comforts of life.
+**Verse 71 &mdash;** "*That I might learn*." "I had never known," said Martin Luther's wife, "what such and such things meant, in such and such psalms, such complaints and workings of spirit; I had never understood the practice of Christian duties, had not God brought me under some affliction." It is very true that God's rod is as the schoolmaster's pointer to the child, pointing out the letter, that he may the better take notice of it; thus he points out to us many good lessons which we should never otherwise have learned. From *John Spencer's "Things New and Old* ," 1658.
 
-\---_Isaac Barrow_ , 1630-1677.
+**Verse 71 &mdash;** "*That I might learn*." As prosperity blindeth the eyes of men, even so doth adversity open them. Like as the salve that remedies the disease of the eyes doth first bite and grieve the eyes, and maketh them to water, but yet afterward the eyesight is clearer than it was; even so trouble doth vex men wonderfully at the first, but afterwards it lighteneth the eyes of the mind, that it is afterward more reasonable, wise and circumspect. For trouble bringeth experience, and experience bringeth wisdom. *Otho Wermullerus* , 1551.
 
-**Verse 71.** \---"_It is good for me that I have been afflicted_." In Miss E.
-J. Whately's very interesting _Life of her Father_ , the celebrated Archbishop
-of Dublin, a fact is recorded, as told by Dr. Whately, with reference to the
-introduction of the larch tree into England. When the plants were first
-brought, the gardener, hearing that they came from the south of Europe, and
-taking it for granted that they would require warmth,---forgetting that might
-grow near the snow line,---put them into a hothouse. Day by day they withered,
-until the gardener in disgust threw them on a dung heap outside; there they
-began to revive and bud, and at last grew into trees. They needed the cold.
+**Verse 71 &mdash;** "*Learn thy statutes*." The Christian has reason to thank God that things have not been accommodated to his wishes. When the mist of tears was in his eyes, he looked into the word of God and saw magnificent things. When Jonah came up from the depths of ocean, he showed that he had learned the statutes of God. One could not go too deep to get such knowledge as he obtained. Nothing now could hinder him from going to Nineveh. It is just the same as though he had brought up from the deep an army of twelve legions of the most formidable troops. The word of God, grasped by faith, was all this to him, and more. He still, however, needed further affliction; for there were some statutes not yet learned. Some gourds were to wither. He was to descend into a further vale of humiliation. Even the profoundest affliction does not, perhaps, teach us everything; a mistake we sometimes make. But why should we compel God to use harsh measures with us? Why not sit at the feet of Jesus and learn quietly what we need to learn? *George Bowen* , *in* "*Daily Meditations* ," 1873.
 
-The great Husbandman often saves his plants by throwing them out into the
-cold. The nipping frosts of trial and affliction are ofttimes needed, if God's
-larches are to grow. It is under such discipline that new thoughts and
-feelings appear. The heart becomes more dead to the world and self. From the
-night of sorrow rises the morning of joy. Winter is the harbinger of spring.
-From the crucifixion of the old man comes the resurrection of the new, as in
-nature life is the child of death. "The night is the mother of the day, And
-winter of the spring; And ever upon old decay, The greenest mosses spring."
-
-\---_James Wareing Bardsicy_ , in _Illustrated Texts and Texts Illustrated_ ,
-1876.
-
-**Verse 71.** \---"_It is good for me that I have been afflicted_." It is a
-remarkable circumstance that the most brilliant colours of plants are to be
-seen on the highest mountains, in spots that are most exposed to the wildest
-weather. The brightest lichens and mosses, the loveliest gems of wild flowers,
-abound far up on the bleak, storm scalped peak. One of the richest displays of
-organic colouring I ever beheld was near the summit of Mount Chenebettaz, a
-hill about 10,000 feet high, immediately above the great St. Bernard Hospice.
-The whole face of an extensive rock was covered with a most vivid yellow
-lichen, which shone in the sunshine like the golden battlement of an enchanted
-castle. There, in that lofty region, amid the most frowning desolation,
-exposed to the fiercest tempest of the sky, this lichen exhibited a glory of
-colour such as it never showed in the sheltered valley. I have two specimens
-of the same lichen before me while I write these lines, one from the great St.
-Bernard, and the other from the wall of a Scottish castle, deeply embosomed
-among sycamore trees; and the difference in point of form and colouring
-between them is most striking. The specimen nurtured amid the wild storms of
-the mountain peak is of a lovely primrose hue, and is smooth in texture and
-complete in outline; while the specimen nurtured amid the soft airs and the
-delicate showers of the lowland valley is of a dim rusty hue, and is scurfy in
-texture, and broken in outline. And is it not so with the Christian who is
-afflicted, tempest tossed, and not comforted? Till the storms and vicissitudes
-of God's providence beat upon him again and again, his character appears
-marred and clouded by selfish and worldly influences. But trials clear away
-the obscurity, perfect the outlines of his disposition, and give brightness
-and blessings to his piety. Amidst my list of blessings infinite stands this
-the foremost that my heart has bled; For all I bless thee, most for the
-severe.
-
-\---_Hugh Macmillan_.
-
-**Verse 71.** \---"_That I might fear thy statutes_." He speaks not of that
-learning which is gotten by hearing or reading of God's word; but of the
-learning which he had gotten by experience; that he had felt the truth and
-comfort of God's word more effectual and lively in trouble than he could do
-without trouble; which also made him more godly, wise, and religious when the
-trouble was gone.
-
-\---_William Cowper_.
-
-**Verse 71.** \---"_That I might learn_." "I had never known," said Martin
-Luther's wife, "what such and such things meant, in such and such psalms, such
-complaints and workings of spirit; I had never understood the practice of
-Christian duties, had not God brought me under some affliction." It is very
-true that God's rod is as the schoolmaster's pointer to the child, pointing
-out the letter, that he may the better take notice of it; thus he points out
-to us many good lessons which we should never otherwise have learned.
-
-\---From _John Spencer's "Things New and Old_ ," 1658.
-
-**Verse 71.** \---"_That I might learn_." As prosperity blindeth the eyes of
-men, even so doth adversity open them. Like as the salve that remedies the
-disease of the eyes doth first bite and grieve the eyes, and maketh them to
-water, but yet afterward the eyesight is clearer than it was; even so trouble
-doth vex men wonderfully at the first, but afterwards it lighteneth the eyes
-of the mind, that it is afterward more reasonable, wise and circumspect. For
-trouble bringeth experience, and experience bringeth wisdom.
-
-\---_Otho Wermullerus_ , 1551.
-
-**Verse 71.** \---"_Learn thy statutes_." The Christian has reason to thank
-God that things have not been accommodated to his wishes. When the mist of
-tears was in his eyes, he looked into the word of God and saw magnificent
-things. When Jonah came up from the depths of ocean, he showed that he had
-learned the statutes of God. One could not go too deep to get such knowledge
-as he obtained. Nothing now could hinder him from going to Nineveh. It is just
-the same as though he had brought up from the deep an army of twelve legions
-of the most formidable troops. The word of God, grasped by faith, was all this
-to him, and more. He still, however, needed further affliction; for there were
-some statutes not yet learned. Some gourds were to wither. He was to descend
-into a further vale of humiliation. Even the profoundest affliction does not,
-perhaps, teach us everything; a mistake we sometimes make. But why should we
-compel God to use harsh measures with us? Why not sit at the feet of Jesus and
-learn quietly what we need to learn?
-
-\---_George Bowen_ , _in_ "_Daily Meditations_ ," 1873.
-
-**Verse 71.** \---"_Statutes_." The verb from which this word is formed means
-to engrave or inscribe. The word means a definite, prescribed, written law.
-The term is applied to Joseph's law about the portion of the priests in Egypt,
-to the law about the passover, etc. But in this psalm it has a more internal
-meaning; that moral law of God which is engraven on the fleshy tables of the
-heart; the inmost and spiritual apprehension of his will; not so obvious as
-the law and the testimonies, and a matter of more direct spiritual
-communication than his precepts; the latter being more elaborated by the
-efforts of the mind itself, divinely guided indeed, but perhaps more
-instrumentally, and less passively, employed. They are continually spoken of
-as things yet to be learned, either wholly or in part, not objectively
-apprehended already, like God's law... They are learned, not suddenly, but by
-experience, and through the means of trials mercifully ordained by God;
-lessons therefore which are deeply engraven on the heart. "_Good is it for me
-that I have been in trouble, that I might learn thy statutes_." "_I have more
-understanding than my teachers, because thy statutes I have observed_."
-
-\---_John Jebb_.
+**Verse 71 &mdash;** "*Statutes*." The verb from which this word is formed means to engrave or inscribe. The word means a definite, prescribed, written law. The term is applied to Joseph's law about the portion of the priests in Egypt, to the law about the passover, etc. But in this psalm it has a more internal meaning; that moral law of God which is engraven on the fleshy tables of the heart; the inmost and spiritual apprehension of his will; not so obvious as the law and the testimonies, and a matter of more direct spiritual communication than his precepts; the latter being more elaborated by the efforts of the mind itself, divinely guided indeed, but perhaps more instrumentally, and less passively, employed. They are continually spoken of as things yet to be learned, either wholly or in part, not objectively apprehended already, like God's law... They are learned, not suddenly, but by experience, and through the means of trials mercifully ordained by God; lessons therefore which are deeply engraven on the heart. "*Good is it for me that I have been in trouble, that I might learn thy statutes*." "*I have more understanding than my teachers, because thy statutes I have observed*." *John Jebb*.
 
 ### Hints to Preachers
 
-**Verse 71.** \---
+**Verse 71 &mdash;** 1. David knew what was good for him. 2. David learned what is good essentially. Active obedience is learned by passive obedience.
 
-  1. David knew what was good for him.
+**Verse 71 &mdash;** Affliction an instructor. 1. Never welcomed: "*Have been*." 2. Often impatiently endured. 3. Always gratefully remembered: "*It is good* ," etc. 4. Efficient for a perverse scholar: "*That I might learn*." 5. Indispensable in the education of all. *J. F.*
 
-  2. David learned what is good essentially. Active obedience is learned by passive obedience.
-
-**Verse 71.** \---Affliction an instructor.
-
-  1. Never welcomed: "_Have been_."
-
-  2. Often impatiently endured.
-
-  3. Always gratefully remembered: "_It is good_ ," etc.
-
-  4. Efficient for a perverse scholar: "_That I might learn_."
-
-  5. Indispensable in the education of all.
-
-\---_J. F._
-
-**Verse 71.** \---The school of affliction.
-
-  1. The reluctant scholar sent to school.
-
-  2. The scholar's hard lesson.
-
-  3. The scholar's blessed learning.
-
-  4. The scholar's sweet reflection.
-
-\---_C. A. D._
+**Verse 71 &mdash;** The school of affliction. 1. The reluctant scholar sent to school. 2. The scholar's hard lesson. 3. The scholar's blessed learning. 4. The scholar's sweet reflection. *C. A. D.*
 
 ## Exposition Verse 72
 
-**Verse 72.** \---"_The law of thy mouth_." A sweetly expressive name for the
-word of God. It comes from God's own mouth with freshness and power to our
-souls. Things written are as dried herbs; but speech has a liveliness and dew
-about it. We do well to look upon the word of the Lord as though it were newly
-spoken into our ear; for in very truth it is not decayed by years, but is as
-forcible and sure as though newly uttered. Precepts are prized when it is seen
-that they come forth from the lips of our Father who is in heaven. The same
-lips which spoke us into existence have spoken the law by which we are to
-govern that existence. Whence could a law so sweetly proceed as from the mouth
-of our covenant God? Well may we prize beyond all price that which comes from
-such a source.
+> The law of thy mouth *is* better unto me than thousands of gold and silver. 
 
-"_Is better unto me than thousands of gold and silver_." If a poor man had
-said this, the world's witlings would have hinted that the grapes are sour,
-and that men who have no wealth are the first to despise it; but this is the
-verdict of a man who owned his thousands, and could judge by actual experience
-of the value of money and the value of truth. He speaks of great riches, he
-heaps it up by thousands, he mentions the varieties of its forms,---"_gold and
-silver_ ;" and then he sets the word of God before it all, as better to him,
-even if others did not think it better to them. Wealth is good in some
-respects, but obedience is better in all respects. It is well to keep the
-treasures of this life; but far more commendable to keep the law of the Lord.
-The law is better than gold and silver, for these may be stolen from us, but
-not the word; these take to themselves wings, but the word of God remains;
-these are useless in the hour of death, but then it is that the promise is
-most dear. Instructed Christians recognize the value of the Lord's word, and
-warmly express it, not only in their testimony to their fellow men, but in
-their devotions to God. It is a sure sign of a heart which has learned God's
-statutes when it prizes them above all earthly possessions; and it is an
-equally certain mark of grace when the precepts of Scripture are as precious
-as its promises. The Lord cause us thus to prize the law of his mouth.
+"*The law of thy mouth*." A sweetly expressive name for the word of God. It comes from God's own mouth with freshness and power to our souls. Things written are as dried herbs; but speech has a liveliness and dew about it. We do well to look upon the word of the Lord as though it were newly spoken into our ear; for in very truth it is not decayed by years, but is as forcible and sure as though newly uttered. Precepts are prized when it is seen that they come forth from the lips of our Father who is in heaven. The same lips which spoke us into existence have spoken the law by which we are to govern that existence. Whence could a law so sweetly proceed as from the mouth of our covenant God? Well may we prize beyond all price that which comes from such a source.
 
-See how this portion of the psalm is flavoured with goodness. God's dealings
-are good (Psa 119:65), holy judgment is good (Psa 119:66), affliction is good
-(Psa 119:67), God is good (Psa 119:68), and here the law is not only good, but
-better than the best of treasure. Lord, make us good, through thy good word.
-Amen.
+"*Is better unto me than thousands of gold and silver*." If a poor man had said this, the world's witlings would have hinted that the grapes are sour, and that men who have no wealth are the first to despise it; but this is the verdict of a man who owned his thousands, and could judge by actual experience of the value of money and the value of truth. He speaks of great riches, he heaps it up by thousands, he mentions the varieties of its forms,---"*gold and silver* ;" and then he sets the word of God before it all, as better to him, even if others did not think it better to them. Wealth is good in some respects, but obedience is better in all respects. It is well to keep the treasures of this life; but far more commendable to keep the law of the Lord. The law is better than gold and silver, for these may be stolen from us, but not the word; these take to themselves wings, but the word of God remains; these are useless in the hour of death, but then it is that the promise is most dear. Instructed Christians recognize the value of the Lord's word, and warmly express it, not only in their testimony to their fellow men, but in their devotions to God. It is a sure sign of a heart which has learned God's statutes when it prizes them above all earthly possessions; and it is an equally certain mark of grace when the precepts of Scripture are as precious as its promises. The Lord cause us thus to prize the law of his mouth.
+
+See how this portion of the psalm is flavoured with goodness. God's dealings are good (Psa 119:65), holy judgment is good (Psa 119:66), affliction is good (Psa 119:67), God is good (Psa 119:68), and here the law is not only good, but better than the best of treasure. Lord, make us good, through thy good word. Amen.
 
 ### Explanatory Notes and Quaint Sayings
 
-**Verse 72.** \---"_The law of thy mouth is better unto me_ ," etc. Highly
-prize the Scriptures. Can he make a proficiency in any art, who doth slight
-and deprecate it? Prize this book of God above all other books. St. Gregory
-calls the Bible "the heart and soul of God." The rabbins say, that a mountain
-of sense hangs upon every apex and title of Scripture. "_The law of the Lord
-is perfect_ :" Psa 19:7. The Scripture is the library of the Holy Ghost; it is
-a pandect of divine knowledge, an exact model and platform of religion. The
-Scripture contains in it the credenda, "the things which we are to believe,"
-and the agenda, "the things which we are to practise." It is "_able to make us
-wise unto salvation_ :" 2Ti 3:15. The Scripture is the standard of truth, the
-judge of controversies; it is the pole star to direct us to heaven: Isa 8:20.
-"_The commandment is a lamp_ :" Pro 6:23. The Scripture is the compass by
-which the rudder of our will is to be steered; it is the field in which
-Christ, the Pearl of price, is hid; it is a rock of diamonds; it is a sacred
-collyrium, or eyesalve; it mends their eyes that look upon it; it is a
-spiritual optic glass in which the glory of God is resplendent; it is the
-panacy, or universal medicine for the soul. The leaves of Scripture are like
-the "_leaves of the tree of life, for the healing of the nations_ :" Rev 22:2.
-The Scripture is both the breeder and feeder of grace. How is the convert
-born, but by "_the word of truth_?" Jas 1:18. How doth he grow, but by "_the
-sincere milk of the word_?" 1Pe 2:2. The word written is the book out of which
-our evidences for heaven are fetched; it is the sea mark which shows us the
-rocks of sin to avoid; it is the antidote against error and apostasy, the two
-edged sword which wounds the old serpent. It is our bulwark to withstand the
-force of lust; like the Capitol of Rome, which was a place of strength and
-ammunition. The Scripture is the "tower of David," wherein the shields of our
-faith hang: Sng 4:4. "Take away the word and you deprive us of the sun," said
-Luther. The word written is above an angelic embassy, or voice from heaven.
-"_This voice which came from heaven we heard... We have also a more sure Word_
-:" 2Pe 1:18-19. O, prize the word written; prizing is the way to profiting. If
-Caesar so valued his commentaries, that for preserving them he lost his purple
-robe, how should we estimate the sacred oracles of God? "_I have esteemed the
-words of his mouth more than my necessary food_."
+**Verse 72 &mdash;** "*The law of thy mouth is better unto me* ," etc. Highly prize the Scriptures. Can he make a proficiency in any art, who doth slight and deprecate it? Prize this book of God above all other books. St. Gregory calls the Bible "the heart and soul of God." The rabbins say, that a mountain of sense hangs upon every apex and title of Scripture. "*The law of the Lord is perfect* :" Psa 19:7. The Scripture is the library of the Holy Ghost; it is a pandect of divine knowledge, an exact model and platform of religion. The Scripture contains in it the credenda, "the things which we are to believe," and the agenda, "the things which we are to practise." It is "*able to make us wise unto salvation* :" 2Ti 3:15. The Scripture is the standard of truth, the judge of controversies; it is the pole star to direct us to heaven: Isa 8:20. "*The commandment is a lamp* :" Pro 6:23. The Scripture is the compass by which the rudder of our will is to be steered; it is the field in which Christ, the Pearl of price, is hid; it is a rock of diamonds; it is a sacred collyrium, or eyesalve; it mends their eyes that look upon it; it is a spiritual optic glass in which the glory of God is resplendent; it is the panacy, or universal medicine for the soul. The leaves of Scripture are like the "*leaves of the tree of life, for the healing of the nations* :" Rev 22:2. The Scripture is both the breeder and feeder of grace. How is the convert born, but by "*the word of truth*?" Jas 1:18. How doth he grow, but by "*the sincere milk of the word*?" 1Pe 2:2. The word written is the book out of which our evidences for heaven are fetched; it is the sea mark which shows us the rocks of sin to avoid; it is the antidote against error and apostasy, the two edged sword which wounds the old serpent. It is our bulwark to withstand the force of lust; like the Capitol of Rome, which was a place of strength and ammunition. The Scripture is the "tower of David," wherein the shields of our faith hang: Sng 4:4. "Take away the word and you deprive us of the sun," said Luther. The word written is above an angelic embassy, or voice from heaven. "*This voice which came from heaven we heard... We have also a more sure Word* :" 2Pe 1:18-19. O, prize the word written; prizing is the way to profiting. If Caesar so valued his commentaries, that for preserving them he lost his purple robe, how should we estimate the sacred oracles of God? "*I have esteemed the words of his mouth more than my necessary food*." *Thomas Watson* , *in* "*The Morning Exercises* ".
 
-\---_Thomas Watson_ , _in_ "_The Morning Exercises_ ".
+**Verse 72 &mdash;** "*The law of thy mouth is better unto me*." The sacred Scriptures are the treasures and pleasures of a gracious soul: to David they were better than thousands of gold and silver. A mountain of transparent pearls, heaped as high as heaven, is not so rich in treasure as these; hence that good man chose these as his heritage for ever, and rejoiced in them as in all riches. A covetous miser could not take such delight in his bags, nor a young heir in a large inheritance, as holy David did in God's word. The word law comes from a root that signifies to try as merchants that search and prove the wares that they buy and lay up; hence also comes the word for gems and jewels that are tried, and found right. The sound Christian is the wise merchant, seeking goodly pearls; he tries what he reads or hears by the standard or touchstone of Scripture, and having found genuine truths he lays them up to the great enriching of this supreme and sovereign faculty of the understanding. *Oliver Heywood*.
 
-**Verse 72.** \---"_The law of thy mouth is better unto me_." The sacred
-Scriptures are the treasures and pleasures of a gracious soul: to David they
-were better than thousands of gold and silver. A mountain of transparent
-pearls, heaped as high as heaven, is not so rich in treasure as these; hence
-that good man chose these as his heritage for ever, and rejoiced in them as in
-all riches. A covetous miser could not take such delight in his bags, nor a
-young heir in a large inheritance, as holy David did in God's word.
+**Verse 72 &mdash;** The word of God must be nearer to us than our friends, dearer to us than our lives, sweeter to us than our liberty, and more pleasant to us than all earthly comforts. *John Mason*.
 
-The word law comes from a root that signifies to try as merchants that search
-and prove the wares that they buy and lay up; hence also comes the word for
-gems and jewels that are tried, and found right. The sound Christian is the
-wise merchant, seeking goodly pearls; he tries what he reads or hears by the
-standard or touchstone of Scripture, and having found genuine truths he lays
-them up to the great enriching of this supreme and sovereign faculty of the
-understanding.
+**Verse 72 &mdash;** One lesson, taught by sanctified affliction, is, the love of God's word. "This is my comfort, in my affliction: thy word hath quickened me." In reading a part of the one hundred and nineteenth psalm to Miss Westbrook, who died, she said, "Stop, sir, I never said so much to you before ---I never could; but now I can say, 'The word of thy mouth, is dearer to me, than thousands of gold and silver.' What can gold and silver do for me by now?" *George Redford* , *in* "*Memoirs of the late Rev. John Cooke* ," 1828.
 
-\---_Oliver Heywood_.
+**Verse 72 &mdash;** "*Thousands of gold and silver*." Worldly riches are gotten with labour, kept with care, lost with grief. They are false friends, farthest from us when we have most need of comfort; as all worldlings shall find to be true in the hour of death. For then, as Jonah's gourd was taken from him in a morning, when he had most need of it against the sun; so is it with the comfort of worldlings. It is far otherwise with the word of God; for if we will lay it up in our hearts, as Mary did, the comfort thereof shall sustain us, when all other comfort shall fail us. This it is that makes us rich unto God, when our souls are storehouses, filled with the treasures of his word. Shall we think it poverty to be scant of gold and silver? "*An ideo angelus pauperest, quia non habet jumenta* ," etc (Chrysostom). Shall we esteem the angels poor, because they have not flocks of cattle? or that S. Peter was poor, because he had not gold nor silver to give unto the cripple? No, he had store of grace, by infinite degrees more excellent than it. Let the riches of gold be left unto worldlings: these are not current: in Canaan, not accounted of in our heavenly country. If we would be in any estimation there, let us enrich our souls with spiritual graces, which we have in abundance in the mines and treasures of the word of God. *William Cowper*.
 
-**Verse 72.** \---The word of God must be nearer to us than our friends,
-dearer to us than our lives, sweeter to us than our liberty, and more pleasant
-to us than all earthly comforts.
+**Verse 72 &mdash;** The Scripture is an ever overflowing fountain that cannot be drawn dry, and an inexhausted treasure that cannot be emptied. To this purpose tend those resemblances of the law made use of by David in this psalm, and no less justly applicable to the gospel; it is not only better than "*gold and silver* ," which are things of value, but "*thousands* ," which implies abundance. In another verse he compares it to all riches and great spoil, both which contain in them multiplex genus, all sorts of valuable commodities, sheep, oxen, lands, houses, garments, goods, moneys, and the like: thus are all sorts of spiritual riches, yea, abundance of each sort, to be had in the gospel. And therefore the Greek fathers compare Scripture verities to precious stones, and our Saviour to a pearl of great price. A minister, in this respect, is called a merchant of invaluable jewels; for, indeed, gospel truths are choice and excellent, as much worth as our souls, as heaven, as salvation is. Nay, should I go higher, look what worth there is in the riches of God's grace, the precious blood of Christ, that may secondarily be applied to the gospel, which discovereth and offereth both to us. *Abraham Wright*.
 
-\---_John Mason_.
+**Verse 72, 127 &mdash;** When David saw how some make void the law of God, he saith, "*Therefore I love thy commandments above gold: yea, above fine gold*." As if he had said, I love thy law all the more because I see some men esteem and reckon it as if it were dross, and throw it up as void and antiquated, or taking the boldness, as it were, to repeal and make it void, that they may set up their own lusts and vain imaginations. Because I see both profane and superstitious men thus out of love with thy law, therefore my love is more enfamed to it, "*I love it above gold* ," which leads the most of men away captives in the love of it; and I esteem it more than that which is most esteemed by men, and gains men most esteem in this world, "*fine gold* ;" yea, as he said (Psa 19:10) "*more than much fine gold*." *Joseph Caryl*.
 
-**Verse 72.** \---One lesson, taught by sanctified affliction, is, the love of
-God's word. "This is my comfort, in my affliction: thy word hath quickened
-me." In reading a part of the one hundred and nineteenth psalm to Miss
-Westbrook, who died, she said, "Stop, sir, I never said so much to you before
----I never could; but now I can say, 'The word of thy mouth, is dearer to me,
-than thousands of gold and silver.' What can gold and silver do for me by
-now?"
-
-\---_George Redford_ , _in_ "_Memoirs of the late Rev. John Cooke_ ," 1828.
-
-**Verse 72.** \---"_Thousands of gold and silver_." Worldly riches are gotten
-with labour, kept with care, lost with grief. They are false friends, farthest
-from us when we have most need of comfort; as all worldlings shall find to be
-true in the hour of death. For then, as Jonah's gourd was taken from him in a
-morning, when he had most need of it against the sun; so is it with the
-comfort of worldlings. It is far otherwise with the word of God; for if we
-will lay it up in our hearts, as Mary did, the comfort thereof shall sustain
-us, when all other comfort shall fail us.
-
-This it is that makes us rich unto God, when our souls are storehouses, filled
-with the treasures of his word. Shall we think it poverty to be scant of gold
-and silver? "_An ideo angelus pauperest, quia non habet jumenta_ ," etc
-(Chrysostom). Shall we esteem the angels poor, because they have not flocks of
-cattle? or that S. Peter was poor, because he had not gold nor silver to give
-unto the cripple? No, he had store of grace, by infinite degrees more
-excellent than it.
-
-Let the riches of gold be left unto worldlings: these are not current: in
-Canaan, not accounted of in our heavenly country. If we would be in any
-estimation there, let us enrich our souls with spiritual graces, which we have
-in abundance in the mines and treasures of the word of God.
-
-\---_William Cowper_.
-
-**Verse 72.** \---The Scripture is an ever overflowing fountain that cannot be
-drawn dry, and an inexhausted treasure that cannot be emptied. To this purpose
-tend those resemblances of the law made use of by David in this psalm, and no
-less justly applicable to the gospel; it is not only better than "_gold and
-silver_ ," which are things of value, but "_thousands_ ," which implies
-abundance. In another verse he compares it to all riches and great spoil, both
-which contain in them multiplex genus, all sorts of valuable commodities,
-sheep, oxen, lands, houses, garments, goods, moneys, and the like: thus are
-all sorts of spiritual riches, yea, abundance of each sort, to be had in the
-gospel. And therefore the Greek fathers compare Scripture verities to precious
-stones, and our Saviour to a pearl of great price. A minister, in this
-respect, is called a merchant of invaluable jewels; for, indeed, gospel truths
-are choice and excellent, as much worth as our souls, as heaven, as salvation
-is. Nay, should I go higher, look what worth there is in the riches of God's
-grace, the precious blood of Christ, that may secondarily be applied to the
-gospel, which discovereth and offereth both to us.
-
-\---_Abraham Wright_.
-
-**Verse 72, 127.** \---When David saw how some make void the law of God, he
-saith, "_Therefore I love thy commandments above gold: yea, above fine gold_."
-As if he had said, I love thy law all the more because I see some men esteem
-and reckon it as if it were dross, and throw it up as void and antiquated, or
-taking the boldness, as it were, to repeal and make it void, that they may set
-up their own lusts and vain imaginations. Because I see both profane and
-superstitious men thus out of love with thy law, therefore my love is more
-enfamed to it, "_I love it above gold_ ," which leads the most of men away
-captives in the love of it; and I esteem it more than that which is most
-esteemed by men, and gains men most esteem in this world, "_fine gold_ ;" yea,
-as he said (Psa 19:10) "_more than much fine gold_."
-
-\---_Joseph Caryl_.
-
-**Verse 72.** \---You that are gentlemen, remember what Hierom reports of
-Nepotianus, a young gentleman of Rome, _qui longs et assidua meditatione
-Scripturarum pectus suum feterat bibliothecam Christi_ , who by long and
-assiduous meditation of the Scriptures, made his breast the library of Christ.
-Remember what is said of King Alfonsus, that he read over the Bible fourteen
-times, together with such commentaries as those times afforded.
-
-You that are scholars, remember Cranmer and Ridley; the former learned the New
-Testament by heart in his journey to Rome, the latter in Pembroke hall walks
-in Cambridge. Remember what is said of Thomas a Kempis,---that he found rest
-nowhere _nisi in angulo, cum libello_ , but in a corner with this Book in his
-hand. And what is said of Beza,---that when he was above fourscore years old
-he could say perfectly by heart any Greek chapter in Paul's Epistles.
-
-You that are women, consider what Hierom saith of Paula, Eustochiam, and other
-ladies, who were singularly versed in the Holy Scriptures.
-
-Let all men consider that hyperbolical speech of Luther, that he would not
-live in Paradise without the Word; and with it he could live well enough in
-hell. This speech of Luther must be understood _cum grano salis._
-
-\---_Edmund Calamy_.
+**Verse 72 &mdash;** You that are gentlemen, remember what Hierom reports of Nepotianus, a young gentleman of Rome, *qui longs et assidua meditatione Scripturarum pectus suum feterat bibliothecam Christi* , who by long and assiduous meditation of the Scriptures, made his breast the library of Christ. Remember what is said of King Alfonsus, that he read over the Bible fourteen times, together with such commentaries as those times afforded. You that are scholars, remember Cranmer and Ridley; the former learned the New Testament by heart in his journey to Rome, the latter in Pembroke hall walks in Cambridge. Remember what is said of Thomas a Kempis,---that he found rest nowhere *nisi in angulo, cum libello* , but in a corner with this Book in his hand. And what is said of Beza,---that when he was above fourscore years old he could say perfectly by heart any Greek chapter in Paul's Epistles. You that are women, consider what Hierom saith of Paula, Eustochiam, and other ladies, who were singularly versed in the Holy Scriptures. Let all men consider that hyperbolical speech of Luther, that he would not live in Paradise without the Word; and with it he could live well enough in hell. This speech of Luther must be understood *cum grano salis.* *Edmund Calamy*.
 
 ### Hints to Preachers
 
-**Verse 72.** \---The advantages of riches far excelled by the blessings of
-the word.
+**Verse 72 &mdash;** The advantages of riches far excelled by the blessings of the word.
 
-**Verse 72.** \---A valuation.
+**Verse 72 &mdash;** A valuation. 1. The saints' high estimate of God's law. 2. Show when it was formed: in affliction: Psa 119:71. 3. Vindicate its truth---by illustrating the hollowness of riches, and the satisfaction found in godliness. *C. A. D.*
 
-  1. The saints' high estimate of God's law.
+**Verse 72 &mdash;** The word, better than gold and silver. 1. It gives what gold and silver cannot purchase. 2. Without what it gives, gold and silver may be a curse. 3. Without gold and silver, it may yield its treasure more freely and fully than with them. 4. The word and what it gives shall rejoice the heart when gold and silver shall be useless to their disappointed worshippers. *J. F.*
 
-  2. Show when it was formed: in affliction: Psa 119:71.
-
-  3. Vindicate its truth---by illustrating the hollowness of riches, and the satisfaction found in godliness.
-
-\---_C. A. D._
-
-**Verse 72.** \---The word, better than gold and silver.
-
-  1. It gives what gold and silver cannot purchase.
-
-  2. Without what it gives, gold and silver may be a curse.
-
-  3. Without gold and silver, it may yield its treasure more freely and fully than with them.
-
-  4. The word and what it gives shall rejoice the heart when gold and silver shall be useless to their disappointed worshippers.
-
-\---_J. F._
-
-**Verse 72.** \---"_The law of thy mouth is better_ ," etc.
-
-  1. It is more refining, and makes me a better man.
-
-  2. It is more enriching, and makes me a wealthier man.
-
-  3. It is more distinguishing, and makes me a greater man.
-
-  4. It is more sustaining, and makes me a stronger man.
-
-  5. It is more preserving, and makes me a safer man.
-
-  6. It is more satisfying, and makes me a happier man.
-
-  7. It is more lasting, and better suited to me as an immortal man.
-
-\---_W. J._
+**Verse 72 &mdash;** "*The law of thy mouth is better* ," etc. 1. It is more refining, and makes me a better man. 2. It is more enriching, and makes me a wealthier man. 3. It is more distinguishing, and makes me a greater man. 4. It is more sustaining, and makes me a stronger man. 5. It is more preserving, and makes me a safer man. 6. It is more satisfying, and makes me a happier man. 7. It is more lasting, and better suited to me as an immortal man. *W. J.*
 

@@ -2,1722 +2,309 @@
 
 ## Exposition Verse 25
 
-**Verses 25-32.** \---Here, it seems to me, we have the Psalmist in trouble
-bewailing the bondage to earthly things in which he finds his mind to be held.
-His soul cleaves to the dust, melts for heaviness, and cries for enlargement
-from its spiritual prison. In these verses we shall see the influence of the
-divine word upon a heart which laments its downward tendencies, and is filled
-with mourning because of its deadening surroundings. The word of the Lord
-evidently arouses prayer (Psa 119:25-29), confirms choice (Psa 119:30), and
-inspires renewed resolve (Psa 119:32): it is in all tribulation whether of
-body or mind the surest source of help.
+> My soul cleaveth unto the dust: quicken thou me according to thy word. 
 
-This portion has 'D' for its alphabetical letter: it sings of Depression, in
-the spirit of Devotion, Determination, and Dependence.
+Here, it seems to me, we have the Psalmist in trouble bewailing the bondage to earthly things in which he finds his mind to be held. His soul cleaves to the dust, melts for heaviness, and cries for enlargement from its spiritual prison. In these verses we shall see the influence of the divine word upon a heart which laments its downward tendencies, and is filled with mourning because of its deadening surroundings. The word of the Lord evidently arouses prayer (Psa 119:25-29), confirms choice (Psa 119:30), and inspires renewed resolve (Psa 119:32): it is in all tribulation whether of body or mind the surest source of help.
 
-**Verse 25.** \---"_My soul cleaveth unto the dust_." He means in part that he
-was full of sorrow; for mourners in the east cast dust on their heads, and sat
-in ashes, and the Psalmist felt as if these ensigns of woe were glued to him,
-and his very soul was made to cleave to them because of his powerlessness to
-rise above his grief. Does he not also mean that he felt ready to die? Did he
-not feel his life absorbed and fast held by the grave's mould, half choked by
-the death dust? It may not be straining the language if we conceive that he
-also felt and bemoaned his earthly mindedness and spiritual deadness. There
-was a tendency in his soul to cling to earth which he greatly bewailed.
-Whatever was the cause of his complaint, it was no surface evil, but an affair
-of his inmost spirit; his _soul_ cleaved to the dust; and it was not a casual
-and accidental falling into the dust, but a continuous and powerful tendency,
-or _cleaving_ to the earth. But what a mercy that the good man could feel and
-deplore whatever there was of evil in the cleaving! The serpent's seed can
-find their meat in the dust, but never shall the seed of the woman be thus
-degraded. Many are of the earth earthy, and never lament it; only the heaven
-born and heaven soaring spirit pines at the thought of being fastened to this
-world, and bird limed by its sorrows or its pleasures.
+This portion has 'D' for its alphabetical letter: it sings of Depression, in the spirit of Devotion, Determination, and Dependence.
 
-"_Quicken thou me according to thy word_." More life is the cure for all our
-ailments. Only the Lord can give it. He can bestow it, bestow it at once, and
-do it according to his word, without departing from the usual course of his
-grace, as we see it mapped out in the Scriptures. It is well to know what to
-pray for,---David seeks quickening: one would have thought that he would have
-asked for comfort or upraising, but he knew that these would come out of
-increased life, and therefore he sought that blessing which is the root of the
-rest. When a person is depressed in spirit, weak, and bent towards the ground,
-the main thing is to increase his stamina and put more life into him; then his
-spirit revives, and his body becomes erect. In reviving the life, the whole
-man is renewed. Shaking off the dust is a little thing by itself, but when it
-follows upon quickening, it is a blessing of the greatest value; just as good
-spirits which flow from established health are among the choicest of our
-mercies. The phrase, "_according to thy word_ ," means---according to thy
-revealed way of quickening thy saints. The word of God shows us that he who
-first made us must keep us alive, and it tells us of the Spirit of God who
-through the ordinances pours fresh life into our souls; we beg the Lord to act
-towards us in this his own regular method of grace. Perhaps David remembered
-the word of the Lord in Deu 32:39, where Jehovah claims both to kill and to
-make alive, and he beseeches the Lord to exercise that life giving power upon
-his almost expiring servant. Certainly, the man of God had not so many rich
-promises to rest upon as we have, but even a single word was enough for him,
-and he right earnestly urges "_according to thy word_." It is a grand thing to
-see a believer in the dust and yet pleading the promise, a man at the grave's
-mouth crying, "_quicken me_ ," and hoping that it shall be done.
+"*My soul cleaveth unto the dust*." He means in part that he was full of sorrow; for mourners in the east cast dust on their heads, and sat in ashes, and the Psalmist felt as if these ensigns of woe were glued to him, and his very soul was made to cleave to them because of his powerlessness to rise above his grief. Does he not also mean that he felt ready to die? Did he not feel his life absorbed and fast held by the grave's mould, half choked by the death dust? It may not be straining the language if we conceive that he also felt and bemoaned his earthly mindedness and spiritual deadness. There was a tendency in his soul to cling to earth which he greatly bewailed. Whatever was the cause of his complaint, it was no surface evil, but an affair of his inmost spirit; his *soul* cleaved to the dust; and it was not a casual and accidental falling into the dust, but a continuous and powerful tendency, or *cleaving* to the earth. But what a mercy that the good man could feel and deplore whatever there was of evil in the cleaving! The serpent's seed can find their meat in the dust, but never shall the seed of the woman be thus degraded. Many are of the earth earthy, and never lament it; only the heaven born and heaven soaring spirit pines at the thought of being fastened to this world, and bird limed by its sorrows or its pleasures.
 
-Note how this first verse of the 4th octonary tallies with the first of the
-"_Quicken me_." While in a happy third (Psa 119:17).---"_That I may live_
-"..."_Quicken me_." While in a happy state he begs for bountiful dealing, and
-when in a forlorn condition he prays for quickening. Life is in both cases the
-object of pursuit: that he may have life, and have it more abundantly.
+"*Quicken thou me according to thy word*." More life is the cure for all our ailments. Only the Lord can give it. He can bestow it, bestow it at once, and do it according to his word, without departing from the usual course of his grace, as we see it mapped out in the Scriptures. It is well to know what to pray for,---David seeks quickening: one would have thought that he would have asked for comfort or upraising, but he knew that these would come out of increased life, and therefore he sought that blessing which is the root of the rest. When a person is depressed in spirit, weak, and bent towards the ground, the main thing is to increase his stamina and put more life into him; then his spirit revives, and his body becomes erect. In reviving the life, the whole man is renewed. Shaking off the dust is a little thing by itself, but when it follows upon quickening, it is a blessing of the greatest value; just as good spirits which flow from established health are among the choicest of our mercies. The phrase, "*according to thy word* ," means---according to thy revealed way of quickening thy saints. The word of God shows us that he who first made us must keep us alive, and it tells us of the Spirit of God who through the ordinances pours fresh life into our souls; we beg the Lord to act towards us in this his own regular method of grace. Perhaps David remembered the word of the Lord in Deu 32:39, where Jehovah claims both to kill and to make alive, and he beseeches the Lord to exercise that life giving power upon his almost expiring servant. Certainly, the man of God had not so many rich promises to rest upon as we have, but even a single word was enough for him, and he right earnestly urges "*according to thy word*." It is a grand thing to see a believer in the dust and yet pleading the promise, a man at the grave's mouth crying, "*quicken me* ," and hoping that it shall be done.
+
+Note how this first verse of the 4th octonary tallies with the first of the "*Quicken me*." While in a happy third (Psa 119:17).---"*That I may live* "..."*Quicken me*." While in a happy state he begs for bountiful dealing, and when in a forlorn condition he prays for quickening. Life is in both cases the object of pursuit: that he may have life, and have it more abundantly.
 
 ### Explanatory Notes and Quaint Sayings
 
-The eight verses alphabetically arranged:
+**Verses 25-32 &mdash;** The eight verses alphabetically arranged: (D)epressed to the dust is my soul: quicken thou me according to thy word. (D)eclared have I (to thee) my ways, and thou heardest me: teach me thy statutes. (D)eclare thou to me the way of thy precepts: so shall I talk of thy wondrous works. (D)ropping (*marg*.) is my soul for heaviness: strengthen thou me according unto thy word. (D)eceitful ways remove from me; and grant me thy law graciously. (D)etermined have I upon the way of truth; thy judgments have I laid before me. (D)eliberately I have stuck unto thy testimonies: O Lord, put me not to shame. (D)ay by day I will run the way of thy commandments, when thou shalt enlarge my heart. *Theodore Kubber*.
 
-**Verse 25.** (**D**)epressed to the dust is my soul: quicken thou me
-according to thy word.
+**Verse 25 &mdash;** "*My soul cleaveth unto the dust*." The Hebrew word for "*cleaveth* " signifies "is joined," "has adhered," "has overtaken, "has taken hold," "has joined itself." Our soul is a polypus: as the polypus readily adheres to the rocks, so does the soul cleave to the earth; and hardly can it be torn from the place to which it has once strongly attached itself. Though thy soul be now more perfect, and escaping from the waters of sin has become a bird of heaven, be not careless; earthly things are birdlime and glue; if you rub the wings against these thou wilt be held, and joined to the earth. *Thomas Le Blanc*.
 
-**Verse 26.** (**D**)eclared have I (to thee) my ways, and thou heardest me:
-teach me thy statutes.
+**Verse 25 &mdash;** "*My soul cleaveth unto the dust* ," etc. The word rendered "*cleaveth* " means to be glued to; to stick fast. It has the sense of adhering firmly to anything, so that it cannot easily be separated from it. The word "*dust* " here may mean either the earth, and earthly things, considered as low, base, unworthy, worldly; or it may mean the grave, as if he were near to that, and in danger of dying. De Wette understands it in the latter sense. Yet the word *cleave* would hardly suggest this idea; and the force of that word would be better represented by the idea that his soul, as it were, *adhered* to the things of earth, that it seemed to be so fastened to them---*so glued* to them that it could not be detached from them; that his affections were low, earthly, grovelling, so as to give him deep distress, and lead him to cry to God for life and strength that he might break away from them. *Albert Barnes*.
 
-**Verse 27.** (**D**)eclare thou to me the way of thy precepts: so shall I
-talk of thy wondrous works.
+**Verse 25 &mdash;** "*My soul cleaveth unto the dust* ," etc. The first clause seems intended to suggest two consistent but distinct ideas, that of deep degradation, as in Psa 44:25, and that of death, as in Psa 22:29. The first would be more obvious in itself, and in connection with the parallel referred to; but the other seems to be indicated as the prominent idea by the correlative petition for quickening in the last clause. "*Quicken* ," *i.e.* , save me alive, or restore me to life, the Hebrew word being a causative of the verb to live. *Joseph Addison Alexander*.
 
-**Verse 28.** (**D**)ropping (_marg_.) is my soul for heaviness: strengthen
-thou me according unto thy word.
+**Verse 25 &mdash;** "*My soul cleaveth to the dust* , etc. In this verse, David hath a complaint; "*My soul cleaveth to the dust* ;" and a prayer; "*Quicken thou me according to thy word*." The prayer, being well considered, shall teach us the meaning of the complaint; that it was not, as some think, any hard bodily estate which grieved him, but a very sore spiritual oppression (as I may call it), bearing down his soul; that where he should have mounted up toward heaven, he was pressed down to the earth, and was so clogged with earthly cogitations, or affections, or perturbations, that he could not mount up. His particular temptation he expresses not; for the children of God many times are in that estate that they cannot tell their own griefs, and sometimes so troubled, that it is not expedient, albeit they might, to express them to others. And hereof we learn, how that which the worldling counts wisdom, to the Christian is folly; what is joy to the one, is grief to the other. The joy of a worldling is to cleave unto the earth; when he grips it surest, he thinks himself happiest, for it is his portion: to take heed to his worldly affairs, and have his mind upon them (in his estimation) is only wisdom. For the serpent's curse is upon him, he creeps on the earth, and licks the dust all the days of his life. This is the miserable condition of the wicked, that even their heavenly soul is become earthly. *Qui secundum corporis appetentiam vivit caro est, etiam anima eorum caro est* ; as the Lord spake of those who perished in the Deluge, that they were but flesh, no spirit in them; that is, no spiritual or heavenly motion. But the Christian, considering that his soul is from above, sets his affection also on those things which are above: he delights to have his conversation in heaven; and it is a grief to him when he finds his motions and affections drawn down and entangled with the earth. His life is to cleave to the Lord; but it is death to him when the neck of his soul is bowed down to the yoke of the world. *William Cowper*.
 
-**Verse 29.** (**D**)eceitful ways remove from me; and grant me thy law
-graciously.
+**Verse 25 &mdash;** "*My soul cleaveth to the dust*." "*Look up now to the heavens*." So once spake the Lord to Abraham his friend, and he speaketh thus to us also. Alas! why must it be so always that, when we come to know ourselves even but a little, we are constantly answering with the mournful sigh, "*My soul cleaveth to the dust*?" Ah! that is indeed the *deepest pain* of a soul which has already tasted that the Lord is merciful, when, although desiring to soar on high, it sadly feels how impossible it is to rise. There is much hidden pain in every heart of man even in the spiritual life; but what can deeper grieve us than the perception that we are chained as with leaden weights to things concerning which we know that they may weary but cannot satisfy us? Nay, we could never have supposed, when we first, heard the Psalm of the Good Shepherd, that it could issue from a heart that panteth after God so often and so bitterly; we could never have imagined that it could become so cold, so dry, so dark within a heart which at an earlier period had tasted so much of the power of that which is to come. Have we not formerly, with this same Psalm, been able to vaunt, "*I have rejoiced in the way of thy testimonies, as much as in all riches*?" But afterwards, but now perhaps... Oh sad hours, when the beams of the sun within seem quenched, and nothing but a blond red disc remains! The fervency of the first love is cooled; earthly cares and sins have, as it were, attached a leaden plummet to the wings of the soul which, God knows, would fain soar upwards. We would render thanks, and scarce can pray; we would pray, and scarce can sigh. Our treasure is in heaven, but our soul cleaves to the earth; at least earth cleaves on all sides so to it, and weighs it down, that the eye merely sees the clouds, the tongue can but breathe forth complaints. Ah, so completely can the earth fetter us, that the heavens appear to be only a problem, and our old man is like the Giant of Mythology, who, cast to the ground in the exhausting combat, receives by contact with his mother earth fresh strength. Oh, were it otherwise! Shall it not at last, at last be altered? Dost thou really desire it, thou who out of the depths of thy soul so complainest, and canst scarcely find more tears to bewail the sorrow of thy heart? Well is it for thee if the pain thou sufferest teach thee to cry to God: "*Quicken thou me, according to thy word*." Yea, this is the *best comfort* for him who too well knows what it is to be bowed together with pain; this is the only hope for a heart which almost sinks in still despair. There is an *atmosphere* of life, high above this dust which streams to us from every side, and penetrates even the darkest dungeon. There is a *spring* of life by which the weary soul may be refreshed; and the entrance to this spring stands open, in spite of all the clouds of dust which obscure this valley of shadows here. There is a *power* of life which can even so completely make an end of our dead state, that we shall walk again before the face of the Lord in the land of the living, and, instead of uttering lamentation, we shall bear a song of praise upon our lips. Does not the Prince of life yet live in order also to repeat to us, "*Awake and rejoice, thou that dwellest in the dust* ;" and the Spirit, that bloweth whither he listeth, can, will, shall he not in his own good time, with his living breath, blow from our wings the dust that cleaveth to them? But, indeed, even the gnawing pain of the soul over so much want of spirituality and dulness is ever an encouraging sign that the good work is begun in our hearts: that which is really dead shivers no more at its own cold. "*My soul cleaveth to the dust* ," sayest thou, with tears? thus wouldest thou not speak except that already a higher hand between the soul and this dust had cleft a hollow which was unknown to it before. No one has less cause for despair than he who has lost hope in himself, and really learns to seek in God that, which he deeply feels, he least of all can give himself. Yes, this is the *way* from the deepest pain to procure the best consolation; the humble, earnest, persevering prayer, that he who lives would also give life to our souls, and continue to increase it, till freed from all dryness and deadness of spirit, and uprooted from the earth, we ascend to the eternal mount of light, where at last we behold all earthly clouds beneath us. This the God of life alone can work; but he is willing---nay, we have his own word as pledge, that he promises and bestows on us true life. Only, let us not forget that he who will quicken us "*according* " to his word, also performs this *through* his word. Let us then draw from out the eternally flowing fountain, and henceforth leave it unconditionally to him, how he will listen to our cry, even though he lead us through dark paths! Even through means of death God can quicken us and keep us alive. Lo, we are here; Lord, do with us as seemeth good to thee! Only let our souls live, that they may praise thee, here and eternally! *J. J. Van Oosterzee* (1817-1882), *in* "*The Year of Salvation*."
 
-**Verse 30.** (**D**)etermined have I upon the way of truth; thy judgments
-have I laid before me.
+**Verse 25 &mdash;** "*Cleaveth to the dust*." Is weighed down by the flesh which itself is dust. *James G. Murphy*.
 
-**Verse 31.** (**D**)eliberately I have stuck unto thy testimonies: O Lord,
-put me not to shame.
+**Verse 25 &mdash;** "*The dust* ," is the place of the afflicted, the wounded, and the dead. "*Quicken me* ," *viz.* , to life, peace, and joy. *A. R. Fausset*.
 
-**Verse 32.** (**D**)ay by day I will run the way of thy commandments, when
-thou shalt enlarge my heart.
+**Verse 25 &mdash;** "*Quicken thou me* ," etc. Seeing he was alive, how prays he that God would quicken him? I answer,---The godly esteem of life, not according to that they have in their body, but in their soul. If the soul lacks the sense of mercy, and a heavenly disposition to spiritual things, they lament over it, as a dead soul: for sure it is, temporal desertions are more heavy to the godly than temporal death. "*According to thy word*." This is a great faith, that where in respect of his present feeling he found himself dead, yet he hopes for life from God, according to his promise. Such was the faith of Abraham, who under hope, believed above hope. And truly, many times are God's children brought to this estate, that they have nothing to uphold them but the word of God; no sense of mercy, no spiritual disposition; but on the contrary, great darkness, horrible fears and terrors. Only they are sustained by looking to the promise of God, and kept in some hope that he will restore them to life again, because it is his praise to finish the work which he begins. *William Cowper*.
 
-\---_Theodore Kubber_.
+**Verse 25 &mdash;** "*Quicken thou me*." This phrase occurs nine times, and only in this Psalm. It is of great importance, as it expresses the spiritual change by which a child of Adam becomes a child of God. Its source is God; the instrument by which it is effected is the word, Psa 119:50. *James G. Murphy*.
 
-**Verse 25.** \---"_My soul cleaveth unto the dust_." The Hebrew word for
-"_cleaveth_ " signifies "is joined," "has adhered," "has overtaken, "has taken
-hold," "has joined itself." Our soul is a polypus: as the polypus readily
-adheres to the rocks, so does the soul cleave to the earth; and hardly can it
-be torn from the place to which it has once strongly attached itself. Though
-thy soul be now more perfect, and escaping from the waters of sin has become a
-bird of heaven, be not careless; earthly things are birdlime and glue; if you
-rub the wings against these thou wilt be held, and joined to the earth.
+**Verse 25 &mdash;** "*Quicken thou me according to thy word*." Where there is life there will be the endeavour to rise---the believer will not lie prone in his aspirations after God. From the lowest depths the language of faith is heard ascending to God most high, who performeth all things for the believer. The true child cannot but look towards the loving Father, who is the Almighty, All sufficient One. Have you not found it so? But will you mark the intelligence that shines around the believer's prayer? He prays that the Lord may quicken him "*according to his word*." The word may be regarded in the light of the standard after which he is to be fashioned; or the Psalmist may have in view the requirements contained in the word regarding the believer's progress; or he may be thinking of the promises found therein in behalf of the poor and needy when they apply. Indeed, all these significations may be wrapped up in the one expression---"*according to thy word* "---the standard of perfection, the requirements of the word,---the promises concerning it. The great exemplar of the believer is Christ,---of old it was the Christ of prophecy. Then the requirements of the Lord's will were scattered through the word. The Psalmist, however, may be dwelling upon the large promises which the Lord hath given towards the perfecting of his people. You see after what the spiritual nature aspires. It is quite enough to the natural man or the formalist that he be as the generally well behaved and esteemed among professors---the spiritual man aspires beyond---he aspires after being quickened according to God's word. Judge of yourselves. *John Stephen*.
 
-\---_Thomas Le Blanc_.
+**Verse 25 &mdash;** "*Quicken thou me according to thy word*." By thy providence put life into my affairs, by thy grace put life into my affections; cure me of my spiritual deadness, and make me lively in my devotion. *Matthew Henry*.
 
-**Verse 25.** \---"_My soul cleaveth unto the dust_ ," etc. The word rendered
-"_cleaveth_ " means to be glued to; to stick fast. It has the sense of
-adhering firmly to anything, so that it cannot easily be separated from it.
-The word "_dust_ " here may mean either the earth, and earthly things,
-considered as low, base, unworthy, worldly; or it may mean the grave, as if he
-were near to that, and in danger of dying. De Wette understands it in the
-latter sense. Yet the word _cleave_ would hardly suggest this idea; and the
-force of that word would be better represented by the idea that his soul, as
-it were, _adhered_ to the things of earth, that it seemed to be so fastened to
-them---_so glued_ to them that it could not be detached from them; that his
-affections were low, earthly, grovelling, so as to give him deep distress, and
-lead him to cry to God for life and strength that he might break away from
-them.
+**Verse 25 &mdash;** "*Quicken thou me according to thy word* ," Albeit the Lord suffer his own to lie so long low in their heavy condition of spirit, that they may seem dead; yet by faith in his word he keepeth in them so much life as doth furnish unto them prayer to God for comfort: "*Quicken thou me according to thy word*." *David Dickson*.
 
-\---_Albert Barnes_.
+**Verse 25 &mdash;** "*Quicken thou me*." To whom shall the godly fly when life faileth but to that Wellspring of all life? Even as to remove cold the next way is to draw near the fire, so to dispel any death, the next way is to look to him who is our root, by whom we live this natural life. All preservatives and restoratives are nothing, all colleges of physicians are vanity, if compared with him. Other things which have not life, give life as the instruments of him who is life, as fire burneth being the instrument of heat. "When heart and flesh fail, God is the strength of my heart." As a man can let a fire almost go out which had been kindled, and then blow it up, and by application of new fuel make it blaze as much as ever: so can God deal with this flame of life which he hath kindled. *Paul Bayne*.
 
-**Verse 25.** \---"_My soul cleaveth unto the dust_ ," etc. The first clause
-seems intended to suggest two consistent but distinct ideas, that of deep
-degradation, as in Psa 44:25, and that of death, as in Psa 22:29. The first
-would be more obvious in itself, and in connection with the parallel referred
-to; but the other seems to be indicated as the prominent idea by the
-correlative petition for quickening in the last clause. "_Quicken_ ," _i.e._ ,
-save me alive, or restore me to life, the Hebrew word being a causative of the
-verb to live.
+**Verse 25 &mdash;** "*According to thy word*." The word removes deadness of conscience and hardness. Is not this word a hammer to soften the heart, and is not this the immortal seed by which we are begotten again? Therefore David, finding his conscience in a dead frame, prayed, "*My soul cleaveth to the dust; quicken thou me according to thy word*." The *word* is the first thing by which conscience is purified and set right. *John Sheffield* , *in* "*A Good Conscience the Strongest Hold* ," 1650.
 
-\---_Joseph Addison Alexander_.
+**Verse 25 &mdash;** "*According to thy word*." What word doth David mean? Either the general promises in the books of Moses or Job; which intimate deliverance to the faithful observers of God's law, or help to the miserable and distressed; or some particular promise given to him by Nathan, or others. Chrysostom saith, "Quicken me according to thy word: but it is not a word of command, but a word of promise." Mark here,---he doth not say *secundum meritum meum* , but, *secundum verbum tuum* ; the hope, or that help which we expect from God, is founded upon his word; there is our security, in his promises, not in our deserving: *Prommittendo se fecit debitorem* , *etc.* When there was so little Scripture written, yet David could find out a word for his support. Alas! in our troubles and afflictions, no promise comes to mind. As in outward things, many that have less live better than those that have abundance; so here, now Scripture is so large, we are less diligent, and therefore, though we have so many promises, we are apt to faint, we have not a word to bear us up. This word did not help David, till he had lain so long under this heavy condition, that he seemed dead. Many, when they have a promise, think presently to enjoy the comfort of it. No, waiting and striving are first necessary. We never relish the comfort of the promises till the creatures have spent their allowance, and we have been exercised. God will keep his word, and yet we must expect to be tried. In this his dead condition, faith in God's word kept him alive. When we have least feeling, and there is nothing left us, the word will support us: "*And being not weak in faith, he considered not his own body now dead, when he was about an hundred years old, neither yet the deadness of Sarah's womb: he staggered not at the promise of God through unbelief but was strong in faith, giving glory to God* " (Rom 4:19-20). One way to get comfort is to plead the promise of God in prayer, *Chirographa tua injiciebat tibi Domine* , show him his handwriting; God is tender of his word. These arguments in prayer, are not to work upon God, but ourselves. *Thomas Manton*.
 
-**Verse 25.** \---"_My soul cleaveth to the dust_ , etc. In this verse, David
-hath a complaint; "_My soul cleaveth to the dust_ ;" and a prayer; "_Quicken
-thou me according to thy word_." The prayer, being well considered, shall
-teach us the meaning of the complaint; that it was not, as some think, any
-hard bodily estate which grieved him, but a very sore spiritual oppression (as
-I may call it), bearing down his soul; that where he should have mounted up
-toward heaven, he was pressed down to the earth, and was so clogged with
-earthly cogitations, or affections, or perturbations, that he could not mount
-up. His particular temptation he expresses not; for the children of God many
-times are in that estate that they cannot tell their own griefs, and sometimes
-so troubled, that it is not expedient, albeit they might, to express them to
-others.
-
-And hereof we learn, how that which the worldling counts wisdom, to the
-Christian is folly; what is joy to the one, is grief to the other. The joy of
-a worldling is to cleave unto the earth; when he grips it surest, he thinks
-himself happiest, for it is his portion: to take heed to his worldly affairs,
-and have his mind upon them (in his estimation) is only wisdom. For the
-serpent's curse is upon him, he creeps on the earth, and licks the dust all
-the days of his life. This is the miserable condition of the wicked, that even
-their heavenly soul is become earthly. _Qui secundum corporis appetentiam
-vivit caro est, etiam anima eorum caro est_ ; as the Lord spake of those who
-perished in the Deluge, that they were but flesh, no spirit in them; that is,
-no spiritual or heavenly motion.
-
-But the Christian, considering that his soul is from above, sets his affection
-also on those things which are above: he delights to have his conversation in
-heaven; and it is a grief to him when he finds his motions and affections
-drawn down and entangled with the earth. His life is to cleave to the Lord;
-but it is death to him when the neck of his soul is bowed down to the yoke of
-the world.
-
-\---_William Cowper_.
-
-**Verse 25.** \---"_My soul cleaveth to the dust_." "_Look up now to the
-heavens_." So once spake the Lord to Abraham his friend, and he speaketh thus
-to us also. Alas! why must it be so always that, when we come to know
-ourselves even but a little, we are constantly answering with the mournful
-sigh, "_My soul cleaveth to the dust_?" Ah! that is indeed the _deepest pain_
-of a soul which has already tasted that the Lord is merciful, when, although
-desiring to soar on high, it sadly feels how impossible it is to rise. There
-is much hidden pain in every heart of man even in the spiritual life; but what
-can deeper grieve us than the perception that we are chained as with leaden
-weights to things concerning which we know that they may weary but cannot
-satisfy us? Nay, we could never have supposed, when we first, heard the Psalm
-of the Good Shepherd, that it could issue from a heart that panteth after God
-so often and so bitterly; we could never have imagined that it could become so
-cold, so dry, so dark within a heart which at an earlier period had tasted so
-much of the power of that which is to come. Have we not formerly, with this
-same Psalm, been able to vaunt, "_I have rejoiced in the way of thy
-testimonies, as much as in all riches_?" But afterwards, but now perhaps... Oh
-sad hours, when the beams of the sun within seem quenched, and nothing but a
-blond red disc remains! The fervency of the first love is cooled; earthly
-cares and sins have, as it were, attached a leaden plummet to the wings of the
-soul which, God knows, would fain soar upwards. We would render thanks, and
-scarce can pray; we would pray, and scarce can sigh. Our treasure is in
-heaven, but our soul cleaves to the earth; at least earth cleaves on all sides
-so to it, and weighs it down, that the eye merely sees the clouds, the tongue
-can but breathe forth complaints. Ah, so completely can the earth fetter us,
-that the heavens appear to be only a problem, and our old man is like the
-Giant of Mythology, who, cast to the ground in the exhausting combat, receives
-by contact with his mother earth fresh strength. Oh, were it otherwise! Shall
-it not at last, at last be altered?
-
-Dost thou really desire it, thou who out of the depths of thy soul so
-complainest, and canst scarcely find more tears to bewail the sorrow of thy
-heart? Well is it for thee if the pain thou sufferest teach thee to cry to
-God: "_Quicken thou me, according to thy word_." Yea, this is the _best
-comfort_ for him who too well knows what it is to be bowed together with pain;
-this is the only hope for a heart which almost sinks in still despair. There
-is an _atmosphere_ of life, high above this dust which streams to us from
-every side, and penetrates even the darkest dungeon. There is a _spring_ of
-life by which the weary soul may be refreshed; and the entrance to this spring
-stands open, in spite of all the clouds of dust which obscure this valley of
-shadows here. There is a _power_ of life which can even so completely make an
-end of our dead state, that we shall walk again before the face of the Lord in
-the land of the living, and, instead of uttering lamentation, we shall bear a
-song of praise upon our lips. Does not the Prince of life yet live in order
-also to repeat to us, "_Awake and rejoice, thou that dwellest in the dust_ ;"
-and the Spirit, that bloweth whither he listeth, can, will, shall he not in
-his own good time, with his living breath, blow from our wings the dust that
-cleaveth to them? But, indeed, even the gnawing pain of the soul over so much
-want of spirituality and dulness is ever an encouraging sign that the good
-work is begun in our hearts: that which is really dead shivers no more at its
-own cold. "_My soul cleaveth to the dust_ ," sayest thou, with tears? thus
-wouldest thou not speak except that already a higher hand between the soul and
-this dust had cleft a hollow which was unknown to it before. No one has less
-cause for despair than he who has lost hope in himself, and really learns to
-seek in God that, which he deeply feels, he least of all can give himself.
-
-Yes, this is the _way_ from the deepest pain to procure the best consolation;
-the humble, earnest, persevering prayer, that he who lives would also give
-life to our souls, and continue to increase it, till freed from all dryness
-and deadness of spirit, and uprooted from the earth, we ascend to the eternal
-mount of light, where at last we behold all earthly clouds beneath us. This
-the God of life alone can work; but he is willing---nay, we have his own word
-as pledge, that he promises and bestows on us true life. Only, let us not
-forget that he who will quicken us "_according_ " to his word, also performs
-this _through_ his word. Let us then draw from out the eternally flowing
-fountain, and henceforth leave it unconditionally to him, how he will listen
-to our cry, even though he lead us through dark paths! Even through means of
-death God can quicken us and keep us alive. Lo, we are here; Lord, do with us
-as seemeth good to thee! Only let our souls live, that they may praise thee,
-here and eternally!
-
-\---_J. J. Van Oosterzee_ (1817-1882), _in_ "_The Year of Salvation_."
-
-**Verse 25.** \---"_Cleaveth to the dust_." Is weighed down by the flesh which
-itself is dust.
-
-\---_James G. Murphy_.
-
-**Verse 25.** \---"_The dust_ ," is the place of the afflicted, the wounded,
-and the dead. "_Quicken me_ ," _viz._ , to life, peace, and joy.
-
-\---_A. R. Fausset_.
-
-**Verse 25.** \---"_Quicken thou me_ ," etc. Seeing he was alive, how prays he
-that God would quicken him? I answer,---The godly esteem of life, not
-according to that they have in their body, but in their soul. If the soul
-lacks the sense of mercy, and a heavenly disposition to spiritual things, they
-lament over it, as a dead soul: for sure it is, temporal desertions are more
-heavy to the godly than temporal death. "_According to thy word_." This is a
-great faith, that where in respect of his present feeling he found himself
-dead, yet he hopes for life from God, according to his promise. Such was the
-faith of Abraham, who under hope, believed above hope. And truly, many times
-are God's children brought to this estate, that they have nothing to uphold
-them but the word of God; no sense of mercy, no spiritual disposition; but on
-the contrary, great darkness, horrible fears and terrors. Only they are
-sustained by looking to the promise of God, and kept in some hope that he will
-restore them to life again, because it is his praise to finish the work which
-he begins.
-
-\---_William Cowper_.
-
-**Verse 25.** \---"_Quicken thou me_." This phrase occurs nine times, and only
-in this Psalm. It is of great importance, as it expresses the spiritual change
-by which a child of Adam becomes a child of God. Its source is God; the
-instrument by which it is effected is the word, Psa 119:50.
-
-\---_James G. Murphy_.
-
-**Verse 25.** \---"_Quicken thou me according to thy word_." Where there is
-life there will be the endeavour to rise---the believer will not lie prone in
-his aspirations after God. From the lowest depths the language of faith is
-heard ascending to God most high, who performeth all things for the believer.
-The true child cannot but look towards the loving Father, who is the Almighty,
-All sufficient One. Have you not found it so? But will you mark the
-intelligence that shines around the believer's prayer? He prays that the Lord
-may quicken him "_according to his word_." The word may be regarded in the
-light of the standard after which he is to be fashioned; or the Psalmist may
-have in view the requirements contained in the word regarding the believer's
-progress; or he may be thinking of the promises found therein in behalf of the
-poor and needy when they apply. Indeed, all these significations may be
-wrapped up in the one expression---"_according to thy word_ "---the standard
-of perfection, the requirements of the word,---the promises concerning it. The
-great exemplar of the believer is Christ,---of old it was the Christ of
-prophecy. Then the requirements of the Lord's will were scattered through the
-word. The Psalmist, however, may be dwelling upon the large promises which the
-Lord hath given towards the perfecting of his people. You see after what the
-spiritual nature aspires. It is quite enough to the natural man or the
-formalist that he be as the generally well behaved and esteemed among
-professors---the spiritual man aspires beyond---he aspires after being
-quickened according to God's word. Judge of yourselves.
-
-\---_John Stephen_.
-
-**Verse 25.** \---"_Quicken thou me according to thy word_." By thy providence
-put life into my affairs, by thy grace put life into my affections; cure me of
-my spiritual deadness, and make me lively in my devotion.
-
-\---_Matthew Henry_.
-
-**Verse 25.** \---"_Quicken thou me according to thy word_ ," Albeit the Lord
-suffer his own to lie so long low in their heavy condition of spirit, that
-they may seem dead; yet by faith in his word he keepeth in them so much life
-as doth furnish unto them prayer to God for comfort: "_Quicken thou me
-according to thy word_."
-
-\---_David Dickson_.
-
-**Verse 25.** \---"_Quicken thou me_." To whom shall the godly fly when life
-faileth but to that Wellspring of all life? Even as to remove cold the next
-way is to draw near the fire, so to dispel any death, the next way is to look
-to him who is our root, by whom we live this natural life. All preservatives
-and restoratives are nothing, all colleges of physicians are vanity, if
-compared with him. Other things which have not life, give life as the
-instruments of him who is life, as fire burneth being the instrument of heat.
-"When heart and flesh fail, God is the strength of my heart." As a man can let
-a fire almost go out which had been kindled, and then blow it up, and by
-application of new fuel make it blaze as much as ever: so can God deal with
-this flame of life which he hath kindled.
-
-\---_Paul Bayne_.
-
-**Verse 25.** \---"_According to thy word_." The word removes deadness of
-conscience and hardness. Is not this word a hammer to soften the heart, and is
-not this the immortal seed by which we are begotten again? Therefore David,
-finding his conscience in a dead frame, prayed, "_My soul cleaveth to the
-dust; quicken thou me according to thy word_." The _word_ is the first thing
-by which conscience is purified and set right.
-
-\---_John Sheffield_ , _in_ "_A Good Conscience the Strongest Hold_ ," 1650.
-
-**Verse 25.** \---"_According to thy word_." What word doth David mean? Either
-the general promises in the books of Moses or Job; which intimate deliverance
-to the faithful observers of God's law, or help to the miserable and
-distressed; or some particular promise given to him by Nathan, or others.
-Chrysostom saith, "Quicken me according to thy word: but it is not a word of
-command, but a word of promise." Mark here,---he doth not say _secundum
-meritum meum_ , but, _secundum verbum tuum_ ; the hope, or that help which we
-expect from God, is founded upon his word; there is our security, in his
-promises, not in our deserving: _Prommittendo se fecit debitorem_ , _etc._
-
-When there was so little Scripture written, yet David could find out a word
-for his support. Alas! in our troubles and afflictions, no promise comes to
-mind. As in outward things, many that have less live better than those that
-have abundance; so here, now Scripture is so large, we are less diligent, and
-therefore, though we have so many promises, we are apt to faint, we have not a
-word to bear us up. This word did not help David, till he had lain so long
-under this heavy condition, that he seemed dead. Many, when they have a
-promise, think presently to enjoy the comfort of it. No, waiting and striving
-are first necessary. We never relish the comfort of the promises till the
-creatures have spent their allowance, and we have been exercised. God will
-keep his word, and yet we must expect to be tried.
-
-In this his dead condition, faith in God's word kept him alive. When we have
-least feeling, and there is nothing left us, the word will support us: "_And
-being not weak in faith, he considered not his own body now dead, when he was
-about an hundred years old, neither yet the deadness of Sarah's womb: he
-staggered not at the promise of God through unbelief but was strong in faith,
-giving glory to God_ " (Rom 4:19-20). One way to get comfort is to plead the
-promise of God in prayer, _Chirographa tua injiciebat tibi Domine_ , show him
-his handwriting; God is tender of his word. These arguments in prayer, are not
-to work upon God, but ourselves.
-
-\---_Thomas Manton_.
-
-**Verse 25.** \---One does not wonder at the fluctuations which occur in the
-feelings and experience of a child of God---at one time high on the mountain,
-near to God and communing with God, at another in the deep and dark valley.
-All, more or less, know these changes, and have their sorrowing as well as
-their rejoicing seasons. When we parted with David last, what was he telling
-us of his experience? that God's testimonies were _his delight and his
-counsellors_ ; but now what a different strain! all joy is darkened, and "_his
-soul cleaveth to the dust_." And there must have been seasons of deep
-depression and despondency in the heart of David---given as a fugitive and
-wanderer from his home, hunted as a partridge upon the mountains, and holding,
-as he himself says, his life continually in his hands. Yet I think in this
-portion of the Psalm there is evidence of a deeper abasement and sorrow of
-heart than any mere worldly suffering could produce. He had indeed said, "I
-shall one day perish by the hand of Saul;" but, even in that moment of weak
-and murmuring faith, he knew that he was God's anointed one to sit on the
-throne of Israel. But, here there is indication of sin, of grievous sin which
-had laid his soul low in the dust; and I think the petition in Psa 119:29
-gives us some clue to what that sin had been: "_Remove me from the way of
-lying_." Had David---you may well ask in wonder---had David ever lied? had he
-ever deviated from the strait and honourable path of truth? I am afraid we
-must own that he had at one time gone so near the confines of a falsehood,
-that he would be but a poor casuist and a worse moralist who should attempt to
-defend the Psalmist from the imputation. We cannot read the 27th chapter of
-the 1st of Samuel (1 Sa 27). without owning into what a sad tissue of
-equivocation and deceit David was unhappily seduced. Well might his soul
-cleave to the dust as he reviewed that period of his career; and though grace
-did for him what it afterwards did for Peter, and he was plucked as a brand
-out of the burning, yet one can well imagine that like the Apostle afterwards,
-when he thought thereon he wept, and that bitterly.
-
-\---_Barton Bouchier_.
+**Verse 25 &mdash;** One does not wonder at the fluctuations which occur in the feelings and experience of a child of God---at one time high on the mountain, near to God and communing with God, at another in the deep and dark valley. All, more or less, know these changes, and have their sorrowing as well as their rejoicing seasons. When we parted with David last, what was he telling us of his experience? that God's testimonies were *his delight and his counsellors* ; but now what a different strain! all joy is darkened, and "*his soul cleaveth to the dust*." And there must have been seasons of deep depression and despondency in the heart of David---given as a fugitive and wanderer from his home, hunted as a partridge upon the mountains, and holding, as he himself says, his life continually in his hands. Yet I think in this portion of the Psalm there is evidence of a deeper abasement and sorrow of heart than any mere worldly suffering could produce. He had indeed said, "I shall one day perish by the hand of Saul;" but, even in that moment of weak and murmuring faith, he knew that he was God's anointed one to sit on the throne of Israel. But, here there is indication of sin, of grievous sin which had laid his soul low in the dust; and I think the petition in Psa 119:29 gives us some clue to what that sin had been: "*Remove me from the way of lying*." Had David---you may well ask in wonder---had David ever lied? had he ever deviated from the strait and honourable path of truth? I am afraid we must own that he had at one time gone so near the confines of a falsehood, that he would be but a poor casuist and a worse moralist who should attempt to defend the Psalmist from the imputation. We cannot read the 27th chapter of the 1st of Samuel (1 Sa 27). without owning into what a sad tissue of equivocation and deceit David was unhappily seduced. Well might his soul cleave to the dust as he reviewed that period of his career; and though grace did for him what it afterwards did for Peter, and he was plucked as a brand out of the burning, yet one can well imagine that like the Apostle afterwards, when he thought thereon he wept, and that bitterly. *Barton Bouchier*.
 
 ### Hints to Preachers
 
-**Verses 25-32.** \---"_Quickening_."
+**Verses 25-32 &mdash;** "*Quickening*." Prayed for with confession (Psa 119:25-26). When obtained shall be talked of (Psa 119:27). Desired for the sake of strength (Psa 119:28), of truthfulness (Psa 119:29-31), and of activity (Psa 119:32). *Outlines Upon Keywords of the Psalm* , *by Pastor C. A. Davis*.
 
-Prayed for with confession (Psa 119:25-26).
+**Verse 25 &mdash;** 1. Nature and its tendency. 2. Grace and its mode of operation. 3. Both truths in their personal application.
 
-When obtained shall be talked of (Psa 119:27).
-
-Desired for the sake of strength (Psa 119:28), of truthfulness (Psa
-119:29-31), and of activity (Psa 119:32).
-
-\---_Outlines Upon Keywords of the Psalm_ , _by Pastor C. A. Davis_.
-
-**Verse 25.** \---
-
-  1. Nature and its tendency.
-
-  2. Grace and its mode of operation.
-
-  3. Both truths in their personal application.
-
-**Verse 25.** \---"_Quicken thou me_ ," etc.
-
-  1. There are many reasons why we should seek quickening.
-
-a. Because of the deadening influence of the world. "_Thy soul cleaveth_ ,"
-etc.
-
-b. The influence of vanity (see Psa 119:37).
-
-c. Because we are surrounded by deceivers (see Psa 119:87-88).
-
-d. Because of the effect of seasons of affliction upon us (see Psa 119:7).
-
-  2. Some of the motives for seeking quickening.
-
-a. Because of what you are---a Christian; life seeks more life.
-
-b. Because of what you ought to be.
-
-c. Because of what we shall be.
-
-d. In order to obedience (see Psa 119:88).
-
-e. For your comfort (Psa 119:107, 50).
-
-f. As the best security against the attacks of enemies (Psa 119:87-88).
-
-g. To invigorate our memories (Psa 119:93).
-
-h. Consider (as a motive to seek this quickening) the terrible consequences of
-losing spiritual life; or, in other words, lacking it in its manifest display.
-
-  3. Some of the ways in which the quickening may be brought to us.
-
-a. It must be by the Lord himself. "_Quicken me_ , _O Lord_."
-
-b. By the turning of the eyes (Psa 119:37).
-
-c. By the word (Psa 119:50).
-
-d. By the precepts (Psa 119:93).
-
-e. By affliction (Psa 119:107).
-
-f. By divine comforts.
-
-  4. Enquire where are our pleas when we come before God to ask for quickening.
-
-a. Our necessity (Psa 119:107, etc.).
-
-b. Our earnest desire (Psa 119:40).
-
-c. Appeal to God's righteousness (Psa 119:40).
-
-d. To his loving kindness (Psa 119:88, 149, 156).
-
-e. The plea in the text: "_according to thy word_ " (Psa 119:28, 107).
-
-\---See "Spurgeon's Sermons," No. 1350; "Enlivening and Invigorating."
+**Verse 25 &mdash;** "*Quicken thou me* ," etc. 1. There are many reasons why we should seek quickening. a. Because of the deadening influence of the world. "*Thy soul cleaveth* ," etc. b. The influence of vanity (see Psa 119:37). c. Because we are surrounded by deceivers (see Psa 119:87-88). d. Because of the effect of seasons of affliction upon us (see Psa 119:7). 2. Some of the motives for seeking quickening. a. Because of what you are---a Christian; life seeks more life. b. Because of what you ought to be. c. Because of what we shall be. d. In order to obedience (see Psa 119:88). e. For your comfort (Psa 119:107, 50). f. As the best security against the attacks of enemies (Psa 119:87-88). g. To invigorate our memories (Psa 119:93). h. Consider (as a motive to seek this quickening) the terrible consequences of losing spiritual life; or, in other words, lacking it in its manifest display. 3. Some of the ways in which the quickening may be brought to us. a. It must be by the Lord himself. "*Quicken me* , *O Lord*." b. By the turning of the eyes (Psa 119:37). c. By the word (Psa 119:50). d. By the precepts (Psa 119:93). e. By affliction (Psa 119:107). f. By divine comforts. 4. Enquire where are our pleas when we come before God to ask for quickening. a. Our necessity (Psa 119:107, etc.). b. Our earnest desire (Psa 119:40). c. Appeal to God's righteousness (Psa 119:40). d. To his loving kindness (Psa 119:88, 149, 156). e. The plea in the text: "*according to thy word* " (Psa 119:28, 107). See "Spurgeon's Sermons," No. 1350; "Enlivening and Invigorating."
 
 ## Exposition Verse 26
 
-**Verse 26.** \---"_I have declared my ways_." Open confession is good for the
-soul. Nothing brings more ease and more life to a man than a frank
-acknowledgment of the evil which has caused the sorrow and the lethargy. Such
-a declaration proves that the man knows his own condition, and is no longer
-blinded by pride. Our confessions are not meant to make God know our sins, but
-to make us know them.
+> I have declared my ways, and thou heardest me: teach me thy statutes. 
 
-"_And thou heardest me_." His confession had been accepted; it was not lost
-labour; God had drawn near to him in it. We ought never to go from a duty till
-we have been accepted in it. Pardon follows upon penitent confession, and
-David felt that he had obtained it. It is God's way to forgive our sinful way
-when we from our hearts confess the wrong.
+"*I have declared my ways*." Open confession is good for the soul. Nothing brings more ease and more life to a man than a frank acknowledgment of the evil which has caused the sorrow and the lethargy. Such a declaration proves that the man knows his own condition, and is no longer blinded by pride. Our confessions are not meant to make God know our sins, but to make us know them.
 
-"_Teach me thy statutes_." Being truly sorry for his fault, and having
-obtained full forgiveness, he is anxious to avoid offending again, and hence
-he begs to be taught obedience. He was not willing to sin through ignorance,
-he wished to know all the mind of God by being taught it by the best of
-teachers. He pined after holiness. Justified men always long to be sanctified.
-When God forgives our sins we are all the more fearful of sinning, again.
-Mercy, which pardons transgression, sets us longing for grace which prevents
-transgression. We may boldly ask for more when God has given us much; he who
-has washed out the past stain will not refuse that which will preserve us from
-present and future defilement. This cry for teaching is frequent in the Psalm;
-in Psa 119:12 it followed a sight of God, here it follows from a sight of
-self. Every experience should lead us thus to plead with God.
+"*And thou heardest me*." His confession had been accepted; it was not lost labour; God had drawn near to him in it. We ought never to go from a duty till we have been accepted in it. Pardon follows upon penitent confession, and David felt that he had obtained it. It is God's way to forgive our sinful way when we from our hearts confess the wrong.
+
+"*Teach me thy statutes*." Being truly sorry for his fault, and having obtained full forgiveness, he is anxious to avoid offending again, and hence he begs to be taught obedience. He was not willing to sin through ignorance, he wished to know all the mind of God by being taught it by the best of teachers. He pined after holiness. Justified men always long to be sanctified. When God forgives our sins we are all the more fearful of sinning, again. Mercy, which pardons transgression, sets us longing for grace which prevents transgression. We may boldly ask for more when God has given us much; he who has washed out the past stain will not refuse that which will preserve us from present and future defilement. This cry for teaching is frequent in the Psalm; in Psa 119:12 it followed a sight of God, here it follows from a sight of self. Every experience should lead us thus to plead with God.
 
 ### Explanatory Notes and Quaint Sayings
 
-**Verse 26.** \---"_I have declared my ways_ ," etc. This verse contains a
-prayer, with a reason after this form:---'O Lord, I have oft before declared
-unto thee the whole state and course of my life, my wanderings, my wants, my
-doubts, my griefs: I hid nothing from thee, and thou, according to my
-necessity, didst always hear me: therefore now, Lord, I pray thee to teach me;
-by thy light illuminate me that I may know thy statutes and receive grace to
-walk in them.' This is a good argument in dealing with the Lord,---'I have
-gotten many mercies and favourable answers from thee; therefore, Lord, I pray
-thee to give me more;' for whom he loves, he loves to the end; and where he
-begins to show mercy he ceaseth not till he crown his children with mercy. And
-so gracious is the Lord, that he esteems himself to be honoured as oft as we
-give him the praise that we have found comfort in him, and therefore come to
-seek more.
+**Verse 26 &mdash;** "*I have declared my ways* ," etc. This verse contains a prayer, with a reason after this form:---'O Lord, I have oft before declared unto thee the whole state and course of my life, my wanderings, my wants, my doubts, my griefs: I hid nothing from thee, and thou, according to my necessity, didst always hear me: therefore now, Lord, I pray thee to teach me; by thy light illuminate me that I may know thy statutes and receive grace to walk in them.' This is a good argument in dealing with the Lord,---'I have gotten many mercies and favourable answers from thee; therefore, Lord, I pray thee to give me more;' for whom he loves, he loves to the end; and where he begins to show mercy he ceaseth not till he crown his children with mercy. And so gracious is the Lord, that he esteems himself to be honoured as oft as we give him the praise that we have found comfort in him, and therefore come to seek more. Next, it is to be marked how he saith, "*I have declared my ways, and thou heardest me* :" these two go well together, Mercy and Truth: truth in the heart of man confessing; mercy in God, hearing and forgiving: happy is the soul wherein these two meet together. Many there are who are destitute of this comfort; they cannot say, God hath heard me, and all because they deal not plainly and truly with the Lord in *declaring their ways* unto him. *William Cowper*.
 
-Next, it is to be marked how he saith, "_I have declared my ways, and thou
-heardest me_ :" these two go well together, Mercy and Truth: truth in the
-heart of man confessing; mercy in God, hearing and forgiving: happy is the
-soul wherein these two meet together. Many there are who are destitute of this
-comfort; they cannot say, God hath heard me, and all because they deal not
-plainly and truly with the Lord in _declaring their ways_ unto him.
+**Verse 26 &mdash;** "*I have declared my ways*." In Psa 119:59 he *thinketh upon his ways* , that is, his inward imperfections and outward aberrations from the strait and straight ways of God; and here he is not ashamed to *declare them* , that is, to acknowledge and confess that all this came upon him because he was forgetful to do God's will. Note the connection between this and the previous verse: "*My soul clave unto the dust, because I clave not to thee*." *Richard Greenham*.
 
-\---_William Cowper_.
+**Verse 26 &mdash;** "*I have declared my ways*." סִפֵּרְתִי, *sipparti* , "I have remembered my ways;" I have searched them out; I have investigated them. And that he had earnestly prayed for pardon of what was wrong in them, is evident; for he adds, "*Thou heardest me*." *Adam Clarke*.
 
-**Verse 26.** \---"_I have declared my ways_." In Psa 119:59 he _thinketh upon
-his ways_ , that is, his inward imperfections and outward aberrations from the
-strait and straight ways of God; and here he is not ashamed to _declare them_
-, that is, to acknowledge and confess that all this came upon him because he
-was forgetful to do God's will. Note the connection between this and the
-previous verse: "_My soul clave unto the dust, because I clave not to thee_."
+**Verse 26 &mdash;** "*I have declared my ways* ," etc. Him whom thou hast heard in humble confessing of his sins, him thou must teach thy statutes. The saints lay open to God what they find, both good and evil seeking deliverance, supply, strengthening, directing: even as sick patients tell to their doctor both what good and what otherwise they perceive; or as clients lay bare their case to their counsel.
 
-\---_Richard Greenham_.
+**Verse 26 &mdash;** "*Declared*." As if he had read them out of a book. The saints know their ways. A man that hath light with him seeth the way, and can tell you all about it; another is in darkness and knoweth nothing: the one taketh observation of his course, the other doth not.
 
-**Verse 26.** \---"_I have declared my ways_." סִפֵּרְתִי, _sipparti_ , "I
-have remembered my ways;" I have searched them out; I have investigated them.
-And that he had earnestly prayed for pardon of what was wrong in them, is
-evident; for he adds, "_Thou heardest me_."
+"*Thou hast heard me*." God's goodness is seen in his hearing what we lay open before him. If great ones let a poor man tell his tale at large we count it honourable patience; but it is God's glory to hear our wants, our weakness through sin, the invincibleness of our evils, our utter impotency in ourselves even to seek redress. That mode of procedure would lose the favour of man, but it winneth favour with God. The more humbly we confess all our wants, the more confident we may be that God will hear us. He *teacheth the humble* , for the humble scholar will give to his master the honour of that he learns. "*I have rehearsed (said with myself) my ways* ;" and "thou hast beard my private confession." "*I have declared* " to others what my way is, and "*thou hast heard me* " so discoursing; wherefore "*teach me* ," seeing I communicate what I receive. It is a plea derived from his carefulness to learn, and from the use he had made of that he had learned. The godly, like candles, light each other. *Paul Bayne*.
 
-\---_Adam Clarke_.
+**Verse 26 &mdash;** "*I have declared my ways*." They that would speed with God, should learn this point of Christian ingenuity, unfeignedly to lay open their whole case to him. That is, to declare what they are about, the nature of their affairs, the state of their hearts, what of good or evil they find in themselves, their conflicts, supplies, distresses, hopes; this is declaring our ways---the good and evil we are conscious of. As a sick patient will tell the physician how it is with him, so should we deal with God, if we would find mercy. This declaring his ways may be looked upon, 1. As an act of faith and dependence. 2. As an act of holy friendship. 3. As an act of spiritual contrition, and brokenness of heart: for this declaring must be explained according to what David meant by the expression, "*My ways*." First, By his "*ways* " may be meant his businesses or undertakings: I have still made them known to thee, committing them to the direction of thy providence; and so it is an act of faith and dependence, consulting with God, and acquainting him with all our desires. Secondly, By his "*ways* " may be meant, all his straits, sorrows, and dangers; and so this declaration is an act of holy friendship, when a man comes as one friend to another, and acquaints God with his whole state, lays his condition before the Lord, in hope of pity and relief. Thirdly, By "*ways* " is meant temptations and sins; and so this declaring is an act of spiritual contrition or brokenness of heart. Sins are properly our ways, as Eze 18:25. *Thomas Manton*.
 
-**Verse 26.** \---"_I have declared my ways_ ," etc. Him whom thou hast heard
-in humble confessing of his sins, him thou must teach thy statutes. The saints
-lay open to God what they find, both good and evil seeking deliverance,
-supply, strengthening, directing: even as sick patients tell to their doctor
-both what good and what otherwise they perceive; or as clients lay bare their
-case to their counsel.
+**Verse 26 &mdash;** The way of thy precepts. My ways. The way of lying. The way of truth. Here should be noticed the two contrasts by which the Prophet teaches what must be shunned both in life and in doctrine, and what embraced. The first respects *the life* of Christians, as the Prophet sets the way of God's commandments over against his own ways, Psa 119:26-27; and respecting these he confesses that they have pressed him down to the dust and have greatly distressed him; but respecting those he declares that they have again raised him up. He means by his own ways a depraved nature, carnal desire, and the carnal mind which is enmity against God, Rom 8:7; but by the ways of the Lord he denotes the will of God expressed in the Word. Therefore the boastings of the papists of the perfect obedience of the renewed are empty: for David, assured by having been renewed, complains bitterly and with many tears that his soul, under the intolerable weight of sins, had been brought down to the dust of death and almost suffocated; but that God had heard his prayers and brought him back to the way of his commandments. We, here, also, gather that in this life all the saints experience the wrestling and contest of the flesh and the spirit, so that they are continually compelled to mourn that their flesh turns them aside from the way of the Lord into the by paths of sin: just as Paul cries out, "*I see another law in my members, warring against the law of my mind, etc. O wretched man that I am! who shall deliver me from the body of this death*?" Rom 7:23-24. The second contrast concerneth the *doctrine* ; for David opposes the way of lying to the way of truth. We are taught by this contrast that we should eschew false doctrine, and steadfastly adhere to divine truth. To this applies the precept of Paul, Eph 4:25. "*Wherefore, having put away the lie, speak truth each one with his neighbour*." Further, we learn, if we hate our own ways, *i.e.* , confess our sins to the Lord, and, trusting in the Mediator, pray for forgiveness, that God is wont to hear and mercifully to forgive our sins; as it is written, 1Jo 1:9, "*If we confess our sins, he is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness*." *Solomon Gesner*.
 
-**Verse 26.** \---"_Declared_." As if he had read them out of a book. The
-saints know their ways. A man that hath light with him seeth the way, and can
-tell you all about it; another is in darkness and knoweth nothing: the one
-taketh observation of his course, the other doth not.
+**Verse 26 &mdash;** "*Thou heardest me*." Past answers to prayer should encourage us to come the more boldly to the throne of grace.---Jacob never forgot the night he spent at Bethel. *William S. Plumer*.
 
-"_Thou hast heard me_." God's goodness is seen in his hearing what we lay open
-before him. If great ones let a poor man tell his tale at large we count it
-honourable patience; but it is God's glory to hear our wants, our weakness
-through sin, the invincibleness of our evils, our utter impotency in ourselves
-even to seek redress. That mode of procedure would lose the favour of man, but
-it winneth favour with God. The more humbly we confess all our wants, the more
-confident we may be that God will hear us. He _teacheth the humble_ , for the
-humble scholar will give to his master the honour of that he learns.
+**Verse 26 &mdash;** "*Teach me thy statutes*." The often repetition of this one thing in this Psalm argues, 1. The necessity of this knowledge. 2. The desire he had to obtain it. 3. That such repetitions are not frivolous when they proceed from a sound heart, a zealous affection, and a consideration of the necessity of the thing prayed for. 4. That such as have most light have little in respect of what they should have. 5. As covetous men think they have never gold enough, so Christian men should think they have never knowledge enough. *Richard Greenhorn*.
 
-"_I have rehearsed (said with myself) my ways_ ;" and "thou hast beard my
-private confession." "_I have declared_ " to others what my way is, and "_thou
-hast heard me_ " so discoursing; wherefore "_teach me_ ," seeing I communicate
-what I receive. It is a plea derived from his carefulness to learn, and from
-the use he had made of that he had learned. The godly, like candles, light
-each other.
+**Verse 26 &mdash;** "*Teach me*." We can never do without teaching, even in old age. Unless the Spirit of God teaches us we learn in vain. *Martin Geier*.
 
-\---_Paul Bayne_.
-
-**Verse 26.** \---"_I have declared my ways_." They that would speed with God,
-should learn this point of Christian ingenuity, unfeignedly to lay open their
-whole case to him. That is, to declare what they are about, the nature of
-their affairs, the state of their hearts, what of good or evil they find in
-themselves, their conflicts, supplies, distresses, hopes; this is declaring
-our ways---the good and evil we are conscious of. As a sick patient will tell
-the physician how it is with him, so should we deal with God, if we would find
-mercy. This declaring his ways may be looked upon,
-
-  1. As an act of faith and dependence.
-
-  2. As an act of holy friendship.
-
-  3. As an act of spiritual contrition, and brokenness of heart: for this declaring must be explained according to what David meant by the expression, "_My ways_."
-
-First, By his "_ways_ " may be meant his businesses or undertakings: I have
-still made them known to thee, committing them to the direction of thy
-providence; and so it is an act of faith and dependence, consulting with God,
-and acquainting him with all our desires.
-
-Secondly, By his "_ways_ " may be meant, all his straits, sorrows, and
-dangers; and so this declaration is an act of holy friendship, when a man
-comes as one friend to another, and acquaints God with his whole state, lays
-his condition before the Lord, in hope of pity and relief.
-
-Thirdly, By "_ways_ " is meant temptations and sins; and so this declaring is
-an act of spiritual contrition or brokenness of heart. Sins are properly our
-ways, as Eze 18:25.
-
-\---_Thomas Manton_.
-
-**Verse 26.** \---The way of thy precepts. My ways. The way of lying. The way
-of truth. Here should be noticed the two contrasts by which the Prophet
-teaches what must be shunned both in life and in doctrine, and what embraced.
-The first respects _the life_ of Christians, as the Prophet sets the way of
-God's commandments over against his own ways, Psa 119:26-27; and respecting
-these he confesses that they have pressed him down to the dust and have
-greatly distressed him; but respecting those he declares that they have again
-raised him up. He means by his own ways a depraved nature, carnal desire, and
-the carnal mind which is enmity against God, Rom 8:7; but by the ways of the
-Lord he denotes the will of God expressed in the Word. Therefore the boastings
-of the papists of the perfect obedience of the renewed are empty: for David,
-assured by having been renewed, complains bitterly and with many tears that
-his soul, under the intolerable weight of sins, had been brought down to the
-dust of death and almost suffocated; but that God had heard his prayers and
-brought him back to the way of his commandments. We, here, also, gather that
-in this life all the saints experience the wrestling and contest of the flesh
-and the spirit, so that they are continually compelled to mourn that their
-flesh turns them aside from the way of the Lord into the by paths of sin: just
-as Paul cries out, "_I see another law in my members, warring against the law
-of my mind, etc. O wretched man that I am! who shall deliver me from the body
-of this death_?" Rom 7:23-24.
-
-The second contrast concerneth the _doctrine_ ; for David opposes the way of
-lying to the way of truth. We are taught by this contrast that we should
-eschew false doctrine, and steadfastly adhere to divine truth. To this applies
-the precept of Paul, Eph 4:25. "_Wherefore, having put away the lie, speak
-truth each one with his neighbour_." Further, we learn, if we hate our own
-ways, _i.e._ , confess our sins to the Lord, and, trusting in the Mediator,
-pray for forgiveness, that God is wont to hear and mercifully to forgive our
-sins; as it is written, 1Jo 1:9, "_If we confess our sins, he is faithful and
-just to forgive us our sins, and to cleanse us from all unrighteousness_."
-
-\---_Solomon Gesner_.
-
-**Verse 26.** \---"_Thou heardest me_." Past answers to prayer should
-encourage us to come the more boldly to the throne of grace.---Jacob never
-forgot the night he spent at Bethel.
-
-\---_William S. Plumer_.
-
-**Verse 26.** \---"_Teach me thy statutes_." The often repetition of this one
-thing in this Psalm argues,
-
-  1. The necessity of this knowledge.
-
-  2. The desire he had to obtain it.
-
-  3. That such repetitions are not frivolous when they proceed from a sound heart, a zealous affection, and a consideration of the necessity of the thing prayed for.
-
-  4. That such as have most light have little in respect of what they should have.
-
-  5. As covetous men think they have never gold enough, so Christian men should think they have never knowledge enough.
-
-\---_Richard Greenhorn_.
-
-**Verse 26.** \---"_Teach me_." We can never do without teaching, even in old
-age. Unless the Spirit of God teaches us we learn in vain.
-
-\---_Martin Geier_.
-
-**Verses 26-27.** \---Here is David's earnest desire for the continuance of
-that intimacy that had been between him and his God; not by visions and voices
-from heaven, but by the Word and Spirit in an ordinary way: "_Teach me thy
-statutes_ ," that is, "_make me to understand the way of thy precepts_." When
-he knew God had heard his declaration of his ways, he doth not say, 'Now,
-Lord, tell me my lot, and let me know what the event will be;' but, 'Now,
-Lord, tell me my duty, let me know what thou wouldest have me to do as the
-case stands.' Note, Those that in all their ways acknowledge God, may pray in
-faith that he will direct their steps in the right way. And the surest way of
-keeping up our communion with God is, by learning his statutes, and walking
-diligently in the way of his precepts.
-
-\---_Matthew Henry_.
+**Verses 26-27 &mdash;** Here is David's earnest desire for the continuance of that intimacy that had been between him and his God; not by visions and voices from heaven, but by the Word and Spirit in an ordinary way: "*Teach me thy statutes* ," that is, "*make me to understand the way of thy precepts*." When he knew God had heard his declaration of his ways, he doth not say, 'Now, Lord, tell me my lot, and let me know what the event will be;' but, 'Now, Lord, tell me my duty, let me know what thou wouldest have me to do as the case stands.' Note, Those that in all their ways acknowledge God, may pray in faith that he will direct their steps in the right way. And the surest way of keeping up our communion with God is, by learning his statutes, and walking diligently in the way of his precepts. *Matthew Henry*.
 
 ### Hints to Preachers
 
-**Verse 26.** \---Confession. Absolution. Instruction.
+**Verse 26 &mdash;** Confession. Absolution. Instruction.
 
-**Verse 26.** \---
-
-  1. The duty: "_I have declared my ways_ "---made known my experience of thy word to others.
-
-  2. Its notice by God: "_Thou heardest me_."
-
-  3. Its reward. More knowledge will be given: "_Teach me_ ," etc.
-
-\---_G. R._
+**Verse 26 &mdash;** 1. The duty: "*I have declared my ways* "---made known my experience of thy word to others. 2. Its notice by God: "*Thou heardest me*." 3. Its reward. More knowledge will be given: "*Teach me* ," etc. *G. R.*
 
 ## Exposition Verse 27
 
-**Verse 27.** \---"_Make me to understand the way of thy precepts_." Give me a
-deep insight into the practical meaning of thy word; let me get a clear idea
-of the tone and tenor of thy law. Blind obedience has but small beauty; God
-would have us follow him with our eyes open. To obey the letter of the word is
-all that the ignorant can hope for; if we wish to keep God's precepts in their
-spirit we must come to an understanding of them, and that can be gained
-nowhere but at the Lord's hands. Our understanding needs enlightenment and
-direction: he who made our understanding must also make us understand. The
-last sentence was, "_teach me thy statutes_ ," and the words, "_make me to
-understand_ ," are an instructive enlargement and exposition of that sentence:
-we need to be so taught that we understand what we learn. It is to be noted
-that the Psalmist is not anxious to understand the prophecies, but the
-precepts, and he is not concerned about the subtleties of the law, but the
-commonplaces and everyday rules of it, which are described as "_the way of thy
-precepts_."
+> Make me to understand the way of thy precepts: so shall I talk of thy wondrous works. 
 
-**Verse 27.** \---"_So shall I talk of thy wondrous works_." It is ill talking
-of what we do not understand. We must be taught of God till we understand, and
-then we may hope to communicate our knowledge to others with a hope of
-profiting them. Talk without intelligence is mere talk, and idle talk; but the
-words of the instructed are as pearls which adorn the ears of them that hear.
-When our heart has been opened to understand, our lips should be opened to
-impart knowledge; and we may hope to be taught ourselves when we feel in our
-hearts a willingness to teach the way of the Lord to those among whom we
-dwell.
+"*Make me to understand the way of thy precepts*." Give me a deep insight into the practical meaning of thy word; let me get a clear idea of the tone and tenor of thy law. Blind obedience has but small beauty; God would have us follow him with our eyes open. To obey the letter of the word is all that the ignorant can hope for; if we wish to keep God's precepts in their spirit we must come to an understanding of them, and that can be gained nowhere but at the Lord's hands. Our understanding needs enlightenment and direction: he who made our understanding must also make us understand. The last sentence was, "*teach me thy statutes* ," and the words, "*make me to understand* ," are an instructive enlargement and exposition of that sentence: we need to be so taught that we understand what we learn. It is to be noted that the Psalmist is not anxious to understand the prophecies, but the precepts, and he is not concerned about the subtleties of the law, but the commonplaces and everyday rules of it, which are described as "*the way of thy precepts*."
 
-"_Thy wondrous works_." Remark that the clearest understanding does not cause
-us to cease from wondering at the ways and works of God. The fact is that the
-more we know of God's doings the more we admire them, and the more ready we
-are to speak upon them. Half the wonder in the world is born of ignorance, but
-holy wonder is the child of understanding. When a man understands the way of
-the divine precepts he never talks of his own works, and as the tongue must
-have some theme to speak upon, he begins to extol the works of the all perfect
-Lord.
+"*So shall I talk of thy wondrous works*." It is ill talking of what we do not understand. We must be taught of God till we understand, and then we may hope to communicate our knowledge to others with a hope of profiting them. Talk without intelligence is mere talk, and idle talk; but the words of the instructed are as pearls which adorn the ears of them that hear. When our heart has been opened to understand, our lips should be opened to impart knowledge; and we may hope to be taught ourselves when we feel in our hearts a willingness to teach the way of the Lord to those among whom we dwell.
 
-Some in this place read "meditate" or "muse" instead of "talk;" it is singular
-that the words should be so near of kin, and yet it is right that they should
-be, for none but foolish people will talk without thinking. If we read the
-passage in this sense, we take it to mean that in proportion as David
-understood the word of God he would meditate upon it more and more. It is
-usually so; the thoughtless care not to know the inner meaning of the
-Scriptures, while those who know them best are the very men who strive after a
-greater familiarity with them, and therefore give themselves up to musing upon
-them.
+"*Thy wondrous works*." Remark that the clearest understanding does not cause us to cease from wondering at the ways and works of God. The fact is that the more we know of God's doings the more we admire them, and the more ready we are to speak upon them. Half the wonder in the world is born of ignorance, but holy wonder is the child of understanding. When a man understands the way of the divine precepts he never talks of his own works, and as the tongue must have some theme to speak upon, he begins to extol the works of the all perfect Lord.
 
-Observe the third verse of the last eight (Psa 119:19), and see how the sense
-is akin to this. There he was a stranger in the earth, and here he prays to
-know his way; there, too, he prayed that the word might not be hid from
-himself, and here he promises that he will not hide it from others.
+Some in this place read "meditate" or "muse" instead of "talk;" it is singular that the words should be so near of kin, and yet it is right that they should be, for none but foolish people will talk without thinking. If we read the passage in this sense, we take it to mean that in proportion as David understood the word of God he would meditate upon it more and more. It is usually so; the thoughtless care not to know the inner meaning of the Scriptures, while those who know them best are the very men who strive after a greater familiarity with them, and therefore give themselves up to musing upon them.
+
+Observe the third verse of the last eight (Psa 119:19), and see how the sense is akin to this. There he was a stranger in the earth, and here he prays to know his way; there, too, he prayed that the word might not be hid from himself, and here he promises that he will not hide it from others.
 
 ### Explanatory Notes and Quaint Sayings
 
-**Verse 27.** \---"_Make me to understand_." Natural blindness is an obstinate
-disease, and hardly cured: therefore again and again we had need to pray,
-"_Open mine eyes_ ;" "_Teach me thy statutes_ ;" "_Make me to understand the
-way of thy precepts_." Our ignorance is great even when it is cured in part.
-The clouds of temptation and carnal affection cause it to return upon us, so
-that we know not what we know. Therefore he cries, "_open my eyes; cause me to
-understand_." Yea, the more we know the more is our ignorance discovered to
-us: "_Surely I am more brutish than any man, and have not the understanding of
-a man. I neither learned wisdom, nor have the knowledge of the holy_ " (Pro
-30:2-3). "_I have heard of thee by the hearing of the ear, but now mine eye
-seeth thee; wherefore I abhor myself, and repent in dust and ashes_." (Job
-42:5-6). Alas, a poor, little, hearsay knowledge availeth not; they abhor
-themselves when they have more intimate acquaintance. None so confident as a
-young professor that knoweth a few truths, but in a weak and imperfect manner:
-the more we know indeed, the more sensible we are of our ignorance, and how
-liable to this mistake and that, so that we dare not trust ourselves for an
-hour.
+**Verse 27 &mdash;** "*Make me to understand*." Natural blindness is an obstinate disease, and hardly cured: therefore again and again we had need to pray, "*Open mine eyes* ;" "*Teach me thy statutes* ;" "*Make me to understand the way of thy precepts*." Our ignorance is great even when it is cured in part. The clouds of temptation and carnal affection cause it to return upon us, so that we know not what we know. Therefore he cries, "*open my eyes; cause me to understand*." Yea, the more we know the more is our ignorance discovered to us: "*Surely I am more brutish than any man, and have not the understanding of a man. I neither learned wisdom, nor have the knowledge of the holy* " (Pro 30:2-3). "*I have heard of thee by the hearing of the ear, but now mine eye seeth thee; wherefore I abhor myself, and repent in dust and ashes*." (Job 42:5-6). Alas, a poor, little, hearsay knowledge availeth not; they abhor themselves when they have more intimate acquaintance. None so confident as a young professor that knoweth a few truths, but in a weak and imperfect manner: the more we know indeed, the more sensible we are of our ignorance, and how liable to this mistake and that, so that we dare not trust ourselves for an hour. *Thomas Manton*.
 
-\---_Thomas Manton_.
+**Verse 27 &mdash;** "*Understand the way... so shall I talk*." We can talk with a better grace of God's "*wondrous works* ," the wonders of providence, and especially the wonders of redeeming love, when we understand *the way* of God's precepts, and walk in that way. *Matthew Henry*.
 
-**Verse 27.** \---"_Understand the way... so shall I talk_." We can talk with
-a better grace of God's "_wondrous works_ ," the wonders of providence, and
-especially the wonders of redeeming love, when we understand _the way_ of
-God's precepts, and walk in that way.
+**Verse 27 &mdash;** "*The way of they precepts*." He desireth that God would, partly by his Spirit, partly by his ministers, partly by affliction, partly by study and labour, make him to have a right and sound understanding, not only of his *statutes* , but of the *way* of his statutes, that is, after what sort and order he may live and direct his life, according to those things which God hath commanded him in his law. Learn here how hard a thing it is for man overweening himself in his own wisdom, to know God's will till God *make* him to know. *Richard Greenham*.
 
-\---_Matthew Henry_.
+**Verse 27 &mdash;** "*So shall I talk of thy wondrous works*." He that is sensible of the wondrous things that are in God's word will be talking of them. 1. It will be so. 2. It should be so. 1. *It will be so*. When the heart is deeply affected, the tongue cannot hold, but will run out in expressions of it; "*for out of the abundance of the heart the mouth speaketh*." When cheered and revived in their afflictions saints are transported with the thought of the excellency of God. "*Come, and I will tell you what God hath done for my soul* " (Psa 66:15). The woman, when she had found the lost groat [coin], calleth her neighbours to rejoice with her. He that hath but a cold knowledge, will not be so full of good discourse. 2. *It should be so* in a threefold respect: for the honour of God; the edification of others; and for our own profit. a. For the honour of God, to whom we are so much indebted, to bring him into request with those about us. Experience deserveth praise; when you have found the Messiah, call another to him: "*Andrew calleth Peter, and saith unto him, We have found the Messias: and Philip called Nathanael and saith unto him, We have found him, of whom Moses in the law, and the prophets, did write, Jesus of Nazareth, the son of Joseph* " (John 1:41-45). b. For the edification of others: "*And thou, being converted, strengthen thy brethren*." (Luk 22:32). True grace is communicative as fire, etc. c. For our own profit. He that useth his knowledge shall have more. Whereas, on the contrary, full breasts, if not sucked, become dry. In the dividing, the loaves increased. All gifts, but much more spiritual, which are the best, are improved by exercise. *Thomas Manton*.
 
-**Verse 27.** \---"_The way of they precepts_." He desireth that God would,
-partly by his Spirit, partly by his ministers, partly by affliction, partly by
-study and labour, make him to have a right and sound understanding, not only
-of his _statutes_ , but of the _way_ of his statutes, that is, after what sort
-and order he may live and direct his life, according to those things which God
-hath commanded him in his law. Learn here how hard a thing it is for man
-overweening himself in his own wisdom, to know God's will till God _make_ him
-to know.
+**Verse 27 &mdash;** "*So shall I talk* ," etc. Desire of knowledge should not be for satisfying of curiosity, or for ostentation, or for worldly gain, but to edify ourselves and others in wisdom... "*Thy wondrous works*." The works of creation, redemption and providence, either set down in Scripture, or observed in our own experience, transcend our capacity, and cannot but draw admiration from them that see them well. *David Dickson*.
 
-\---_Richard Greenham_.
+**Verse 27 &mdash;** "*So shall I talk*." It is a frequent complaint with Christians, that they are straitened in religious conversation, and often feel unable to speak "*to the use of edifying, that they may minister grace to the hearers* ," Eph 4:29. Here, then, is the secret disclosed, by which we shall be kept from the danger of dealing in unfelt truths, for "*out of the abundance of the heart our mouths shall speak* ," Mat 12:34. Seek to have the heart searched, cleansed, filled with the graces of the Spirit. Humility, teachability, simplicity, will bring light unto the understanding, influence the heart, "open the lips," and unite every member that we have in the service and praise of God. *Charles Bridges*.
 
-**Verse 27.** \---"_So shall I talk of thy wondrous works_." He that is
-sensible of the wondrous things that are in God's word will be talking of
-them. 1. It will be so. 2. It should be so.
-
-  1. _It will be so_. When the heart is deeply affected, the tongue cannot hold, but will run out in expressions of it; "_for out of the abundance of the heart the mouth speaketh_." When cheered and revived in their afflictions saints are transported with the thought of the excellency of God. "_Come, and I will tell you what God hath done for my soul_ " (Psa 66:15). The woman, when she had found the lost groat [coin], calleth her neighbours to rejoice with her. He that hath but a cold knowledge, will not be so full of good discourse.
-
-  2. _It should be so_ in a threefold respect: for the honour of God; the edification of others; and for our own profit.
-
-a. For the honour of God, to whom we are so much indebted, to bring him into
-request with those about us. Experience deserveth praise; when you have found
-the Messiah, call another to him: "_Andrew calleth Peter, and saith unto him,
-We have found the Messias: and Philip called Nathanael and saith unto him, We
-have found him, of whom Moses in the law, and the prophets, did write, Jesus
-of Nazareth, the son of Joseph_ " (John 1:41-45).
-
-b. For the edification of others: "_And thou, being converted, strengthen thy
-brethren_." (Luk 22:32). True grace is communicative as fire, etc.
-
-c. For our own profit. He that useth his knowledge shall have more. Whereas,
-on the contrary, full breasts, if not sucked, become dry. In the dividing, the
-loaves increased. All gifts, but much more spiritual, which are the best, are
-improved by exercise.
-
-\---_Thomas Manton_.
-
-**Verse 27.** \--- "_So shall I talk_ ," etc. Desire of knowledge should not
-be for satisfying of curiosity, or for ostentation, or for worldly gain, but
-to edify ourselves and others in wisdom... "_Thy wondrous works_." The works
-of creation, redemption and providence, either set down in Scripture, or
-observed in our own experience, transcend our capacity, and cannot but draw
-admiration from them that see them well.
-
-\---_David Dickson_.
-
-**Verse 27.** \---"_So shall I talk_." It is a frequent complaint with
-Christians, that they are straitened in religious conversation, and often feel
-unable to speak "_to the use of edifying, that they may minister grace to the
-hearers_ ," Eph 4:29. Here, then, is the secret disclosed, by which we shall
-be kept from the danger of dealing in unfelt truths, for "_out of the
-abundance of the heart our mouths shall speak_ ," Mat 12:34. Seek to have the
-heart searched, cleansed, filled with the graces of the Spirit. Humility,
-teachability, simplicity, will bring light unto the understanding, influence
-the heart, "open the lips," and unite every member that we have in the service
-and praise of God.
-
-\---_Charles Bridges_.
-
-**Verse 27.** \---"_I shall talk of_." There is a close affinity between all
-the duties of religion. The same word is rendered _pray_ , _meditate_ , and
-_talk of_. We think of God's excellent majesty; we cry to him in humble
-prayer; we study his word until our souls are filled with gladness and
-admiration; and then how can we but _talk of his wondrous works?_
-
-\---_William S. Plumer_.
+**Verse 27 &mdash;** "*I shall talk of*." There is a close affinity between all the duties of religion. The same word is rendered *pray* , *meditate* , and *talk of*. We think of God's excellent majesty; we cry to him in humble prayer; we study his word until our souls are filled with gladness and admiration; and then how can we but *talk of his wondrous works?* *William S. Plumer*.
 
 ### Hints to Preachers
 
-**Verse 27.** \---
+**Verse 27 &mdash;** 1. A student's prayer. 2. It deals with the main subject of the conversation which is to be that student's occupation---"the way of God's precepts." 3. A confession is implied: "Make me," etc. 4. A great boon is asked---to understand, to know, thy statutes. 5. The Fountain of all wisdom is applied to. 6. The occupation of the instructed man. 7. He testifies of God's works---his wondrous works---Christ's work for us; the Holy Spirit's work in us. The wonderful character of these works of God, a wide field for devout study. 8. He speaks very plainly: "I will talk," etc. 9. He will speak very frequently: "I will talk." 10. He will speak to the point: "So"---*i.e.* , according to understanding. 11. The intimate relation between the prayer of the student and the pursuit that he subsequently followed. See "Spurgeon's Sermons." No. 1344; "The Student's Prayer."
 
-  1. A student's prayer.
-
-  2. It deals with the main subject of the conversation which is to be that student's occupation---"the way of God's precepts."
-
-  3. A confession is implied: "Make me," etc.
-
-  4. A great boon is asked---to understand, to know, thy statutes.
-
-  5. The Fountain of all wisdom is applied to.
-
-  6. The occupation of the instructed man.
-
-  7. He testifies of God's works---his wondrous works---Christ's work for us; the Holy Spirit's work in us. The wonderful character of these works of God, a wide field for devout study.
-
-  8. He speaks very plainly: "I will talk," etc.
-
-  9. He will speak very frequently: "I will talk."
-
-  10. He will speak to the point: "So"---_i.e._ , according to understanding.
-
-  11. The intimate relation between the prayer of the student and the pursuit that he subsequently followed.
-
-\---See "Spurgeon's Sermons." No. 1344; "The Student's Prayer."
-
-**Verse 27.** \---Education for the ministry.
-
-  1. The student at college: "_Make me to understand_." His lesson. His instructor. His application.
-
-  2. The preacher at his work: "_So shall I talk_ ," etc. His qualification. His theme. His manner.
-
-\---_C. A. D._
+**Verse 27 &mdash;** Education for the ministry. 1. The student at college: "*Make me to understand*." His lesson. His instructor. His application. 2. The preacher at his work: "*So shall I talk* ," etc. His qualification. His theme. His manner. *C. A. D.*
 
 ## Exposition Verse 28
 
-**Verse 28.** \---"_My soul melteth for heaviness_." He was dissolving away in
-tears. The solid strength of his constitution was turning to liquid as if
-molten by the furnace heat of his afflictions. Heaviness of heart is a killing
-thing, and when it abounds it threatens to turn life into a long death, in
-which a man seems to drop away in a perpetual drip of grief. Tears are the
-distillation of the heart; when a man weeps he wastes away his soul. Some of
-us know what great heaviness means, for we have been brought under its power
-again and again, and often have we felt ourselves to be poured out like water,
-and near to being like water spilt upon the ground, never again to be gathered
-up. There is one good point in this downcast state, for it is better to be
-melted with grief than to be hardened by impenitence.
+> My soul melteth for heaviness: strengthen thou me according unto thy word. 
 
-"_Strengthen thou me according unto thy word_." He had found out an ancient
-promise that the saints shall be strengthened, and here he pleads it. His hope
-in his state of depression lies not in himself, but in his God; if he may be
-strengthened from on high he will yet shake off his heaviness and rise to joy
-again. Observe how he pleads the promise of the word, and asks for nothing
-more than to be dealt with after the recorded manner of the Lord of mercy. Had
-not Hannah sung, "_He shall give strength unto his King, and exalt the horn of
-his anointed_? God strengthens us by infusing grace through his word: the word
-which creates can certainly sustain. Grace can enable us to bear the constant
-fret of an abiding sorrow, it can repair the decay caused by the perpetual
-tear drip, and give to the believer the garment of praise for the spirit of
-heaviness. Let us always resort to prayer in our desponding times, for it is
-the surest and shortest way out of the depths. In that prayer let us plead
-nothing but the word of God; for there is no plea like a promise, no argument
-like a word from our covenant God.
+"*My soul melteth for heaviness*." He was dissolving away in tears. The solid strength of his constitution was turning to liquid as if molten by the furnace heat of his afflictions. Heaviness of heart is a killing thing, and when it abounds it threatens to turn life into a long death, in which a man seems to drop away in a perpetual drip of grief. Tears are the distillation of the heart; when a man weeps he wastes away his soul. Some of us know what great heaviness means, for we have been brought under its power again and again, and often have we felt ourselves to be poured out like water, and near to being like water spilt upon the ground, never again to be gathered up. There is one good point in this downcast state, for it is better to be melted with grief than to be hardened by impenitence.
 
-Note how David records his inner soul life. In Psa 119:20 he says, "_My soul
-breaketh_ ;" in Psa 119:25, "_My soul cleaveth to the dust_ ;" and here, "_My
-soul melteth_." Further on, in Psa 119:81, he cries, "_My soul fainteth_ ;" in
-Psa 119:109, "_My soul is continually in my hand_ ;" in Psa 119:167, "_My soul
-hath kept thy testimonies_ ;" and lastly, in Psa 119:175, "_Let my soul
-live_." Some people do not even know that they have a soul, and here is David
-all soul. What a difference there is between the spiritually living and the
-spiritually dead.
+"*Strengthen thou me according unto thy word*." He had found out an ancient promise that the saints shall be strengthened, and here he pleads it. His hope in his state of depression lies not in himself, but in his God; if he may be strengthened from on high he will yet shake off his heaviness and rise to joy again. Observe how he pleads the promise of the word, and asks for nothing more than to be dealt with after the recorded manner of the Lord of mercy. Had not Hannah sung, "*He shall give strength unto his King, and exalt the horn of his anointed*? God strengthens us by infusing grace through his word: the word which creates can certainly sustain. Grace can enable us to bear the constant fret of an abiding sorrow, it can repair the decay caused by the perpetual tear drip, and give to the believer the garment of praise for the spirit of heaviness. Let us always resort to prayer in our desponding times, for it is the surest and shortest way out of the depths. In that prayer let us plead nothing but the word of God; for there is no plea like a promise, no argument like a word from our covenant God.
+
+Note how David records his inner soul life. In Psa 119:20 he says, "*My soul breaketh* ;" in Psa 119:25, "*My soul cleaveth to the dust* ;" and here, "*My soul melteth*." Further on, in Psa 119:81, he cries, "*My soul fainteth* ;" in Psa 119:109, "*My soul is continually in my hand* ;" in Psa 119:167, "*My soul hath kept thy testimonies* ;" and lastly, in Psa 119:175, "*Let my soul live*." Some people do not even know that they have a soul, and here is David all soul. What a difference there is between the spiritually living and the spiritually dead.
 
 ### Explanatory Notes and Quaint Sayings
 
-**Verse 28.** \---"_My soul melteth for heaviness_." In the original the word
-signifies, "droppeth away." The Septuagint hath it thus: "My soul fell asleep
-through weariness." Probably by a fault of the transcribers, putting one word
-for another. My soul droppeth. It may relate (1) to the plenty of his tears,
-as the word is used in Scripture: "_My friends scorn me: but mine eye poureth
-out tears unto God_ " (Job 16:20), or droppeth to God, the same word; so it
-notes his deep sorrow and sense of his condition. The like allusion is in Jos
-7:5; "_The heart of the people melted, and became as water_." Or (2) it
-relates to his languishing under the extremity of his sorrow; as an unctuous
-thing wasteth by dropping, so was his soul even dropping away. Such a like
-expression is used in Psa 117:96: "_Their soul is melted because of trouble_
-;" and of Jesus Christ, whose strength was exhausted by the greatness of his
-sorrows, it is said, Psa 22:14, "_I am poured out like water, and all my bones
-are out of joint: my heart is like wax; it melteth in the midst of my
-bowels_." Be the allusion either to the one or to the other; either to the
-dropping of tears, or to the melting and wasting away of what is fat or
-unctuous, it notes a vehement sorrow, and brokenness of heart. So much is
-clear, his soul was even melting away, and unless God did help, he could hold
-out no longer.
+**Verse 28 &mdash;** "*My soul melteth for heaviness*." In the original the word signifies, "droppeth away." The Septuagint hath it thus: "My soul fell asleep through weariness." Probably by a fault of the transcribers, putting one word for another. My soul droppeth. It may relate (1) to the plenty of his tears, as the word is used in Scripture: "*My friends scorn me: but mine eye poureth out tears unto God* " (Job 16:20), or droppeth to God, the same word; so it notes his deep sorrow and sense of his condition. The like allusion is in Jos 7:5; "*The heart of the people melted, and became as water*." Or (2) it relates to his languishing under the extremity of his sorrow; as an unctuous thing wasteth by dropping, so was his soul even dropping away. Such a like expression is used in Psa 117:96: "*Their soul is melted because of trouble* ;" and of Jesus Christ, whose strength was exhausted by the greatness of his sorrows, it is said, Psa 22:14, "*I am poured out like water, and all my bones are out of joint: my heart is like wax; it melteth in the midst of my bowels*." Be the allusion either to the one or to the other; either to the dropping of tears, or to the melting and wasting away of what is fat or unctuous, it notes a vehement sorrow, and brokenness of heart. So much is clear, his soul was even melting away, and unless God did help, he could hold out no longer. *Thomas Manton*.
 
-\---_Thomas Manton_.
+**Verse 28 &mdash;** "*My soul melteth*." The oldest versions make it mean *to slumber* (LXX *ἐνύσταθεν* , Vulg. *dormitavit*), which would make the clause remarkably coincident with Luk 22:45. *Joseph Addison Alexander*.
 
-**Verse 28.** \---"_My soul melteth_." The oldest versions make it mean _to
-slumber_ (LXX _ἐνύσταθεν_ , Vulg. _dormitavit_), which would make the clause
-remarkably coincident with Luk 22:45.
+**Verse 28 &mdash;** "*Heaviness*." There is nothing may comfort a natural man but David had it; yet cannot all these keep him from that heaviness whereunto, as witnesseth S. Peter, the children of God are subject in this life, through their manifold temptations. The men of the world are so far from this disposition, that if they have health and wealth, they marvel what it is should make a man heavy: they are not acquainted with the exercise of a feeling conscience; they know not the defects of the spiritual life, and are not grieved at them: being dead in sin they feel not that they want life; all their care is to eat and drink and make merry. But miserable are they; for in their best estate they are as oxen fed for the slaughter. Woe be to them who laugh now, they shall mourn; but blessed are they who mourn now, for they shall be comforted. *William Cowper*.
 
-\---_Joseph Addison Alexander_.
+**Verse 28 &mdash;** "*Strengthen thou me according unto thy word*." Strengthen me to do the duties, resist the temptations, and bear up under the burdens of an afflicted state, that the spirit may not fail. *Matthew Henry*.
 
-**Verse 28.** \---"_Heaviness_." There is nothing may comfort a natural man
-but David had it; yet cannot all these keep him from that heaviness whereunto,
-as witnesseth S. Peter, the children of God are subject in this life, through
-their manifold temptations. The men of the world are so far from this
-disposition, that if they have health and wealth, they marvel what it is
-should make a man heavy: they are not acquainted with the exercise of a
-feeling conscience; they know not the defects of the spiritual life, and are
-not grieved at them: being dead in sin they feel not that they want life; all
-their care is to eat and drink and make merry. But miserable are they; for in
-their best estate they are as oxen fed for the slaughter. Woe be to them who
-laugh now, they shall mourn; but blessed are they who mourn now, for they
-shall be comforted.
+**Verse 28 &mdash;** "*Strengthen thou me according unto thy word*." What is that word which David pleaded? "*As thy days, so shall thy strength be* ," Deu 33:25. "*Will he plead against me* ," said Job, "*with his great power? No; but he will put strength in me* ," Job 23:6. *Charles Bridges*.
 
-\---_William Cowper_.
-
-**Verse 28.** \---"_Strengthen thou me according unto thy word_." Strengthen
-me to do the duties, resist the temptations, and bear up under the burdens of
-an afflicted state, that the spirit may not fail.
-
-\---_Matthew Henry_.
-
-**Verse 28.** \---"_Strengthen thou me according unto thy word_." What is that
-word which David pleaded? "_As thy days, so shall thy strength be_ ," Deu
-33:25. "_Will he plead against me_ ," said Job, "_with his great power? No;
-but he will put strength in me_ ," Job 23:6.
-
-\---_Charles Bridges_.
-
-**Verse 28.** \---"_Strengthen thou me_." Gesenius translates this, "_Keep me
-alive_." Thus, קיְּמֵנִי, in this verse, answers to חֵיֵּנִי, in the first
-verse [Psa 119:25.. This prayer for new strength, or life, is an entreaty that
-the waste of life through tears might be restored by the life giving word.
-
-\---_Frederick G. Marchant_.
+**Verse 28 &mdash;** "*Strengthen thou me*." Gesenius translates this, "*Keep me alive*." Thus, קיְּמֵנִי, in this verse, answers to חֵיֵּנִי, in the first verse [Psa 119:25.. This prayer for new strength, or life, is an entreaty that the waste of life through tears might be restored by the life giving word. *Frederick G. Marchant*.
 
 ### Hints to Preachers
 
-**Verse 28.** \---Heaviness, its cause, curse, and cure.
+**Verse 28 &mdash;** Heaviness, its cause, curse, and cure.
 
 ## Exposition Verse 29
 
-**Verse 29.** \---"_Remove from me the way of lying_." This is the way of sin,
-error, idolatry, folly, self righteousness, formalism, hypocrisy. David would
-not only be kept from that way, but have it kept from him; he cannot endure to
-have it near him, he would have it swept away from his sight. He desired to be
-right and upright, true and in the truth; but he feared that a measure of
-falsehood would cling to him unless the Lord took it away, and therefore he
-earnestly cried for its removal. False motives may at times sway us, and we
-may fall into mistaken notions of our own spiritual condition before God,
-which erroneous conceits may be kept up by a natural prejudice in our own
-layout, and so we may be confirmed in a delusion, and abide under error unless
-grace comes to the rescue. No true heart can rest in a false view of itself;
-it finds no anchorage, but is tossed to and fro till it gets into the truth
-and the truth into it. The true born child of heaven sighs out and cries
-against a lie, desiring to have it taken away as much as a man desires to be
-set at a distance from a venomous serpent or a raging lion.
+> Remove from me the way of lying: and grant me thy law graciously. 
 
-"_And grant me thy law graciously_." He is in a gracious state who looks upon
-the law itself as a gift of grace. David wishes to have the law opened up to
-his understanding, engraved upon his heart, and carried out in his life; for
-this he seeks the Lord, and pleads for it as a gracious grant. No doubt he
-viewed this as the only mode of deliverance from the power of falsehood: if
-the law be not in our hearts the lie will enter. David would seem to have
-remembered those times when, according to the eastern fashion, he had
-practised deceit for his own preservation, and he saw that he had been weak
-and erring on that point; therefore he was bowed down in spirit and begged to
-be quickened and delivered from transgressing in that manner any more. Holy
-men cannot review their sins without tears, nor weep over them without
-entreating to be saved from further offending.
+"*Remove from me the way of lying*." This is the way of sin, error, idolatry, folly, self righteousness, formalism, hypocrisy. David would not only be kept from that way, but have it kept from him; he cannot endure to have it near him, he would have it swept away from his sight. He desired to be right and upright, true and in the truth; but he feared that a measure of falsehood would cling to him unless the Lord took it away, and therefore he earnestly cried for its removal. False motives may at times sway us, and we may fall into mistaken notions of our own spiritual condition before God, which erroneous conceits may be kept up by a natural prejudice in our own layout, and so we may be confirmed in a delusion, and abide under error unless grace comes to the rescue. No true heart can rest in a false view of itself; it finds no anchorage, but is tossed to and fro till it gets into the truth and the truth into it. The true born child of heaven sighs out and cries against a lie, desiring to have it taken away as much as a man desires to be set at a distance from a venomous serpent or a raging lion.
 
-There is an evident opposition between falsehood and the gracious power of
-God's law. The only way to expel the lie is to accept the truth. Grace also
-has a clear affinity to truth: no sooner do we meet with the sound of the word
-"_graciously_ " than we hear the footfall of truth: "_I have chosen the way of
-truth_." Grace and truth are ever linked together, and a belief of the
-doctrines of grace is a grand preservative from deadly error.
+"*And grant me thy law graciously*." He is in a gracious state who looks upon the law itself as a gift of grace. David wishes to have the law opened up to his understanding, engraved upon his heart, and carried out in his life; for this he seeks the Lord, and pleads for it as a gracious grant. No doubt he viewed this as the only mode of deliverance from the power of falsehood: if the law be not in our hearts the lie will enter. David would seem to have remembered those times when, according to the eastern fashion, he had practised deceit for his own preservation, and he saw that he had been weak and erring on that point; therefore he was bowed down in spirit and begged to be quickened and delivered from transgressing in that manner any more. Holy men cannot review their sins without tears, nor weep over them without entreating to be saved from further offending.
 
-In the fifth of the preceding octave (Psa 119:21) David cries out against
-pride, and here against lying---these are much the same thing. Is not pride
-the greatest of all lies?
+There is an evident opposition between falsehood and the gracious power of God's law. The only way to expel the lie is to accept the truth. Grace also has a clear affinity to truth: no sooner do we meet with the sound of the word "*graciously* " than we hear the footfall of truth: "*I have chosen the way of truth*." Grace and truth are ever linked together, and a belief of the doctrines of grace is a grand preservative from deadly error.
+
+In the fifth of the preceding octave (Psa 119:21) David cries out against pride, and here against lying---these are much the same thing. Is not pride the greatest of all lies?
 
 ### Explanatory Notes and Quaint Sayings
 
-**Verse 29.** \---It says, "_Remove from me the way_ ," and not me from the
-way; because that way of iniquity is within us, for we are born children of
-wrath, and the passions innate in us run to the lie, and make the wretched way
-of crimes in our souls.
+**Verse 29 &mdash;** It says, "*Remove from me the way* ," and not me from the way; because that way of iniquity is within us, for we are born children of wrath, and the passions innate in us run to the lie, and make the wretched way of crimes in our souls. *Thomas Le Blanc*.
 
-\---_Thomas Le Blanc_.
+**Verse 29 &mdash;** "*Remove from me the way of lying*." Here he acknowledgeth that although he were already exercised in the law of God and in his knowledge, and that although he were a prophet to teach others, nevertheless he was subject to a number of wicked thoughts and imaginations which might always wickedly lead him from the right way, except God had held him with his mighty and strong hand. And this is a point which we ought here rightly to note; for we see how men greatly abuse themselves. When any of us shall have had a good beginning, we straightway think that we are at the highest; we never bethink us to pray any more to God, when once he hath showed us favour enough to serve our turns; but if we have done any small deed, we by and by lift up ourselves and wonder at our great virtues, thinking straightway that the Devil can win no more of us. This foolish arrogancy causeth God to let us go astray, so that we fall mightily, yea, that we break both arms and legs, and are in great hazard of breaking our necks. I speak not now of our natural body, but of our soul. Let us look upon David himself; for he it is that hath made proof hereof. It came to pass that he villainously and wickedly erred when he took Bathsheba the wife of his subject, Uriah, to play the whoremonger with her, that he was the cause of so execrable a murder, yea, and that of many; for he did as much as in him lay, to cause the whole army of the Lord and all the people of Israel to be utterly overthrown. See, then, the great negligence and security into which David fell; and see also wherefore he saith, "Alas, my good God, I beseech thee so to guide me, that I may forsake the way of lying." *John Calvin*.
 
-**Verse 29.** \---"_Remove from me the way of lying_." Here he acknowledgeth
-that although he were already exercised in the law of God and in his
-knowledge, and that although he were a prophet to teach others, nevertheless
-he was subject to a number of wicked thoughts and imaginations which might
-always wickedly lead him from the right way, except God had held him with his
-mighty and strong hand. And this is a point which we ought here rightly to
-note; for we see how men greatly abuse themselves. When any of us shall have
-had a good beginning, we straightway think that we are at the highest; we
-never bethink us to pray any more to God, when once he hath showed us favour
-enough to serve our turns; but if we have done any small deed, we by and by
-lift up ourselves and wonder at our great virtues, thinking straightway that
-the Devil can win no more of us. This foolish arrogancy causeth God to let us
-go astray, so that we fall mightily, yea, that we break both arms and legs,
-and are in great hazard of breaking our necks. I speak not now of our natural
-body, but of our soul. Let us look upon David himself; for he it is that hath
-made proof hereof. It came to pass that he villainously and wickedly erred
-when he took Bathsheba the wife of his subject, Uriah, to play the whoremonger
-with her, that he was the cause of so execrable a murder, yea, and that of
-many; for he did as much as in him lay, to cause the whole army of the Lord
-and all the people of Israel to be utterly overthrown. See, then, the great
-negligence and security into which David fell; and see also wherefore he
-saith, "Alas, my good God, I beseech thee so to guide me, that I may forsake
-the way of lying."
+**Verse 29 &mdash;** "*Lying*." A sin that David, through diffidence, fell into frequently. See 1Sa 21:2, 8, where he roundly telleth three or four lies; and the like he did, 1Sa 27:8, 10: this evil he saw by himself, and here prayeth against it. *John Trapp*.
 
-\---_John Calvin_.
+**Verse 29 &mdash;** "*The way of lying* ," etc. Lying ways are all ways, except the ways of God's commandments: reason, sense, example, custom, event, deceivable lusts, these tell a man he is safe, or that he shall repent of them, and take no hurt in the end, and they promise ease and blessedness, but perform it not. Such as desire to obey God must be kept from evil ways: we are not so sanctified but that temptation will injure our graces. As a fire in kindling, not thoroughly alight, may be quenched by a little water, so may our holiness be damped by temptation. We find within us a proneness to false ways, as candles new blown out are soon blown in again. Therefore as burnt children dread the fire, so do we fear the way of lying. God doth not suffer temptations to come into the presence of some; and in others God maketh the heart averse from sin when the temptation is present. We must come out of the ways of sin, ere we can walk in the ways of God. *Paul Bayne*.
 
-**Verse 29.** \---"_Lying_." A sin that David, through diffidence, fell into
-frequently. See 1Sa 21:2, 8, where he roundly telleth three or four lies; and
-the like he did, 1Sa 27:8, 10: this evil he saw by himself, and here prayeth
-against it.
+**Verse 29 &mdash;** "*The way of lying*." The whole life of sin is a *lie* from beginning to end. The word "*lying* " occurs *eight* times in this Psalm. *William S. Plumer*.
 
-\---_John Trapp_.
+**Verse 29 &mdash;** "*The way of lying*." By *the way of lying* is to be understood all that is in man's nature, not agreeable to the word, whether it be counsels, or conclusions of the heart, or external actions; and it is called a lying way, because nature promises a good to be gotten by sin which man shall not find in it. *William Cowper*.
 
-**Verse 29.** \---"_The way of lying_ ," etc. Lying ways are all ways, except
-the ways of God's commandments: reason, sense, example, custom, event,
-deceivable lusts, these tell a man he is safe, or that he shall repent of
-them, and take no hurt in the end, and they promise ease and blessedness, but
-perform it not. Such as desire to obey God must be kept from evil ways: we are
-not so sanctified but that temptation will injure our graces. As a fire in
-kindling, not thoroughly alight, may be quenched by a little water, so may our
-holiness be damped by temptation. We find within us a proneness to false ways,
-as candles new blown out are soon blown in again. Therefore as burnt children
-dread the fire, so do we fear the way of lying. God doth not suffer
-temptations to come into the presence of some; and in others God maketh the
-heart averse from sin when the temptation is present. We must come out of the
-ways of sin, ere we can walk in the ways of God.
+**Verse 29 &mdash;** "*The way of lying*." The prophet here desireth to be confirmed by God against all corruptions in doctrine, and disorder of conversation, which Satan by his witty and wily instruments doth seek to set abroach in the world. These are called "*the way of lying*." 1. Because they are invented by Satan, the father of lies. 2. They are countenanced by man's wit, the storehouse of lies. 3. They seem to be that, which they are not, which is of the nature of lies. 4. They are contrary to God and his truth, the discoverers of lies. *Richard Greenham*.
 
-\---_Paul Bayne_.
+**Verse 29 &mdash;** "*Grant me thy law graciously*." He opposes the law of God to the way of lying. First, because it is the only rule of all truth, both in religion and manners: that which is not agreeable to it is but a lie which shall deceive men. Secondly, it destroys and shall at length utterly destroy all contrary errors. As the rod of Aaron devoured the rods of the enchanters: so the word, which is the rod of the mouth of God, shall, in the end, eat up and consume all untruths whatsoever. Thirdly, according to the sentence of this word, so shall it be unto every man; it deceives none. Men shall find by experience it is true: he who walks in a way condemned by the word, shall come to a miserable end. And, on the contrary, it cannot but be well with them who live according to this rule. *William Cowper*.
 
-**Verse 29.** \---"_The way of lying_." The whole life of sin is a _lie_ from
-beginning to end. The word "_lying_ " occurs _eight_ times in this Psalm.
-
-\---_William S. Plumer_.
-
-**Verse 29.** \---"_The way of lying_." By _the way of lying_ is to be
-understood all that is in man's nature, not agreeable to the word, whether it
-be counsels, or conclusions of the heart, or external actions; and it is
-called a lying way, because nature promises a good to be gotten by sin which
-man shall not find in it.
-
-\---_William Cowper_.
-
-**Verse 29.** \---"_The way of lying_." The prophet here desireth to be
-confirmed by God against all corruptions in doctrine, and disorder of
-conversation, which Satan by his witty and wily instruments doth seek to set
-abroach in the world. These are called "_the way of lying_."
-
-  1. Because they are invented by Satan, the father of lies.
-
-  2. They are countenanced by man's wit, the storehouse of lies.
-
-  3. They seem to be that, which they are not, which is of the nature of lies.
-
-  4. They are contrary to God and his truth, the discoverers of lies.
-
-\---_Richard Greenham_.
-
-**Verse 29.** \---"_Grant me thy law graciously_." He opposes the law of God
-to the way of lying. First, because it is the only rule of all truth, both in
-religion and manners: that which is not agreeable to it is but a lie which
-shall deceive men. Secondly, it destroys and shall at length utterly destroy
-all contrary errors. As the rod of Aaron devoured the rods of the enchanters:
-so the word, which is the rod of the mouth of God, shall, in the end, eat up
-and consume all untruths whatsoever. Thirdly, according to the sentence of
-this word, so shall it be unto every man; it deceives none. Men shall find by
-experience it is true: he who walks in a way condemned by the word, shall come
-to a miserable end. And, on the contrary, it cannot but be well with them who
-live according to this rule.
-
-\---_William Cowper_.
-
-**Verse 29.** \---"_Grant me thy law graciously_." David had ever the book of
-the law; for every king of Israel was to have it always by him, and the Rabbis
-say, written with his own hand. But, "_Grant me thy law graciously_ ;" that
-is, he desires he might have it not only written by him, but upon him, to have
-it imprinted upon his heart, that he might have a heart to observe and keep
-it. That is the blessing he begs for, "_the law_ ;" and this is begged
-"_graciously_ ," or upon terms of grace, merely according to thine own favour,
-and good pleasure. Here is,---
-
-  1. The sin deprecated, "_Remove from me the way of lying_."
-
-  2. The good supplicated and asked, "_Grant me thy law graciously_."
-
-In the first clause you have his malady, David had been enticed to a course of
-lying. In the second we have his remedy, and that is the law of God.
-
-\---_Thomas Manton_.
+**Verse 29 &mdash;** "*Grant me thy law graciously*." David had ever the book of the law; for every king of Israel was to have it always by him, and the Rabbis say, written with his own hand. But, "*Grant me thy law graciously* ;" that is, he desires he might have it not only written by him, but upon him, to have it imprinted upon his heart, that he might have a heart to observe and keep it. That is the blessing he begs for, "*the law* ;" and this is begged "*graciously* ," or upon terms of grace, merely according to thine own favour, and good pleasure. Here is,--- 1. The sin deprecated, "*Remove from me the way of lying*." 2. The good supplicated and asked, "*Grant me thy law graciously*." In the first clause you have his malady, David had been enticed to a course of lying. In the second we have his remedy, and that is the law of God. *Thomas Manton*.
 
 ### Hints to Preachers
 
-**Verse 29.** \---"_The way of lying_."
+**Verse 29 &mdash;** "*The way of lying*." 1. *Describe the way of lying*. Various paths, *e.g.* , erroneous views of doctrine: false grounds of faith: looseness of practice: shrinking from the daily cross. 2. *Show why it is thus named*. It does not furnish its promised pleasures. It does not lead to its professed goal. It lies through the territory of the father of lies. 3. *Notice the peculiarity* in the prayer against it. Not remove me from, but remove from me: for the way of lying is within us. 4. *Our deliverance* from the way of lying lies with God. *C. A. D.*
 
-  1. _Describe the way of lying_. Various paths, _e.g._ , erroneous views of doctrine: false grounds of faith: looseness of practice: shrinking from the daily cross.
-
-  2. _Show why it is thus named_. It does not furnish its promised pleasures. It does not lead to its professed goal. It lies through the territory of the father of lies.
-
-  3. _Notice the peculiarity_ in the prayer against it. Not remove me from, but remove from me: for the way of lying is within us.
-
-  4. _Our deliverance_ from the way of lying lies with God.
-
-\---_C. A. D._
-
-**Verses 29-30.** \---
-
-  1. The way of lying, our wish to have it removed, and the method of answer.
-
-  2. The way of truth, our choice, and the method of carrying it out.
+**Verses 29-30 &mdash;** 1. The way of lying, our wish to have it removed, and the method of answer. 2. The way of truth, our choice, and the method of carrying it out.
 
 ## Exposition Verse 30
 
-**Verse 30.** \---"_I have chosen the way of truth_." As he abhorred the way
-of lying, so he chose the way of truth: a man must choose one or the other,
-for there cannot be any neutrality in the case. Men do not drop into the right
-way by chance; they must choose it, and continue to choose it, or they will
-soon wander from it. Those whom God has chosen in due time choose his way.
-There is a doctrinal way of truth which we ought to choose, rejecting every
-dogma of man's devising; there is a ceremonial way of truth which we should
-follow, detesting all the forms which apostate churches have invented; and
-then there is a practical way of truth, the way of holiness, to which we must
-adhere whatever may be our temptation to forsake it. Let our election be made,
-and made irrevocably. Let us answer to all seducers, "I have chosen, and what
-I have chosen I have chosen." O Lord, by thy grace lead us with a hearty free
-will to choose to do thy will; thus shall thine eternal choice of us bring
-forth the end which it designs.
+> I have chosen the way of truth: thy judgments have I laid *before me*. 
 
-"_Thy judgments have I laid before me_ " What he had chosen he kept in mind,
-laying it out before his mind's eye. Men do not become holy by a careless
-wish: there must be study, consideration, deliberation, and earnest enquiry,
-or the way of truth will be missed. The commands of God must be set before us
-as the mark to aim at, the model to work by, the road to walk in. If we put
-God's judgments into the background we shall soon find ourselves departing
-from them.
+"*I have chosen the way of truth*." As he abhorred the way of lying, so he chose the way of truth: a man must choose one or the other, for there cannot be any neutrality in the case. Men do not drop into the right way by chance; they must choose it, and continue to choose it, or they will soon wander from it. Those whom God has chosen in due time choose his way. There is a doctrinal way of truth which we ought to choose, rejecting every dogma of man's devising; there is a ceremonial way of truth which we should follow, detesting all the forms which apostate churches have invented; and then there is a practical way of truth, the way of holiness, to which we must adhere whatever may be our temptation to forsake it. Let our election be made, and made irrevocably. Let us answer to all seducers, "I have chosen, and what I have chosen I have chosen." O Lord, by thy grace lead us with a hearty free will to choose to do thy will; thus shall thine eternal choice of us bring forth the end which it designs.
 
-Here again the sixth stanzas of the third and fourth octaves ring out a
-similar note. "_I have kept thy testimonies_ " (Psa 119:22), and "_Thy
-judgments have I laid before me_." This is a happy confession, and there is no
-wonder that it is repeated.
+"*Thy judgments have I laid before me* " What he had chosen he kept in mind, laying it out before his mind's eye. Men do not become holy by a careless wish: there must be study, consideration, deliberation, and earnest enquiry, or the way of truth will be missed. The commands of God must be set before us as the mark to aim at, the model to work by, the road to walk in. If we put God's judgments into the background we shall soon find ourselves departing from them.
+
+Here again the sixth stanzas of the third and fourth octaves ring out a similar note. "*I have kept thy testimonies* " (Psa 119:22), and "*Thy judgments have I laid before me*." This is a happy confession, and there is no wonder that it is repeated.
 
 ### Explanatory Notes and Quaint Sayings
 
-**Verse 30.** \---_I have chosen the way of truth_." Here you have the working
-of a gracious soul. This is more than sitting and hearing the word---having no
-objection to what you hear. Such hearing is all that can be affirmed of the
-generality of gospel hearers, except we add, that none are more ready to be
-caught by false and easy ways of salvation, for they assent to all they hear.
-The man of God strikes a higher and more spiritual note---he goes into the
-_choice_ of the thing; he chooses the way of truth; and he cannot but choose
-it; it is the bent of his renewed nature, the effect indeed of all he has been
-pleading. How act we? The way of truth is all that God has revealed concerning
-his Son Jesus. The willing heart chooses this way, and all of it; the
-bitterness of it, the self denial of it, as well as the comfort of it; a
-Saviour from sin as well as a Saviour from hell; a Saviour whose Spirit can
-lead from prayerlessness to godliness, from idleness upon the Sabbath day to a
-holy keeping of that day, from self seeking to the seeking of Christ, from
-slack, inconsistent conduct to a careful observance of all the Lord's will.
-Where God's people meet, there such will delight to be. O for such to abound
-among us!
+**Verse 30 &mdash;** *I have chosen the way of truth*." Here you have the working of a gracious soul. This is more than sitting and hearing the word---having no objection to what you hear. Such hearing is all that can be affirmed of the generality of gospel hearers, except we add, that none are more ready to be caught by false and easy ways of salvation, for they assent to all they hear. The man of God strikes a higher and more spiritual note---he goes into the *choice* of the thing; he chooses the way of truth; and he cannot but choose it; it is the bent of his renewed nature, the effect indeed of all he has been pleading. How act we? The way of truth is all that God has revealed concerning his Son Jesus. The willing heart chooses this way, and all of it; the bitterness of it, the self denial of it, as well as the comfort of it; a Saviour from sin as well as a Saviour from hell; a Saviour whose Spirit can lead from prayerlessness to godliness, from idleness upon the Sabbath day to a holy keeping of that day, from self seeking to the seeking of Christ, from slack, inconsistent conduct to a careful observance of all the Lord's will. Where God's people meet, there such will delight to be. O for such to abound among us! *John Stephen*.
 
-\---_John Stephen_.
+**Verse 30 &mdash;** *I have chosen the way of truth*." Religion is not a matter of chance, but of choice. Have we weighed things in the balance, and, upon mature deliberation, made an election,---"We will have God upon any terms." Have we sat down and reckoned the cost,---or what religion *must* cost us,--- the parting with our lusts; and what it *may* cost us,---the parting with our lives? Have we resolved, through the assistance of grace, to own Christ when the swords and staves are up? and to sail with him, not only in a pleasure boat, but in a man of war? This choosing God speaks him to be ours: hypocrites profess God out of worldly design, not religious choice. *Thomas Watson* , *in* "*The Morning Exercises*."
 
-**Verse 30.** \---_I have chosen the way of truth_." Religion is not a matter
-of chance, but of choice. Have we weighed things in the balance, and, upon
-mature deliberation, made an election,---"We will have God upon any terms."
-Have we sat down and reckoned the cost,---or what religion _must_ cost us,---
-the parting with our lusts; and what it _may_ cost us,---the parting with our
-lives? Have we resolved, through the assistance of grace, to own Christ when
-the swords and staves are up? and to sail with him, not only in a pleasure
-boat, but in a man of war? This choosing God speaks him to be ours: hypocrites
-profess God out of worldly design, not religious choice.
+**Verse 30 &mdash;** *I have chosen the way of truth*." The choice which David makes here of God's truth proceeds from that choice and election whereby the Lord before all time made choice of David, in Christ, to be one of his elect. For as it is true of love, "*Herein is love, not that we loved God, but that he loved us* "---we could never have loved him, if first he had not loved us; so it is true of election; if he before time had not chosen us to be his people, we could never in time have chosen him to be our God. And this I mark in them who love the word of God, and delight in it, who can say out of a good heart, that the Lord is their portion and the joy of their soul: this is a sure seal of their election, imprinted by the finger of God in their heart. *William Cowper*.
 
-\---_Thomas Watson_ , _in_ "_The Morning Exercises_."
+**Verse 30 &mdash;** In all our religious exercises, let deliberation precede our resolution, and consideration usher in determination. David did so; and therefore he says here, "*I have chosen the way of truth: thy judgments have I laid before me*." Indeed, he cannot but resolve upon, and make choice of, the way of piety, who layeth before him the goodness, the rectitude and pleasantness of the way. When the prodigal considereth with himself how well his father's servants fared, he thinketh of, yea, determines to go home: "*I will arise and go to my father*." *Abraham Wright* , 1661.
 
-**Verse 30.** \---_I have chosen the way of truth_." The choice which David
-makes here of God's truth proceeds from that choice and election whereby the
-Lord before all time made choice of David, in Christ, to be one of his elect.
-For as it is true of love, "_Herein is love, not that we loved God, but that
-he loved us_ "---we could never have loved him, if first he had not loved us;
-so it is true of election; if he before time had not chosen us to be his
-people, we could never in time have chosen him to be our God. And this I mark
-in them who love the word of God, and delight in it, who can say out of a good
-heart, that the Lord is their portion and the joy of their soul: this is a
-sure seal of their election, imprinted by the finger of God in their heart.
+**Verse 30 &mdash;** "*I have chosen*." No man ever served the Lord but he first made choice of him to be his Master. Every man when he comes to years of discretion, so as to be master of himself, advises with himself what course he shall take, whether he will serve God or the world. Now all the saints of God have made this distinct choice; we will serve the Lord, and no other. Moses when both stood before him, the pleasures of Egypt on the one hand, and God and his people with their afflictions on the other, he chose the latter before the former, Heb 11:25. So David saith he did, "*I have chosen the way of truth: thy judgments have I laid before me* ;" for to choose, is, when a thing lies before a man, and he considers and takes it. So Joshua, "*I and my house will serve the Lord*." *John Preston* , (1587-1628) *in* "*The Golden Sceptre held forth to the Humble*." 1638.
 
-\---_William Cowper_.
+**Verse 30 &mdash;** *Truth*. There are three kinds of truth; truth in heart, truth in word, truth in deed (2Ki 20:3; Zec 8:16; Heb 10:22). *Ayguan*. *From* "*The Preacher's Storehouse* ," *by* *J. E. Vaux*.
 
-**Verse 30.** \---In all our religious exercises, let deliberation precede our
-resolution, and consideration usher in determination. David did so; and
-therefore he says here, "_I have chosen the way of truth: thy judgments have I
-laid before me_." Indeed, he cannot but resolve upon, and make choice of, the
-way of piety, who layeth before him the goodness, the rectitude and
-pleasantness of the way. When the prodigal considereth with himself how well
-his father's servants fared, he thinketh of, yea, determines to go home: "_I
-will arise and go to my father_."
+**Verse 30 &mdash;** *Thy judgments*. God's word is called his judgment, because it discerns good from evil; and is not a naked sentence; but, as it points out evil, so it pronounces plagues against it, which shall be executed according to the sentence thereof. *William Cowper*.
 
-\---_Abraham Wright_ , 1661.
+**Verse 30 &mdash;** *I have chosen; I have stuck*. The choosing Christian is likely to be the sticking Christian; when those that are Christians by chance tack about if the wind turn. *Matthew Henry*.
 
-**Verse 30.** \---"_I have chosen_." No man ever served the Lord but he first
-made choice of him to be his Master. Every man when he comes to years of
-discretion, so as to be master of himself, advises with himself what course he
-shall take, whether he will serve God or the world. Now all the saints of God
-have made this distinct choice; we will serve the Lord, and no other. Moses
-when both stood before him, the pleasures of Egypt on the one hand, and God
-and his people with their afflictions on the other, he chose the latter before
-the former, Heb 11:25. So David saith he did, "_I have chosen the way of
-truth: thy judgments have I laid before me_ ;" for to choose, is, when a thing
-lies before a man, and he considers and takes it. So Joshua, "_I and my house
-will serve the Lord_."
+**Verse 30 &mdash;** *Thy judgments have I laid before me*. The solid consideration that God's word is God's decree or judgment may guard a believer against men's terrors and allurements, and fix him in his right choice, as here. *David Dickson*.
 
-\---_John Preston_ , (1587-1628) _in_ "_The Golden Sceptre held forth to the
-Humble_." 1638.
-
-**Verse 30.** \---_Truth_. There are three kinds of truth; truth in heart,
-truth in word, truth in deed (2Ki 20:3; Zec 8:16; Heb 10:22).
-
-\---_Ayguan_. _From_ "_The Preacher's Storehouse_ ," _by_ _J. E. Vaux_.
-
-**Verse 30.** \---_Thy judgments_. God's word is called his judgment, because
-it discerns good from evil; and is not a naked sentence; but, as it points out
-evil, so it pronounces plagues against it, which shall be executed according
-to the sentence thereof.
-
-\---_William Cowper_.
-
-**Verse 30.** \---_I have chosen; I have stuck_. The choosing Christian is
-likely to be the sticking Christian; when those that are Christians by chance
-tack about if the wind turn.
-
-\---_Matthew Henry_.
-
-**Verse 30.** \---_Thy judgments have I laid before me_. The solid
-consideration that God's word is God's decree or judgment may guard a believer
-against men's terrors and allurements, and fix him in his right choice, as
-here.
-
-\---_David Dickson_.
-
-**Verse 30.** \---_Thy judgments have I laid before me_. Men that mean to
-travel the right way will lay before them a map: so David, as his will had
-resolved upon the ways of truth, so he setteth before his eyes the map of the
-law, which did manifest this unto him, as the ship man hath his card with the
-compass.
-
-\---_Paul Bayne_.
+**Verse 30 &mdash;** *Thy judgments have I laid before me*. Men that mean to travel the right way will lay before them a map: so David, as his will had resolved upon the ways of truth, so he setteth before his eyes the map of the law, which did manifest this unto him, as the ship man hath his card with the compass. *Paul Bayne*.
 
 ## Exposition Verse 31
 
-**Verse 31.** \---_I have stuck unto thy testimonies_ , ---or I have cleaved,
-for the word is the same as in Psa 119:25. Though cleaving to the dust of
-sorrow and of death, yet he kept fast hold of the divine word. This was his
-comfort, and his faith stuck to it, his love and his obedience held on to it,
-his heart and his mind abode in meditation upon it. His choice was so heartily
-and deliberately made that he stuck to it for life, and could not be removed
-from it by the reproaches of those who despised the way of the Lord. What
-could he have gained by quitting the sacred testimony? Say rather, what would
-he not have lost if he had ceased to cleave to the divine word? It is pleasant
-to look back upon past perseverance and to expect grace to continue equally
-steadfast in the future. He who has enabled us to stick to him will surely
-stick to us.
+> I have stuck unto thy testimonies: O LORD, put me not to shame. 
 
-"_O_ LORD, _put me not to shame_." This would happen if God's promises were
-unfulfilled, and if the heart of God's servant were suffered to fail. This we
-have no reason to fear, since the Lord is faithful to his word. But it might
-also happen though the believer's acting in an inconsistent manner, as David
-had himself once done, when he fell into the way of lying, and pretended to be
-a madman. If we are not true to our profession we may be left to reap the
-fruit of our folly, and that will be the bitter thing called "shame." It is
-evident from this that a believer ought never to be ashamed, but act the part
-of a grave man who has done nothing to be ashamed of in believing his God, and
-does not mean to adopt a craven tone in the presence of the Lord's enemies. If
-we beseech the Lord not to put us to shame, surely we ought not ourselves to
-be ashamed without cause.
+*I have stuck unto thy testimonies* , ---or I have cleaved, for the word is the same as in Psa 119:25. Though cleaving to the dust of sorrow and of death, yet he kept fast hold of the divine word. This was his comfort, and his faith stuck to it, his love and his obedience held on to it, his heart and his mind abode in meditation upon it. His choice was so heartily and deliberately made that he stuck to it for life, and could not be removed from it by the reproaches of those who despised the way of the Lord. What could he have gained by quitting the sacred testimony? Say rather, what would he not have lost if he had ceased to cleave to the divine word? It is pleasant to look back upon past perseverance and to expect grace to continue equally steadfast in the future. He who has enabled us to stick to him will surely stick to us.
 
-The prayer of this verse is found in the parallel verse of the next section
-(Psa 119:39): "_Turn away my reproach which I fear_." It is evidently a
-petition which was often on the Psalmist's heart. A brave heart is more
-wounded by shame than by any weapon which a soldier's hand can wield.
+"*O* LORD, *put me not to shame*." This would happen if God's promises were unfulfilled, and if the heart of God's servant were suffered to fail. This we have no reason to fear, since the Lord is faithful to his word. But it might also happen though the believer's acting in an inconsistent manner, as David had himself once done, when he fell into the way of lying, and pretended to be a madman. If we are not true to our profession we may be left to reap the fruit of our folly, and that will be the bitter thing called "shame." It is evident from this that a believer ought never to be ashamed, but act the part of a grave man who has done nothing to be ashamed of in believing his God, and does not mean to adopt a craven tone in the presence of the Lord's enemies. If we beseech the Lord not to put us to shame, surely we ought not ourselves to be ashamed without cause.
+
+The prayer of this verse is found in the parallel verse of the next section (Psa 119:39): "*Turn away my reproach which I fear*." It is evidently a petition which was often on the Psalmist's heart. A brave heart is more wounded by shame than by any weapon which a soldier's hand can wield.
 
 ### Explanatory Notes and Quaint Sayings
 
-**Verse 31.** \---"_I have stuck unto thy testimonies_." It is not a little
-remarkable, that while the Psalmist says (Psa 119:25), "_My soul cleaveth to
-the dust_ ," he should say here, "_I have cleaved unto thy testimonies_ ;" for
-it is the same original word in both verses. The thing is altogether
-compatible with the experience of the believer. Within there is the body of
-indwelling sin, and within there is the undying principle of divine grace.
-There is the contest between them "_the flesh lusteth against the spirit and
-the spirit against the flesh_ " (Gal 5:17), and the believer is constrained to
-cry out, "_O wretched man that I am_ " (Rom 7:24). It is the case; and all
-believers find it so. While the soul is many times felt cleaving to the dust,
-the spirit strives to cleave unto God's testimonies. So the believer prays,
-"Cause that I be not put to shame." And keeping close to Christ, brethren, you
-shall not be put to shame, world without end.
+**Verse 31 &mdash;** "*I have stuck unto thy testimonies*." It is not a little remarkable, that while the Psalmist says (Psa 119:25), "*My soul cleaveth to the dust* ," he should say here, "*I have cleaved unto thy testimonies* ;" for it is the same original word in both verses. The thing is altogether compatible with the experience of the believer. Within there is the body of indwelling sin, and within there is the undying principle of divine grace. There is the contest between them "*the flesh lusteth against the spirit and the spirit against the flesh* " (Gal 5:17), and the believer is constrained to cry out, "*O wretched man that I am* " (Rom 7:24). It is the case; and all believers find it so. While the soul is many times felt cleaving to the dust, the spirit strives to cleave unto God's testimonies. So the believer prays, "Cause that I be not put to shame." And keeping close to Christ, brethren, you shall not be put to shame, world without end. *John Stephen*.
 
-\---_John Stephen_.
+**Verse 31 &mdash;** "*I have stuck unto thy testimonies*." He adhered to them when momentary interests might have dictated a different line of conduct, when unbelief would have been ready to shrink from the path of duty, when outward appearances were greatly discouraging to fidelity, when all were ready to deride his preposterous determination. *John Morison*.
 
-**Verse 31.** \---"_I have stuck unto thy testimonies_." He adhered to them
-when momentary interests might have dictated a different line of conduct, when
-unbelief would have been ready to shrink from the path of duty, when outward
-appearances were greatly discouraging to fidelity, when all were ready to
-deride his preposterous determination.
+**Verse 31 &mdash;** "*I have stuck*." True godliness evermore wears upon her head the garland of perseverance. *William Cowper*.
 
-\---_John Morison_.
-
-**Verse 31.** \---"_I have stuck_." True godliness evermore wears upon her
-head the garland of perseverance.
-
-\---_William Cowper_.
-
-**Verse 31.** \---"_Put me not to shame_." Forasmuch as David, in a good
-conscience, endeavoured to serve God, he craves that the Lord would not
-confound him. This is two ways done; either when the Lord forsakes his
-children, so that in their trouble they feel not his promised comforts, and
-great confusion of mind and perturbation is upon them; or otherwise when he
-leaves them as a prey to their enemies, who scorn them for their godly and
-sincere life, and exult over them in their time of trouble; when they see that
-all their prayer and other exercises of religion cannot keep them out of their
-enemies' hands. "_He trusted in God: let him deliver him_." From this shame
-and contempt he desires the Lord would keep him, and that he should never be
-like unto them, who, being disappointed of that wherein they trusted, are
-ashamed.
-
-\---_William Cowper_.
+**Verse 31 &mdash;** "*Put me not to shame*." Forasmuch as David, in a good conscience, endeavoured to serve God, he craves that the Lord would not confound him. This is two ways done; either when the Lord forsakes his children, so that in their trouble they feel not his promised comforts, and great confusion of mind and perturbation is upon them; or otherwise when he leaves them as a prey to their enemies, who scorn them for their godly and sincere life, and exult over them in their time of trouble; when they see that all their prayer and other exercises of religion cannot keep them out of their enemies' hands. "*He trusted in God: let him deliver him*." From this shame and contempt he desires the Lord would keep him, and that he should never be like unto them, who, being disappointed of that wherein they trusted, are ashamed. *William Cowper*.
 
 ### Hints to Preachers
 
-**Verse 31.** \---Reasons for sticking to the Divine testimonies.
+**Verse 31 &mdash;** Reasons for sticking to the Divine testimonies.
 
-**Verse 31.** \---A wholesome mixture.
-
-  1. Sturdy fidelity.
-
-  2. Self distrust.
-
-  3. Importunate prayer.
-
-\---_C. A. D._
+**Verse 31 &mdash;** A wholesome mixture. 1. Sturdy fidelity. 2. Self distrust. 3. Importunate prayer. *C. A. D.*
 
 ## Exposition Verse 32
 
-**Verse 32.** \---"_I will run the way of thy commandments_." With energy,
-promptitude, and zeal he would perform the will of God, but he needed more
-life and liberty from the hand of God.
+> I will run the way of thy commandments, when thou shalt enlarge my heart. 
 
-"_When thou shalt enlarge my heart_." Yes, the heart is the master; the feet
-soon run when the heart is free and energetic. Let the affections be aroused
-and eagerly set on divine things, and our actions will be full of force,
-swiftness, and delight. God must work in us first, and then we shall will and
-do according to his good pleasure. He must change the heart, unite the heart,
-encourage the heart, strengthen the heart, and enlarge the heart, and then the
-course of the life will be gracious, sincere, happy, and earnest; so that from
-our lowest up to our highest state in grace we must attribute all to the free
-favour of our God. We must run; for grace is not an overwhelming force which
-compels unwilling minds to move contrary to their will: our running is the
-spontaneous leaping forward of a mind which has been set free by the hand of
-God, and delights to show its freedom by its bounding speed.
+"*I will run the way of thy commandments*." With energy, promptitude, and zeal he would perform the will of God, but he needed more life and liberty from the hand of God.
 
-What a change from Psa 119:25 to the present, from cleaving to the dust to
-running in the way. It is the excellence of holy sorrow that it works in us
-the quickening for which we seek, and then we show the sincerity of our grief
-and the reality of our revival by being zealous in the ways of the Lord.
+"*When thou shalt enlarge my heart*." Yes, the heart is the master; the feet soon run when the heart is free and energetic. Let the affections be aroused and eagerly set on divine things, and our actions will be full of force, swiftness, and delight. God must work in us first, and then we shall will and do according to his good pleasure. He must change the heart, unite the heart, encourage the heart, strengthen the heart, and enlarge the heart, and then the course of the life will be gracious, sincere, happy, and earnest; so that from our lowest up to our highest state in grace we must attribute all to the free favour of our God. We must run; for grace is not an overwhelming force which compels unwilling minds to move contrary to their will: our running is the spontaneous leaping forward of a mind which has been set free by the hand of God, and delights to show its freedom by its bounding speed.
 
-For the third time an octave closes with, "_I will_." These "_I wills_ " of
-the Psalms are right worthy of being each one the subject of study and
-discourse.
+What a change from Psa 119:25 to the present, from cleaving to the dust to running in the way. It is the excellence of holy sorrow that it works in us the quickening for which we seek, and then we show the sincerity of our grief and the reality of our revival by being zealous in the ways of the Lord.
 
-Note how the heart has been spoken of up to this point: "_whole heart_ " (Psa
-119:2), "_uprightness of heart_ " (Psa 119:7), "_hid in mine heart_ " (Psa
-119:11), "_enlarge my heart_." There are many more allusions further on, and
-these all go to show what heart work David's religion was. It is one of the
-great lacks of our age that heads count for more than hearts, and men are far
-more ready to learn than to love, though they are by no means eager in either
-direction.
+For the third time an octave closes with, "*I will*." These "*I wills* " of the Psalms are right worthy of being each one the subject of study and discourse.
+
+Note how the heart has been spoken of up to this point: "*whole heart* " (Psa 119:2), "*uprightness of heart* " (Psa 119:7), "*hid in mine heart* " (Psa 119:11), "*enlarge my heart*." There are many more allusions further on, and these all go to show what heart work David's religion was. It is one of the great lacks of our age that heads count for more than hearts, and men are far more ready to learn than to love, though they are by no means eager in either direction.
 
 ### Explanatory Notes and Quaint Sayings
 
-**Verse 32.** \---"_I will run in the way of thy commandments when_ ," etc.
-You must remember that the speaker, the Psalmist, is not an unconverted man,
-but one who had long before been brought under the dominion of religion. He is
-not, therefore, soliciting the first entrance, but the after and multiplied
-workings of a principle of grace; and he states his desire in an expression
-which is singularly descriptive of the outgoing of an influence from the heart
-over the rest of the man. His wish is that his heart might be enlarged; and
-this wish amounted to a longing that the whole of himself might act in unison
-with the heart, so that he might become, as it were, all heart, and thus the
-heart in the strictest sense be enlarged, through the spreading of itself over
-body and soul, expanding itself till it embraced all the powers of both. If
-there be the love of God in the heart, then gradually the heart, possessed and
-actuated by so noble and stirring a principle, will bring over to a lofty
-consecration all the energies, whether mental or corporeal, and will be
-practically the same as though the other departments of man were thus the
-result turned into heart, and he became, according to the phrase which we are
-accustomed to employ when describing a character of unwonted generosity and
-warmth, "all heart." So that the desire after an enlarged heart you may fairly
-consider tantamount to a desire that every faculty might be brought into
-thorough subjection to God, and that just as God himself is love---love being
-rather the Divine essence than a Divine attribute, and therefore love mingling
-itself with all the properties of Godhead, so the man having love in the heart
-might become all heart, the heart throwing itself into all his capacities,
-pervading but not obliterating the characteristics of his nature. And exactly
-in accordance with this view of the enlargement of heart which the Psalmist
-desired is the practical result which was to follow on its attainment. He was
-already walking in the way of God's commandments; but what he proposed to
-himself was the _running_ that way: "_I will run the way of thy commandments,
-when thou shalt enlarge my heart_." A quickened pace, a more rapid progress, a
-greater alacrity, a firmer constancy, a more resolute and unflinching
-obedience, these were the results which the Psalmist looked for from the
-enlargement of his heart. And truly if all the faculties of mind and body be
-dedicated to God, with a constant and vigorous step will man press on in the
-way that leadeth to heaven. So long as the dedication is at best only partial,
-the world retaining some fraction of its empire, notwithstanding the setting
-up of the kingdom of God, there can be nothing but a slow and impeded
-progress, a walking interrupted by repeated halting, if not backslidings, by
-much of loitering, if not of actual retreat; but if the man be all heart, then
-he will be all life, all warmth, all zeal, all energy, and the consequence of
-this complete surrender to God will be exactly that which is prophetically
-announced by Isaiah:"_They that wait upon the Lord shall renew their strength;
-they shall mount up with wings as eagles; they shall run, and not be weary;
-and they shall walk, and not faint_."
+**Verse 32 &mdash;** "*I will run in the way of thy commandments when* ," etc. You must remember that the speaker, the Psalmist, is not an unconverted man, but one who had long before been brought under the dominion of religion. He is not, therefore, soliciting the first entrance, but the after and multiplied workings of a principle of grace; and he states his desire in an expression which is singularly descriptive of the outgoing of an influence from the heart over the rest of the man. His wish is that his heart might be enlarged; and this wish amounted to a longing that the whole of himself might act in unison with the heart, so that he might become, as it were, all heart, and thus the heart in the strictest sense be enlarged, through the spreading of itself over body and soul, expanding itself till it embraced all the powers of both. If there be the love of God in the heart, then gradually the heart, possessed and actuated by so noble and stirring a principle, will bring over to a lofty consecration all the energies, whether mental or corporeal, and will be practically the same as though the other departments of man were thus the result turned into heart, and he became, according to the phrase which we are accustomed to employ when describing a character of unwonted generosity and warmth, "all heart." So that the desire after an enlarged heart you may fairly consider tantamount to a desire that every faculty might be brought into thorough subjection to God, and that just as God himself is love---love being rather the Divine essence than a Divine attribute, and therefore love mingling itself with all the properties of Godhead, so the man having love in the heart might become all heart, the heart throwing itself into all his capacities, pervading but not obliterating the characteristics of his nature. And exactly in accordance with this view of the enlargement of heart which the Psalmist desired is the practical result which was to follow on its attainment. He was already walking in the way of God's commandments; but what he proposed to himself was the *running* that way: "*I will run the way of thy commandments, when thou shalt enlarge my heart*." A quickened pace, a more rapid progress, a greater alacrity, a firmer constancy, a more resolute and unflinching obedience, these were the results which the Psalmist looked for from the enlargement of his heart. And truly if all the faculties of mind and body be dedicated to God, with a constant and vigorous step will man press on in the way that leadeth to heaven. So long as the dedication is at best only partial, the world retaining some fraction of its empire, notwithstanding the setting up of the kingdom of God, there can be nothing but a slow and impeded progress, a walking interrupted by repeated halting, if not backslidings, by much of loitering, if not of actual retreat; but if the man be all heart, then he will be all life, all warmth, all zeal, all energy, and the consequence of this complete surrender to God will be exactly that which is prophetically announced by Isaiah:"*They that wait upon the Lord shall renew their strength; they shall mount up with wings as eagles; they shall run, and not be weary; and they shall walk, and not faint*." *Henry Melvill* , 1798-1871.
 
-\---_Henry Melvill_ , 1798-1871.
+**Verse 32 &mdash;** "*I will run*." By running is meant cheerful, ready, and zealous observance of God's precepts: it is not go, or walk, but *run*. They that would come to their journey's end, must run in the way of God's commandments. It notes a speedy or a ready obedience, without delay. We must begin with God betimes. Alas! when we should be at the goal, we have many of us scarce set forth. And it notes earnestness; when a man's heart is set upon a thing, he thinks he can never do it soon enough. And this is running, when we are vehement and earnest upon the enjoyment of God and Christ in the way of obedience. And it notes again, that the heart freely offereth itself to God. This running is the fruit of effectual calling. When the Lord speaks of effectual calling, the issue of it is running; when he speaks of the conversion of the Gentiles, "*Nations that know not thee shall run unto thee* ;" and, "*Draw me, and we will run after thee*." When God draws there is a speedy, earnest motion of the soul. This running, as it is the fruit of effectual calling, so it is very needful; for cold and faint motions are soon overborne by difficulty and temptation: "*Let us run with patience the race that is set before us* " (Heb 12:1). When a man hath a mind to do a thing, though he be hindered and jostled, he takes it patiently, he goes on and cannot stay to debate the business. A slow motion is easily stopped, whereas a swift one bears down that which opposeth it; so is it when men run and are not tired in the service of God. Last of all, the prize calls for running: "*So run that ye may obtain* " (1Co 9:24). *Thomas Manton*.
 
-**Verse 32.** \---"_I will run_." By running is meant cheerful, ready, and
-zealous observance of God's precepts: it is not go, or walk, but _run_. They
-that would come to their journey's end, must run in the way of God's
-commandments. It notes a speedy or a ready obedience, without delay. We must
-begin with God betimes. Alas! when we should be at the goal, we have many of
-us scarce set forth. And it notes earnestness; when a man's heart is set upon
-a thing, he thinks he can never do it soon enough. And this is running, when
-we are vehement and earnest upon the enjoyment of God and Christ in the way of
-obedience. And it notes again, that the heart freely offereth itself to God.
+**Verse 32 &mdash;** "*I will run*." It was not the *walking* , "*the way of God's commandments* ," but the *running* "*the way of God's commandments* ," to which David aspired. The text has no connection with the case of one who habitually pursues the opposite path; it has exclusive reference to the pace at which the line of duty is to be traversed... It may not unnaturally excite surprise, that "*the sweet singer of Israel* "---he who was emphatically declared to be "*a man after God's own heart* "---should, nevertheless, in the words of the text, seem to imply that *he* was not yet "*running the way of God's commandments*." But, dear brethren, the greater an individual's comparative holiness, the more intense will be his longing for absolute holiness. To others, David might appear to be speeding marvellously along the path of life; and yet he himself deemed his movements to be far less rapid. It is humility was one of the evidences of his holiness. *Hugh B. Moffat* , 1871.
 
-This running is the fruit of effectual calling. When the Lord speaks of
-effectual calling, the issue of it is running; when he speaks of the
-conversion of the Gentiles, "_Nations that know not thee shall run unto thee_
-;" and, "_Draw me, and we will run after thee_." When God draws there is a
-speedy, earnest motion of the soul.
+**Verse 32 &mdash;** "*I will run the way*." His intended course in this way he expresses by running. It is good to be in this way even in the slowest motions; love will creep where it cannot walk. But if thou art so indeed, then thou wilt long for a swifter motion; if thou do but creep, creep on, desire to be enabled to go. If thou goest, but yet haltingly and lamely, yet desire to be strengthened to walk straight; and if thou walkest, let not that satisfy thee, desire to run. So here, David did walk in this way; but he earnestly wishes to mend his pace; he would willingly run, and for that end he desires an enlarged heart. Some dispute and descant too much whether they go or no, and childishly tell their steps, and would know at every step whether they advance or no, and how much they advance, and thus amuse themselves, and spend the time of doing and going in questioning and doubting. Thus it is with many Christians; but it were a more wise and comfortable way to be endeavouring onwards, and if thou make little progress, at least to be desiring to make more; to be praying and walking, and praying that thou mayest walk faster, and that in the end thou mayest run, not satisfied with anything attained. Yet by that dissatisfaction we must not be so dejected as to sit down, or to stand still, but rather we must be excited to go on. *Robert Leighton*.
 
-This running, as it is the fruit of effectual calling, so it is very needful;
-for cold and faint motions are soon overborne by difficulty and temptation:
-"_Let us run with patience the race that is set before us_ " (Heb 12:1). When
-a man hath a mind to do a thing, though he be hindered and jostled, he takes
-it patiently, he goes on and cannot stay to debate the business. A slow motion
-is easily stopped, whereas a swift one bears down that which opposeth it; so
-is it when men run and are not tired in the service of God. Last of all, the
-prize calls for running: "_So run that ye may obtain_ " (1Co 9:24).
+**Verse 32 &mdash;** "*Enlarged my heart* ," or dilated it, namely, with joy. It is obvious to remark the philosophical propriety with which this expression is applied: since the heart is dilated, and the pulse by consequence becomes strong and full, from the exultation of joy as well as of pride. (See Parkhurst on רחב.) *Richard Mant*.
 
-\---_Thomas Manton_.
+**Verse 32 &mdash;** "*Thou wilt enlarge my heart*." God would enlarge the very seat of life, and thus give his weak servant more strength; such strength that he need no longer lie prone on the dust struggling to arise; but strength to enable him to run in the way of truth. Thus, he who prays, "*O Lord, put me not to shame* ," finds for himself the truth of an earlier song: "*They looked unto him, and were lightened, and their faces were not ashamed*." *Frederick G. Marchant*.
 
-**Verse 32.** \---"_I will run_." It was not the _walking_ , "_the way of
-God's commandments_ ," but the _running_ "_the way of God's commandments_ ,"
-to which David aspired. The text has no connection with the case of one who
-habitually pursues the opposite path; it has exclusive reference to the pace
-at which the line of duty is to be traversed... It may not unnaturally excite
-surprise, that "_the sweet singer of Israel_ "---he who was emphatically
-declared to be "_a man after God's own heart_ "---should, nevertheless, in the
-words of the text, seem to imply that _he_ was not yet "_running the way of
-God's commandments_." But, dear brethren, the greater an individual's
-comparative holiness, the more intense will be his longing for absolute
-holiness. To others, David might appear to be speeding marvellously along the
-path of life; and yet he himself deemed his movements to be far less rapid. It
-is humility was one of the evidences of his holiness.
+**Verse 32 &mdash;** "*Enlarge my heart*." It is said of Solomon, that he had "a large heart, (the same word that is used here,) as the sand of the sea shore:" that is a vast, comprehensive spirit, that could fathom much of nature, both its greater and lesser things. Thus, I conceive, the enlargement of the heart comprises the enlightening of the understanding. There arises a clearer light there to discern spiritual things in a more spiritual manner; to see the vast difference betwixt the vain things the world goes after, and the true solid delight that is in the way of God's commandments; to know the false blush of the pleasures of sin, and what deformity is under that painted mask, and not be allured by it; to have enlarged apprehensions of God, his excellency, and greatness and goodness; how worthy he is to be obeyed and served; this is the great dignity and happiness of the soul; all other pretensions are low and poor in respect of this. Here then is enlargement to see the purity and beauty of his law, how just and reasonable, yea, how pleasant and amiable it is; that his commandments are not grievous, that they are beds of spices; the more we walk in them, still the more of their fragrant smell and sweetness we find. *Robert Leighton*.
 
-\---_Hugh B. Moffat_ , 1871.
+**Verse 32 &mdash;** Narrow is the way unto life, but no man can run in it save with widened heart. *Prosper* , *of Aquitaine* , (403-463), *quoted by* *Neale and Littledale*.
 
-**Verse 32.** \---"_I will run the way_." His intended course in this way he
-expresses by running. It is good to be in this way even in the slowest
-motions; love will creep where it cannot walk. But if thou art so indeed, then
-thou wilt long for a swifter motion; if thou do but creep, creep on, desire to
-be enabled to go. If thou goest, but yet haltingly and lamely, yet desire to
-be strengthened to walk straight; and if thou walkest, let not that satisfy
-thee, desire to run. So here, David did walk in this way; but he earnestly
-wishes to mend his pace; he would willingly run, and for that end he desires
-an enlarged heart.
+**Verse 32 &mdash;** "*Enlarged*." Surely a temple for the great God (such as our hearts should be) should be fair and ample. If we would have God dwell in our hearts, and shed abroad his influences, we should make room for God in our souls, by a greater largeness of faith and expectation. The rich man thought of enlarging his barns, when his store was increased upon him (Luk 12:16-21), so should we stretch out the curtains of Christ's tent and habitation, have larger expectations of God, if we would receive more from him. The vessels failed before the oil failed. We are not straitened in God, but in ourselves; by the scantiness of our thoughts, we do not make room for him, nor greaten God: "*My soul doth magnify the Lord* " (Luk 1:46). Faith doth greaten God. How can we make God greater than he is? As to the declarative being, we can have greater and larger apprehensions of his greatness, goodness, and truth. 1. There needs a large heart, because the command is exceedingly broad: "*I have seen an end of all perfection; but thy commandment is exceeding broad* " (Psa 119:96). A broad law and a narrow heart will never suit: we need love, faith, knowledge, and all to carry us through this work, which is of such a vast extent and latitude. 2. We need enlarged heart, because of the lets and hindrances within ourselves. There is lust drawing off from God to sensual objects: "*Every man is tempted, when he is drawn away of his own lust, and enticed* " (Jas 1:14). Therefore there needs something to draw us on, to carry us out with strength and life another way, to urge us in the service of God. Lust sits as a clog upon us, it is a weight of corruption (Heb 12:1), retarding us in all our flights and motions, thwarting, opposing, breaking the force of spiritual impulsions, if not hindering them altogether (Gal 5:17). Well then, lust drawing so strongly one way, God needs to draw us more strongly the other way. When there is a weight to poise us to worldly and sensual objects, we need a strength to carry us on with vigorous and lively motions of soul towards God, an earnest bent upon our souls, which is this enlargement of heart. *Thomas Manton*.
 
-Some dispute and descant too much whether they go or no, and childishly tell
-their steps, and would know at every step whether they advance or no, and how
-much they advance, and thus amuse themselves, and spend the time of doing and
-going in questioning and doubting. Thus it is with many Christians; but it
-were a more wise and comfortable way to be endeavouring onwards, and if thou
-make little progress, at least to be desiring to make more; to be praying and
-walking, and praying that thou mayest walk faster, and that in the end thou
-mayest run, not satisfied with anything attained. Yet by that dissatisfaction
-we must not be so dejected as to sit down, or to stand still, but rather we
-must be excited to go on.
+**Verse 32 &mdash;** "*My heart*." The great Physician knows at once where to look for the cause, when he sees anything amiss in the outward life of his people. He well knows that all spiritual disease is heart disease, and it is the heart remedies that he must apply. At one time, our Physician sees symptoms which are violent in their nature; at another, he sees symptoms of languor and debility; but he knows that both come from the heart; and so, it is upon the heart that he operates, when he is about to perform a cure. The strong action of the heart in all holy things comes from the blessed operation of the Spirit upon it; then only can we "*run* " the way of God's commandments, when he has enlarged our heart. *Heartiness in action* is the subject to which the reader's attention is here directed, and it is one of considerable importance. There are many believers, who for want of enlargement of heart are occupying a poor position in the church of God. They are trusting to Jesus for life eternal, and he will doubtless not disappoint them; he will be true to his word, that "*he that believeth shall be saved* ;" but they are still, alas! to a deplorable degree, shut up in self; they have contracted hearts; still do they take narrow views of God's claim, and their own privileges, and the position in which they are set in the world and however much they might be said to stand, or sit, or walk in the way of God's commandments, they cannot be said to "*run* " in it. Running is a strong and healthy action of the body; it requires energy, it is an exercise that needs a sound heart; none can run in the way of God's commandments, except in strength and vigour imparted by him. The *running* Christians are comparatively few; walking and sitting Christians are comparatively common; but the running Christian is so uncommon as often to be thought almost mad. Let us, for the sake of order, classify our observations on this subject under the following heads: 1. *What heartiness is*. The heartiness spoken of here under the term, "enlargement of the heart," is cheerfulness in doing God's will---love for that will---a drawing out of the affections towards it---an interest in it; all this it is, and a great deal more, which it is not easy to describe or define. 2. *What heartiness does*. Where there is enlargement of the heart by God, there is an outgoing beyond all the limits which fallen selfishness assigns. The heart contracted at the fall; it shrank when sin entered into it; it became unequal to containing great and generous thoughts; it became a bondaged heart. True! the responsibilities of duty could not be escaped, nor could the directions of conscience; but the affections are voluntary, and the fallen heart drew in its affections from God; it felt that it had the power of withholding them from him and his commandments, and it rejoiced to shew its enmity in withholding its sympathy, where it could not withhold its obedience. 3. *Whence heartiness comes*. Now, as we have already said, where the heart is operated on by the Spirit, and all its natural evil overruled, it has outgoings which are entirely beyond the limits that fallen selfishness assigns. Love is inwrought with it: the union of sentiment, the identity of interest which love inspires, pervade it, in all belonging to God, for it has received these from God; the heart becomes unbondaged from mere rules, or perhaps to speak more correctly, it rises above them, and it feels---not merely it *knows* , but it *feels* so much of the beauty of God's commandments, that it delights to "*run* " in them; it loves to be hearty in them; its interests, its affections are in them. *Philip Bennet Power* , *in* "*The I Wills of the Psalms* ," 1862.
 
-\---_Robert Leighton_.
-
-**Verse 32.** \---"_Enlarged my heart_ ," or dilated it, namely, with joy. It
-is obvious to remark the philosophical propriety with which this expression is
-applied: since the heart is dilated, and the pulse by consequence becomes
-strong and full, from the exultation of joy as well as of pride. (See
-Parkhurst on רחב.)
-
-\---_Richard Mant_.
-
-**Verse 32.** \---"_Thou wilt enlarge my heart_." God would enlarge the very
-seat of life, and thus give his weak servant more strength; such strength that
-he need no longer lie prone on the dust struggling to arise; but strength to
-enable him to run in the way of truth. Thus, he who prays, "_O Lord, put me
-not to shame_ ," finds for himself the truth of an earlier song: "_They looked
-unto him, and were lightened, and their faces were not ashamed_."
-
-\---_Frederick G. Marchant_.
-
-**Verse 32.** \---"_Enlarge my heart_." It is said of Solomon, that he had "a
-large heart, (the same word that is used here,) as the sand of the sea shore:"
-that is a vast, comprehensive spirit, that could fathom much of nature, both
-its greater and lesser things. Thus, I conceive, the enlargement of the heart
-comprises the enlightening of the understanding. There arises a clearer light
-there to discern spiritual things in a more spiritual manner; to see the vast
-difference betwixt the vain things the world goes after, and the true solid
-delight that is in the way of God's commandments; to know the false blush of
-the pleasures of sin, and what deformity is under that painted mask, and not
-be allured by it; to have enlarged apprehensions of God, his excellency, and
-greatness and goodness; how worthy he is to be obeyed and served; this is the
-great dignity and happiness of the soul; all other pretensions are low and
-poor in respect of this. Here then is enlargement to see the purity and beauty
-of his law, how just and reasonable, yea, how pleasant and amiable it is; that
-his commandments are not grievous, that they are beds of spices; the more we
-walk in them, still the more of their fragrant smell and sweetness we find.
-
-\---_Robert Leighton_.
-
-**Verse 32.** \---Narrow is the way unto life, but no man can run in it save
-with widened heart.
-
-\---_Prosper_ , _of Aquitaine_ , (403-463), _quoted by_ _Neale and
-Littledale_.
-
-**Verse 32.** \---"_Enlarged_." Surely a temple for the great God (such as our
-hearts should be) should be fair and ample. If we would have God dwell in our
-hearts, and shed abroad his influences, we should make room for God in our
-souls, by a greater largeness of faith and expectation. The rich man thought
-of enlarging his barns, when his store was increased upon him (Luk 12:16-21),
-so should we stretch out the curtains of Christ's tent and habitation, have
-larger expectations of God, if we would receive more from him. The vessels
-failed before the oil failed. We are not straitened in God, but in ourselves;
-by the scantiness of our thoughts, we do not make room for him, nor greaten
-God: "_My soul doth magnify the Lord_ " (Luk 1:46). Faith doth greaten God.
-How can we make God greater than he is? As to the declarative being, we can
-have greater and larger apprehensions of his greatness, goodness, and truth.
-
-  1. There needs a large heart, because the command is exceedingly broad: "_I have seen an end of all perfection; but thy commandment is exceeding broad_ " (Psa 119:96). A broad law and a narrow heart will never suit: we need love, faith, knowledge, and all to carry us through this work, which is of such a vast extent and latitude.
-
-  2. We need enlarged heart, because of the lets and hindrances within ourselves. There is lust drawing off from God to sensual objects: "_Every man is tempted, when he is drawn away of his own lust, and enticed_ " (Jas 1:14). Therefore there needs something to draw us on, to carry us out with strength and life another way, to urge us in the service of God. Lust sits as a clog upon us, it is a weight of corruption (Heb 12:1), retarding us in all our flights and motions, thwarting, opposing, breaking the force of spiritual impulsions, if not hindering them altogether (Gal 5:17). Well then, lust drawing so strongly one way, God needs to draw us more strongly the other way. When there is a weight to poise us to worldly and sensual objects, we need a strength to carry us on with vigorous and lively motions of soul towards God, an earnest bent upon our souls, which is this enlargement of heart.
-
-\---_Thomas Manton_.
-
-**Verse 32.** \---"_My heart_." The great Physician knows at once where to
-look for the cause, when he sees anything amiss in the outward life of his
-people. He well knows that all spiritual disease is heart disease, and it is
-the heart remedies that he must apply. At one time, our Physician sees
-symptoms which are violent in their nature; at another, he sees symptoms of
-languor and debility; but he knows that both come from the heart; and so, it
-is upon the heart that he operates, when he is about to perform a cure.
-
-The strong action of the heart in all holy things comes from the blessed
-operation of the Spirit upon it; then only can we "_run_ " the way of God's
-commandments, when he has enlarged our heart.
-
-_Heartiness in action_ is the subject to which the reader's attention is here
-directed, and it is one of considerable importance.
-
-There are many believers, who for want of enlargement of heart are occupying a
-poor position in the church of God. They are trusting to Jesus for life
-eternal, and he will doubtless not disappoint them; he will be true to his
-word, that "_he that believeth shall be saved_ ;" but they are still, alas! to
-a deplorable degree, shut up in self; they have contracted hearts; still do
-they take narrow views of God's claim, and their own privileges, and the
-position in which they are set in the world and however much they might be
-said to stand, or sit, or walk in the way of God's commandments, they cannot
-be said to "_run_ " in it. Running is a strong and healthy action of the body;
-it requires energy, it is an exercise that needs a sound heart; none can run
-in the way of God's commandments, except in strength and vigour imparted by
-him. The _running_ Christians are comparatively few; walking and sitting
-Christians are comparatively common; but the running Christian is so uncommon
-as often to be thought almost mad.
-
-Let us, for the sake of order, classify our observations on this subject under
-the following heads:
-
-  1. _What heartiness is_. The heartiness spoken of here under the term, "enlargement of the heart," is cheerfulness in doing God's will---love for that will---a drawing out of the affections towards it---an interest in it; all this it is, and a great deal more, which it is not easy to describe or define.
-
-  2. _What heartiness does_. Where there is enlargement of the heart by God, there is an outgoing beyond all the limits which fallen selfishness assigns. The heart contracted at the fall; it shrank when sin entered into it; it became unequal to containing great and generous thoughts; it became a bondaged heart. True! the responsibilities of duty could not be escaped, nor could the directions of conscience; but the affections are voluntary, and the fallen heart drew in its affections from God; it felt that it had the power of withholding them from him and his commandments, and it rejoiced to shew its enmity in withholding its sympathy, where it could not withhold its obedience.
-
-  3. _Whence heartiness comes_. Now, as we have already said, where the heart is operated on by the Spirit, and all its natural evil overruled, it has outgoings which are entirely beyond the limits that fallen selfishness assigns. Love is inwrought with it: the union of sentiment, the identity of interest which love inspires, pervade it, in all belonging to God, for it has received these from God; the heart becomes unbondaged from mere rules, or perhaps to speak more correctly, it rises above them, and it feels---not merely it _knows_ , but it _feels_ \---so much of the beauty of God's commandments, that it delights to "_run_ " in them; it loves to be hearty in them; its interests, its affections are in them.
-
-\---_Philip Bennet Power_ , _in_ "_The I Wills of the Psalms_ ," 1862.
-
-**Verse 32.** \---Disquiets of heart unfit us for duty, by hindering our
-activity in the prosecution of duty. The whole heart, soul, and strength
-should be engaged in all religious services; but these troubles are as clogs
-and weights to hinder motion. Joy is the dilatation of the soul, and widens it
-for anything which it undertakes; but grief contracts the heart, and narrows
-all the faculties. Hence doth David beg an "enlarged heart," as the principle
-of activity: "_I will run the way of thy commandments, when thou shalt enlarge
-my heart_ ;" for what else can be expected when the mind is so distracted with
-fear and sorrow, but that it should be uneven, tottering, weak, and confused?
-so that if it do set itself to anything, it acts troublesomely, drives on
-heavily, and doth a very little with a great deal ado; and yet, the unfitness
-were less, if that little which it can do were well done; but the mind is so
-interrupted in its endeavours that sometimes in prayer the man begins, and
-then is presently at a stand, and dares not proceed, his words are swallowed
-up, "_he is so troubled that he cannot speak_ " Psa 77:4.
-
-\---_Richard Gilpin_ , (1625-1699),_in_ "_Daemonologia Sacra_ "
+**Verse 32 &mdash;** Disquiets of heart unfit us for duty, by hindering our activity in the prosecution of duty. The whole heart, soul, and strength should be engaged in all religious services; but these troubles are as clogs and weights to hinder motion. Joy is the dilatation of the soul, and widens it for anything which it undertakes; but grief contracts the heart, and narrows all the faculties. Hence doth David beg an "enlarged heart," as the principle of activity: "*I will run the way of thy commandments, when thou shalt enlarge my heart* ;" for what else can be expected when the mind is so distracted with fear and sorrow, but that it should be uneven, tottering, weak, and confused? so that if it do set itself to anything, it acts troublesomely, drives on heavily, and doth a very little with a great deal ado; and yet, the unfitness were less, if that little which it can do were well done; but the mind is so interrupted in its endeavours that sometimes in prayer the man begins, and then is presently at a stand, and dares not proceed, his words are swallowed up, "*he is so troubled that he cannot speak* " Psa 77:4. *Richard Gilpin* , (1625-1699),*in* "*Daemonologia Sacra* "
 
 ### Hints to Preachers
 
-**Verse 32.** \---"_The Fettered Racer set free_."
+**Verse 32 &mdash;** "*The Fettered Racer set free*." 1. The course that invited him. 2. The shackles that bound him. 3. The impatience that prompted him. 4. The Lord that freed him. 5. Now let him go. *C. A. D.*
 
-  1. The course that invited him.
+**Verse 32 &mdash;** 1. Liberty desired. 2. Liberty rightly used. Or, the effect of the heart upon the feet.
 
-  2. The shackles that bound him.
+**Verse 32 &mdash;** The text will give us occasion to speak, 1. Of the benefit of an enlarged heart. The necessary precedence of this work on God's part, before there can be any serious bent or motion of heart towards God on our part. 2. The subsequent resolution of the saints to engage their hearts to live to God. 3. With what earnestness, alacrity and rigour of spirit this work is to be carried on: "*I will run*." *Thomas Manton*.
 
-  3. The impatience that prompted him.
-
-  4. The Lord that freed him.
-
-  5. Now let him go.
-
-\---_C. A. D._
-
-**Verse 32.** \---
-
-  1. Liberty desired.
-
-  2. Liberty rightly used. Or, the effect of the heart upon the feet.
-
-**Verse 32.** \---The text will give us occasion to speak,
-
-  1. Of the benefit of an enlarged heart. The necessary precedence of this work on God's part, before there can be any serious bent or motion of heart towards God on our part.
-
-  2. The subsequent resolution of the saints to engage their hearts to live to God.
-
-  3. With what earnestness, alacrity and rigour of spirit this work is to be carried on: "_I will run_."
-
-\---_Thomas Manton_.
-
-**Verse 32.** \---
-
-  1. The way of obedience: "Thy commandments."
-
-  2. The duty of obedience: "I will run"---not stand still---not loiter---not creep---not walk, but run.
-
-  3. The life of obedience.
-
-a. Where it lies---in the heart.
-
-b. Whence it comes: "When thou shalt," etc.
-
-c. What it does---enlarges the heart.
-
-\---_G. R._
+**Verse 32 &mdash;** 1. The way of obedience: "Thy commandments." 2. The duty of obedience: "I will run"---not stand still---not loiter---not creep---not walk, but run. 3. The life of obedience. a. Where it lies---in the heart. b. Whence it comes: "When thou shalt," etc. c. What it does---enlarges the heart. *G. R.*
 
