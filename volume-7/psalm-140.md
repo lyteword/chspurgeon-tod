@@ -30,9 +30,8 @@ weight: 140
 
 *They have sharpened their tongues like a serpent.* The rapid motion of a viper's tongue gives you the idea of its sharpening it; even thus do the malicious move their tongues at such a rate that one might suppose them to be in the very act of wearing them to a point, or rubbing them to a keen edge. It was a common notion that serpents inserted their poison by their tongues, and the poets used the idea as a poetical expression, although it is certain that the serpent wounds by his fangs and not by his tongue. We are not to suppose that all authors who used such language were mistaken in their natural history any more than a writer can be charged with ignorance of astronomy because he speaks of the sun's travelling from east to west. How else can poets speak but according to the appearance of things to an imaginative eye. The world's great poet puts it in "King Lear":
 
-"She struck me with her tongue,
-
-Most serpent like, upon the very heart."
+> "She struck me with her tongue,  
+> Most serpent like, upon the very heart."  
 
 In the case of slanderers, they so literally sting with their tongues, which are so nimble in malice, and withal so piercing and cutting, that it is by no means unjust to speak of them as sharpened. *"Adders' poison is under their lips."* The deadliest of all venom is the slander of the unscrupulous. Some men care not what they say so long as they can vex and injure. Our text, however, must not be confined in its reference to some few individuals, for in the inspired epistle to the Romans it is quoted by the apostle as being true of us all. So depraved are we by nature that the most venomous creatures are our fit types. The old serpent has not only inoculated us with his venom, but he has caused us to be ourselves producers of the like poison: it lies under our lips, ready for use, and, alas, it is all too freely used when we grow angry, and desire to take vengeance upon any who have caused us vexation. It is sadly wonderful what hard things even good men will say when provoked; yea, even such as call themselves "perfect" in cool blood are not quite as gentle as doves when their claims to sinlessness are bluntly questioned. This poison of evil speaking would never fall from our lips, however much we might be provoked, if it were not there at other times; but by nature we have as great a store of venomous words as a cobra has of poison. O Lord, take the poison bags away, and cause our lips to drop nothing but honey. *Selah.* This is heavy work. Go up, go up, my heart! Sink not too low. Fall not into the lowest key. Lift up thyself to God.
 
@@ -98,355 +97,139 @@ In the case of slanderers, they so literally sting with their tongues, which are
 
 ## Explanatory Notes & Quaint Sayings
 
-**Whole Psalm.** Another Psalm *"of David"*, to be sung by all saints, even as it was used by their Head, David's Son. In it we have (Ps 140:1-3) the *picture of the wicked*, with a *"Selah"*, that bids us pause over its dark colours. Then we have (Ps 140:4-5) *a view of the snares spread by the wicked*, with another "Selah"—pause. Thereafter, we see a soul in *the attitude of faith* (Ps 140:6-8). They are laying the snares, but calm as Elisha beholding the Syrian host assembling (2Ki 6:15), the stayed soul sings
+**Whole Psalm &mdash;** Another Psalm *"of David"*, to be sung by all saints, even as it was used by their Head, David's Son. In it we have (Ps 140:1-3) the *picture of the wicked*, with a *"Selah"*, that bids us pause over its dark colours. Then we have (Ps 140:4-5) *a view of the snares spread by the wicked*, with another "Selah"—pause. Thereafter, we see a soul in *the attitude of faith* (Ps 140:6-8). They are laying the snares, but calm as Elisha beholding the Syrian host assembling (2Ki 6:15), the stayed soul sings
 
-"I have said to the Lord, My God art thou"; and then he prays, putting a "Selah" at the close, that we may again pause and survey the scene.— *Andrew A. Bonar.* 
+**Whole Psalm &mdash;** "I have said to the Lord, My God art thou"; and then he prays, putting a "Selah" at the close, that we may again pause and survey the scene. &mdash; *Andrew A. Bonar* 
 
-**Whole Psalm.** There is no doubt that this Psalm expresses the feelings of David on the first intelligence of Saul's setting out *anew* in pursuit of him (comp. Ps 140:2). And then, in Psalm 141, we have his supplication at the time when this danger was ever approaching nearer. Various things are said in this Psalm (according to the Hebrew) primarily of a single person (Saul:) thus e.g. Ps 140:1, 4; and the numerous tongues of which David complains (Ps 140:3) are just the tongues of traitors who again informed Saul of this new place of David's residence in the wilderness of Engedi, where he might have imagined himself so secure. The laying of snares (Ps 140:5) agrees perfectly in part with this treachery, and in part with the search after David by Saul and his numerous army, mentioned in 1Sa 24:2. In the same way might the burning coals, spoken of in Ps 140:10, and likewise the deep pits (German, floods) mentioned there, have suggested themselves most naturally to David upon the rocks of Engedi, where he had the Dead Sea just before him. Ps 140:10 seems also to allude to the events which happened on the night before the destruction of Sodom.— *T. C. Barth, in "The Bible Manual."* 
+**Whole Psalm &mdash;** There is no doubt that this Psalm expresses the feelings of David on the first intelligence of Saul's setting out *anew* in pursuit of him (comp. Ps 140:2). And then, in Psalm 141, we have his supplication at the time when this danger was ever approaching nearer. Various things are said in this Psalm (according to the Hebrew) primarily of a single person (Saul:) thus e.g. Ps 140:1, 4; and the numerous tongues of which David complains (Ps 140:3) are just the tongues of traitors who again informed Saul of this new place of David's residence in the wilderness of Engedi, where he might have imagined himself so secure. The laying of snares (Ps 140:5) agrees perfectly in part with this treachery, and in part with the search after David by Saul and his numerous army, mentioned in 1Sa 24:2. In the same way might the burning coals, spoken of in Ps 140:10, and likewise the deep pits (German, floods) mentioned there, have suggested themselves most naturally to David upon the rocks of Engedi, where he had the Dead Sea just before him. Ps 140:10 seems also to allude to the events which happened on the night before the destruction of Sodom. &mdash; *T. C. Barth, in "The Bible Manual"* 
 
-**Whole Psalm.** As in Psalm 138. David set before his seed God's promise as the anchor of hope (2Sa 7:1-17); and in Psalm 139, God's omniscience as our consolation in danger and motive for shunning evil; so in this Psalm he sets forth the danger from calumnious enemies, and our only safety in Jehovah, our strength.— *Andrew Robert Fausset.* 
+**Whole Psalm &mdash;** As in Psalm 138. David set before his seed God's promise as the anchor of hope (2Sa 7:1-17); and in Psalm 139, God's omniscience as our consolation in danger and motive for shunning evil; so in this Psalm he sets forth the danger from calumnious enemies, and our only safety in Jehovah, our strength. &mdash; *Andrew Robert Fausset* 
 
-**Verses  1, 4, 6, 8.** Good men live by prayer. He who gets to the throne of grace is covered by the cloud of glory, through which no sun can smite by day, nor moon by night.— *William Swan Plumer.* 
+**Verses 1, 4, 6, 8 &mdash;** Good men live by prayer. He who gets to the throne of grace is covered by the cloud of glory, through which no sun can smite by day, nor moon by night. &mdash; *William Swan Plumer* 
 
-**Verses 1, 7-11.** On the first reading of this Psalm one is inclined to think that there is somewhat of fierceness and bitterness in it, which is hardly consistent with the character of a child of God, and therefore unbecoming in David&mdash; And yet I really think that a little more examination of the language of this Psalm will lead us to believe that we are doing David wrong in affixing anything like a meaning or desire of vindictiveness to his words. Assuredly we can find no fault with one who takes his wrongs in prayer to God; who, like Hezekiah, takes the roll of his cares, and sorrows, and trials, and spreads it before the Lord. And this is what David does in the very first verse: *"Deliver me, O Lord, from the evil man; preserve me from the violent man."* I do not think a person who does this, who, when smarting under a sense of injury and wrong, goes at once to God and lays open his heart to him, is likely to go very far wrong; for even though he may have begun in somewhat of an unkindly spirit, yet prayer opens before us such a sight and sense of our own guiltiness and wrongs towards God, and thereby exercises such an abasing, as well as healing and soothing, influence over our feelings towards others, that we might almost be assured that he whose prayer might begin even with a vehement enumeration of his own wrongs, would end with something very like a determination to bless them that cursed, and to do good to them that hated him. You will observe, too, how, from first to last, David leaves his cause in God's hands; it is not "my sword and my bow that shall help me"; he counted them vain things to help a man; and therefore, as he had so often said in other Psalms; "The Lord was his shield and his defence", and as God had already shielded his head in the day of battle, so he prays for the same protection against his enemies now.— *Barton Bouchier.* 
+**Verses 1, 7-11 &mdash;** On the first reading of this Psalm one is inclined to think that there is somewhat of fierceness and bitterness in it, which is hardly consistent with the character of a child of God, and therefore unbecoming in David&mdash; And yet I really think that a little more examination of the language of this Psalm will lead us to believe that we are doing David wrong in affixing anything like a meaning or desire of vindictiveness to his words. Assuredly we can find no fault with one who takes his wrongs in prayer to God; who, like Hezekiah, takes the roll of his cares, and sorrows, and trials, and spreads it before the Lord. And this is what David does in the very first verse: *"Deliver me, O Lord, from the evil man; preserve me from the violent man."* I do not think a person who does this, who, when smarting under a sense of injury and wrong, goes at once to God and lays open his heart to him, is likely to go very far wrong; for even though he may have begun in somewhat of an unkindly spirit, yet prayer opens before us such a sight and sense of our own guiltiness and wrongs towards God, and thereby exercises such an abasing, as well as healing and soothing, influence over our feelings towards others, that we might almost be assured that he whose prayer might begin even with a vehement enumeration of his own wrongs, would end with something very like a determination to bless them that cursed, and to do good to them that hated him. You will observe, too, how, from first to last, David leaves his cause in God's hands; it is not "my sword and my bow that shall help me"; he counted them vain things to help a man; and therefore, as he had so often said in other Psalms; "The Lord was his shield and his defence", and as God had already shielded his head in the day of battle, so he prays for the same protection against his enemies now. &mdash; *Barton Bouchier* 
 
-**Verses 1, 11.** Three special forms of Satanic energy are individualized. The evil or wicked man, the violent man, and the man of tongue are severally appealed from by the suppliant speaker of the prayer of faith.— *Arthur Pridham.* 
+**Verses 1, 11 &mdash;** Three special forms of Satanic energy are individualized. The evil or wicked man, the violent man, and the man of tongue are severally appealed from by the suppliant speaker of the prayer of faith. &mdash; *Arthur Pridham* 
 
-**Verse 2.** *Continually are they gathered together for war.* Literally, this clause reads, *who gather wars*, and so some understand it. But it is well known that the prepositions are often omitted in the Hebrew, and no doubt he means that they stirred up general enmity by their false information which acted as a trumpet sounding to battle.— *John Calvin.* 
+**Verse 2 &mdash;** *Continually are they gathered together for war.* Literally, this clause reads, *who gather wars*, and so some understand it. But it is well known that the prepositions are often omitted in the Hebrew, and no doubt he means that they stirred up general enmity by their false information which acted as a trumpet sounding to battle. &mdash; *John Calvin* 
 
-**Verses 2-3.** The wicked assault the righteous with three weapons:—with the heart, by conspiracy; with the tongue, by lying; and with the hand, by violence.— *John Lorinus, * 1569-1634.
+**Verses 2-3 &mdash;** The wicked assault the righteous with three weapons:—with the heart, by conspiracy; with the tongue, by lying; and with the hand, by violence. &mdash; *John Lorinus, 1569-1634*
 
-**Verse 3.** *They have sharpened their tongues like a serpent.* To sharpen or whet the tongue imports the keenest and most extreme kind of talkativeness, much more to sharpen the tongue *"like a serpent."* Naturalists tell us that no living creature stirs his tongue so swiftly as a serpent, and serpents are therefore said to have a treble tongue, because, moving their tongue so fast, they seem to have three tongues. The Psalmist means—the wicked speak thick and threefold, they sting and poison me with their tongues.— *Joseph Caryl.* 
+**Verse 3 &mdash;** *They have sharpened their tongues like a serpent.* To sharpen or whet the tongue imports the keenest and most extreme kind of talkativeness, much more to sharpen the tongue *"like a serpent."* Naturalists tell us that no living creature stirs his tongue so swiftly as a serpent, and serpents are therefore said to have a treble tongue, because, moving their tongue so fast, they seem to have three tongues. The Psalmist means—the wicked speak thick and threefold, they sting and poison me with their tongues. &mdash; *Joseph Caryl* 
 
-**Verse 3.** *They have sharpened their tongues like a serpent.* This is an exact description of the way in which a serpent darts out his tongue before he inflicts the wound. See him: his head is erect, and his piercing eye is wildly and fiercely fixed on the object; the tongue rapidly appears and disappears, as if by that process it would be sharpened for the contest. Thus were the enemies of David making sharp their tongues for his destruction.— *Joseph Roberts, in "Oriental Illustrations of the Sacred Scriptures, "* 1835.
+**Verse 3 &mdash;** *They have sharpened their tongues like a serpent.* This is an exact description of the way in which a serpent darts out his tongue before he inflicts the wound. See him: his head is erect, and his piercing eye is wildly and fiercely fixed on the object; the tongue rapidly appears and disappears, as if by that process it would be sharpened for the contest. Thus were the enemies of David making sharp their tongues for his destruction. &mdash; *Joseph Roberts, in "Oriental Illustrations of the Sacred Scriptures" 1835*
 
-**Verse 3.** *They have sharpened their tongues like a serpent, * etc. Is it not a fact, that there are many men, the very existence of whom is a baneful poison, as it were? They dart their livid tongue like the tongue of a serpent; and the venom of their disposition corrodes every object upon which it concentrates itself; ever vilifying and maligning, like the ill omened bird of night.— *Pliny.* 
+**Verse 3 &mdash;** *They have sharpened their tongues like a serpent,* etc. Is it not a fact, that there are many men, the very existence of whom is a baneful poison, as it were? They dart their livid tongue like the tongue of a serpent; and the venom of their disposition corrodes every object upon which it concentrates itself; ever vilifying and maligning, like the ill omened bird of night. &mdash; *Pliny* 
 
-**Verse 3.** *They have sharpened their tongues like a serpent.* As the adder skilfully prepares herself for her work of death, so do the unhappy children of slander and falsehood prepare themselves, by every possible effort, for injuring their unoffending victims.— *John Morison.* 
+**Verse 3 &mdash;** *They have sharpened their tongues like a serpent.* As the adder skilfully prepares herself for her work of death, so do the unhappy children of slander and falsehood prepare themselves, by every possible effort, for injuring their unoffending victims. &mdash; *John Morison* 
 
-**Verse 3.** In St. James's day, as now, it would appear that there were idle men and idle women, who went about from house to house, dropping slander as they went, and yet you could not take up that slander and detect the falsehood there. You could not evaporate the truth in the slow process of the crucible, and then show the residuum of falsehood glittering and visible. You could not fasten upon any word or sentence, and say that it was calumny; for in order to constitute slander, it is not necessary that the word spoken should be false—half truths are often more calumnious than whole falsehoods. It is not even necessary that a word should be distinctly uttered; a dropped lip, an arched eyebrow, a shrugged shoulder, a significant look, an incredulous expression of countenance, nay, even an emphatic silence, may do the work; and when the light and trifling thing which has done the mischief has fluttered off, the venom is left behind, to work and rankle, to inflame hearts, to fever human existence, and to poison human society at the fountain springs of life. Very emphatically was it said by one whose whole being had smarted under such affliction, *Adders' poison is under their lips.* — *Frederick William Robertson.* 
+**Verse 3 &mdash;** In St. James's day, as now, it would appear that there were idle men and idle women, who went about from house to house, dropping slander as they went, and yet you could not take up that slander and detect the falsehood there. You could not evaporate the truth in the slow process of the crucible, and then show the residuum of falsehood glittering and visible. You could not fasten upon any word or sentence, and say that it was calumny; for in order to constitute slander, it is not necessary that the word spoken should be false—half truths are often more calumnious than whole falsehoods. It is not even necessary that a word should be distinctly uttered; a dropped lip, an arched eyebrow, a shrugged shoulder, a significant look, an incredulous expression of countenance, nay, even an emphatic silence, may do the work; and when the light and trifling thing which has done the mischief has fluttered off, the venom is left behind, to work and rankle, to inflame hearts, to fever human existence, and to poison human society at the fountain springs of life. Very emphatically was it said by one whose whole being had smarted under such affliction, *Adders' poison is under their lips.* &mdash; *Frederick William Robertson* 
 
-**Verse 3.** Slander and calumny must always precede and accompany persecution, because malice itself cannot excite people against a good man, as such; to do this, he must first be represented as a bad man. What can be said of those who are busied in this manner, but that they are a "generation of vipers", the brood of the old "Serpent", that grand accuser and calumniator of the brethren, having under their tongues a bag of "poison", conveying instant death to the reputation on which they fasten. Thus David was hunted as a rebel, Christ was crucified as a blasphemer, and the primitive Christians were tortured as guilty of incest and murder.— *George Horne.* 
+**Verse 3 &mdash;** Slander and calumny must always precede and accompany persecution, because malice itself cannot excite people against a good man, as such; to do this, he must first be represented as a bad man. What can be said of those who are busied in this manner, but that they are a "generation of vipers", the brood of the old "Serpent", that grand accuser and calumniator of the brethren, having under their tongues a bag of "poison", conveying instant death to the reputation on which they fasten. Thus David was hunted as a rebel, Christ was crucified as a blasphemer, and the primitive Christians were tortured as guilty of incest and murder. &mdash; *George Horne* 
 
-**Verse 3.** Man consists of soul and body; the body is but the shadow, or at best but the bearer of the soul: it's the soul that bears God's image; it's the soul especially for which Christ died. Now, by how much the soul is more precious than the body, by so much are the helps more excellent, and the enemies more dangerous than the body's. The body is fed with meat; but it is perishing meat (1Co 6:13); but the food of the soul is the heavenly manna (Joh 6:27). Answerably, the enemies are more hurtful, for that that hurts or kills the body toucheth not the soul; but what hurts or kills the soul kills the body with it, and destroys the whole man. The conclusion is, that therefore the bane or poison of the soul is much more hideous, horrible and hateful than that of the body; and of that poison speaks the present Scripture: *adders' poison is under their lips.* 
+**Verse 3 &mdash;** Man consists of soul and body; the body is but the shadow, or at best but the bearer of the soul: it's the soul that bears God's image; it's the soul especially for which Christ died. Now, by how much the soul is more precious than the body, by so much are the helps more excellent, and the enemies more dangerous than the body's. The body is fed with meat; but it is perishing meat (1Co 6:13); but the food of the soul is the heavenly manna (Joh 6:27). Answerably, the enemies are more hurtful, for that that hurts or kills the body toucheth not the soul; but what hurts or kills the soul kills the body with it, and destroys the whole man. The conclusion is, that therefore the bane or poison of the soul is much more hideous, horrible and hateful than that of the body; and of that poison speaks the present Scripture: *adders' poison is under their lips.* A strange text, some may say, and 'tis true; but it is the fitter for these strange times, wherein the poison both of soul and body so far prevails. The words do describe in part the malignant and malicious nature of the unregenerate and sinful man; and to that purpose are they cited by the apostle to the Romans (Ro 3:13). The *asp* is but a little creature; but not a little poisonous. So little a creature hath been the bane and death of many a great person; let one suffice for all. That royal and renowned Cleopatra, queen of Egypt, chose rather to die by the biting of two asps than to be carried in triumph at Rome by Augustus. The manner of their poisoning is this, —he that is bitten by the asp falls forthwith into a gentle sweat and a sweet sleep, and his strength and vital spirits decay and weaken by little till he die; thus the present pain is little, but the stroke is deadly. And even such stings are the tongues, and such swords the words of wicked men. And no marvel; for what can come but poisonous words and actions from them whose very inward nature is all poison within! The poison of the soul is only *sin*, and this is like to poison in many respects. Poison, wherever it enters, stays not there, but diffuses itself all over the body, and never ceaseth till it has infected all. Such is the nature of sin; enter where it will it creeps from one member of the body to another, and from the body to the soul, till it has infected tim whole man; and then from man to man, till a whole family; and stays not there, but runs like a wildfire, from family to family, till it has poisoned a whole town, and so a whole country, and a whole kingdom. Woeful experience proves this true, both for Popish opinions, idle fashions, vain customs, and ill—examples of all sorts, which once set on foot, spread themselves over the politic body of church and commonwealth, like a gangrene or a leprosy over the natural body, or like a poison through all the blood. Poison, having entered anywhere, as it seeks to creep presently over all, so desires it especially to seize upon the heart; such a malice and pride lies in the malignant nature of it, that it aspires to the heart; and such a craft and cunning lurks in it, that having once entered, it creeps closely and unfelt till it gets to the heart; but having possessed itself of that sovereign part of man, then like a tyrant it reigns and rages, and infecting first the vital blood and noble parts, it diffuses itself over all and every part. And such is the nature of sin, the spiritual poison of the soul; enter where it will, it is tim heart it aims at, and it will never stay till it comes there. The truth of this is so clear that proofs are needless; for who knows not that the senses are but the doors or windows, but the heart is the throne, and the soul itself the seat of sin: and hence it is that Solomon advises, —"My son, keep thy heart with all diligence": Pr 4:23. &mdash; *William Crashaw, in "The Parable of Poyson" 1618*
 
-A strange text, some may say, and 'tis true; but it is the fitter for these strange times, wherein the poison both of soul and body so far prevails. The words do describe in part the malignant and malicious nature of the unregenerate and sinful man; and to that purpose are they cited by the apostle to the Romans (Ro 3:13). The *asp* is but a little creature; but not a little poisonous. So little a creature hath been the bane and death of many a great person; let one suffice for all. That royal and renowned Cleopatra, queen of Egypt, chose rather to die by the biting of two asps than to be carried in triumph at Rome by Augustus. The manner of their poisoning is this, —he that is bitten by the asp falls forthwith into a gentle sweat and a sweet sleep, and his strength and vital spirits decay and weaken by little till he die; thus the present pain is little, but the stroke is deadly. And even such stings are the tongues, and such swords the words of wicked men. And no marvel; for what can come but poisonous words and actions from them whose very inward nature is all poison within!
+**Verse 3 &mdash;** *Adders' poison is under their lips.* The word rendered *"adder"*, bwvke, *achsub*, occurs here only; and it is perhaps impossible to determine what species is intended. As the word, in its proper signification, seems to express coiling, or bending back—an act common to most serpents—the name has perhaps no determinate reference; or it may be another name for the *pethen*, mentioned under Job 20.; which seems also to have been the opinion of the Seventy, as they render both words by, aspiv, and are followed by the Vulgate (*aspis*). As to the *poison*, it will be observed, that in the venomous serpents there is a gland under the eye secreting the poisonous matter, which is conveyed, in a small tube or canal, to the end of a fang which lies concealed at the roof of the mouth. This fang is moveable at the pleasure of the serpent, and is protruded when it is about to strike at an antagonist. The situation of this poison, which is, in a manner, behind the upper lip, gives great propriety to the expression, *"adders' poison is under their lips."* The usage of the Hebrew language renders it by no means improbable that the fang itself is called Nwvl lashon, a tongue, in the present text; and a serpent might then be said to sharpen its tongue, when, in preparing to strike, it protruded its fangs. We do not see any explanation by which a more consistent meaning may be extracted from the expression here employed. &mdash; *John Kitto, in the "Pictorial Bible"* 
 
-The poison of the soul is only *sin*, and this is like to poison in many respects. Poison, wherever it enters, stays not there, but diffuses itself all over the body, and never ceaseth till it has infected all. Such is the nature of sin; enter where it will it creeps from one member of the body to another, and from the body to the soul, till it has infected tim whole man; and then from man to man, till a whole family; and stays not there, but runs like a wildfire, from family to family, till it has poisoned a whole town, and so a whole country, and a whole kingdom. Woeful experience proves this true, both for Popish opinions, idle fashions, vain customs, and ill—examples of all sorts, which once set on foot, spread themselves over the politic body of church and commonwealth, like a gangrene or a leprosy over the natural body, or like a poison through all the blood. Poison, having entered anywhere, as it seeks to creep presently over all, so desires it especially to seize upon the heart; such a malice and pride lies in the malignant nature of it, that it aspires to the heart; and such a craft and cunning lurks in it, that having once entered, it creeps closely and unfelt till it gets to the heart; but having possessed itself of that sovereign part of man, then like a tyrant it reigns and rages, and infecting first the vital blood and noble parts, it diffuses itself over all and every part. And such is the nature of sin, the spiritual poison of the soul; enter where it will, it is tim heart it aims at, and it will never stay till it comes there. The truth of this is so clear that proofs are needless; for who knows not that the senses are but the doors or windows, but the heart is the throne, and the soul itself the seat of sin: and hence it is that Solomon advises, —"My son, keep thy heart with all diligence": Pr 4:23.— *William Crashaw, in "The Parable of Poyson, "* 1618.
+**Verse 3 &mdash;** Often the tongue of the serpent is spoken of as the seat of its venom. This is popular, not scientific language. &mdash; *William Swan Plumer* 
 
-**Verse 3.** *Adders' poison is under their lips.* The word rendered *"adder"*, bwvke, *achsub*, occurs here only; and it is perhaps impossible to determine what species is intended. As the word, in its proper signification, seems to express coiling, or bending back—an act common to most serpents—the name has perhaps no determinate reference; or it may be another name for the *pethen*, mentioned under Job 20.; which seems also to have been the opinion of the Seventy, as they render both words by, aspiv, and are followed by the Vulgate (*aspis* ). As to the *poison*, it will be observed, that in the venomous serpents there is a gland under the eye secreting the poisonous matter, which is conveyed, in a small tube or canal, to the end of a fang which lies concealed at the roof of the mouth. This fang is moveable at the pleasure of the serpent, and is protruded when it is about to strike at an antagonist. The situation of this poison, which is, in a manner, behind the upper lip, gives great propriety to the expression, *"adders' poison is under their lips."* The usage of the Hebrew language renders it by no means improbable that the fang itself is called Nwvl lashon, a tongue, in the present text; and a serpent might then be said to sharpen its tongue, when, in preparing to strike, it protruded its fangs. We do not see any explanation by which a more consistent meaning may be extracted from the expression here employed.— *John Kitto, in the "Pictorial Bible."* 
+**Verse 3 &mdash;** *Adder.* The word *acshub* (pronounced, ak-shoob), only occurs in this one passage. The precise species represented by this word is unknown. Buxtorf, however, explains the word as the Spitter, "illud genus quod venelmm proeul exspuit." Now, if we accept this derivation, we must take the word *acshub* as a synonym for *pethen*. We have already identified the Pethen with the Naja haje, a snake which has the power of expelling the poison to some distance, when it is out of reach of its enemy. Whether the snake really intends to eject the poison, or whether it is merely flung from the hollow fangs by the force of the suddenly checked stroke, is uncertain. That the Haje cobra can expel its poison is an acknowledged fact, and the Dutch colonists of the Cape have been so familiarly acquainted with this habit, that they have called this reptile by the name of Spuugh Slange, or Spitting Snake, a name which, if we accept Buxtorf's etymology, is precisely equivalent to the word acshub. &mdash; *J. G. Wood, in "Bible Animals"* 
 
-**Verse 3.** Often the tongue of the serpent is spoken of as the seat of its venom. This is popular, not scientific language.— *William Swan Plumer.* 
+**Verses 3, 5, 8 &mdash;** Selah. We meet with Selah here for the first time since Psalm 89. From Psalm 90 to Psalm 140 no Selah occurs. Why omitted in these fifty we cannot tell any more than why so often recurring in others. However, there are only about forty Psalms in all in which it is used. &mdash; *Andrew A. Bonar* 
 
-**Verse 3.** *Adder.* The word *acshub* (pronounced, ak-shoob), only occurs in this one passage. The precise species represented by this word is unknown. Buxtorf, however, explains the word as the Spitter, "illud genus quod venelmm proeul exspuit." Now, if we accept this derivation, we must take the word *acshub* as a synonym for *pethen*. We have already identified the Pethen with the Naja haje, a snake which has the power of expelling the poison to some distance, when it is out of reach of its enemy. Whether the snake really intends to eject the poison, or whether it is merely flung from the hollow fangs by the force of the suddenly checked stroke, is uncertain. That the Haje cobra can expel its poison is an acknowledged fact, and the Dutch colonists of the Cape have been so familiarly acquainted with this habit, that they have called this reptile by the name of Spuugh Slange, or Spitting Snake, a name which, if we accept Buxtorf's etymology, is precisely equivalent to the word acshub.— *J. G. Wood*, in *"Bible Animals."* 
+**Verse 4 &mdash;** *Keep me*, etc. From doing as they do, or as they would have me do, or as they promise themselves I will do. &mdash; *Matthew Henry* 
 
-**Verses 3, 5, 8.** Selah. We meet with Selah here for the first time since Psalm 89. From Psalm 90 to Psalm 140 no Selah occurs. Why omitted in these fifty we cannot tell any more than why so often recurring in others. However, there are only about forty Psalms in all in which it is used.— *Andrew A. Bonar.* 
+**Verse 4 &mdash;** *Preserve me from the violent man.* The second clause of the first versicle of this verse is the same as the second versicle of Ps 140:1, which seems the burden of the song. &mdash; *"Speaker's Commentary"* 
 
-**Verse 4.** *Keep me*, etc. From doing as they do, or as they would have me do, or as they promise themselves I will do.— *Matthew Henry.* 
+**Verse 4 &mdash;** *To overthrow my goings.* To take my feet from under me, to destroy the basis of belief, the power of advance in good works, that we may turn back from the way of salvation, or fall upon it, or, at any rate, may go very slowly along it. &mdash; *Neale and Littledale* 
 
-**Verse 4.** *Preserve me from the violent man.* The second clause of the first versicle of this verse is the same as the second versicle of Ps 140:1, which seems the burden of the song.— *"Speaker's Commentary."* 
+**Verse 5 &mdash;** *The proud have hid a snare for me, and cords.* The following story illustrates how *cords* have been used by thieves so lately as the year 1822:—"Two skilful leaders of Dacoits, having collected some forty followers, and distributed among them ten matchlocks, ten swords, and twenty-five spears, waylaid a treasure going from the native Collector's treasury at Budrauna to Goruckpore. The prize consisted of 1, 200 pounds of sterling, and was guarded by a Naik, or corporal, with four sepoys and five troopers. It had to pass through a dense jungle, and it was settled—said one of them in after years—that the attack should take place there; that we should have strong ropes tied across the road in front and festooned to trees on both sides, and, at a certain distance behind, similar ropes festooned to trees on one side, and ready to be fastened on the other, as soon as the escort of horse and foot should get well in between them. Having completed these preparations the gang laid down on either side of the road patiently awaiting their prey. 'About five in the morning, 'continued the narrator, 'we heard a voice as if calling upon the name of God (Allah), and one of the gang started up at the sound, and said, "Here comes the treasure!" We put five men in front with their match locks loaded—not with ball but shot, that we might, if possible, avoid killing anybody. When we got the troopers, infantry, and treasure all within the space, the hind ropes were run across the road, and made fast to the trees on the opposite side, and we opened a fire in upon the party from all sides. The foot soldiers got into the jungle at the sides of the road, and the troopers tried to get over the ropes at both ends, but in vain.' The corporal and a horse were killed; two troopers wounded, and the treasure carried off in spite of a hot pursuit." &mdash; *From James Hutton's "Popular Account of the Thugs and Dacoits of India", 1857*
 
-**Verse 4.** *To overthrow my goings.* To take my feet from under me, to destroy the basis of belief, the power of advance in good works, that we may turn back from the way of salvation, or fall upon it, or, at any rate, may go very slowly along it.— *Neale and Littledale.* 
+**Verse 5 &mdash;** *The proud have hid a snare for me, and cords.* There was "a trap hidden for him with cords"; a trap being sunk into some frequented hath, and always covered over with grass or brushwood, and having long cords attached to each side, by which the hunter, lurking at a little distance, might close it whenever he saw the game stepping on the spot. But the net spread for him by his enemies extended to the very "side of the encampment", which indicates, that even among the soldiers lying around him, there were some who had been bribed and persuaded to watch and betray him. &mdash; *Benjamin Weiss, in "A New Translation of the Psalms, with Notes" 1858*
 
-**Verse 5.** *The proud have hid a snare for me, and cords.* The following story illustrates how *cords* have been used by thieves so lately as the year 1822:—"Two skilful leaders of Dacoits, having collected some forty followers, and distributed among them ten matchlocks, ten swords, and twenty-five spears, waylaid a treasure going from the native Collector's treasury at Budrauna to Goruckpore. The prize consisted of 1, 200 pounds of sterling, and was guarded by a Naik, or corporal, with four sepoys and five troopers. It had to pass through a dense jungle, and it was settled—said one of them in after years—that the attack should take place there; that we should have strong ropes tied across the road in front and festooned to trees on both sides, and, at a certain distance behind, similar ropes festooned to trees on one side, and ready to be fastened on the other, as soon as the escort of horse and foot should get well in between them. Having completed these preparations the gang laid down on either side of the road patiently awaiting their prey. `About five in the morning, 'continued the narrator, `we heard a voice as if calling upon the name of God (Allah), and one of the gang started up at the sound, and said, "Here comes the treasure!" We put five men in front with their match locks loaded—not with ball but shot, that we might, if possible, avoid killing anybody. When we got the troopers, infantry, and treasure all within the space, the hind ropes were run across the road, and made fast to the trees on the opposite side, and we opened a fire in upon the party from all sides. The foot soldiers got into the jungle at the sides of the road, and the troopers tried to get over the ropes at both ends, but in vain.' The corporal and a horse were killed; two troopers wounded, and the treasure carried off in spite of a hot pursuit."— *From James Hutton's "Popular Account of the Thugs and Dacoits of India"*, 1857.
+**Verse 5 &mdash;** *Snare. Net. Gins.* The several uses to which the contrivances denoted by the Hebrew words thus rendered were respectively applied, do not appear to be well ascertained. In general the Psalmist alludes to the artifices employed for capturing birds or beasts. It is, however, a curious circumstance, as noticed by Thevenot, that artifices of this kind are literally employed against men as well as other animals by some of the Orientals. "The most cunning robbers in the world", says he, "are in this country. They use a certain slip with a running noose, which they cast with so much sleight about a man's neck when they are within reach of him, that they never fail, so that they strangle him in a trice." &mdash; *Richard Mast* 
 
-**Verse 5.** *The proud have hid a snare for me, and cords.* There was "a trap hidden for him with cords"; a trap being sunk into some frequented hath, and always covered over with grass or brushwood, and having long cords attached to each side, by which the hunter, lurking at a little distance, might close it whenever he saw the game stepping on the spot. But the net spread for him by his enemies extended to the very "side of the encampment", which indicates, that even among the soldiers lying around him, there were some who had been bribed and persuaded to watch and betray him.— *Benjamin Weiss, in "A New Translation of the Psalms, with Notes, "* 1858.
+**Verse 6 &mdash;** *The voice of my supplications.* The one safety for simple and unlearned people when assailed by the crafty arguments of heretics and infidels is not controversy, but prayer, a weapon their adversaries seldom use and cannot understand. &mdash; *Bruno of Aste, 1123*
 
-**Verse 5.** *Snare. Net. Gins.* The several uses to which the contrivances denoted by the Hebrew words thus rendered were respectively applied, do not appear to be well ascertained. In general the Psalmist alludes to the artifices employed for capturing birds or beasts. It is, however, a curious circumstance, as noticed by Thevenot, that artifices of this kind are literally employed against men as well as other animals by some of the Orientals. "The most cunning robbers in the world", says he, "are in this country. They use a certain slip with a running noose, which they cast with so much sleight about a man's neck when they are within reach of him, that they never fail, so that they strangle him in a trice."— *Richard Mast.* 
+**Verse 7 &mdash;** *Thou hast covered my head in the day of battle.* Hebrew, *of armour*. For David had never indeed any battle with Saul, but declined it; but Saul often armed against him; but then God's providence covered him as a shield: but the head is only spoken of to set forth his whole body, because that is chiefly aimed at by the enemy, as where the life principally lieth. &mdash; *John Mayer* 
 
-**Verse 6.** *The voice of my supplications.* The one safety for simple and unlearned people when assailed by the crafty arguments of heretics and infidels is not controversy, but prayer, a weapon their adversaries seldom use and cannot understand.— *Bruno of Aste, * 1123.
+**Verse 7 &mdash;** *Thou hast covered my head*, etc. That is, I had no other helmet or armour but thy Almighty power in the day when I fought with Goliath. 1Sa 17:39-40, 50. &mdash; *Thomas Fenton* 
 
-**Verse 7.** *Thou hast covered my head in the day of battle.* Hebrew, *of armour*. For David had never indeed any battle with Saul, but declined it; but Saul often armed against him; but then God's providence covered him as a shield: but the head is only spoken of to set forth his whole body, because that is chiefly aimed at by the enemy, as where the life principally lieth.— *John Mayer.* 
+**Verse 7 &mdash;** *Thou hast covered my head in the day of battle.* A captain or prince had always beside him in battle an armour bearer, whose duty it was "to cover his master's head", that is, to ward off with the shield the blows aimed at his head, and which, in the heat of the fight, had escaped his own notice. &mdash; *Benjamin Weiss* 
 
-**Verse 7.** *Thou hast covered my head*, etc. That is, I had no other helmet or armour but thy Almighty power in the day when I fought with Goliath. 1Sa 17:39-40, 50.— *Thomas Fenton.* 
+**Verse 8 &mdash;** *His wicked device*; which is to destroy me. *"Exalt themselves"*; not only against me, but against thee also, as if by their power and policy they had frustrated thy design and promise made to me. &mdash; *M. Pool* 
 
-**Verse 7.** *Thou hast covered my head in the day of battle.* A captain or prince had always beside him in battle an armour bearer, whose duty it was "to cover his master's head", that is, to ward off with the shield the blows aimed at his head, and which, in the heat of the fight, had escaped his own notice.— *Benjamin Weiss.* 
+**Verse 9 &mdash;** *As for the head of those that compass me about*, etc. God, he saith, had covered his head in the day of battle: now contrariwise ho showeth what should cover the head of his enemies, viz., it should come to them as with their lips they had maliciously spoken against him; for it may be thus rendered—"The head of my besieger, let the trouble of his lips cover it": for cursing, "let him be covered with cursing as with a cloak." &mdash; *John Mayer* 
 
-**Verse 8.** *His wicked device*; which is to destroy me. *"Exalt themselves"*; not only against me, but against thee also, as if by their power and policy they had frustrated thy design and promise made to me.— *M. Pool.* 
+**Verse 9 &mdash;** *Those that compass me about.* For an explanation of this expression we would refer the reader to "The Treasury of David", volume 1.p. 387, where he will find two very pertinent extracts from J. Stevenson and Dr. Shaw.
 
-**Verse 9.** *As for the head of those that compass me about*, etc. God, he saith, had covered his head in the day of battle: now contrariwise ho showeth what should cover the head of his enemies, viz., it should come to them as with their lips they had maliciously spoken against him; for it may be thus rendered—"The head of my besieger, let the trouble of his lips cover it": for cursing, "let him be covered with cursing as with a cloak."— *John Mayer.* 
+**Verse 9 &mdash;** *The mischief of their own lips.* The pride and hauteur of the Jews in our Lord's day brought the Roman arms upon them, and caused them to fall into irremediable ruin. They invoked their own fate by exposing themselves to an invasion from Rome at all; but they did it still more in that terrific cry—"His blood be upon us and on our children." &mdash; *William Hill Tucker, in "The Psalms, with Notes, Shewing their Prophetic and Christian Character" 1840*
 
-**Verse 9.** *Those that compass me about.* For an explanation of this expression we would refer the reader to "The Treasury of David", volume 1.p. 387, where he will find two very pertinent extracts from J. Stevenson and Dr. Shaw.
+**Verses 9-10 &mdash;** Such passages admit of translation in the future, and are rather predictions than imprecations. &mdash; *Ingram Cobbin, 1839*
 
-**Verse 9.** *The mischief of their own lips.* The pride and hauteur of the Jews in our Lord's day brought the Roman arms upon them, and caused them to fall into irremediable ruin. They invoked their own fate by exposing themselves to an invasion from Rome at all; but they did it still more in that terrific cry—"His blood be upon us and on our children."— *William Hill Tucker, in "The Psalms, with Notes, Shewing their Prophetic and Christian Character, "* 1840.
+**Verses 9-11 &mdash;** The prophet, in these three verses, predicted those just judgments which heaven will inflict on the slanderers and persecutors of the righteous. Their lips, which uttered mischief against others, shall be the means of covering themselves with confusion, when out of their own mouths they shall be judged. Those tongues which have contributed to set the world on fire, shall be tormented with the hot burning coals of eternal vengeance: and they, who, with so much eagerness and diligence have prepared pits for the destruction of their brethren, shall be cast into a deep and bottomless pit, out of which they will not rise up again any more for ever. Evil speakers and false accusers shall gain no lasting establishment, but punishment shall hunt sin through all its doubles, and seize it at last as its legal prey. Let these great truths be firmly rooted in our hearts, and they will keep us steady in the worst of times. &mdash; *George Horne* 
 
-**Verses 9-10.** Such passages admit of translation in the future, and are rather predictions than imprecations.— *Ingram Cobbin, * 1839.
+**Verse 10 &mdash;** *Let burning coals fall upon them*, etc. The Psalmist seems here to allude to the destruction of the Sodomites. In these imprecations he considered his enemies as the enemies of God, rather than as his own; and lie thus cursed them, as knowing, in the quality of a prophet, that God himself had cursed them: and therefore these sorts of imprecations do not authorize other persons to curse their enemies. &mdash; *Thomas Fenton* 
 
-**Verses 9-11.** The prophet, in these three verses, predicted those just judgments which heaven will inflict on the slanderers and persecutors of the righteous. Their lips, which uttered mischief against others, shall be the means of covering themselves with confusion, when out of their own mouths they shall be judged. Those tongues which have contributed to set the world on fire, shall be tormented with the hot burning coals of eternal vengeance: and they, who, with so much eagerness and diligence have prepared pits for the destruction of their brethren, shall be cast into a deep and bottomless pit, out of which they will not rise up again any more for ever. Evil speakers and false accusers shall gain no lasting establishment, but punishment shall hunt sin through all its doubles, and seize it at last as its legal prey. Let these great truths be firmly rooted in our hearts, and they will keep us steady in the worst of times.— *George Horne.* 
+**Verse 10 &mdash;** *Let burning coals full upon them*, etc. An imprecation which (with the similar previous one, Ps 9:6, etc.) is a prophecy; and one which, while it has had no fulfilment in the case of David's enemies, or any persecutors of the church in times past, brings again vividly before the mind the fiery judgment of the Lord's coming, and the awful sentence already pronounced against "the beast and false prophet", the leaders of the confederation of the kings of the earth and their armies, then "gathered together to make war against him"—"these were cast alive into the lake of fire burning with brimstone": Re 19:19-20. So before, Ps 55:15 63:9. &mdash; *William De Burgh* 
 
-**Verse 10.** *Let burning coals fall upon them*, etc. The Psalmist seems here to allude to the destruction of the Sodomites. In these imprecations he considered his enemies as the enemies of God, rather than as his own; and lie thus cursed them, as knowing, in the quality of a prophet, that God himself had cursed them: and therefore these sorts of imprecations do not authorize other persons to curse their enemies.— *Thomas Fenton.* 
+**Verse 11 &mdash;** *Let not an evil speaker a man full of tongue be established,* etc. The man given to talk, the liar, the flatterer, the detractor, the scold, the brawler, *"shall not be established in the earth"*, for such people are abhorred by the wicked as well as by the good. &mdash; *Robert Bellarmine* 
 
-**Verse 10.** *Let burning coals full upon them*, etc. An imprecation which (with the similar previous one, Ps 9:6, etc.) is a prophecy; and one which, while it has had no fulfilment in the case of David's enemies, or any persecutors of the church in times past, brings again vividly before the mind the fiery judgment of the Lord's coming, and the awful sentence already pronounced against "the beast and false prophet", the leaders of the confederation of the kings of the earth and their armies, then "gathered together to make war against him"—"these were cast alive into the lake of fire burning with brimstone": Re 19:19-20. So before, Ps 55:15 63:9.— *William De Burgh.* 
+**Verse 11 &mdash;** *Let not an evil speaker be established,* etc. The positions laid down in this verse will find abundant illustration in every age of the church. *"An evil speaker"*, who takes delight in wounding the reputation of others, is seldom established or prospered in the earth. Providence fights against such an unhappy wretch. *"The violent man"*, the ishmaelite whose hand is against every man, is in general overthrown by the very same weapons which he wields against others. &mdash; *John Morison* 
 
-**Verse 11.** *Let not an evil speaker a man full of tongue be established, * etc. The man given to talk, the liar, the flatterer, the detractor, the scold, the brawler, *"shall not be established in the earth"*, for such people are abhorred by the wicked as well as by the good.— *Robert Bellarmine.* 
+**Verse 11 &mdash;** *An evil speaker.* By "a man of the tongue", as the original has it, the Hebrews express a *detractor* or *sycophant*; one who gives his tongue the liberty to vent what mischief lie pleases. The Chaldee here expresses it by *a delator* or vile informer with a *threefold* or *three forked tongue*; because such a man wounds *three* at once; the receiver, the sufferer, and himself. &mdash; *Thomas Fenton* 
 
-**Verse 11.** *Let not an evil speaker be established, * etc. The positions laid down in this verse will find abundant illustration in every age of the church. *"An evil speaker"*, who takes delight in wounding the reputation of others, is seldom established or prospered in the earth. Providence fights against such an unhappy wretch. *"The violent man"*, the ishmaelite whose hand is against every man, is in general overthrown by the very same weapons which he wields against others.— *John Morison.* 
+**Verse 11 &mdash;** *Evil shall hunt the violent man to overthrow him.* 'Tis an allusion to hounds that are of a quick scent, and pursue the game with pleasure; they do not see the deer or the hare, yet they follow upon the scent; and though they have sometimes a very cold and dead scent, yet they will follow and work it out. Thus *"evil shall hunt the violent man to overthrow him"*; and though sometimes he hath, as it were, got out of the view or sight of evil, and thinks himself under covert, yet these evils, like a company of greedy hounds, will pursue till they have overtaken and overthrown him. &mdash; *Joseph Caryl* 
 
-**Verse 11.** *An evil speaker.* By "a man of the tongue", as the original has it, the Hebrews express a *detractor* or *sycophant*; one who gives his tongue the liberty to vent what mischief lie pleases. The Chaldee here expresses it by *a delator* or vile informer with a *threefold* or *three forked tongue*; because such a man wounds *three* at once; the receiver, the sufferer, and himself.— *Thomas Fenton.* 
+**Verse 12 &mdash;** *I know.* For I have a promise of it, and that's infallible. &mdash; *John Trapp* 
 
-**Verse 11.** *Evil shall hunt the violent man to overthrow him.* 'Tis an allusion to hounds that are of a quick scent, and pursue the game with pleasure; they do not see the deer or the hare, yet they follow upon the scent; and though they have sometimes a very cold and dead scent, yet they will follow and work it out. Thus *"evil shall hunt the violent man to overthrow him"*; and though sometimes he hath, as it were, got out of the view or sight of evil, and thinks himself under covert, yet these evils, like a company of greedy hounds, will pursue till they have overtaken and overthrown him.— *Joseph Caryl.* 
+**Verses 12-13 &mdash;** *I know that the Lord will maintain the cause,* etc. Why, how comes the Psalmist so confident? *"Surely the righteous shall give thanks unto thy name"*: as if he had said, Thou hast a name for a gracious and faithful God in thy promise, and this thou wilt never suffer to be blotted by failing in thy work. Christian, thou mayest venture all thou art worth on the public faith of Heaven: "His words are pure, as silver tried seven times in a furnace." He that will not suffer a liar or covenant breaker to set foot on his holy hill, will much less suffer any one thought of falseness or unfaithfulness to enter into his own most holy heart. &mdash; *William Gurnall* 
 
-**Verse 12.** *I know.* For I have a promise of it, and that's infallible.— *John Trapp.* 
+**Verse 13 &mdash;** *Surely the righteous shall give thanks unto thy name,* etc. Teacheth us two things, first, that it becometh the godly to show themselves continually thankful, because God is continually merciful to them; secondly, what is the excellent estate and condition of God's children, which, though it do not yet appear, yet shall it in the end break forth with fulness of glory." &mdash; *Thomas Witcocks* 
 
-**Verses 12-13.** *I know that the Lord will maintain the cause, * etc. Why, how comes the Psalmist so confident? *"Surely the righteous shall give thanks unto thy name"*: as if he had said, Thou hast a name for a gracious and faithful God in thy promise, and this thou wilt never suffer to be blotted by failing in thy work. Christian, thou mayest venture all thou art worth on the public faith of Heaven: "His words are pure, as silver tried seven times in a furnace." He that will not suffer a liar or covenant breaker to set foot on his holy hill, will much less suffer any one thought of falseness or unfaithfulness to enter into his own most holy heart.— *William Gurnall.* 
-
-**Verse 13.** *Surely the righteous shall give thanks unto thy name, * etc. Teacheth us two things, first, that it becometh the godly to show themselves continually thankful, because God is continually merciful to them; secondly, what is the excellent estate and condition of God's children, which, though it do not yet appear, yet shall it in the end break forth with fulness of glory."— *Thomas Witcocks.* 
-
-**Verse 13.** *The upright shall dwell in thy presence. "Sit in thy presence"*, as thy friends or guests or favoured servants. Perhaps it may mean *sit (enthroned)* before thee. Compare Mt 19:28. Some understand the sense to be *shall dwell* (in the land) *before thee*, i.e., under thy protection and inspection.— *Joseph Addison Alexander.* 
+**Verse 13 &mdash;** *The upright shall dwell in thy presence. "Sit in thy presence"*, as thy friends or guests or favoured servants. Perhaps it may mean *sit (enthroned)* before thee. Compare Mt 19:28. Some understand the sense to be *shall dwell* (in the land) *before thee*, i.e., under thy protection and inspection. &mdash; *Joseph Addison Alexander* 
 
 ## Hints to the Village Preacher
 
-**Verses 1-5.** 
+**Verses 1-5 &mdash;** 1\. The particular source of David's affliction: it was from men. In this he was a type of Christ. a) Their wickedness: "the evil man." b) Their violence: "the violent man." c) Their malicious designs: "which imagine mischiefs in their heart." d) Their confederacy: "continually are they gathered together for war." e) Their false accusations: "They have sharpened their tongues like a serpent", etc. (Ps 140:3). f) Their avowed design: "they have purposed to overthrow my goings" (Ps 140:4). g) Their intrigues (Ps 140:5). 2\. His universal remedy: "Deliver me, O Lord"; "preserve" and help me. His defence is, a) In God. b) In prayer to God. &mdash; *G. R.* 
 
-1\. The particular source of David's affliction: it was from men. In this he was a type of Christ.
+**Verses 1-5 &mdash;** In our position, age, and country, we are not in danger of violence from men, as was David; still, no man is absolutely safe front the danger. 1\. Mention some eases not yet impossible. a) A Christian workman, because he cannot comply with unrighteous customs, excites the animosity of his fellow workers. They will do him mischief, spoil his work, steal his tools, speak evil of him, until his employer discharges him to restore peace in the factory. b) A Christian clerk or shop assistant, because his presence is a check upon his sinful companions, may have snares laid for him, etc. 2\. Suggest advice, useful, should such a case arise. a) Resort to God with a "Deliver me", and a "Preserve me." b) Maintain integrity and uprightness. c) Should the mischievous ones succeed, still trust in God, who can make their mischief lead to your profit, and make his goodness outwit their devices. &mdash; *J. F.* 
 
-a) Their wickedness: "the evil man."
+**Verse 3 &mdash;** The depraved state of the natural man as to his speech.
 
-b) Their violence: "the violent man."
+**Verse 4 &mdash;** (*first clause*). A wise prayer. The wicked will slander, and oppress, or mislead, flatter and defile. No one can keep us but the Lord.
 
-c) Their malicious designs: "which imagine mischiefs in their heart."
+**Verse 5 &mdash;** The Dangers of Society. 1\. The secrecy of the attacks of the ungodly: "hid a snare." 2\. The variety of their weapons: "and cords." 3\. The cunning choice of position: "by the wayside." 4\. The object of their designs: "for me": they desire to destroy the man himself.
 
-d) Their confederacy: "continually are they gathered together for war."
+**Verse 5 &mdash;** *The Net by the Wayside*, or, covert temptations; temptations brought near, and made applicable to daily life.
 
-e) Their false accusations: "They have sharpened their tongues like a serpent", etc. (Ps 140:3).
+**Verse 6 &mdash;** 1\. The language of assurance. 2\. The plea for acceptance in prayer.
 
-f) Their avowed design: "they have purposed to overthrow my goings" (Ps 140:4).
+**Verses 6-7 &mdash;** David comforted himself, 1\. In his interest in God: "I said&mdash; thou art my God." 2\. In his access to God: he had leave to speak to him, and might expect an answer of peace: "Hear", etc. 3\. In the assurance he had of help from God, and happiness in him (Ps 140:7). 4\. In the experience he had formerly of God's care of him: "Thou hast covered my head in the day of battle." &mdash; *Matthew Henry* 
 
-g) Their intrigues (Ps 140:5).
+**Verses 6-8 &mdash;** Three arguments to be pleaded in a prayer for protection. 1\. The believer's covenanted property in God. "I said&mdash; thou art my God." 2\. The past mercies of God. "Thou hast covered", etc. 3\. The impropriety of the wicked being encouraged in their wickedness, Ps 140:8. &mdash; *J. F.* 
 
-2\. His universal remedy: "Deliver me, O Lord"; "preserve" and help me. His defence is,
+**Verses 6-12 &mdash;** The Consolations of the Believer in Time of Trouble. 1\. What he can say. 2\. What he can remember. 3\. What he is assured of.
 
-a) In God.
+**Verses 6-7, 12-13 &mdash;** Times of Assault, Slander, and Temptation should be special times of Prayer and Faith. David here makes prominent five things. 1\. *Possession asserted.* a) The Possession: "My God." Opposed to idols. Beloved by self. b) The Claim published. c) The Witness selected. Secret. Sacred. Searching. d) The Occasion chosen. 2\. *Petition presented.* a) His prayers were frequent. b) His prayers were full of meaning. c) His prayers were meant for God. d) His prayers needed divine attention. 3\. *Preservation experienced.* a) God had been his Armour bearer. b) God had guarded his most vital part. c) God had saved him. d) God's strength had been displayed. 4\. *Protection expected.* a) God is a righteous Judge. b) God is a compassionate Friend. c) God is a well known Guardian. 5\. *Praise predicted.* a) Praise assured by gratitude. b) Praise expressed by words. c) Praise implied by confidence. d) Praise practised by communion.
 
-b) In prayer to God.— *G. R.* 
+**Verse 9 &mdash;** How the sin of evil speakers comes home to them. &mdash; *W. B. H.* 
 
-**Verses 1-5.** In our position, age, and country, we are not in danger of violence from men, as was David; still, no man is absolutely safe front the danger.
+**Verse 11 &mdash;** (*first clause*.) 1\. Notice a few varieties of evil speakers. a) Liars; the common liar, the trade liar, the stock exchange liar, the political liar, etc. b) Scandal mongers. c) Blasphemers and swearers. d) Libertines and seducers. e) Sceptics and new theology inventors. 2\. The propriety of the prayer. a) Because evil speaking is intrinsically an evil thing. b) It is an extensively injurious thing. c) He who would have God's truth established must needs desire that evil speaking must fail. 3\. The limitation of the prayer: "In the earth." a) It is certain an evil speaker cannot be established in heaven, nor in hell. b) The earth is the only sphere of his influence; but, alas! men on the earth are too prone to be influenced by him. c) Then, become righteous and true, by faith in the Righteous One and the "Truth." &mdash; *J. F.* 
 
-1\. Mention some eases not yet impossible.
+**Verse 11 &mdash;** (*second clause.*) The Cruel Hunter pursued by his own Dogs.
 
-a) A Christian workman, because he cannot comply with unrighteous customs, excites the animosity of his fellow workers. They will do him mischief, spoil his work, steal his tools, speak evil of him, until his employer discharges him to restore peace in the factory.
+**Verse 11 &mdash;** (*second clause.*) Theme—Sins committed, and not repented of, pursue men to their ruin. 1\. Illustrate. a) They may raise a force of opposition from men. Tarquin, Napoleon, etc. b) They may precipitate ruin, as Haman was hunted by his own sin to the gallows. c) They may arouse destructive remorse, as in Judas. d) Certainly they will pursue to the judgment seat, and hunt the soul into hell. 2\. Apply. a) How fearful a thing must sin be. b) The mole terrible because self created. c) Flee from the avenging pursuers to Christ, the only and safe refuge. &mdash; *J. F.* 
 
-b) A Christian clerk or shop assistant, because his presence is a check upon his sinful companions, may have snares laid for him, etc.
+**Verse 11 &mdash;** (*second clause.*) The hunt and pursuit of the violent sinner. 1\. The progress of the chase. a) At first the victim is ignorant of it. b) But ere long he finds Scripture, conscience, God, Death, at his heels. c) His own sins cry loudest after him. 2\. The issue of the hunt. Hemmed in, overthrown, lost for ever, unless he repent. 3\. Another Huntsman. "The Son of man is come to seek and save that which was lost." &mdash; *W. B. H.* 
 
-2\. Suggest advice, useful, should such a case arise.
+**Verse 12 &mdash;** 1\. The known fact. 2\. The reasons for being so assured of it. 3\. The conduct arising out of the knowledge.
 
-a) Resort to God with a "Deliver me", and a "Preserve me."
+**Verse 12 &mdash;** Something worth knowing. 1\. By the afflicted and the poor who trust in the Lord. 2\. By the oppressors who afflict and do the wrong. 3\. By all men, that they may trust in the Lord, and praise him for his compassion towards the needy, and for his even handed justice. &mdash; *J. F.* 
 
-b) Maintain integrity and uprightness.
+**Verses 12-13 &mdash;** 1\. Trust under all circumstances (Ps 140:12). 2\. Gratitude for all things: "The righteous shall give thanks unto thy name." 3\. Safety at all times: "The upright shall dwell in thy presence." &mdash; *G. R.* 
 
-c) Should the mischievous ones succeed, still trust in God, who can make their mischief lead to your profit, and make his goodness outwit their devices.— *J. F.* 
+**Verse 13 &mdash;** One of the noblest forms of praise, —dwelling in the presence of God. Or, reverent regard to God's presence, holy communion with the Lord, confiding rest in God's dealings, obedient doing of the heavenly will—the best way of giving thanks to God.
 
-**Verse 3.** The depraved state of the natural man as to his speech.
-
-**Verse 4.** (*first clause* ). A wise prayer. The wicked will slander, and oppress, or mislead, flatter and defile. No one can keep us but the Lord.
-
-**Verse 5.** The Dangers of Society.
-
-1\. The secrecy of the attacks of the ungodly: "hid a snare."
-
-2\. The variety of their weapons: "and cords."
-
-3\. The cunning choice of position: "by the wayside."
-
-4\. The object of their designs: "for me": they desire to destroy the man himself.
-
-**Verse 5.** *The Net by the Wayside*, or, covert temptations; temptations brought near, and made applicable to daily life.
-
-**Verse 6.** 
-
-1\. The language of assurance.
-
-2\. The plea for acceptance in prayer.
-
-**Verses 6-7.** David comforted himself,
-
-1\. In his interest in God: "I said&mdash; thou art my God."
-
-2\. In his access to God: he had leave to speak to him, and might expect an answer of peace: "Hear", etc.
-
-3\. In the assurance he had of help from God, and happiness in him (Ps 140:7).
-
-4\. In the experience he had formerly of God's care of him: "Thou hast covered my head in the day of battle."— *Matthew Henry.* 
-
-**Verses 6-8.** Three arguments to be pleaded in a prayer for protection.
-
-1\. The believer's covenanted property in God. "I said&mdash; thou art my God."
-
-2\. The past mercies of God. "Thou hast covered", etc.
-
-3\. The impropriety of the wicked being encouraged in their wickedness, Ps 140:8.— *J. F.* 
-
-**Verses 6-12.** The Consolations of the Believer in Time of Trouble.
-
-1\. What he can say.
-
-2\. What he can remember.
-
-3\. What he is assured of.
-
-**Verses 6-7, 12-13.** Times of Assault, Slander, and Temptation should be special times of Prayer and Faith. David here makes prominent five things.
-
-1\. *Possession asserted.* 
-
-a) The Possession: "My God." Opposed to idols. Beloved by self.
-
-b) The Claim published.
-
-c) The Witness selected. Secret. Sacred. Searching.
-
-d) The Occasion chosen.
-
-2\. *Petition presented.* 
-
-a) His prayers were frequent.
-
-b) His prayers were full of meaning.
-
-c) His prayers were meant for God.
-
-d) His prayers needed divine attention.
-
-3\. *Preservation experienced.* 
-
-a) God had been his Armour bearer.
-
-b) God had guarded his most vital part.
-
-c) God had saved him.
-
-d) God's strength had been displayed.
-
-4\. *Protection expected.* 
-
-a) God is a righteous Judge.
-
-b) God is a compassionate Friend.
-
-c) God is a well known Guardian.
-
-5\. *Praise predicted.* 
-
-a) Praise assured by gratitude.
-
-b) Praise expressed by words.
-
-c) Praise implied by confidence.
-
-d) Praise practised by communion.
-
-**Verse 9.** How the sin of evil speakers comes home to them.— *W. B. H.* 
-
-**Verse 11.** (*first clause*.)
-
-1\. Notice a few varieties of evil speakers.
-
-a) Liars; the common liar, the trade liar, the stock exchange liar, the political liar, etc.
-
-b) Scandal mongers.
-
-c) Blasphemers and swearers.
-
-d) Libertines and seducers.
-
-e) Sceptics and new theology inventors.
-
-2\. The propriety of the prayer.
-
-a) Because evil speaking is intrinsically an evil thing.
-
-b) It is an extensively injurious thing.
-
-c) He who would have God's truth established must needs desire that evil speaking must fail.
-
-3\. The limitation of the prayer: "In the earth."
-
-a) It is certain an evil speaker cannot be established in heaven, nor in hell.
-
-b) The earth is the only sphere of his influence; but, alas! men on the earth are too prone to be influenced by him.
-
-c) Then, become righteous and true, by faith in the Righteous One and the "Truth."— *J. F.* 
-
-**Verse 11.** (*second clause.*) The Cruel Hunter pursued by his own Dogs.
-
-**Verse 11.** (*second clause.*) Theme—Sins committed, and not repented of, pursue men to their ruin.
-
-1\. Illustrate.
-
-a) They may raise a force of opposition from men. Tarquin, Napoleon, etc.
-
-b) They may precipitate ruin, as Haman was hunted by his own sin to the gallows.
-
-c) They may arouse destructive remorse, as in Judas.
-
-d) Certainly they will pursue to the judgment seat, and hunt the soul into hell.
-
-2\. Apply.
-
-a) How fearful a thing must sin be.
-
-b) The mole terrible because self created.
-
-c) Flee from the avenging pursuers to Christ, the only and safe refuge.— *J. F.* 
-
-**Verse 11.** (*second clause.*) The hunt and pursuit of the violent sinner.
-
-1\. The progress of the chase.
-
-a) At first the victim is ignorant of it.
-
-b) But ere long he finds Scripture, conscience, God, Death, at his heels.
-
-c) His own sins cry loudest after him.
-
-2\. The issue of the hunt. Hemmed in, overthrown, lost for ever, unless he repent.
-
-3\. Another Huntsman. "The Son of man is come to seek and save that which was lost."— *W. B. H.* 
-
-**Verse 12.** 
-
-1\. The known fact.
-
-2\. The reasons for being so assured of it.
-
-3\. The conduct arising out of the knowledge.
-
-**Verse 12.** Something worth knowing.
-
-1\. By the afflicted and the poor who trust in the Lord.
-
-2\. By the oppressors who afflict and do the wrong.
-
-3\. By all men, that they may trust in the Lord, and praise him for his compassion towards the needy, and for his even handed justice.— *J. F.* 
-
-**Verses 12-13.** 
-
-1\. Trust under all circumstances (Ps 140:12).
-
-2\. Gratitude for all things: "The righteous shall give thanks unto thy name."
-
-3\. Safety at all times: "The upright shall dwell in thy presence."— *G. R.* 
-
-**Verse 13.** One of the noblest forms of praise, —dwelling in the presence of God. Or, reverent regard to God's presence, holy communion with the Lord, confiding rest in God's dealings, obedient doing of the heavenly will—the best way of giving thanks to God.
-
-**Verse 13.** Two assertions beyond contradiction.
-
-1\. The righteous are sure to give thanks to God, let others be as thankless as they will. For,
-
-a) They recognise all their good as coming from God.
-
-b) They realise themselves as unworthy of the good they receive.
-
-c) They are anxious to do right, because they are righteous; and that involves thanksgiving.
-
-d) Thankfulness is a part of the joy derived from what they enjoy.
-
-2\. The upright are sure to dwell in God's presence.
-
-a) In the sense of setting the Lord before them.
-
-b) In the sense of an abiding present fellowship with God.
-
-c) In the sense of enjoying God's approval.
-
-d) In the sense of dwelling in heaven for ever.— *J. F.* 
+**Verse 13 &mdash;** Two assertions beyond contradiction. 1\. The righteous are sure to give thanks to God, let others be as thankless as they will. For, a) They recognise all their good as coming from God. b) They realise themselves as unworthy of the good they receive. c) They are anxious to do right, because they are righteous; and that involves thanksgiving. d) Thankfulness is a part of the joy derived from what they enjoy. 2\. The upright are sure to dwell in God's presence. a) In the sense of setting the Lord before them. b) In the sense of an abiding present fellowship with God. c) In the sense of enjoying God's approval. d) In the sense of dwelling in heaven for ever. &mdash; *J. F.* 
 
