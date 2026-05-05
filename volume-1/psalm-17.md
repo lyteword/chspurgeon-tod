@@ -1,6 +1,10 @@
---- 
-weight: 17 
---- 
+---
+title: "Psalm 17 | The Treasury of David"
+linkTitle: '17'
+weight: 17
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. There are no very clear lines of demarcation between the parts; but we prefer the division adopted by that precious old commentator, David Dickson.
+---
 
 # Psalm 17 
 

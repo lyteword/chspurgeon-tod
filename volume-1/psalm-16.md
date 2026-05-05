@@ -1,6 +1,10 @@
---- 
-weight: 16 
---- 
+---
+title: "Psalm 16 | The Treasury of David"
+linkTitle: '16'
+weight: 16
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. We are not left to human interpreters for the key to this golden mystery, for, speaking by the Holy Ghost, Peter tells us, "David speaketh concerning Him." (Acts 2:25.) Further on in his memorable sermon he said, "Men and brethren, let me freely speak unto you of the patriarch David, that he is both dead and buried, and his sepulchre is with us unto this day.
+---
 
 # Psalm 16 
 

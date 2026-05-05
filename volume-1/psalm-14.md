@@ -1,5 +1,9 @@
 ---
+title: "Psalm 14 | The Treasury of David"
+linkTitle: '14'
 weight: 14
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The world's foolish creed (verse 1); its practical influence in corrupting morals, 1, 2, 3...
 ---
 
 # Psalm 14 

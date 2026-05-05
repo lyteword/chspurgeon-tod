@@ -1,6 +1,10 @@
 ---
-weight: 15 
---- 
+title: "Psalm 15 | The Treasury of David"
+linkTitle: '15'
+weight: 15
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The first verse asks the question; the rest of the verses answer it.
+---
 
 # Psalm 15 
 

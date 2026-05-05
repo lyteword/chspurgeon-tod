@@ -1,6 +1,11 @@
---- 
-weight: 22 
---- 
+---
+title: "Psalm 22 | The Treasury of David"
+linkTitle: '22'
+weight: 22
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This is beyond all others The Psalm of the Cross.
+---
+
 
 # Psalm 22 
 

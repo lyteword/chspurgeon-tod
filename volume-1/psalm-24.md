@@ -1,6 +1,11 @@
---- 
-weight: 24 
---- 
+---
+title: "Psalm 24 | The Treasury of David"
+linkTitle: '24'
+weight: 24
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The Psalm makes a pair with the fifteenth Psalm...
+---
+
 
 # Psalm 24 
 

@@ -1,6 +1,11 @@
---- 
-weight: 18 
---- 
+---
+title: "Psalm 18 | The Treasury of David"
+linkTitle: '18'
+weight: 18
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The first three verses are the proem or preface in which the resolve to bless God is declared.
+---
+
 
 # Psalm 18 
 

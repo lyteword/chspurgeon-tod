@@ -1,5 +1,9 @@
 ---
+title: "Psalm 11 | The Treasury of David"
+linkTitle: '11'
 weight: 11
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. From 1 to 3, David describes the temptation with which he was assailed, and from 4 to 7, the arguments by which his courage was sustained.
 ---
 
 # Psalm 11

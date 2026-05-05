@@ -1,5 +1,9 @@
 ---
+title: "Psalm 2 | The Treasury of David"
+linkTitle: '2'
 weight: 2
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This Psalm will be best understood if it be viewed as a four-fold picture.
 ---
 
 # Psalm 2 

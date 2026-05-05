@@ -1,5 +1,9 @@
 ---
+title: "Psalm 1 | The Treasury of David"
+linkTitle: '1'
 weight: 1
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This Psalm consists of two parts: in the first (from verse 1 to the end of the 3rd) David sets out wherein the felicity and blessedness of a godly man consisteth, what his exercises are, and what blessings he shall receive from the Lord.
 ---
 
 # Psalm 1

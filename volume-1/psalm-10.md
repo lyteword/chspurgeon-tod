@@ -1,5 +1,9 @@
 ---
+title: "Psalm 10 | The Treasury of David"
+linkTitle: '10'
 weight: 10
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The first verse, in an exclamation of surprise, explains the intent of the Psalm, viz., to invoke the interposition of God for the deliverance of his poor and persecuted people.
 ---
 
 # Psalm 10
