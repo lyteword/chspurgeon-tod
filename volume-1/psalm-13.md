@@ -1,5 +1,9 @@
 ---
+title: "Psalm 13 | The Treasury of David"
+linkTitle: '13'
 weight: 13
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This Psalm is very readily to be divided into three parts: the question of anxiety, 1, 2; the cry of prayer, 3, 4; the song of faith, 5, 6.
 ---
 
 # Psalm 13
