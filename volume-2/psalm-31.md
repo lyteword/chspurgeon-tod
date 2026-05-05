@@ -1,5 +1,9 @@
 ---
+title: "Psalm 31 | The Treasury of David"
+linkTitle: '31'
 weight: 31
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The psalmist in dire affliction appeals to his God for help with much confidence and holy importunity, and ere long finds his mind so strengthened that he magnifies the Lord for his great goodness.
 ---
 
 # Psalm 31

@@ -1,5 +1,9 @@
 ---
+title: "Psalm 35 | The Treasury of David"
+linkTitle: '35'
 weight: 35
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The most natural mode of dividing this Psalm is to note its triple character.
 ---
 
 # Psalm 35

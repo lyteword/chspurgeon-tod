@@ -1,5 +1,9 @@
 ---
+title: "Psalm 32 | The Treasury of David"
+linkTitle: '32'
 weight: 32
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. In our reading we have found it convenient to note the benediction of the pardoned, Ps 32:1-2; David's personal confession, Ps 32:3-5; and the application of the case to others, Ps 32:6-7.
 ---
 
 # Psalm 32
