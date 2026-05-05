@@ -1,6 +1,10 @@
---- 
-weight: 23 
---- 
+---
+title: "Psalm 23 | The Treasury of David"
+linkTitle: '23'
+weight: 23
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. There is no inspired title to this psalm, and none is needed, for it records no special event, and needs no other key than that which every Christian may find in his own bosom.
+---
 
 # Psalm 23
 
