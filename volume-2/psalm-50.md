@@ -1,5 +1,9 @@
 ---
+title: "Psalm 50 | The Treasury of David"
+linkTitle: '50'
 weight: 50
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The Lord is represented as summoning the whole earth to hear his declaration, Ps 50:1-6; he then declares the nature of the worship which he accepts, Ps 50:7-15, accuses the ungodly of breaches of the precepts of the second table, Ps 50:16-21, and closes the court with a word of threatening, Ps 50:22, and a direction of grace, Ps 50:23.
 ---
 
 # Psalm 50

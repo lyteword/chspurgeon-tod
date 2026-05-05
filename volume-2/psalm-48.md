@@ -1,5 +1,9 @@
 ---
+title: "Psalm 48 | The Treasury of David"
+linkTitle: '48'
 weight: 48
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. It would be idle dogmatically to attribute this song to any one event of Jewish history.
 ---
 
 # Psalm 48
@@ -94,13 +98,10 @@ weight: 48
 
 *For this God is our God for ever and ever.* A good reason for preserving a record of all that he has wrought. Israel will not change her God so as to wish to forget, nor will the Lord change so as to make the past mere history. He will be the covenant God of his people world without end. There is no other God, we wish for no other, we would have no other even if there were. There are some who are so ready to comfort the wicked, that for the sake of ending their punishment they weaken the force of language, and make *for ever and ever* mean but a time; nevertheless, despite their interpretations we exult in the hope of an eternity of bliss, and to us "everlasting, " and "for ever and ever" mean what they say. *He will be our guide even unto death.* Throughout life, and to our dying couch, he will graciously conduct us, and even after death he will lead us to the living fountains of waters. We look to him for resurrection and eternal life. This consolation is clearly derivable from what has gone before; hitherto our foes have been scattered, and our bulwarks have defied attack, for God has been in our midst, therefore all possible assaults in the future shall be equally futile.
 
-"The church has all her foes defied
-
-And laughed to scorn their rage;
-
-Even thus for aye she shall abide
-
-Secure from age to age."
+> "The church has all her foes defied  
+> And laughed to scorn their rage;  
+> Even thus for aye she shall abide  
+> Secure from age to age."  
 
 Farewell, fear. Come hither, gratitude and faith, and sing right joyously.
 

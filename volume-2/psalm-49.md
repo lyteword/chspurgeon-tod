@@ -1,5 +1,9 @@
 ---
+title: "Psalm 49 | The Treasury of David"
+linkTitle: '49'
 weight: 49
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The poet musician sings, to the accompaniment of his harp, the despicable character of those who trust in their wealth, and so he consoles the oppressed believer.
 ---
 
 # Psalm 49
@@ -86,9 +90,8 @@ No price could secure for any man *that he should still live for ever, and not s
 
 *Nevertheless man being in honour abideth not.* He is but a lodger for the hour, and does not stay a night: even when he dwells in marble halls his notice to quit is written out. Eminence is evermore in imminence of peril. The hero of the hour lasts but for an hour. Sceptres fall from the paralysed hands which once grasped them, and coronets slip away from skulls when the life is departed. *He is like the beasts that perish.* He is not like the sheep which are preserved of the Great Shepherd, but like the hunted beast which is doomed to die. He lives a brutish life and dies a brutish death. Wallowing in riches, surfeited with pleasure, he is fatted for the slaughter, and dies like the ox in the shambles. Alas! that so noble a creature should use his life so unworthily, and end it so disgracefully. So far as this world is concerned, wherein does the death of many men differ from the death of a dog? They go down—
 
-"To the vile dust from whence they sprung,
-
-Unwept, unhonoured, and unsung."
+> "To the vile dust from whence they sprung,  
+> Unwept, unhonoured, and unsung."  
 
 What room is there, then, for fear to the godly when such natural brute beasts assail them? Should they not in patience possess their souls? We make a break here, because this stanza appears to be the refrain of the song, and as such is repeated in Ps 49:20.
 
