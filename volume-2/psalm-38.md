@@ -1,5 +1,9 @@
 ---
+title: "Psalm 38 | The Treasury of David"
+linkTitle: '38'
 weight: 38
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The Psalm opens with a prayer, Ps 38:1; continues in a long complaint, Ps 38:2-8; pauses to dart an eye to heaven, Ps 38:9; proceeds with a second tale of sorrow, Ps 38:10-14; interjects another word of hopeful address to God, Ps 38:15; a third time pours out a flood of griefs, Ps 38:16-20; and then closes as it opened, with renewed petitioning, Ps 38:21-22.
 ---
 
 # Psalm 38

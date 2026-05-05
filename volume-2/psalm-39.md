@@ -1,5 +1,9 @@
 ---
+title: "Psalm 39 | The Treasury of David"
+linkTitle: '39'
 weight: 39
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The psalmist, bowed down with sickness and sorrow, is burdened with unbelieving thoughts, which he resolves to stifle, lest any evil should come from their expression, Ps 39:1-2.
 ---
 
 # Psalm 39
