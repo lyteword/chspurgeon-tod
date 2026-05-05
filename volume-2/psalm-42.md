@@ -1,5 +1,9 @@
 ---
+title: "Psalm 42 | The Treasury of David"
+linkTitle: '42'
 weight: 42
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. That choice band of singers, the sons of Korah, are bidden to make this delightful Psalm one of their peculiars...
 ---
 
 # Psalm 42
@@ -50,21 +54,14 @@ weight: 42
 
 *O my God, my soul is cast down within me.* Here the song begins again upon the bass. So sweet an ending deserves that for the sake of a second hopeful close the Psalm should even begin again. Perhaps the psalmist's dejection continued, the spasm of despondency returned; well, then, he will down with his harp again, and try again its power upon himself, as in his younger days, he saw its influence upon Saul when the evil spirit came upon him. With God the song begins a second time more nearly than at first. The singer was also a little more tranquil. Outward expression of desire was gone; there was no visible panting; the sorrow was not all restrained within doors. Within or upon himself he was cast down; and, verily, it may well be so, while our thoughts look more within than upward. If self were to furnish comfort, we should have but poor provender. There is no solid foundation for comfort in such fickle frames as our heart is subject to. It is well to tell the Lord how we feel, and the more plain the confession the better: David talks like a sick child to its mother, and we should learn to imitate him. *Therefore will I remember thee.* It is well to fly to our God. Here is *terra firma.* Blessed down casting which drives us to so sure a rock of refuge as thee, O Lord! *From the hill Mizar.* He recalls his seasons of choice communion by the river and among the hills, and especially that dearest hour upon the little hill, where love spake her sweetest language and revealed her nearest fellowship. It is great wisdom to store up in memory our choice occasions of converse with heaven; we may want them another day, when the Lord is slow in bringing back his banished ones, and our soul is aching with fear. "His love in times past" has been a precious cordial to many a fainting one; like soft breath it has fanned the smoking flax into a flame, and bound up the bruised reed. Oh, never to be forgotten valley of Achor, thou art a door of hope! Fair days, now gone, ye have left a light behind you which cheers our present gloom. Or does David mean that even where he was he would bethink him of his God; does he declare that, forgetful of time and place, he would count Jordan as sacred as Siloa, Hermon as holy as Zion, and even Mizar, that insignificant rising ground as glorious as the mountains which are round about Jerusalem! Oh! it is a heavenly heart which can sing
 
-"To me remains nor place nor time;
-
-my country is in every clime;
-
-I can be calm and free from care
-
-On any shore, since God is there."
-
-"Could I be cast where thou art not,
-
-That were indeed a dreadful lot,
-
-But regions none remote I call,
-
-Secure of finding God in all."
+> "To me remains nor place nor time;  
+> my country is in every clime;  
+> I can be calm and free from care  
+> On any shore, since God is there."  
+> "Could I be cast where thou art not,  
+> That were indeed a dreadful lot,  
+> But regions none remote I call,  
+> Secure of finding God in all."  
 
 ### Verse 7
 
@@ -96,13 +93,10 @@ Secure of finding God in all."
 
 *Why art thou cast down, O my soul? and why art thou disquieted within me?* In the rehearsal of his sorrow, he finds after all no sufficient ground for being disquieted. Looked in the face, his fears were not so overwhelming as they seemed when shrouded in obscurity. *Hope thou in God.* Let the anchor still keep its hold. God is faithful, God is love, therefore there is room and reason for hope. *Who is the health of my countenance, and my God.* This is the same hopeful expression as that contained in verse five, but the addition of *and my God* shows that the writer was growing in confidence, and was able defiantly to reply to the question, "Where is thy God?" Here, even here, he is, ready to deliver me. I am not ashamed to own him amid your sneers and taunts, for he will rescue me out of your hands. Thus faith closes the struggle, a victor in fact by anticipation, and in heart by firm reliance. The saddest countenance shall yet be made to shine, if there be a taking of God at his word and an expectation of his salvation.
 
-"For yet I know I shall him praise
-
-Who graciously to me,
-
-The health is of my countenance,
-
-Yea, mine own God is he."
+> "For yet I know I shall him praise  
+> Who graciously to me,  
+> The health is of my countenance,  
+> Yea, mine own God is he."  
 
 ## Explanatory Notes & Quaint Sayings
 

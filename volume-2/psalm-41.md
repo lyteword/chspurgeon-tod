@@ -1,5 +1,9 @@
 ---
+title: "Psalm 41 | The Treasury of David"
+linkTitle: '41'
 weight: 41
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Jesus Christ betrayed by Judas Iscariot is evidently the great theme of this Psalm, but we think not exclusively...
 ---
 
 # Psalm 41
@@ -26,9 +30,8 @@ The Lord will deliver him in time of trouble. The compassionate lover of the poo
 
 *The Lord will preserve him, and keep him alive.* His noblest life shall be immortal, and even his mortal life shall be sacredly guarded by the power of Jehovah. Jesus lived on till his hour came, nor could the devices of crafty Herod take away his life till the destined hour had struck; and even then no man took his life from him, but he laid it down of himself, to take it again. Here is the portion of all those who are made like their Lord, they bless and they shall be blessed, they preserve and shall be preserved, they watch over the lives of others and they themselves shall be precious in the sight of the Lord. The miser like the hog is of no use till he is dead—then let him die; the righteous like the ox is of service during life—then let him live. *And he shall be blessed upon the earth.* Prosperity shall attend him. His cruse of oil shall not be dried up because he fed the poor prophet. He shall cut from his roll of cloth and find it longer at both ends.
 
-"There was a man, and some did count him mad,
-
-The more he gave away the more he had."
+> "There was a man, and some did count him mad,  
+> The more he gave away the more he had."  
 
 If temporal gains be not given him, spirituals shall be doubled to him. His little shall be blessed, bread and water shall be a feast to him. The liberal are and must be blessed even here; they have a present as well as a future portion. Our Lord's real blessedness of heart in the joy that was set before him is a subject worthy of earnest thought, especially as it is the picture of the blessing which all liberal saints may look for. *And thou wilt not deliver him unto the will of his enemies.* He helped the distressed, and now he shall find a champion in his God. What would not the good man's enemies do to him if they had him at their disposal? Better be in a pit with vipers than to be at the mercy of persecutors. This sentence sets before us a sweet negative, and yet it were not easy to have seen how it could be true of our Lord Jesus, did we not know that although he was exempted from much of blessing, being made a curse for us, yet even he was not altogether nor for ever left of God, but in due time was exalted above all his enemies.
 
@@ -92,9 +95,8 @@ Here we have a controversy between the pleader and his God. He has been a tender
 
 We are all cheered by tokens for good, and the psalmist felt it to be an auspicious omen, that after all his deep depression he was not utterly given over to his foe. *By this I know that thou favourest me.* Thou hast a special regard to me, I have the secret assurance of this in my heart, and, therefore, thine outward dealings do not dismay me, for I know that thou lovest me in them all. *Because mine enemy doth not triumph over me.* What if the believer has no triumph over his foes, he must be glad that they do not triumph over him. If we have not all we would we should praise God for all we have. Much there is in us over which the ungodly might exult, and if God's mercy keeps the dog's mouths closed when they might be opened, we must give him our heartiest gratitude. What a wonder it is that when the devil enters the lists with a poor, erring, bedridden, deserted, slandered saint, and has a thousand evil tongues to aid him, yet he cannot win the day, but in the end slinks off without renown.
 
-"The feeblest saint shall win the day
-
-Though death and hell obstruct the way, "
+> "The feeblest saint shall win the day  
+> Though death and hell obstruct the way,"  
 
 ### Verse 12
 

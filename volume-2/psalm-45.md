@@ -1,5 +1,9 @@
 ---
+title: "Psalm 45 | The Treasury of David"
+linkTitle: '45'
 weight: 45
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Some here see Solomon and Pharaoh's daughter only they are short sighted; others see both Solomon and Christ they are cross eyed; well focused spiritual eyes see here Jesus only, or if Solomon be present at all, it must be like those hazy shadows of by passers which cross the face of the camera, and therefore are dimly traceable upon a photographic landscape.
 ---
 
 # Psalm 45
@@ -114,13 +118,10 @@ weight: 45
 
 *I will make thy name to be remembered in all generations.* Jehovah by the prophet's mouth promises to the Prince of Peace eternal fame as well as a continuous progeny. His name is his fame, his character, his person; these are dear to his people now—they never can forget them; and it shall be so as long as men exist. Names renowned in one generation have been unknown to the next era, but the laurels of Jesus shall ever be fresh, his renown ever new. God will see to this; his providence and his grace shall make it so. The fame of Messiah is not left to human guardianship; the Eternal guarantees it, and his promise never fails. All down the ages the memories of Gethsemane and Calvary shall glow with inextinguishable light; nor shall the lapse of time, the smoke of error, or the malice of hell be able to dim the glory of the Redeemer's fame. *Therefore shall the people praise thee for ever and ever.* They shall confess thee to be what thou art, and shall render to thee in perpetuity the homage due. Praise is due from every heart to him who loved us, and redeemed us by his blood; this praise will never be fully paid, but will be ever a standing and growing debt. His daily benefits enlarge our obligations, let them increase the number of our songs. Age to age reveals more of his love, let every year swell the volume of the music of earth and heaven, and let thunders of song roll up in full diapason to the throne of him that liveth, and was dead, and is alive for evermore, and hath the keys of hell and of death.
 
-"Let him be crowned with majesty
-
-Who bowed his head to death,
-
-And be his honours sounded high
-
-By all things that have breath."
+> "Let him be crowned with majesty  
+> Who bowed his head to death,  
+> And be his honours sounded high  
+> By all things that have breath."  
 
 ## Explanatory Notes & Quaint Sayings
 
