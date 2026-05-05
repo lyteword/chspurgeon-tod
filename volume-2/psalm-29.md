@@ -1,5 +1,9 @@
 ---
+title: "Psalm 29 | The Treasury of David"
+linkTitle: '29'
 weight: 29
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. It seems to be the general opinion of modern annotators, that this Psalm is meant to express the glory of God as heard in the pealing thunder, and seen in the equinoctial tornado.
 ---
 
 # Psalm 29

@@ -1,5 +1,9 @@
 ---
+title: "Psalm 51 | The Treasury of David"
+linkTitle: '51'
 weight: 51
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. It will be simplest to note in the first twelve verses the penitent's confessions and plea for pardon, and then in the last seven his anticipatory gratitude, and the way in which he resolves to display it.
 ---
 
 # Psalm 51
@@ -16,9 +20,8 @@ weight: 51
 
 *Have mercy upon me, O God.* He appeals at once to the mercy of God, even before he mentions his sin. The sight of mercy is good for eyes that are sore with penitential weeping. Pardon of sin must ever be an act of pure mercy, and therefore to that attribute the awakened sinner flies. *"According to thy lovingkindness."* Act, O Lord, like thyself; give mercy like thy mercy. Show mercy such as is congruous with thy grace.
 
-"Great God, thy nature hath no bound:
-
-So let thy pardoning love be found."
+> "Great God, thy nature hath no bound:  
+> So let thy pardoning love be found."  
 
 What a choice word is that of our English version, a rare compound of precious things: love and kindness sweetly blended in one—"lovingkindness." *According unto the multitude of thy tender mercies.* Let thy most loving compassions come to me, and make thou thy pardons such as these would suggest. Reveal all thy gentlest attributes in my case, not only in their essence but in their abundance. Numberless have been thine acts of goodness, and vast is thy grace; let me be the object of thine infinite mercy, and repeat it all in me. Make my one case an epitome of all thy tender mercies. By every deed of grace to others I feel encouraged, and I pray thee let me add another and a yet greater one, in my own person, to the long list of thy compassions. *Blot out my transgressions.* My revolts, my excesses, are all recorded against me; but, Lord, erase the lines. Draw thy pen through the register. Obliterate the record, though now it seems engraven in the rock for ever; many strokes of thy mercy may be needed, to cut out the deep inscription, but then thou has a multitude of mercies, and therefore, I beseech thee, erase my sins.
 

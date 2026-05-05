@@ -1,5 +1,9 @@
 ---
+title: "Psalm 40 | The Treasury of David"
+linkTitle: '40'
 weight: 40
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Jesus is evidently here, and although it might not be a violent wresting of language to see both David and his Lord, both Christ and the church, the double comment might involve itself in obscurity, and therefore we shall let the sun shine even though this should conceal the stars.
 ---
 
 # Psalm 40

@@ -1,5 +1,9 @@
 ---
+title: "Psalm 44 | The Treasury of David"
+linkTitle: '44'
 weight: 44
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. From Ps 44:1-3, the Lord's mighty works for Israel are rehearsed, and in remembrance of them faith in the Lord is expressed Ps 44:4-8.
 ---
 
 # Psalm 44
@@ -42,9 +46,8 @@ weight: 44
 
 Through thy name will we tread them under that rise up against *us.* The Lord's name served instead of weapons, and enabled those who used it to leap on their foes and crush them with jubilant valour. In union and communion with God, saints work wonders; if God be for us, who can be against us? Mark well that all the conquests of these believers are said to be "through thee, ""through thy name:" never let us forget this, lest going a warfare at our own charges, we fail most ignominiously. Let us not, however, fall into the equally dangerous sin of distrust, for the Lord can make the weakest of us equal to any emergency. Though today we are timid and defenceless as sheep, he can by his power make us strong as the firstling of his bullock, and cause us to push as with the horns of unicorns, until those who rose up against us shall be so crushed and battered as never to rise again. Those who of themselves can scarcely keep their feet, but like little babes totter and fall, are by divine assistance made to overthrow their foes, and set their feet upon their necks. Read Christian's fight with Apollyon, and see how
 
-"The man so bravely played the man
-
-He made the fiend to fly."
+> "The man so bravely played the man  
+> He made the fiend to fly."  
 
 ### Verse 6
 
@@ -154,17 +157,12 @@ An appeal is now made to the omniscience of God; he is himself called in to bear
 
 *Awake, why sleepest thou, O Lord.* God sleepeth not, but the psalmist puts it so, as if on no other theory he could explain the divine inaction. He would fain see the great Judge ending oppression and giving peace to the holy, therefore does he cry "Awake; "he cannot understand why the reign of tyranny and the oppression of virtue are permitted, and therefore he enquires "Why sleepest thou?" *Arise.* This is all thou needest to do, one move of thine will save us. *Cast us not off for ever.* Long enough hast thou deserted us; the terrible effects of thine absence are destroying us; end thou our calamities, and let thine anger be appeased. In persecuting times men are apt to cry, Where is the God of Israel? At the thought of what the saints have endured from their haughty enemies, we join our voices in the great martyr cry and sing with the bard of Paradise:
 
-"Avenge, O Lord, thy slaughtered saints, whose bones
-
-Lie scattered on the Alpine mountains cold;
-
-Even those who kept thy truth so pure of old,
-
-When all our fathers worshipped stocks and stones,
-
-Forget not: in thy book record their groans
-
-Who were thy sheep."
+> "Avenge, O Lord, thy slaughtered saints, whose bones  
+> Lie scattered on the Alpine mountains cold;  
+> Even those who kept thy truth so pure of old,  
+> When all our fathers worshipped stocks and stones,  
+> Forget not: in thy book record their groans  
+> Who were thy sheep."  
 
 ### Verse 24
 
@@ -184,13 +182,10 @@ Who were thy sheep."
 
 *Arise for our help.* A short, but sweet and comprehensive prayer, much to the point, clear, simple, urgent, as all prayers should be. *And redeem us for thy mercies' sake.* Here is the final plea. The favour is redemption, the plea is mercy; and this, too, in the case of faithful sufferers who had not forgotten their God. Mercy is always a safe plea, and never will any man find a better.
 
-"Were I a martyr at the stake.
-
-I would plead my Saviour's name,
-
-Intreat a pardon for his sake,
-
-And urge no other claim."
+> "Were I a martyr at the stake.  
+> I would plead my Saviour's name,  
+> Intreat a pardon for his sake,  
+> And urge no other claim."  
 
 Here ends this memorable Psalm, but in heaven its power ends not, but brings down deliverance for the tried people of God.
 

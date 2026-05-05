@@ -1,5 +1,9 @@
 ---
+title: "Psalm 46 | The Treasury of David"
+linkTitle: '46'
 weight: 46
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. A Song upon Alamoth. Which may denote that the music was to be pitched high for the treble or soprano voices of the Hebrew virgins...
 ---
 
 # Psalm 46
@@ -20,13 +24,10 @@ weight: 46
 
 *God is our refuge and strength.* Not our armies, or our fortresses. Israel's boast is in Jehovah, the only living and true God. Others vaunt their impregnable castles, placed on inaccessible rocks, and secured with gates of iron, but God is a far better refuge from distress than all these: and when the time comes to carry the war into the enemy's territories, the Lord stands his people in better stead than all the valour of legions or the boasted strength of chariot and horse. Soldiers of the cross, remember this, and count yourselves safe, and make yourselves strong in God. Forget not the personal possessive word *our;* make sure each one of your portion in God, that you may say, "He is *my* refuge and strength." Neither forget the fact that God is our refuge just now, in the immediate present, as truly as when David penned the word. God alone is our all in all. All other refuges are refuges of lies, all other strength is weakness, for power belongeth unto God: but as God is all sufficient, our defence and might are equal to all emergencies. *A very present help in trouble,* or *in distress he has so been found,* he has been tried and proved by his people. He never withdraws himself from his afflicted. He is their help, truly, effectually, constantly; he is present or near them, close at their side and ready for their succour, and this is emphasized by the word *very* in our version, he is more present than friend or relative can be, yea, more nearly present than even the trouble itself. To all this comfortable truth is added the consideration that his assistance comes at the needed time. He is not as the swallows that leave us in the winter; he is a friend in need and a friend indeed. When it is very dark with us, let brave spirits say, "Come, let us sing the forty-sixth Psalm."
 
-"A fortress firm, and steadfast rock,
-
-Is God in time of danger;
-
-A shield and sword in every shock,
-
-From foe well known or stranger."
+> "A fortress firm, and steadfast rock,  
+> Is God in time of danger;  
+> A shield and sword in every shock,  
+> From foe well known or stranger."  
 
 ### Verse 2
 
@@ -70,15 +71,11 @@ From foe well known or stranger."
 
 *Come, behold the works of the Lord.* The joyful citizens of Jerusalem are invited to go forth and view the remains of their enemies, that they may mark the prowess of Jehovah and the spoil which his right hand hath won for his people. It were well if we also carefully noted the providential dealings of our covenant God, and were quick to perceive his hand in the battles of his church. Whenever we read history is should be with this verse sounding in our ears. We should read the newspaper in the same spirit, to see how the Head of the Church rules the nations for his people's good, as Joseph governed Egypt for the sake of Israel. *What desolations he hath made in the earth.* The destroyers he destroys, the desolators he desolates. How forcible is the verse at this date! The ruined cities of Assyria, Babylon, Petra, Bashan, Canaan, are our instructors, and in tables of stone record the doings of the Lord. In every place where his cause and crown have been disregarded ruin has surely followed: sin has been a blight on nations, and left their palaces to lie in heaps. In the days of the writer of this Psalm, there had probably occurred some memorable interpositions of God against his Israel's foes; and as he saw their overthrow, he called on his fellow citizens to come forth and attentively consider the terrible things in righteousness which had been wrought on their behalf. Dismantled castles and ruined abbeys in our own land stand as memorials of the Lord's victories over oppression and superstition. May there soon be more of such desolations.
 
-"Ye gloomy piles, ye tombs of living men,
-
-Ye sepulchres of womanhood, or worse;
-
-Ye refuges of lies, soon may ye fall,
-
-And amid your ruins may the owl, and bat,
-
-And dragon find congenial resting place."
+> "Ye gloomy piles, ye tombs of living men,  
+> Ye sepulchres of womanhood, or worse;  
+> Ye refuges of lies, soon may ye fall,  
+> And amid your ruins may the owl, and bat,  
+> And dragon find congenial resting place."  
 
 ### Verse 9
 
@@ -98,17 +95,12 @@ And dragon find congenial resting place."
 
 *The Lord of hosts is with us; the God of Jacob is our refuge.* It was meet to sing this twice over. It is a truth of which no believer wearies, it is a fact too often forgotten, it is a precious privilege which cannot be too often considered. Reader, is the Lord on thy side? Is Emmanuel, God with us, thy Redeemer? Is there a covenant between thee and God as between God and Jacob? If so, thrice happy art thou. Show thy joy in holy song, and in times of trouble play the man by still making music for thy God. Selah. Here as before, lift up the heart. Rest in contemplation after praise. Still keep the soul in tune. It is easier to sing a hymn of praise than to continue in the spirit of praise, but let it be our aim to maintain the uprising devotion of our grateful hearts, and so end our song as if we intended it to be continued.
 
-Selah bids the music rest.
-
-Pause in silence soft and blest;
-
-Selah bids uplift the strain,
-
-Harps and voices tune again;
-
-Selah ends the vocal praise,
-
-Still your hearts to God upraise.
+> Selah bids the music rest.  
+> Pause in silence soft and blest;  
+> Selah bids uplift the strain,  
+> Harps and voices tune again;  
+> Selah ends the vocal praise,  
+> Still your hearts to God upraise.  
 
 ## Explanatory Notes & Quaint Sayings
 

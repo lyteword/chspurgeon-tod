@@ -1,5 +1,9 @@
 ---
+title: "Psalm 43 | The Treasury of David"
+linkTitle: '43'
 weight: 43
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The psalmist cried to God in prayer, Ps 43:1-3.
 ---
 
 # Psalm 43
@@ -22,13 +26,10 @@ weight: 43
 
 *For.* Here is argument, which is the very sinew of prayer. If we reasoned more with the Lord we should have more victories in supplication. *Thou art the God of my strength.* All my strength belongs to thee—I will not, therefore, use it on my own behalf against my personal foes. All my strength comes from thee, I therefore seek help from thee, who art able to bestow it. All my strength is in thee, I leave therefore this task of combating my foes entirely in thy hands. Faith which leaves such things alone is wise faith. Note the assurance of David, *thou art,* not I hope and trust so, but I know it is so; we shall find confidence to be our consolation. *Why dost thou cast me off?* Why am I treated as if thou didst loathe me? Am I become an offence unto thee? There are many reasons why the Lord might cast us off, but no reason shall prevail to make him do so. He hath not cast off his people, though he for awhile treats them as cast offs. Learn from this question that it is well to enquire into dark providences, but we must enquire of God, not of our own fears. He who is the author of a mysterious trial can best expound it to us.
 
-"Blind unbelief is sure to err,
-
-And scan his work in vain;
-
-God is his own interpreter,
-
-And he will make it plain."
+> "Blind unbelief is sure to err,  
+> And scan his work in vain;  
+> God is his own interpreter,  
+> And he will make it plain."  
 
 Why go I mourning because of the oppression of the enemy? Why do I wander hither and thither like a restless spirit? Why wear I the weeds of sorrow on my body, and the lines of grief on my face? Oppression makes a wise man mad; why, Lord, am I called to endure so much of it for so long a time? Here again is a useful question, addressed to the right quarter. The answer will often be because we are saints, and must be made like our Head, and because such sorrow is chastening to the spirit, and yieldeth comfortable fruit. We are not to cross question the Lord in peevishness, but we may ask of him in humility; God help us to observe the distinction so as not to sin through stress of sorrow.
 

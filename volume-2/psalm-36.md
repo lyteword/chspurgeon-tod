@@ -1,5 +1,9 @@
 ---
+title: "Psalm 36 | The Treasury of David"
+linkTitle: '36'
 weight: 36
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. From Ps 36:1-4 David describes the rebellious: in Ps 36:5-9 he extols the various attributes of the Lord; in Ps 36:10-11 he addresses the Lord in prayer, and in the last verse his faith sees in vision the overthrow of all the workers of iniquity.
 ---
 
 # Psalm 36

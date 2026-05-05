@@ -1,5 +1,9 @@
 ---
+title: "Psalm 37 | The Treasury of David"
+linkTitle: '37'
 weight: 37
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The great riddle of the prosperity of the wicked and the affliction of the righteous, which has perplexed so many, is here dealt with in the light of the future; and fretfulness and repining are most impressively forbidden.
 ---
 
 # Psalm 37
@@ -42,37 +46,22 @@ There is an ascent in this third precept. He who was first bidden not to fret, w
 
 *Commit thy way unto the Lord.* Roll the whole burden of life upon the Lord. Leave with Jehovah not thy present fretfulness merely, but all thy cares; in fact, submit the whole tenor of thy way to him. Cast away anxiety, resign thy will, submit thy judgment, leave all with the God of all. What a medicine is this for expelling envy! What a high attainment does this fourth precept indicate! How blessed must he be who lives every day in obedience to it! *Trust also in him; and he shall bring it to pass.* Our destiny shall be joyfully accomplished if we confidently entrust all to our Lord. We may serenely sing—
 
-"Thy way, not mine, O Lord,
-
-However dark it be;
-
-O lead me by thine own right hand,
-
-Choose out the path for me."
-
-"Smooth let it be or rough,
-
-It will be still the best;
-
-Winding or straight, it matters not,
-
-It leads me to thy rest."
-
-"I dare not choose my lot,
-
-I would not if I might;
-
-But choose Thou for me, O my God,
-
-So shall I walk aright."
-
-"Take thou my cup, and it
-
-With joy or sorrow fill;
-
-As ever best to thee may seem,
-
-Choose thou my good and ill."
+> "Thy way, not mine, O Lord,  
+> However dark it be;  
+> O lead me by thine own right hand,  
+> Choose out the path for me."  
+> "Smooth let it be or rough,  
+> It will be still the best;  
+> Winding or straight, it matters not,  
+> It leads me to thy rest."  
+> "I dare not choose my lot,  
+> I would not if I might;  
+> But choose Thou for me, O my God,  
+> So shall I walk aright."  
+> "Take thou my cup, and it  
+> With joy or sorrow fill;  
+> As ever best to thee may seem,  
+> Choose thou my good and ill."  
 
 The ploughman sows and harrows, and then leaves the harvest to God. What can he do else? He cannot cover the heavens with clouds, or command the rain, or bring forth the sun or create the dew. He does well to leave the whole matter with God; and so to all of us it is truest wisdom, having obediently trusted in God, to leave results in his hands, and expect a blessed issue.
 

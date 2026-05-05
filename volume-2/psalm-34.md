@@ -1,5 +1,9 @@
 ---
+title: "Psalm 34 | The Treasury of David"
+linkTitle: '34'
 weight: 34
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The Psalm is split into two great divisions at the close of Ps 34:10, when the Psalmist having expressed his praise to God turns in direct address to men.
 ---
 
 # Psalm 34

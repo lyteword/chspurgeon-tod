@@ -1,5 +1,9 @@
 ---
+title: "Psalm 47 | The Treasury of David"
+linkTitle: '47'
 weight: 47
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Whether the immediate subject of this Psalm be the carrying up of the ark from the house of Obededom to Mount Zion, or the celebration of some memorable victory, it would be hard to decide.
 ---
 
 # Psalm 47
@@ -40,33 +44,20 @@ And his *unsuffering* kingdom yet will come."
 
 While as yet we see not all things put under him, we are glad to put ourselves and our fortunes at his disposal. *He shall choose our inheritance for us.* We feel his reign to be so gracious that we even now ask to be in the fullest degree the subjects of it. We submit our will, our choice, our desire, wholly to him. Our heritage here and hereafter we leave to him, let him do with us as seemeth him good. *The excellency of Jacob whom he loved.* He gave his ancient people their portion, he will give us ours, and we ask nothing better; this is the most spiritual and real manner of clapping our hands because of his sovereignty, namely, to leave all our affairs in his hands, for then our hands are empty of all care for self, and free to be used in his honour. He was the boast and glory of Israel, he is and shall be ours. He loved his people and became their greatest glory; he loves us, and he shall be our exceeding joy. As for the latter days, we ask nothing better than to stand in our appointed lot, for if we have but a portion in our Lord Jesus, it is enough for our largest desires. Our beauty, our boast, our best treasure, lies in having such a God to trust in, such a God to love us. *Selah.* Yes, pause, ye faithful songsters. Here is abundant room for holy meditation—
 
-"Muse awhile, obedient thought,
-
-Lo, the theme's with rapture fraught;
-
-See thy King, whose realm extends
-
-Even to earth's remotest ends.
-
-Gladly shall the nations own
-
-Him their God and Lord alone;
-
-Clap their hands with holy mirth,
-
-Hail him Monarch of the Earth.
-
-Come, my soul, before him bow,
-
-Gladdest of his subjects thou;
-
-Leave thy portion to his choice,
-
-In his sovereign will rejoice,
-
-This thy purest, deepest bliss,
-
-He is thine and thou art his."
+> "Muse awhile, obedient thought,  
+> Lo, the theme's with rapture fraught;  
+> See thy King, whose realm extends  
+> Even to earth's remotest ends.  
+> Gladly shall the nations own  
+> Him their God and Lord alone;  
+> Clap their hands with holy mirth,  
+> Hail him Monarch of the Earth.  
+> Come, my soul, before him bow,  
+> Gladdest of his subjects thou;  
+> Leave thy portion to his choice,  
+> In his sovereign will rejoice,  
+> This thy purest, deepest bliss,  
+> He is thine and thou art his."  
 
 ### Verse 5
 
