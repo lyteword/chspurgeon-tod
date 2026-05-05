@@ -1,5 +1,9 @@
 ---
+title: "Psalm 28 | The Treasury of David"
+linkTitle: '28'
 weight: 28
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The first and second verses earnestly entreat audience of the Lord in a time of dire emergency...
 ---
 
 # Psalm 28

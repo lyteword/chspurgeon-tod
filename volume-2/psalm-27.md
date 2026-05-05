@@ -1,5 +1,9 @@
 ---
+title: "Psalm 27 | The Treasury of David"
+linkTitle: '27'
 weight: 27
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The poet first sounds forth his sure confidence in his God, Ps 27:1-3, and his love of communion with him, Ps 27:4-6.
 ---
 
 # Psalm 27

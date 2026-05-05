@@ -1,5 +1,9 @@
 ---
+title: "Psalm 30 | The Treasury of David"
+linkTitle: '30'
 weight: 30
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. In Ps 30:1-3, David extols the Lord for delivering him...
 ---
 
 # Psalm 30
