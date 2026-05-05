@@ -1,5 +1,9 @@
---- 
-weight: 6 
+---
+title: "Psalm 6 | The Treasury of David"
+linkTitle: '6'
+weight: 6
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. You will observe that the Psalm is readily divided into two parts...
 ---
 
 # Psalm 6

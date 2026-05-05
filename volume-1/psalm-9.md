@@ -1,5 +1,9 @@
 ---
+title: "Psalm 9 | The Treasury of David"
+linkTitle: '9'
 weight: 9
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Bonar remarks, The position of the Psalms in their relation to each other is often remarkable...
 ---
 
 # Psalm 9

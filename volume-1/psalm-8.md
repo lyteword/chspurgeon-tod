@@ -1,5 +1,9 @@
 ---
+title: "Psalm 8 | The Treasury of David"
+linkTitle: '8'
 weight: 8
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The first and last verses are a sweet song of admiration, in which the excellence of the name of God is extolled.
 ---
 
 # Psalm 8

@@ -1,5 +1,9 @@
 ---
+title: "Psalm 7 | The Treasury of David"
+linkTitle: '7'
 weight: 7
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. In the first and second verses the danger is stated, and prayer offered...
 ---
 
 # Psalm 7
