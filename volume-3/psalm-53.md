@@ -1,5 +1,9 @@
 ---
+title: "Psalm 53 | The Treasury of David"
+linkTitle: '53'
 weight: 53
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The evil nature of man is here brought before our view a second time, in almost the same inspired words.
 ---
 
 # Psalm 53
