@@ -1,5 +1,9 @@
 ---
+title: "Psalm 64 | The Treasury of David"
+linkTitle: '64'
 weight: 64
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. From Ps 64:1-6 he describes the cruelty and craftiness of his foes, and from Ps 64:7-10 he prophesies their overthrow.
 ---
 
 # Psalm 64

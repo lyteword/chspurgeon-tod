@@ -1,5 +1,9 @@
 ---
+title: "Psalm 62 | The Treasury of David"
+linkTitle: '62'
 weight: 62
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The Psalmist has marked his own pauses, by inserting Selah at the end of Ps 62:4, 8.
 ---
 
 # Psalm 62

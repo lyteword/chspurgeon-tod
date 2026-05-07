@@ -1,5 +1,9 @@
 ---
+title: "Psalm 63 | The Treasury of David"
+linkTitle: '63'
 weight: 63
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. In Ps 63:1-8 verses the writer expresses his holy desires after God, and his confidence in him, and then in Ps 63:9-11 remaining three verses he prophesies the overthrow of all his enemies.
 ---
 
 # Psalm 63

@@ -1,5 +1,9 @@
 ---
+title: "Psalm 61 | The Treasury of David"
+linkTitle: '61'
 weight: 61
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This Psalm is a pearl.
 ---
 
 # Psalm 61
