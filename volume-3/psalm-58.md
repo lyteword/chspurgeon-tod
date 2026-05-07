@@ -1,5 +1,9 @@
 ---
+title: "Psalm 58 | The Treasury of David"
+linkTitle: '58'
 weight: 58
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The ungodly enemy is accused, Ps 58:1-5; judgment is sought from the judge, Ps 58:6-8; and seen in prophetic vision as already executed, Ps 58:9-11.*
 ---
 
 # Psalm 58

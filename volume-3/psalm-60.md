@@ -1,5 +1,9 @@
 ---
+title: "Psalm 60 | The Treasury of David"
+linkTitle: '60'
 weight: 60
+description: >
+  'Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Properly the song may be said to consist of three parts: the complaining verses, Ps 60:1-3; the happy, Ps 60:4-8; the prayerful, Ps 60:9-12.'
 ---
 
 # Psalm 60
@@ -36,14 +40,14 @@ Thou hast been displeased. This is the secret of our miseries. Had we pleased th
 
 Here the strain takes a turn. The Lord has called back to himself his servants, and commissioned them for his service, presenting them with a standard to be used in his wars. Thou hast given a banner to them that fear thee. Their afflictions had led them to exhibit holy fear, and then being fitted for the Lord's favour, he gave them an ensign, which would be both a rallying point for their hosts, a proof that he had sent them to fight, and a guarantee of victory. The bravest men are usually intrusted with the banner, and it is certain that those who fear God must have less fear of man than any others. The Lord has given us the standard of the gospel, let us live to uphold it, and if needful die to defend it. Our right to contend for God, and our reason for expecting success, are found in the fact that the faith has been once committed to the saints, and that by the Lord himself. That it may be displayed because of the truth. Banners are for the breeze, the sun, the battle. Israel might well come forth boldly, for a sacred standard was borne aloft before them. To publish the gospel is a sacred duty, to be ashamed of it a deadly sin. The truth of God was involved in the triumph of David's armies, he had promised them victory; and so in the proclamation of the gospel we need feel no hesitancy, for as surely as God is true he will give success to his own word. For the truth's sake, and because the true God is on our side, let us in these modern days of warfare emulate the warriors of Israel, and unfurl our banners to the breeze with confident joy. Dark signs of present or coming ill must not dishearten us; if the Lord had meant to destroy us he would not have given us the gospel; the very fact that he has revealed himself in Christ Jesus involves the certainty of victory. *Magna est veritas et praevalebit.*
 
-Hard things thou hast upon us laid,  
-And made us drink most bitter wine;  
-But still thy banner we have displayed,  
-And borne aloft thy truth divine.  
-Our courage fails not, though the night  
-No earthly lamp avails to break,  
-For thou wilt soon arise in might,  
-And of our captors captives make.  
+> Hard things thou hast upon us laid,   
+> And made us drink most bitter wine;  
+> But still thy banner we have displayed,  
+> And borne aloft thy truth divine.  
+> Our courage fails not, though the night  
+> No earthly lamp avails to break,  
+> For thou wilt soon arise in might,  
+> And of our captors captives make.  
 
 Selah. There is so much in the fact of a banner being given to the hosts of Israel, so much of hope, of duty, of comfort, that a pause is fitly introduced. The sense justifies it, and the more joyful strain of the music necessitates it.
 

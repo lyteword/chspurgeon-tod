@@ -1,5 +1,9 @@
 ---
+title: "Psalm 56 | The Treasury of David"
+linkTitle: '56'
 weight: 56
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. In Ps 56:1-2, he pours out his complaint; in Ps 56:3-4 he declares his confidence in God; in Ps 56:5-6 he returns to his complaining, but pleads in earnest hope in Ps 56:7-9, and sings a grateful song from Ps 56:10 to the close.*
 ---
 
 # Psalm 56
