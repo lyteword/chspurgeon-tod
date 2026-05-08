@@ -1,5 +1,9 @@
 ---
+title: "Psalm 67 | The Treasury of David"
+linkTitle: '67'
 weight: 67
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Who he was matters not, and who we may be is also of small consequence, so long as the Lord is glorified. 
 ---
 
 # Psalm 67

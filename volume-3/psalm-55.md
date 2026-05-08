@@ -1,9 +1,12 @@
 ---
+title: "Psalm 55 | The Treasury of David"
+linkTitle: '55'
 weight: 55
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. It would be idle to fix a time, and find an occasion for this Psalm with any dogmatism.
 ---
 
 # Psalm 55
-
 
 **Title &mdash;** *To the Chief Musician on Neginoth. Another song to be accompanied by stringed instruments. The strain is at one time mournful, and at another softly sweet. It needed the chief musician's best care to see that the music was expressive of the sentiment. Maschil. It is not a mere personal hymn, there is teaching in it for us all, and where our Lord shines through David, his personal type, there is a great deep of meaning. Of David. The man of many conditions, much tried, and much favoured, persecuted but delivered and exalted, was from experience enabled to write such precious verses in which he sets forth not only the sorrows of common pilgrims, but of the Lord of the way himself.* 
 

@@ -1,5 +1,9 @@
 ---
+title: "Psalm 75 | The Treasury of David"
+linkTitle: '75'
 weight: 75
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The people's song of gratitude and adoration begins the hymn in Ps 75:1.
 ---
 
 # Psalm 75
@@ -23,7 +27,7 @@ weight: 75
 *When I shall receive the congregation I will judge uprightly.* This is generally believed to be the voice of God, who will, when he accepts his people, mount his judgment seat and avenge their cause in righteousness. It is rendered by some, "I will take a set time; "and by others, "I will seize the moment."
 
 > "God never is before his time,  
-> He is never too late."
+> He is never too late."  
 
 He determines the period of interposition, and when that arrives swift are his blows and sure are his deliverances. God sends no delegated judge, but sits himself upon the throne. O Lord, let thy set time come for grace. Tarry no longer, but for the truth and the throne of Jesus be thou speedily at work. Let the appointed assize come, O Jesus, and sit thou on thy throne to judge the world in equity.
 

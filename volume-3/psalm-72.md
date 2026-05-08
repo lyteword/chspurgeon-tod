@@ -1,5 +1,9 @@
 ---
+title: "Psalm 72 | The Treasury of David"
+linkTitle: '72'
 weight: 72
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. We shall follow the division suggested by Alexander.
 ---
 
 # Psalm 72
@@ -12,7 +16,7 @@ weight: 72
 
 ### Verse 1
 
-> Give the king thy judgments, O God, and thy righteousness unto the king’s son.
+> Give the king thy judgments, O God, and thy righteousness unto the king's son.
 
 *Give the king thy judgments, O God.* The right to reign was transmitted by descent from David to Solomon, but not by that means alone: Israel was a theocracy, and the kings were but the viceroys of the greater King; hence the prayer that the new king might be enthroned by divine right, and then endowed with divine wisdom. Our glorious King in Zion hath all judgment committed unto him. He rules in the name of God over all lands. He is king "Dei Gratia" as well as by right of inheritance. And thy righteousness unto the king's son. Solomon was both king and king's son; so also is our Lord. He has power and authority in himself, and also royal dignity given of his Father. He is the righteous king; in a word, he is "the Lord our righteousness." We are waiting till he shall be manifested among men as the ever righteous Judge. May the Lord hasten on his own time the long looked for day. Now wars and fightings are even in Israel itself, but soon the dispensation will change, and David, the type of Jesus warring with our enemies, shall be displaced by Solomon the prince of peace.
 

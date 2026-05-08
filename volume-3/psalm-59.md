@@ -1,5 +1,9 @@
 ---
+title: "Psalm 59 | The Treasury of David"
+linkTitle: '59'
 weight: 59
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. In Ps 59:1-2 he prays, in Ps 59:3-4 he complains of his woes, and again in Ps 59:5 he prays.
 ---
 
 # Psalm 59

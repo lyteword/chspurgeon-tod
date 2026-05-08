@@ -1,5 +1,9 @@
 ---
+title: "Psalm 54 | The Treasury of David"
+linkTitle: '54'
 weight: 54
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. From Ps 54:1-3, where the Selah makes a pause for us, the psalmist pleads with God, and then in the rest of the song, laying aside all doubt, he chants a hymn of joyful triumph.
 ---
 
 # Psalm 54

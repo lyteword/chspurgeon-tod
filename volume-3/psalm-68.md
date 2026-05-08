@@ -1,5 +1,9 @@
 ---
+title: "Psalm 68 | The Treasury of David"
+linkTitle: '68'
 weight: 68
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. With the words of the first two verses the ark is uplifted, and the procession begins to move.
 ---
 
 # Psalm 68
@@ -15,7 +19,6 @@ weight: 68
 > Let God arise, let his enemies be scattered: let them also that hate him flee before him.
 
 *Let God arise.* In some such words Moses spake when the cloud moved onward, and the ark was carried forward. The ark would have been a poor leader if the Lord had not been present with the symbol. Before we move, we should always desire to see the Lord lead the way. The words suppose the Lord to have been passive for awhile, suffering his enemies to rage, but restraining his power. Israel beseeches him to "arise, "as elsewhere to "awake, ""gird on his sword, "and other similar expressions. We, also, may thus importunately cry unto the Lord, that he would be pleased to make bare his arm, and plead his own cause. Let his enemies be scattered. Our glorious Captain of the vanguard clears the way readily, however many may seek to obstruct it; he has but to arise, and they flee, he has easily over thrown his foes in days of yore, and will do so all through the ages to come. Sin, death, and hell know the terror of his arm; their ranks are broken at his approach. Our enemies are *his* enemies, and in this is our confidence of victory. Let them also that hate him flee before him. To hate the infinitely good God is infamous, and the worst punishment is not too severe. Hatred of God is impotent. His proudest foes can do him no injury. Alarmed beyond measure, they shall flee before it comes to blows. Long before the army of Israel can come into the fray, the haters of God shall flee before Him who is the champion of his chosen. He comes, he sees, he conquers. How fitting a prayer is this for the commencement of a revival! How it suggests the true mode of conducting one:—the Lord leads the way, his people follow, the enemies flee.
-
 
 ### Verse 2
 

@@ -1,5 +1,9 @@
 ---
+title: "Psalm 76 | The Treasury of David"
+linkTitle: '76'
 weight: 76
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The Precentor is here instructed to perform this song to the music of stringed instruments. 
 ---
 
 # Psalm 76
