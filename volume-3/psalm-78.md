@@ -1,5 +1,9 @@
 ---
+title: "Psalm 78 | The Treasury of David"
+linkTitle: '78'
 weight: 78
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The unity is well maintained throughout, but for the sake of the reader's convenience, we may note that Ps 78:1-8 may be viewed as a preface, setting forth the psalmist's object in the epic which he is composing.
 ---
 
 # Psalm 78

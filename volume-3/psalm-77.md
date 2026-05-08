@@ -1,5 +1,9 @@
 ---
+title: "Psalm 77 | The Treasury of David"
+linkTitle: '77'
 weight: 77
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. If we follow the poetical arrangement, and divide at the Selahs, we shall find the troubled man of God pleading in Ps 77:1-3, and then we shall hear him lamenting and arguing within himself, Ps 77:4-9.
 ---
 
 # Psalm 77
@@ -134,6 +138,8 @@ weight: 77
 
 **Whole Psalm &mdash;** Whenever, and by whomsoever, the Psalm may have been written, it clearly is individual, not national. It utterly destroys all the beauty, all the tenderness and depth of feeling in the opening portion, if we suppose that the people are introduced speaking in the first person. The allusions to the national history may indeed show that the season was a season of national distress, and that the sweet singer was himself bowed down by the burden of the time, and oppressed by woes which he had no power to alleviate; but it is his own sorrow, not the sorrow of others under which he sighs, and of which he has left the pathetic record. &mdash; *J. J. Stewart Perowne* 
 
+**Whole Psalm &mdash;** *See Psalms on "Ps 77:1"* for further information.
+
 **Verse 1 &mdash;** In the beginning of the Psalm, before speaking of his sorrows, he hastens to show the necessary and most efficacious remedy for allaying sorrow. He says that he did not, as many do, out of their impatience of grief or murmuring, either accuse God of cruelty or tyranny, or utter blasphemous words by which dishonour might fall upon God, or by indulging in sorrow and distrust hasten his own destruction, or fill the air with vain complaining, but fled straight to God and to him unburdened his sorrow, and sought that he would not shut him out from that grace which he bountifully offers to all. This is the only and sure sovereign remedy which most effectually heals his griefs. &mdash; *Mollerus* 
 
 **Verse 1 &mdash;** *I cried.* To the Orientals the word qeu presented the idea of a *crash,* as of the heavens sending out thunders and lightnings. Whence beyond other things he metaphorically says, *he cried for sorrow;*&mdash; shaken with a tempest of thoughts he burst out into an open and loud sounding complaint. &mdash; *Hermann Venema* 
@@ -141,8 +147,6 @@ weight: 77
 **Verse 1 &mdash;** *Even unto God with my voice.* The repetition here is emphatic. The idea is that it was an earnest or fervent cry. &mdash; *Albert Barnes* 
 
 **Verse 1 &mdash;** (*last clause*). At the second knock, the door of grace flew open: *the Lord heard me.* &mdash; *John Collings* 
-
-**Whole Psalm &mdash;** *See Psalms on "Ps 77:1"* for further information.
 
 **Verse 2 &mdash;** *In the day of my trouble I sought the Lord.* Days of trouble must be days of prayer; in days of inward trouble, especially when God seems to have withdrawn from us, we must seek him, and seek till we find him. In the day of his trouble he did not seek for the diversions of business or recreation, to shake off his trouble that way, but he sought God, and his favour and grace. Those that are under trouble of mind, must not think to drink it away, or laugh it away, but pray it away. &mdash; *Matthew Henry* 
 
