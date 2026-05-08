@@ -1,5 +1,9 @@
 ---
+title: "Psalm 69 | The Treasury of David"
+linkTitle: '69'
 weight: 69
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This Psalm consists of two portions of 18 verses each.
 ---
 
 # Psalm 69
@@ -136,7 +140,7 @@ O God, in the multitude of thy mercy hear me. Even the perfect one makes his app
 > Reproach hath broken my heart; and I am full of heaviness: and I looked *for some* to take pity, but *there was* none; and for comforters, but I found none.
 
 *Reproach hath broken my heart.* There is no hammer like it. Our Lord died of a broken heart, and reproach had done the deed. Intense mental suffering arises from slander; and in the case of the sensitive nature of the immaculate Son of Man, it sufficed to lacerate the heart till it broke. "Then burst his mighty heart." And I am full of heaviness. Calumny and insult bowed him to the dust; he was sick at heart. The heaviness of our Lord in the garden is expressed by many and forcible words in the four gospels, and each term goes to show that the agony was beyond measure great; he was filled with misery, like a vessel which is full to the brim. And I looked for some to take pity, but there was none. "Deserted in his utmost need by those his former bounty fed." Not one to say him a kindly word, or drop a sympathetic tear. Amongst ten thousand foes there was not one who was touched by the spectacle of his misery; not one with a heart capable of humane feeling towards him. And for comforters, but I found none. His dearest ones had sought their own safety, and left their Lord alone. A sick man needs comforters, and a persecuted man needs sympathy; but our blessed Surety found neither on that dark and doleful night when the powers of darkness had their hour. A spirit like that of our Lord feels acutely desertion by beloved and trusted friends, and yearns for real sympathy. This may be seen in the story of Gethsemane:—
-> 
+ 
 > "Backwards and forwards thrice he ran.  
 > As if he sought some help from man;  
 > Or wished, at least, they would condole—  

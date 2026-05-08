@@ -1,5 +1,9 @@
 ---
+title: "Psalm 70 | The Treasury of David"
+linkTitle: '70'
 weight: 70
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. ## Exposition'
 ---
 
 # Psalm 70
@@ -56,7 +60,7 @@ Anger against enemies must not make us forget our friends, for it is better to p
 > Then with the souls who seek thy face,  
 > And those who thy salvation prize,  
 > I will magnify thy matchless grace.  
-> 
+ 
 ## Explanatory Notes & Quaint Sayings
 
 **Verse 2 &mdash;** *Let them be confounded;* viz., among themselves, and in their own understandings: *and put to shame;* viz., in the sight and presence of men before whom they think to attain great glory, in banding themselves against me. &mdash; *Thomas Wilcocks* 

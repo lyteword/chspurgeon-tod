@@ -1,5 +1,9 @@
 ---
+title: "Psalm 66 | The Treasury of David"
+linkTitle: '66'
 weight: 66
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Praise is the topic, and the subjects for song are the Lord's great works, his gracious benefits, his faithful deliverances, and all his dealings with his people, brought to a close by a personal testimony to special kindness received by the prophet bard himself.
 ---
 
 # Psalm 66
