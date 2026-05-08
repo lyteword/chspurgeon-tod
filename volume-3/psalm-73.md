@@ -1,5 +1,9 @@
 ---
+title: "Psalm 73 | The Treasury of David"
+linkTitle: '73'
 weight: 73
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Curiously enough this Seventy-third Psalm corresponds in subject with the Thirty-seventh: it will help the memory of the young to notice the reversed figures.
 ---
 
 # Psalm 73
