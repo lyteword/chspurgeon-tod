@@ -1,5 +1,9 @@
 ---
+title: "Psalm 99 | The Treasury of David"
+linkTitle: '99'
 weight: 99
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This may be called The Sanctus, or, The Holy, Holy, Holy Psalm, for the word "holy" is the conclusion and the refrain of its three main divisions. 
 ---
 
 # Psalm 99

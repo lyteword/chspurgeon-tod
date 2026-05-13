@@ -1,5 +1,9 @@
 ---
+title: "Psalm 86 | The Treasury of David"
+linkTitle: '86'
 weight: 86
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The psalm is irregular in its construction but may be divided into three portions, each ending with a note of gratitude or of confidence: we shall therefore read from Ps 86:1-7, and then, (after another pause at the end of Ps 86:13), we will continue to the end.
 ---
 
 # Psalm 86

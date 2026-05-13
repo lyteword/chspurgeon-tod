@@ -1,5 +1,9 @@
 ---
+title: "Psalm 100 | The Treasury of David"
+linkTitle: '100'
 weight: 100
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. With one consent let all the earth To God their cheerful voices raise." In this divine lyric we sing with gladness the creating power and goodness of the Lord, even as before with trembling we adored his holiness.
 ---
 
 # Psalm 100
@@ -46,7 +50,7 @@ weight: 100
 *For the Lord is good.* This sums up his character and contains a mass of reasons for praise. He is good, gracious, kind, bountiful, loving; yea, God is love. He who does not praise the good is not good himself. The kind of praise inculcated in the Psalm, viz., that of joy and gladness, is most fitly urged upon us by an argument from the goodness of God. His mercy is everlasting. God is not mere justice, stern and cold; he has bowels of compassion, and wills not the sinner's death. Towards his own people mercy is still more conspicuously displayed; it has been theirs from all eternity, and shall be theirs world without end. Everlasting mercy is a glorious theme for sacred song. And his truth endureth to all generations. No fickle being is he, promising and forgetting. He has entered into covenant with his people, and he will never revoke it, nor alter the thing that has gone out of his lips. As our fathers found him faithful, so will our sons, and their seed for ever. A changeable God would be a terror to the righteous, they would have no sure anchorage, and amid a changing world they would be driven to and fro in perpetual fear of shipwreck. It were well if the truth of divine faithfulness were more fully remembered by some theologians; it would overturn their belief in the final fall of believers, and teach them a more consolatory system. Our heart leaps for joy as we bow before One who has never broken his word or changed his purpose.
 
 > "As well might he his being quit  
-> As break his promise or forget."
+> As break his promise or forget."  
 
 Resting on his sure word, we feel that joy which is here commanded, and in the strength of it we come into his presence even now, and speak good of his name.
 

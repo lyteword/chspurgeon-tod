@@ -1,10 +1,14 @@
 ---
+title: "Psalm 92 | The Treasury of David"
+linkTitle: '92'
 weight: 92
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The Sabbath was set apart for adoring the Lord in his finished work of creation, hence the suitableness of this Psalm; Christians may take even a higher flight, for they celebrate complete redemption. 
 ---
 
 # Psalm 92
 
-**Title &mdash;** *A Psalm or Song for the Sabbath day. This admirable composition is both a Psalm and a Song, full of equal measures of solemnity and joy; and it was intended to be sung upon the day of rest. The subject is the praise of God; praise is Sabbatic work, the joyful occupation of resting hearts. Since a true Sabbath can only be found in God, it is wise to meditate upon him on the Sabbath day. The style is worthy of the theme and of the day, its inspiration is from the "fount of every blessing"; David spake as the Spirit gave him utterance. In the church of Christ, at this hour, no Psalm is more frequently sung upon the Lord's day than the present. The delightful version of Dr. Watts is familiar to us all&mdash;* "Sweet is the work, my God, my King, To praise thy name, give thanks, and sing;  To shew thy love by morning light,  And talk of all thy truth at night."*
+**Title &mdash;** *A Psalm or Song for the Sabbath day. This admirable composition is both a Psalm and a Song, full of equal measures of solemnity and joy; and it was intended to be sung upon the day of rest. The subject is the praise of God; praise is Sabbatic work, the joyful occupation of resting hearts. Since a true Sabbath can only be found in God, it is wise to meditate upon him on the Sabbath day. The style is worthy of the theme and of the day, its inspiration is from the "fount of every blessing"; David spake as the Spirit gave him utterance. In the church of Christ, at this hour, no Psalm is more frequently sung upon the Lord's day than the present. The delightful version of Dr. Watts is familiar to us all&mdash;* "Sweet is the work, my God, my King, To praise thy name, give thanks, and sing; To shew thy love by morning light, And talk of all thy truth at night."*
 
 *The Sabbath was set apart for adoring the Lord in his finished work of creation, hence the suitableness of this Psalm; Christians may take even a higher flight, for they celebrate complete redemption. No one acquainted with David's style will hesitate to ascribe to him the authorship of this divine hymn; the ravings of the Rabbis who speak of its being composed by Adam, only need to be mentioned to be dismissed. Adam in Paradise had neither harps to play upon, nor wicked men to contend with.*
 
@@ -23,7 +27,7 @@ weight: 92
 *To shew forth thy loving kindness in the morning.* The day should begin with praise: no hour is too early for holy song. Loving kindness is a most appropriate theme for those dewy hours when morn is sowing all the earth with orient pearl. Eagerly and promptly should we magnify the Lord; we leave unpleasant tasks as long as we can, but our hearts are so engrossed with the adoration of God that we would rise betimes to attend to it. There is a peculiar freshness and charm about early morning praises; the day is loveliest when it first opens its eyelids, and God himself seems then to make distribution of the day's manna, which tastes most sweetly if gathered ere the sun is hot. It seems most meet that if our hearts and harps have been silent through the shades of night we should be eager again to take our place among the chosen choir who ceaselessly hymn the Eternal One. And thy faithfulness every night. No hour is too late for praise, the end of the day must not be the end of gratitude. When nature seems in silent contemplation to adore its Maker, it ill becomes the children of God to refrain their thanksgiving. Evening is the time for retrospect, memory is busy with the experience of the day, hence the appropriate theme for song is the divine *faithfulness,* of which another day has furnished fresh evidences. When darkness has settled down over all things, "a shade immense", then there comes over wise men a congenial, meditative spirit, and it is most fitting that they should take an expanded view of the truth and goodness of Jehovah—
 
 > "This sacred shade and solitude, what is it?  
-> It is the felt presence of the Deity."
+> It is the felt presence of the Deity."  
 
 "Every night, "clouded or clear, moonlit or dark, calm or tempestuous, is alike suitable for a song upon the faithfulness of God, since in all seasons, and under all circumstances, it abides the same, and is the mainstay of the believer's consolation. Shame on us that we are so backward in magnifying the Lord, who in the daytime scatters bounteous love, and in the night season walks his rounds of watching care.
 

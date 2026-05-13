@@ -1,5 +1,9 @@
 ---
+title: "Psalm 95 | The Treasury of David"
+linkTitle: '95'
 weight: 95
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. It would be correct as to the sense to divide this psalm into an invitation and a warning so as to commence the second part with the last clause of Ps 95:7: but upon the whole it may be more convenient to regard Ps 95:6 as "the beating heart of the psalm, "as Hengstenberg calls it, and make the division at the end of Ps 95:5.
 ---
 
 # Psalm 95
@@ -17,7 +21,7 @@ weight: 95
 *O come, let us sing unto the Lord.* Other nations sing unto their gods, let us sing unto Jehovah. We love him, we admire him, we reverence him, let us express our feelings with the choicest sounds, using our noblest faculty for its noblest end. It is well thus to urge others to magnify the Lord, but we must be careful to set a worthy example ourselves, so that we may be able not only to cry "Come", but also to add " *let us* sing", because we are singing ourselves. It is to be feared that very much even of religious singing is not unto the Lord but unto the car of the congregation: above all things we must in our service of song take care that all we offer is with the heart's sincerest and most fervent intent directed toward the Lord himself. Let us make a joyful noise to the rock of our salvation. With holy enthusiasm let us sing, making a sound which shall indicate our earnestness; with abounding joy let us lift up our voices, actuated by that happy and peaceful spirit which trustful love is sure to foster. As the children of Israel sang for joy when the smitten rock poured forth its cooling streams, so let us make a joyful noise to the rock of our salvation. The author of this song had in his mind's eye the rock, the tabernacle, the Red Sea, and the mountains of Sinai, and he alludes to them all in this first part of his hymn. God is our abiding, immutable, and mighty rock, and in him we find deliverance and safety, therefore it becomes us to praise him with heart and with voice from day to day; and especially should we delight to do this when we assemble as his people for public worship.
 
 > "Come let us to the Lord sing out  
-> With trumpet voice and choral shout."
+> With trumpet voice and choral shout."  
 
 it becomes us to praise him with heart and with voice from day to day; and especially should we delight to do this when we assemble as his people for public worship.
 
@@ -64,7 +68,7 @@ Here the exhortation to worship is renewed and backed with a motive which, to Is
 *Harden not your heart.* If ye will hear, learn to fear also. The sea and the land obey him, do not prove more obstinate than they!
 
 > "Yield to his love who round you now  
-> The bands of a man would east."
+> The bands of a man would east."  
 
 We cannot soften our hearts, but we can harden them, and the consequences will be fatal. Today is too good a day to be profaned by the hardening of our hearts against our own mercies. While mercy reigns let not obduracy rebel. "As in the provocations, and as in the day of temptation in the wilderness" (or, "like Meribah, like the day of Massah in the wilderness"). Be not wilfully, wantonly, repeatedly, obstinately rebellious. Let the example of that unhappy generation serve as a beacon to you; do not repeat the offences which have already more than enough provoked the Lord. God remembers men's sins, and the more memorably so when they are committed by a favoured people, against frequent warnings, in defiance of terrible judgments, and in the midst of superlative mercies; such sins write their record in marble. Reader, this verse is for you, for you even if you can say, "He is our God, and we are the people of his pasture." Do not seek to turn aside the edge of the warning; thou hast good need of it, give good heed to it.
 

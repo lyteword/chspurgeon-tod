@@ -1,5 +1,9 @@
 ---
+title: "Psalm 101 | The Treasury of David"
+linkTitle: '101'
 weight: 101
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This is just such a psalm as the man after God's own heart would compose when he was about to become king in Israel. 
 ---
 
 # Psalm 101
@@ -148,7 +152,7 @@ The holy vow "to destroy all the wicked of the lands": and to "cut off all wicke
 
 **Verse 1 &mdash;** The blending of song with holy living. The bell of praise and the pomegranate of holy fruitfulness should both adorn the Lord's priests.
 
-**Verse 2 &mdash;**  1\. The end desired: "To behave wisely, "etc.; consistency of conduct. 2\. The means employed: "When wilt thou come, "etc.; only when God is with us we walk in a perfect way. 3\. The test proposed: "Within my house, "where I am most myself and am best known. &mdash; *G. R.* 
+**Verse 2 &mdash;** 1\. The end desired: "To behave wisely, "etc.; consistency of conduct. 2\. The means employed: "When wilt thou come, "etc.; only when God is with us we walk in a perfect way. 3\. The test proposed: "Within my house, "where I am most myself and am best known. &mdash; *G. R.* 
 
 **Verse 2 &mdash;** —The wisdom of holiness. 1\. In selecting our sphere of duty. 2\. In timing,: arranging, and balancing duties. 3\. In managing others according to their tempers. 4\. In avoiding disputes with adversaries. 5\. In administering rebuke, giving alms, rendering advice, etc.; the blending of the serpent with the dove.
 
@@ -156,7 +160,7 @@ The holy vow "to destroy all the wicked of the lands": and to "cut off all wicke
 
 **Verse 2** (last clause). Home piety. Its duty, excellence, influence, sphere, and reward. Note also the change of heart and firmness of purpose necessary to it.
 
-**Verse 3 &mdash;**  1\. The sight of wickedness is to be avoided: "I will set no wicked thing, "etc. 2\. When seen it is to be loathed: "I Hate, "etc. 3\. When felt it is to be repudiated. It may touch me, but "it shall not cleave to me."
+**Verse 3 &mdash;** 1\. The sight of wickedness is to be avoided: "I will set no wicked thing, "etc. 2\. When seen it is to be loathed: "I Hate, "etc. 3\. When felt it is to be repudiated. It may touch me, but "it shall not cleave to me."
 
 **Verse 4 &mdash;** The need of extreme care in the choice of our intimates.
 

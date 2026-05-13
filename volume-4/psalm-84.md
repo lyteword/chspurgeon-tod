@@ -1,5 +1,9 @@
 ---
+title: "Psalm 84 | The Treasury of David"
+linkTitle: '84'
 weight: 84
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. It matters little when this Psalm was written, or by whom; for our part it exhales to us a Davidic perfume, it smells of the mountain heather and the lone places of the wilderness, where King David must have often lodged during his many wars.
 ---
 
 # Psalm 84

@@ -1,5 +1,9 @@
 ---
+title: "Psalm 103 | The Treasury of David"
+linkTitle: '103'
 weight: 103
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. First the Psalmist sings of personal mercies which he had himself received Ps 103:1-5; then he magnifies the attributes of Jehovah as displayed in his dealings with his people, Ps 103:6-19; and he closes by calling upon all the creatures in the universe to adore the Lord and join with himself in blessing Jehovah, the ever gracious.
 ---
 
 # Psalm 103
@@ -121,7 +125,7 @@ All the world tastes of his sparing mercy, those who hear the gospel partake of 
 *For the wind passeth over it, and it is gone.* Only a little wind is needed, not even a scythe is demanded, a breath can do it, for the flower is so frail.
 
 > "If one sharp wind sweep over the field,  
-> It withers in an hour."
+> It withers in an hour."  
 
 How small a portion of deleterious gas suffices to create a deadly fever, which no art of man can stay. No need of sword or bullet, a puff of foul air is deadlier far, and fails not to lay low the healthiest and most stalwart son of man. And the place thereof shall know it no more. The flower blooms no more. It may have a successor, but as for itself its leaves are scattered, and its perfume will never again sweeten the evening air. Man also dies and is gone, gone from his old haunts, his dear home, and his daily labours, never to return. As far as this world is concerned, he is as though he never had been; the sun rises, the moon increases or wanes, summer and winter run their round, the rivers flow, and all things continue in their courses as though they missed him not, so little a figure does he make in the affairs of nature. Perhaps a friend will note that he is gone, and say,
 

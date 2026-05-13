@@ -1,5 +1,9 @@
 ---
+title: "Psalm 82 | The Treasury of David"
+linkTitle: '82'
 weight: 82
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Asaph's sermon before the judges is now before us.
 ---
 
 # Psalm 82

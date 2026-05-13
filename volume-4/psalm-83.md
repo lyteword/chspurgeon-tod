@@ -1,5 +1,9 @@
 ---
+title: "Psalm 83 | The Treasury of David"
+linkTitle: '83'
 weight: 83
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. An appeal to God in a general manner fills Ps 83:1-4; and then the psalmist enters into details of the league, Ps 83:5-8.
 ---
 
 # Psalm 83
