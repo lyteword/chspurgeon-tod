@@ -3,7 +3,7 @@ title: "Psalm 80 | The Treasury of David"
 linkTitle: '80'
 weight: 80
 description: >
-  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. **Division &mdash;** *The Psalm divides itself naturally at the refrain which occurs three times: "Turn us again, O God, "etc.
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The Psalm divides itself naturally at the refrain which occurs three times: "Turn us again, O God," etc.
 ---
 
 # Psalm 80

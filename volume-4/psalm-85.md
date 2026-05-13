@@ -1,5 +1,9 @@
 ---
+title: "Psalm 85 | The Treasury of David"
+linkTitle: '85'
 weight: 85
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. It is the prayer of a patriot for his afflicted country, in which he pleads the Lord's former mercies, and by faith foresees brighter days.
 ---
 
 # Psalm 85

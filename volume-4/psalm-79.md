@@ -3,7 +3,7 @@ title: "Psalm 79 | The Treasury of David"
 linkTitle: '79'
 weight: 79
 description: >
-  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. **Division &mdash;** *From Ps 79:1-4 the complaint is poured out, from Ps 79:5-12 prayer is presented, and, in the closing verse, praise is promised.*
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. From Ps 79:1-4 the complaint is poured out, from Ps 79:5-12 prayer is presented, and, in the closing verse, praise is promised.
 ---
 
 # Psalm 79
