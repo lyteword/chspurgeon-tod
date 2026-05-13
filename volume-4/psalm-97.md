@@ -1,5 +1,9 @@
 ---
+title: "Psalm 97 | The Treasury of David"
+linkTitle: '97'
 weight: 97
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The psalm divides itself into four portions, each containing three verses.
 ---
 
 # Psalm 97

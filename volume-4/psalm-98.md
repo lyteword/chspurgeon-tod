@@ -1,5 +1,9 @@
 ---
+title: "Psalm 98 | The Treasury of David"
+linkTitle: '98'
 weight: 98
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. We have here three stanzas of three verses each.
 ---
 
 # Psalm 98

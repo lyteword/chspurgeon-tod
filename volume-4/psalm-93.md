@@ -1,5 +1,9 @@
 ---
+title: "Psalm 93 | The Treasury of David"
+linkTitle: '93'
 weight: 93
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This brief Psalm is without title or name of author, but its subject is obvious enough, being stated in the very first line. It is the Psalm of Omnipotent Sovereignty.
 ---
 
 # Psalm 93

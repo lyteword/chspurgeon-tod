@@ -1,5 +1,9 @@
 ---
+title: "Psalm 96 | The Treasury of David"
+linkTitle: '96'
 weight: 96
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. We will make none, for the song is one and indivisible, a garment of praise without seam, woven from the top throughout.
 ---
 
 # Psalm 96
@@ -104,7 +108,7 @@ The first six verses commenced with an exhortation to sing, three times repeated
 
 **Whole Psalm &mdash;** This psalm is entitled in the *Septuagint, "A Hymn of David; when the Temple was rebuilt after the Captivity, "* and this appears to be a true description of it; for the substance of it is found in 1Ch 16:23-33, where it is described as having been delivered by David into the hand of Asaph and his brethren, to thank the Lord when the Ark was brought up to Zion. David's Psalm here receives a new name, and is called a *new song (sir chadash)*, because new mercies of God were now to be celebrated; mercies greater than David had ever received, even when he brought the Ark to Zion. They who now sang the old song, which had thus become a new song, identified themselves with David, and identified him with themselves. &mdash; *Chr. Wordsworth* 
 
-**Whole Psalm &mdash;** Subject.—Call to praise, in view of Christ's second advent and glorious reign.— *To apply it.* —Look forward to the glorious day of the Lord's coming; and realize its approach that you may prepare for it. &mdash; *A. R. C. Dallas* 
+**Whole Psalm &mdash;** Call to praise, in view of Christ's second advent and glorious reign.— *To apply it.* —Look forward to the glorious day of the Lord's coming; and realize its approach that you may prepare for it. &mdash; *A. R. C. Dallas* 
 
 **Verse 1 &mdash;** *O sing unto the Lord a new song,* etc. "A *new* song, " unknown to you before. Come, all ye nations of the wide earth, who, up to this hour, have been giving your worship to dead gods that were no gods at all; come and give your hearts to the true and only God in this *new* song! &mdash; *Henry Cowles* 
 

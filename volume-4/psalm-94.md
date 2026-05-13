@@ -1,5 +1,9 @@
 ---
+title: "Psalm 94 | The Treasury of David"
+linkTitle: '94'
 weight: 94
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. In Ps 94:1-7 the psalmist utters his complaint against wicked oppressors.
 ---
 
 # Psalm 94
@@ -121,7 +125,7 @@ Notwithstanding the psalmist's persuasion that all would be well eventually, he 
 
 > When I said, My foot slippeth; thy mercy, O Lord, held me up.
 
-*When I said, My foot slippeth* —is slipping even now: I perceived my danger, and cried out in horror, and then, at the very moment of my extremity, came the needed help, thy mercy, O Lord, held me up. Often enough is this the case, we feel our weakness, and see our danger, and in fear and trembling we cry out. At such times nothing can help us but *mercy*; we can make no appeal to any fancied merit, for we feel that it is our inbred sin which makes our feet so ready to fail us; our joy is that mercy endureth for ever, and is always at hand to pluck us out of the danger, and hold us up, where else we should fall to our destruction. Ten thousand times has this verse been true in relation to some of us, and especially to the writer of this comment. The danger was imminent, it was upon us, we were going; the peril was apparent, we saw it, and were aghast at the sight; our own heart was failing, and we concluded that it was all over with us; but then came the almighty interposition: we did not fail, we were held up by an unseen hand, the devices of the enemy were frustrated, and we sang for joy. O faithful Keeper of our souls, be thou extolled for ever and ever. We will bless the Lord at all times, his praise shall continually be in our mouths.
+*When I said, My foot slippeth*—is slipping even now: I perceived my danger, and cried out in horror, and then, at the very moment of my extremity, came the needed help, thy mercy, O Lord, held me up. Often enough is this the case, we feel our weakness, and see our danger, and in fear and trembling we cry out. At such times nothing can help us but *mercy*; we can make no appeal to any fancied merit, for we feel that it is our inbred sin which makes our feet so ready to fail us; our joy is that mercy endureth for ever, and is always at hand to pluck us out of the danger, and hold us up, where else we should fall to our destruction. Ten thousand times has this verse been true in relation to some of us, and especially to the writer of this comment. The danger was imminent, it was upon us, we were going; the peril was apparent, we saw it, and were aghast at the sight; our own heart was failing, and we concluded that it was all over with us; but then came the almighty interposition: we did not fail, we were held up by an unseen hand, the devices of the enemy were frustrated, and we sang for joy. O faithful Keeper of our souls, be thou extolled for ever and ever. We will bless the Lord at all times, his praise shall continually be in our mouths.
 
 ### Verse 19
 
@@ -159,7 +163,7 @@ The natural result of oppression is the destruction of the despot; his own iniqu
 
 **Verse 1 &mdash;** I do not think that we sufficiently attend to the distinction that exists between revenge and vengeance. "Revenge, "says Dr. Johnson, "is an act of passion, vengeance of justice; injuries are revenged, crimes avenged." And it is from not attending to this essential distinction that the scorner has been led into such profane remarks, as if there were a vindictive spirit in the Almighty, and as if he found delight in wreaking vengeance on an adversary. The call which the psalmist here makes on God as a God to whom vengeance belongeth, is no other than if he had said, "O God, to whom justice belongeth!" Vengeance indeed is not for man, because with man's feelings and propensities it would ever degenerate into revenge. "I wilt be even with him, "says nature; "I will be above him, "says grace. &mdash; *Barton Bouchier* 
 
-**Verse 1 &mdash;** The two divine names (*El* and *Jehovah* , — *God* and *Lord*) recognize God as almighty, eternal, self existent, bound by covenant to his people, and alone entitled to take vengeance. &mdash; *J. A. Alexander* 
+**Verse 1 &mdash;** The two divine names (*El* and *Jehovah*—*God* and *Lord*) recognize God as almighty, eternal, self existent, bound by covenant to his people, and alone entitled to take vengeance. &mdash; *J. A. Alexander* 
 
 **Verses 1-6 &mdash;** "Avenge, O Lord, thy slaughtered saints, whose bones Lie scattered on the Alpine mountains cold; Even them who kept thy truth so pure of old, When all our fathers worshipped stocks and stones, Forget not: in thy book record their groans Who were thy sheep, and in their ancient fold Slain by the bloody Piemontese that rolled Mother with infant down the rocks. Their moans The vales redoubled to the hills, and they To heaven. Their martyred blood and ashes sow Over all the Italian fields, where still doth sway The triple Tyrant; that from these may grow A hundredfold, who having learned the way, Early may fly the Babylonian woe." &mdash; *John Milton* 
 

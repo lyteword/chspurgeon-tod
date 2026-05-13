@@ -1,5 +1,9 @@
 ---
+title: "Psalm 91 | The Treasury of David"
+linkTitle: '91'
 weight: 91
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. In the whole collection there is not a more cheering Psalm, its tone is elevated and sustained throughout, faith is at its best, and speaks nobly.
 ---
 
 # Psalm 91
@@ -85,7 +89,7 @@ Before expounding these verses I cannot refrain from recording a personal incide
 Because thou hast made the Lord, which is my refuge, even the most *High, thy habitation; there shall no evil befall thee, neither shall any plague come nigh thy dwelling.* The effect upon my heart was immediate. Faith appropriated the passage as her own. I felt secure, refreshed, girt with immortality. I went on with my visitation of the dying in a calm and peaceful spirit; I felt no fear of evil, and I suffered no harm. The providence which moved the tradesman to place those verses in his window I gratefully acknowledge, and in the remembrance of its marvellous power I adore the Lord my God. The psalmist in these verses assures the man who dwells in God that he shall be secure. Though faith claims no merit of its own, yet the Lord rewards it wherever he sees it. He who *makes* God his refuge shall find him a refuge; he who dwells in God shall find his dwelling protected. We must *make* the Lord our habitation by choosing him for our trust and rest, and then we shall receive immunity from harm; no evil shall touch us personally, and no stroke of judgment shall assail our household. The *dwelling* here intended by the original was only a tent, yet the frail covering would prove to be a sufficient shelter from harm of all sorts. It matters little whether our abode be a gypsy's hut or a monarch's palace if the soul has made the Most High its habitation. Get into God and you dwell in all good, and ill is banished far away. It is not because we are perfect or highly esteemed among men that we can hope for shelter in the day of evil, but because our refuge is the Eternal God, and our faith has learned to hide beneath his sheltering wing.
 
 > "For this no ill thy cause shall daunt,  
-> No scourge thy tabernacle haunt."
+> No scourge thy tabernacle haunt."  
 
 It is impossible that any ill should happen to the man who is beloved of the Lord; the most crushing calamities can only shorten his journey and hasten him to his reward. Ill to him is no ill, but only good in a mysterious form. Losses enrich him, sickness is his medicine, reproach is his honour, death is his gain. No evil in the strict sense of the word can happen to him, for everything is overruled for good. Happy is he who is in such a case. He is secure where others are in peril, he lives where others die.
 
