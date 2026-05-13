@@ -1,5 +1,9 @@
 ---
+title: "Psalm 102 | The Treasury of David"
+linkTitle: '102'
 weight: 102
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This is a patriot's lament over his country's distress.
 ---
 
 # Psalm 102
