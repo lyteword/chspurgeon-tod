@@ -1,5 +1,9 @@
 ---
+title: "Psalm 89 | The Treasury of David"
+linkTitle: '89'
 weight: 89
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. We have now reached the majestic Covenant Psalm, which, according to the Jewish arrangement closes the third book of the Psalms. 
 ---
 
 # Psalm 89
@@ -87,7 +91,7 @@ With my mouth will I make known thy faithfulness to all *generations.* The utter
 *The north and the south thou hast created them.* North and south, opposite poles, agree in this—that Jehovah fashioned them. Tabor and Hermon shall rejoice in thy name, that is to say, east and west are equally formed by thee, and therefore give thee praise. Turn to all points of the compass, and behold the Lord is there. The regions of snow and the gardens of the sun are his dominions: both the land of the dawning and the home of the setting sun rejoice to own his sway. Tabor was on the west of Jordan and Hermon on the east, and it seems natural to consider these two mountains as representatives of the east and west. Keble paraphrases the passage thus:
 
 > "Both Heman moist, and Tabor lone,  
-> They wait on thee with glad acclaim."
+> They wait on thee with glad acclaim."  
 
 ### Verse 13
 

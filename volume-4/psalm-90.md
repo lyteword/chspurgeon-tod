@@ -1,5 +1,9 @@
 ---
+title: "Psalm 90 | The Treasury of David"
+linkTitle: '90'
 weight: 90
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Moses sings of the frailty of man, and the shortness of life, contrasting therewith the eternity of God, and founding thereon earnest appeals for compassion.
 ---
 
 # Psalm 90
@@ -28,9 +32,8 @@ weight: 90
 
 *Thou turnest man to destruction*, or "to dust." Man's body is resolved into its elements, and is as though it had been crushed and ground to powder. And sayest, Return, ye children of men, *i.e.,* return even to the dust out of which ye were taken. The frailty of man is thus forcibly set forth; God creates him out of the dust, and back to dust he goes at the word of his Creator. God resolves and man dissolves. A word created and a word destroys. Observe how the action of God is recognised; man is not said to die because of the decree of faith, or the action of inevitable law, but the Lord is made the agent of all, his hand turns and his voice speaks; without these we should not die, no power on earth or hell could kill us.
 
-"An angel's arm cannot save me from the grave,
-
-Myriads of angels cannot confine me there."
+> "An angel's arm cannot save me from the grave,  
+> Myriads of angels cannot confine me there."  
 
 ### Verse 4
 
