@@ -152,7 +152,7 @@ The holy vow "to destroy all the wicked of the lands": and to "cut off all wicke
 
 **Verse 1 &mdash;** The blending of song with holy living. The bell of praise and the pomegranate of holy fruitfulness should both adorn the Lord's priests.
 
-**Verse 2 &mdash;**  1\. The end desired: "To behave wisely, "etc.; consistency of conduct. 2\. The means employed: "When wilt thou come, "etc.; only when God is with us we walk in a perfect way. 3\. The test proposed: "Within my house, "where I am most myself and am best known. &mdash; *G. R.* 
+**Verse 2 &mdash;** 1\. The end desired: "To behave wisely, "etc.; consistency of conduct. 2\. The means employed: "When wilt thou come, "etc.; only when God is with us we walk in a perfect way. 3\. The test proposed: "Within my house, "where I am most myself and am best known. &mdash; *G. R.* 
 
 **Verse 2 &mdash;** —The wisdom of holiness. 1\. In selecting our sphere of duty. 2\. In timing,: arranging, and balancing duties. 3\. In managing others according to their tempers. 4\. In avoiding disputes with adversaries. 5\. In administering rebuke, giving alms, rendering advice, etc.; the blending of the serpent with the dove.
 

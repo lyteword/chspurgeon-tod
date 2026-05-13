@@ -370,7 +370,7 @@ With my mouth will I make known thy faithfulness to all *generations.* The utter
 
 **Verse 2 &mdash;** (*last clause*). The meaning of this passage appears to be, that the constancy of the celestial motions, the regular vicissitudes of day and night, and alternations of the seasons, were emblems of God's own immutability. &mdash; *R. Warner, 1828*
 
-**Verse 2 &mdash;**  For I have said, Thy mercies rise, A deathless structure, to the skies: The heavens were planted by thy hand, And, as the heavens, Thy truth shall stand. &mdash; *Richard Mant* 
+**Verse 2 &mdash;** For I have said, Thy mercies rise, A deathless structure, to the skies: The heavens were planted by thy hand, And, as the heavens, Thy truth shall stand. &mdash; *Richard Mant* 
 
 **Verse 3 &mdash;** *I have made a covenant with my chosen.* We must ponder here with pious wonder how God has deigned to enter into a covenant with man, the immortal with the mortal, the most powerful with the weakest, the most just with the most unjust, the richest with the poorest, the most blessed with the most wretched. The prophet wonders that God is mindful of man, and visits the son of man. Of how much greater admiration, I say is it worthy, that they are also joined together, and that not after a simple fashion, but by the ties of a covenant? If man had affirmed this of himself, that God was united and bound to him by a covenant, who is there that would not have condemned him of temerity? Now God himself is introduced affirming this very thing of himself, that he had made a covenant with man. What saint does not see in this thing, how great the filanyrwpia of God is! &mdash; *Musculus* 
 
@@ -544,7 +544,7 @@ With my mouth will I make known thy faithfulness to all *generations.* The utter
 
 **Verse 48 &mdash;** Death spares no *rank,* no *condition* of men. Kings as well as subjects, princes as well as the meanest rustics are liable to this fatal stroke. The lofty cedars and low shrubs; palaces and cottages are alike here. Indeed, we read that Julius Caesar bid the master of the ship wherein he was sailing, take courage notwithstanding the boisterous tempest, because he had Caesar and his fortunes embarked in his vessel, as much as to say, the element on which they then were could not prove fatal to an emperor, to so great a one as he was. Our William surnamed Rufus said, he never heard of a king that was drowned. And Charles the Fifth, at the Battle of Tunis, being advised to retire when the great ordnance began to play, told them that it was never known that an emperor was slain with great shot, and so rushed into the battle. But this we are sure of, it was never known or heard that any king or crowned head escaped the blow of death at last. The sceptre cannot keep off 'the arrows that fly by day, and the sickness which wastes at noonday; 'it is no screen, no guard against the shafts of death. We have heard of great tyrants and usurpers who vaunted that they had the power of life and death, and as absolutely disposed of men as Domitian did of flies; but we have heard likewise that in a short time (and generally the shorter the more furious they have been) their sceptres are fallen out of their hands; their crowns are toppled off their heads, and they are themselves snatched away by the King of Terrors. Or, if we speak of those royal personages that are mild and gentle, and like Vespasian are the darlings and delight of the people, yet these no less than others have their fatal hour, and their regal honour and majesty are laid in the dust. *The King doth not die,* may be a Common law maxim, but it is a falsehood according to the laws of God and Nature, and the established constitution of heaven. For God himself who hath said, *Ye are gods*, hath also added, *Ye shall die like men.* In the *Escurial* the palace of the Kings of Spain, is their *cemetery* too; there their royal ashes lie. So in the place where the kings and queens of England are crowned, their predecessors are entombed: to tell them, as it were, that their crowns exempt them not from the grave, and that there is no greatness and splendour that can guard them from the arrest of death. He regards the rich and wealthy no more than the poor and necessitous: he snatches persons out of their mansion houses and hereditary seats, as well as out of almshouses and hospitals. His dominion is over masters as well as servants, parents as well as children, superiors as well as inferiors. &mdash; *John Edwards* 
 
-**Verse 48 &mdash;**  The boast of heraldry, the pomp of power, And all that beauty, all that wealth ever gave, Await alike the inevitable hour— The paths of glory lead but to the grave. Can storied urn, or animated bust, Back to its mansions call the fleeting breath? Can Honour's voice provoke the silent dust, Or Flattery soothe the dull cold ear of Death? &mdash; *Thomas Gray, 1716-1771*
+**Verse 48 &mdash;** The boast of heraldry, the pomp of power, And all that beauty, all that wealth ever gave, Await alike the inevitable hour— The paths of glory lead but to the grave. Can storied urn, or animated bust, Back to its mansions call the fleeting breath? Can Honour's voice provoke the silent dust, Or Flattery soothe the dull cold ear of Death? &mdash; *Thomas Gray, 1716-1771*
 
 **Verse 50 &mdash;** *How I do bear in my bosom the reproach*, etc. I take the reproaches of thy servants and thine anointed, (1) as if they reproached me in mine own particular; or, (2) in that they lie so heavy upon my heart; or, (3) in that I am resolved quietly to endure them, and to swallow them down in silence, as not being indeed able to shake them off; because in the eye of reason our condition is at present so contrary to what we waited for; or, (4) in that their reproaches came not to his ears by hear say only, but were openly to his face cast as it were into his bosom. &mdash; *Arthur Jackson* 
 
@@ -564,63 +564,63 @@ With my mouth will I make known thy faithfulness to all *generations.* The utter
 
 ## Hints to the Village Preacher
 
-**Verse 1 &mdash;**  1\. Mercies celebrated. When?—"for ever." 2\. By whom?—by those who are the subjects of them. 3\. Therefore they must live for ever to celebrate them. 4\. Faithfulness declared. (a) To our own generation. (b) To succeeding generations by its influence upon others.
+**Verse 1 &mdash;** 1\. Mercies celebrated. When?—"for ever." 2\. By whom?—by those who are the subjects of them. 3\. Therefore they must live for ever to celebrate them. 4\. Faithfulness declared. (a) To our own generation. (b) To succeeding generations by its influence upon others.
 
 **Verse 2 &mdash;** — 1\. The Testimony. (a) To the constancy of Mercy: (1.) builds up its trophies every moment. (2.) It preserves them for ever. (b) To the constancy of Faithfulness. It remains as the ordinances of heaven. 2\. Its Confirmation. "I have said", etc., said it, (a) Upon the ground of Scripture. (b) of experience. (c) of reason. (d) of observation of others.
 
-**Verses 3-4 &mdash;**  1\. The Covenant made. With whom?—with David and in him with David's Lord and Son. The true David—the chosen one—the servant of the Father in redemption. 2\. For what?— (a) for his seed. He should have a seed and that seed should be established. (b) for himself, "his throne", etc. 3\. The Covenant confirmed. (a) By decree. "I have made", etc. (b) By promise. "I will establish." (c) By oath. "I have sworn."
+**Verses 3-4 &mdash;** 1\. The Covenant made. With whom?—with David and in him with David's Lord and Son. The true David—the chosen one—the servant of the Father in redemption. 2\. For what?— (a) for his seed. He should have a seed and that seed should be established. (b) for himself, "his throne", etc. 3\. The Covenant confirmed. (a) By decree. "I have made", etc. (b) By promise. "I will establish." (c) By oath. "I have sworn."
 
-**Verse 6 &mdash;** —We have a comparison between God and the most excellent in heaven and earth—challenge both worlds. 1\. The true God, sovereign of heaven and earth is incomparably great in his being and existence; (a) because his being is of himself *eternal;*  (b) because he is a *perfect* being; (c) because he is *independent;*  (d) because he is unchangeable. 2\. God is incomparably great in his attributes and perfections. (a) In his *holiness;*  (b) in his *wisdom* and *knowledge;*  (c) in his *power;*  (d) in his *justice;*  (e) in his patience; (f) in his *love* and *goodness.*  3\. God is incomparably great in his works—creation; providence; redemption, and human salvation. &mdash; *Theophilus Jones, 1830*
+**Verse 6 &mdash;** —We have a comparison between God and the most excellent in heaven and earth—challenge both worlds. 1\. The true God, sovereign of heaven and earth is incomparably great in his being and existence; (a) because his being is of himself *eternal;* (b) because he is a *perfect* being; (c) because he is *independent;* (d) because he is unchangeable. 2\. God is incomparably great in his attributes and perfections. (a) In his *holiness;* (b) in his *wisdom* and *knowledge;* (c) in his *power;* (d) in his *justice;* (e) in his patience; (f) in his *love* and *goodness.* 3\. God is incomparably great in his works—creation; providence; redemption, and human salvation. &mdash; *Theophilus Jones, 1830*
 
 **Verse 6 &mdash;** —The incomparableness of God, in his Being, Attributes, Works, and Word. &mdash; *Swinnock, (Nichol's Edition of Swinnock's Works, Volume 4, pages 373-508)*
 
-**Verses 6-7 &mdash;**  1\. In creation God is far above other beings. Ps 89:6. 2\. In Redemption he is far above himself in creation. Ps 89:7.
+**Verses 6-7 &mdash;** 1\. In creation God is far above other beings. Ps 89:6. 2\. In Redemption he is far above himself in creation. Ps 89:7.
 
 **Verses 9-10 &mdash;** God's present rule in the midst of confusion, and rebellion; and his ultimate overthrow of all adverse forces.
 
-**Verse 11 &mdash;**  1\. God's possession of heaven, the model of his possession of earth. 2\. God's possession of earth most certain, and its manifestation in the future most sure. 3\. The course of action suggested to his people by the two facts.
+**Verse 11 &mdash;** 1\. God's possession of heaven, the model of his possession of earth. 2\. God's possession of earth most certain, and its manifestation in the future most sure. 3\. The course of action suggested to his people by the two facts.
 
 **Verse 12 &mdash;** The joy of creation in its Creator.
 
-**Verse 14 &mdash;**  1\. The Equity of the divine government—"justice", etc. No creature can eventually be unjustly dealt with under his dominion, and his kingdom ruleth over all. 2\. The Sovereignty of the divine government. Truth before mercy. Mercy founded upon truth. "Thou wilt perform the truth to Jacob and the mercy to Abraham." The covenant made in mercy to Abraham is fulfilled in truth to Jacob.
+**Verse 14 &mdash;** 1\. The Equity of the divine government—"justice", etc. No creature can eventually be unjustly dealt with under his dominion, and his kingdom ruleth over all. 2\. The Sovereignty of the divine government. Truth before mercy. Mercy founded upon truth. "Thou wilt perform the truth to Jacob and the mercy to Abraham." The covenant made in mercy to Abraham is fulfilled in truth to Jacob.
 
-**Verse 15 &mdash;**  1\. The gospel is a joyful sound. Good tidings, etc. 2\. It is a joyful sound to those who know it, hear it, believe it, love it, obey it. 3\. They to whom it is a joyful sound are blessed. "They shall walk", etc.
+**Verse 15 &mdash;** 1\. The gospel is a joyful sound. Good tidings, etc. 2\. It is a joyful sound to those who know it, hear it, believe it, love it, obey it. 3\. They to whom it is a joyful sound are blessed. "They shall walk", etc.
 
-**Verse 15 &mdash;**  1\. There is a theoretical knowledge of the gospel. 2\. An experimental knowledge, and, 3\. A practical knowledge &mdash; *W. Drasfield, 1859*
+**Verse 15 &mdash;** 1\. There is a theoretical knowledge of the gospel. 2\. An experimental knowledge, and, 3\. A practical knowledge &mdash; *W. Drasfield, 1859*
 
 **Verse 16 &mdash;** — 1\. Exultation. (a) "In thy name", etc., as rich in mercy as the God of salvation—of all grace—of all consolation. (b) At what season—"all the day", morning, noon, and night. 2\. Exaltation. "In thy righteousness", etc. (a) How not exalted. Not in their own righteousness. (b) How exalted. "In *thy",* etc. Procured for them—by a divine person (*thy*)—imputed to them. Ours, though thine. The righteousness of God as God could not exalt us, but his righteousness as God man can. Exalted above hell, above earth, above Paradise, above angels. Exalted to friends of God—children of God—one with God, to heaven.
 
 **Verse 16 &mdash;** (*second clause*).—Consider, 1\. What the believer is exalted *above* or *from,* by God's righteousness. (a) It exalts him above the law. (b) Above the world. (c) Above the power and malice of Satan. (d) Above death. (e) Above all accusations (Ro 8:33-34.) 2\. *To* what happiness or dignity the believer is exalted by virtue of that righteousness. a) To a state of peace and reconciliation with God. (b) To sonship. (c) To fellowship and familiarity with God, and access to him. (d) And finally, to a state of endless glory. &mdash; *E. Erskine* 
 
-**Verse 17 &mdash;**  1\. The blessedness of the righteous. (a) Their internal glory. Reliance upon divine strength. (b) Their internal honour. "In thy favour", etc. 2\. The participation in that blessedness. The *their* of the people of God becomes *our.* Their strength our horn. Happy they, who, with respect to all the privileges of the saints, can thus turn *their* into *our.* 
+**Verse 17 &mdash;** 1\. The blessedness of the righteous. (a) Their internal glory. Reliance upon divine strength. (b) Their internal honour. "In thy favour", etc. 2\. The participation in that blessedness. The *their* of the people of God becomes *our.* Their strength our horn. Happy they, who, with respect to all the privileges of the saints, can thus turn *their* into *our.* 
 
-**Verse 17 &mdash;**  1\. Consider our natural weakness. 2\. Consider our strength in God. 3\. Give God the glory of it.
+**Verse 17 &mdash;** 1\. Consider our natural weakness. 2\. Consider our strength in God. 3\. Give God the glory of it.
 
-**Verse 18 &mdash;**  1\. Jehovah—his power, self existence, and majesty—our defence. 2\. The Holy One of Israel—his character, covenant character, and unity—our government.
+**Verse 18 &mdash;** 1\. Jehovah—his power, self existence, and majesty—our defence. 2\. The Holy One of Israel—his character, covenant character, and unity—our government.
 
-**Verse 19 &mdash;**  1\. The work required. "Help." (a) By whom? By God himself. (b) For what? To reconcile God to man, and man to God. 2\. The persons selected for this work. (a) Human. "Chosen out of the people." (b) Divine. "Thy Holy One." 3\. His qualifications for the work. (a) His own ability for the office. "One that is mighty." (b) His appointment to it by God. "I have laid." etc. "I have chosen", etc.
+**Verse 19 &mdash;** 1\. The work required. "Help." (a) By whom? By God himself. (b) For what? To reconcile God to man, and man to God. 2\. The persons selected for this work. (a) Human. "Chosen out of the people." (b) Divine. "Thy Holy One." 3\. His qualifications for the work. (a) His own ability for the office. "One that is mighty." (b) His appointment to it by God. "I have laid." etc. "I have chosen", etc.
 
 **Verse 19 &mdash;** (*last clause*). Election, extraction, exaltation.
 
-**Verses 20-21 &mdash;**  1\. The Messiah would be of the seed of David. The true David. 2\. He would be a servant of the Father. "My servant." 3\. He would be consecrated to his office by God. "With my holy oil", etc. 4\. He would perfectly fulfil it. "With whom my hand", etc. 5\. He would be sustained in it by the Father. "Mine arm", etc.
+**Verses 20-21 &mdash;** 1\. The Messiah would be of the seed of David. The true David. 2\. He would be a servant of the Father. "My servant." 3\. He would be consecrated to his office by God. "With my holy oil", etc. 4\. He would perfectly fulfil it. "With whom my hand", etc. 5\. He would be sustained in it by the Father. "Mine arm", etc.
 
 **Verse 22-23 &mdash;** 1\. A prophecy of the conflict of the Messiah with Satan. Satan could not exact any debt or homage for him. 2\. Of his refutation of his enemies. "I will beat down", etc. The Scribes and Pharisees were beaten down before his face. 3\. Of the destruction of their city and nation. "And plague them", etc.
 
 **Verse 26 &mdash;** Our Lord's filial spirit, and how it was displayed.
 
-**Verse 29 &mdash;**  1\. The subjects of Messiah's reign. "His seed." (a) For union—his seed. (b) For resemblance. (c) For multitude. 2\. The duration of his reign. (a) They for ever one with him. (b) He for ever on the throne.
+**Verse 29 &mdash;** 1\. The subjects of Messiah's reign. "His seed." (a) For union—his seed. (b) For resemblance. (c) For multitude. 2\. The duration of his reign. (a) They for ever one with him. (b) He for ever on the throne.
 
-**Verses 30-34 &mdash;**  1\. The persons referred to. "His children." "Ye are all the children", etc. 2\. The supposition concerning them. "If his children forsake", etc. (a) They may possibly—may fall, though not fall away. (b) They will probably, because they are far from being perfect. (c) They have actually: as David himself and others. 3\. The threatening founded upon that supposition. (a) Specified—"the rod—stripes." They shall smart for it sooner or later. (b) Certified. "Then will I." 4\. The qualification of the threatening. "Nevertheless", etc. (a) The nevertheless characterized. Lovingkindness not removed, etc. (b) Emphasised. The rod may seem to be in anger, nevertheless, etc. There is, 1\. An if. 2\. A then. 3\. A nevertheless.
+**Verses 30-34 &mdash;** 1\. The persons referred to. "His children." "Ye are all the children", etc. 2\. The supposition concerning them. "If his children forsake", etc. (a) They may possibly—may fall, though not fall away. (b) They will probably, because they are far from being perfect. (c) They have actually: as David himself and others. 3\. The threatening founded upon that supposition. (a) Specified—"the rod—stripes." They shall smart for it sooner or later. (b) Certified. "Then will I." 4\. The qualification of the threatening. "Nevertheless", etc. (a) The nevertheless characterized. Lovingkindness not removed, etc. (b) Emphasised. The rod may seem to be in anger, nevertheless, etc. There is, 1\. An if. 2\. A then. 3\. A nevertheless.
 
-**Verse 39 &mdash;**  1\. Providence may often seem to be at variance with promises. 2\. Promises are never at variance with providence. It is the covenant of thy servant and his crown still.
+**Verse 39 &mdash;** 1\. Providence may often seem to be at variance with promises. 2\. Promises are never at variance with providence. It is the covenant of thy servant and his crown still.
 
 **Verse 39 &mdash;** How the throne of King Jesus may be profaned.
 
-**Verse 40 &mdash;**  1\. What God had done. "Broken down", etc. 2\. What he had not done. Not taken away sorrow for his departure and desire for his return.
+**Verse 40 &mdash;** 1\. What God had done. "Broken down", etc. 2\. What he had not done. Not taken away sorrow for his departure and desire for his return.
 
 **Verse 43 &mdash;** Cases in which the sword of the gospel appears to have its edge turned.
 
-**Verse 44-45 &mdash;**  1\. A prophecy that the Messiah would be meek and lowly. "Made his glory to cease." 2\. Would become a servant to the Father. "Cast his throne down", etc. 3\. Would be cut off in the midst of his days. "The days of his youth", etc. 4\. That he would die an ignominious death. "Hast covered him", etc.
+**Verse 44-45 &mdash;** 1\. A prophecy that the Messiah would be meek and lowly. "Made his glory to cease." 2\. Would become a servant to the Father. "Cast his throne down", etc. 3\. Would be cut off in the midst of his days. "The days of his youth", etc. 4\. That he would die an ignominious death. "Hast covered him", etc.
 
 **Verse 45 &mdash;** The excellence of the first days of Christianity, and in what respect their glory has departed from us.
 
@@ -628,9 +628,9 @@ With my mouth will I make known thy faithfulness to all *generations.* The utter
 
 **Verse 46 &mdash;** *Remember.* The prayer of the dying thief, the troubled believer, the persecuted Christian.
 
-**Verse 47 &mdash;**  1\. An appeal to divine goodness. "Remember", etc. Let not my life be all trouble and sorrow. 2\. To divine wisdom. "Wherefore", etc. Was man made only to be miserable? Will not man have been made in vain if his life be but short, and that short life be nothing but sorrow?
+**Verse 47 &mdash;** 1\. An appeal to divine goodness. "Remember", etc. Let not my life be all trouble and sorrow. 2\. To divine wisdom. "Wherefore", etc. Was man made only to be miserable? Will not man have been made in vain if his life be but short, and that short life be nothing but sorrow?
 
-**Verse 52 &mdash;**  1\. The voice. "Blessed", etc. In himself in all his works and ways—in his judgments as well as in his mercies—as the God and Father of our Lord Jesus Christ—"for evermore." 2\. The echo, "Amen and amen." Amen, says the church on earth—says the church in heaven—say the angels of God—says the whole holy and happy universe—says eternity past and eternity to come.
+**Verse 52 &mdash;** 1\. The voice. "Blessed", etc. In himself in all his works and ways—in his judgments as well as in his mercies—as the God and Father of our Lord Jesus Christ—"for evermore." 2\. The echo, "Amen and amen." Amen, says the church on earth—says the church in heaven—say the angels of God—says the whole holy and happy universe—says eternity past and eternity to come.
 
 ## Works Upon The Eighty-Ninth Psalm
 
