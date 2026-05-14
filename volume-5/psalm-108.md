@@ -1,5 +1,9 @@
 ---
+title: "Psalm 108 | The Treasury of David"
+linkTitle: '108'
 weight: 108
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. We have before us The Warrior's Morning Song, with which he adores his God and strengthens his heart before entering upon the conflicts of the day.
 ---
 
 # Psalm 108
@@ -39,7 +43,7 @@ These five verses are found in Ps 57:7-11 almost verbatim: the only important al
 > And fill with sacred melody  
 > The fibres of my heart."  
 
- *I myself will awake early.* I will call up the dawn. The best and brightest hours of the day shall find me heartily aroused to bless my God. Some singers had need to awake, for they sing in drawling tones, as if they were half asleep; the tune drags wearily along, there is no feeling or sentiment in the singing, but the listener hears only a dull mechanical sound, as if the choir ground out the notes from a worn out barrel organ. Oh, choristers, wake up, for this is not a work for dreamers, but such as requires your best powers in their liveliest condition. In all worship this should be the personal resolve of each worshipper: "I myself will awake."
+*I myself will awake early.* I will call up the dawn. The best and brightest hours of the day shall find me heartily aroused to bless my God. Some singers had need to awake, for they sing in drawling tones, as if they were half asleep; the tune drags wearily along, there is no feeling or sentiment in the singing, but the listener hears only a dull mechanical sound, as if the choir ground out the notes from a worn out barrel organ. Oh, choristers, wake up, for this is not a work for dreamers, but such as requires your best powers in their liveliest condition. In all worship this should be the personal resolve of each worshipper: "I myself will awake."
 
 ### Verse 3
 
@@ -145,7 +149,7 @@ God's help shall inspire us to help ourselves. Faith is neither a coward nor a s
 
 **Verse 2 &mdash;** When the Hebrew captives were sitting in sorrow "by the waters of Babylon", they wept, and hung their harps on the willows, and could not be prevailed upon by the conquerors to sing "the songs of Zion in that land" (Ps 137:1, 4). But when "the Lord turned again the captivity of Zion, then was their mouth filled with laughter and their tongue with singing" (Ps 126:1-2). Then the *psaltery and harp* of former generations *awoke* (Ps 108:2). The old songs revived on their lips, and the melodies of David acquired new charms for them. &mdash; *Christopher Wordsworth* 
 
-**Verse 2 &mdash;** &mdash; *Awake early*  "Yet never sleep the sun up; prayer should Dawn with the day, there are set awful hours Between heaven and us; the manna was not good After sun rising, for day sullies flowers" &mdash; *Henry Vaughan, 1621-1695*
+**Verse 2 &mdash;** &mdash; *Awake early* "Yet never sleep the sun up; prayer should Dawn with the day, there are set awful hours Between heaven and us; the manna was not good After sun rising, for day sullies flowers" &mdash; *Henry Vaughan, 1621-1695*
 
 **Verse 4 &mdash;** *For thy mercy is great*, etc. His mercy is great—that mercy sung of lately (Ps 107:1, 43). It is " *from* above the heavens" (Mymv-lem); *i.e.,* coming down to us as do drops of a fertilizing shower; even as the "Peace on earth", of Lu 2:14, was first "peace in heaven" (Lu 19:38). &mdash; *Andrew A. Bonar* 
 
@@ -189,7 +193,7 @@ God's help shall inspire us to help ourselves. Faith is neither a coward nor a s
 
 **Whole Psalm &mdash;** Parts of two former psalms are here united in one. 1\. Repetition is here sanctioned by inspiration. (a) Of what? Of hymns, of prayers, of sermons. (b) For what? For impression. "As we said before so say I now again, if any man preach", etc. For confirmation: "Rejoice in the Lord, and again I say rejoice": they went through Syria and Cilicia again confirming the churches. For preservation: quotations authenticate originals, a writing in two copies is safer than in one. 2\. Rearrangement is here sanctioned by inspiration. (a) Different experiences may require it. Sometimes the heart is most fixed at the commencement of a spiritual exercise: sometimes at its close. Hence the commencement of one psalm is the close of another. (b) Different occasions may require it. As of sorrow and joy. Two parts of two different hymns may better harmonise with a particular occasion than either one separately considered. &mdash; *G. R.* 
 
-**Verse 1 &mdash;**  1\. The best occupation: praise. Worthy— (a) Of the heart in its best condition. (b) Of the best faculties of the best educated man. 2\. The best resolution. (a) Arising from a fixed heart. (b) Deliberately formed. (c) Solemnly expressed. (d) Joyfully executed. 3\. The best results. To praise God makes a man both happier and holier, stronger and bolder—as the succeeding verses show.
+**Verse 1 &mdash;** 1\. The best occupation: praise. Worthy— (a) Of the heart in its best condition. (b) Of the best faculties of the best educated man. 2\. The best resolution. (a) Arising from a fixed heart. (b) Deliberately formed. (c) Solemnly expressed. (d) Joyfully executed. 3\. The best results. To praise God makes a man both happier and holier, stronger and bolder—as the succeeding verses show.
 
 **Verse 2 &mdash;** The benefit of early rising. The sweetness of the Sabbath morning early prayer meeting.
 
@@ -203,9 +207,9 @@ God's help shall inspire us to help ourselves. Faith is neither a coward nor a s
 
 **Verse 8 &mdash;** *Judah is my lawgiver.* Jesus the sole and only lawmaker in the church.
 
-**Verse 11 &mdash;** (*first clause*).—Confidence in a frowning God.
+**Verse 11 &mdash;** (*first clause*) Confidence in a frowning God.
 
-**Verse 11 &mdash;** (*second clause*). Whether God will go forth with our hosts depends upon—Who they are? What is their object? What is their motive and spirit? What weapons do they use? etc.
+**Verse 11 &mdash;** (*second clause*) Whether God will go forth with our hosts depends upon—Who they are? What is their object? What is their motive and spirit? What weapons do they use? etc.
 
 **Verse 12 &mdash;** The failure of human help is often 1\. The direct cause of our prayer. 2\. The source of urgency in pleading. 3\. A powerful argument for the pleader. 4\. A distinct reason for hope to light upon.
 
