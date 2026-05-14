@@ -1,5 +1,9 @@
 ---
+title: "Psalm 105 | The Treasury of David"
+linkTitle: '105'
 weight: 105
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The first verses are full of joyful praise, and call upon the people to extol Jehovah, Ps 105:1-7; then the earliest days of the infant nation, are described, Ps 105:8-15; the going into Egypt, Ps 105:16-23, the coming forth from it with the Lord's outstretched arm, Ps 105:24-38, the journeying through the wilderness and the entrance into Canaan.
 ---
 
 # Psalm 105
@@ -410,7 +414,7 @@ So has the promise been fulfilled to us, "the sun shall not hurt thee by day, no
 
 **Verse 29 &mdash;** *And slew their fish.* Besides the fish cured, or sent to market for the table, a very great quantity was set apart expressly for feeding the sacred animals and birds, —as the cats, crocodiles, ibises, and others; and some of the large reservoirs, attached to the temples, were used as well for keeping fish as for the necessary ablutions of the devout and for various purposes connected with religion. The quantity of fish in Egypt was a very great boon to the poor classes, and when the Nile overflowed the country inhabitants of the inland villages benefited by this annual gift of the river, as the land did by the fertilizing mud deposited upon it. The canals, ponds, and pools, on the low lands, continued to abound in fish, even after the inundation had ceased; and it was then that their return to the Nile was intercepted by closing the mouths of the canals. &mdash; *Sir J. Gardner Wilkinson, in "A Popular Account of the Ancient Egyptians" 1854*
 
-**Verse 30 &mdash;** *Their land brought forth frogs in abundance.* This is the natural appearance next in the order of occurrence to the Red Nile, and of it also the God of nature availed himself to vindicate his power before Pharaoh, and before Egypt. The Nile, its branches, and the great canals of irrigation are all bank full, and the exuberant moisture has aroused from their summer torpor, into life and activity, the frogs of the Nile, in numbers inconceivable to those who have not been in hot countries. Even in ordinary years the annoyance of these loathsome creatures night and day, gives some idea of what this plague must have been, and renders abundantly reasonable the creation of a goddess, Ranipula, {1} at the very commencement of the mythology of ancient Egypt. In the whole of this fearful succession of judgments there is not one more personally revolting than the plague of frogs. &mdash; *William Osborne*  
+**Verse 30 &mdash;** *Their land brought forth frogs in abundance.* This is the natural appearance next in the order of occurrence to the Red Nile, and of it also the God of nature availed himself to vindicate his power before Pharaoh, and before Egypt. The Nile, its branches, and the great canals of irrigation are all bank full, and the exuberant moisture has aroused from their summer torpor, into life and activity, the frogs of the Nile, in numbers inconceivable to those who have not been in hot countries. Even in ordinary years the annoyance of these loathsome creatures night and day, gives some idea of what this plague must have been, and renders abundantly reasonable the creation of a goddess, Ranipula, {1} at the very commencement of the mythology of ancient Egypt. In the whole of this fearful succession of judgments there is not one more personally revolting than the plague of frogs. &mdash; *William Osborne* 
 
 **Verse 30 &mdash;** *Their land brought forth frogs in abundance.* It is not difficult for an Englishman, in an Eastern wet monsoon, to form a tolerable idea of that plague of Egypt, in which the frogs were in the "houses, bed chambers, beds and kneading troughs, "of the Egyptians. In the rainy season, myriads of them send forth their constant croak in every direction; and a man not possessed of over much patience, becomes as petulant as was the licentious god, and is ready to exclaim, "Croak, croak! Indeed I shall choke, If you pester and bore my ears any more With your croak, croak, croak!" A newcomer, on seeing them leap about the rooms, becomes disgusted, and forthwith begins an attack upon them; but the next evening will bring a return of his active visitors. It may appear almost incredible, but in one evening we killed upwards of forty of these guests in the Jaffna Mission house. They had principally concealed themselves m a small tunnel connected with the bathing room, where their noise had become almost insupportable. &mdash; *Joseph Roberts, in "Oriental Illustrations" 1844*
 
@@ -434,7 +438,7 @@ So has the promise been fulfilled to us, "the sun shall not hurt thee by day, no
 
 **Verse 34 &mdash;** *Without number.* A swarm *of locusts*, which was observed in India in 1825, occupied a space of forty English square miles, contained at least forty millions of locusts in one line, and cast a long shadow on the earth. And Major Moore thus describes an immense army of these animals which ravaged the Mahratta country: "The column they composed extended five hundred miles; and so compact was it when on the wing, that like an eclipse, it completely hid the sun, so that no shadow was cast by any object." Brown, in his travels in Africa, states that an area of nearly two thousand square miles was literally covered by them; and Kirby and Spence mention that a column of them was so immense, that they took four hours to fly over the spot where the observer stood. &mdash; *M. Kalisch* 
 
-**Verse 34 &mdash;** *Came&mdash; and that without number.*  Onward they came, a dark continuous cloud Of congregated myriads number less; The rushing of whose wings was as the sound Of some broad river, headlong in its course, Plunged from a mountain summit; or the roar Of a wild ocean in the autumnal storm, Shattering its billows on a shore of rocks, Onward they came, the winds impelled them on. &mdash; *Robert Southey, 1774-1843*
+**Verse 34 &mdash;** *Came&mdash; and that without number.* Onward they came, a dark continuous cloud Of congregated myriads number less; The rushing of whose wings was as the sound Of some broad river, headlong in its course, Plunged from a mountain summit; or the roar Of a wild ocean in the autumnal storm, Shattering its billows on a shore of rocks, Onward they came, the winds impelled them on. &mdash; *Robert Southey, 1774-1843*
 
 **Verse 36 &mdash;** *He smote also all the firstborn.* Did you hear that cry? It is the moment of midnight, and some tragedy is enacted in that Egyptian dwelling, for such an unearthly shriek! and it is repeated and reechoed, as doors burst open and frantic women rush into the street, and, as the houses of priests and physicians are beset, they only shake their heads in speechless agony, and point to the death sealed features of their own firstborn. Lights are flashing at the palace gates, and flitting through the royal chambers; and as king's messengers hasten through the town enquiring where the two venerable Hebrew brothers dwell, the whisper flies, "The royal prince is dead!" Be off, ye sons of Jacob! speed from your house of bondage, ye oppressed and injured Israelites! And in their eagerness to "thrust forth" the terrible because Heaven protected race, they press upon them gold and jewels, and bribe them to be gone. &mdash; *James Hamilton* 
 
@@ -446,25 +450,25 @@ So has the promise been fulfilled to us, "the sun shall not hurt thee by day, no
 
 **Verse 39 &mdash;** In the army of Alexander the Great, the march was begun by a great beacon being set upon a pole as a signal from head quarters, so that "the fire was seen at night, the smoke in the daytime; "and the plan is still found in use amongst the caravans of Arabia. It is probable enough, in that unchanging land, that such may have been the custom at the time of the Exodus, and that God taught the people by parable in this wise, as well as by fact, that he was their true leader, and heaven the general pavilion, whence the order of march was enjoined. &mdash; *Neale and Littledale* 
 
-**Verse 39 &mdash;**  When Israel, of the Lord beloved, Out of the land of bondage came, Her father's God before her moved, An awful guide in smoke and flame. By day, along the astonished lands, The cloudy pillar glided slow; By night, Arabia's crimson sands Returned the fiery column's glow. There rose the choral hymn of praise, And trump and timbrel answered keen, And Zion's daughters poured their lays, With priest's and warrior's voice between. But present still, though now unseen, When brightly shines the prosperous day, Be thoughts of Thee a cloudy screen, To temper the deceitful ray! And oh, when stoops on Judah's path, In shade and storm, the frequent night, Be Thou—long suffering, slow to wrath— A burning and a shining light. &mdash; *Sir Walter Scott, 1771-1832*
+**Verse 39 &mdash;** When Israel, of the Lord beloved, Out of the land of bondage came, Her father's God before her moved, An awful guide in smoke and flame. By day, along the astonished lands, The cloudy pillar glided slow; By night, Arabia's crimson sands Returned the fiery column's glow. There rose the choral hymn of praise, And trump and timbrel answered keen, And Zion's daughters poured their lays, With priest's and warrior's voice between. But present still, though now unseen, When brightly shines the prosperous day, Be thoughts of Thee a cloudy screen, To temper the deceitful ray! And oh, when stoops on Judah's path, In shade and storm, the frequent night, Be Thou—long suffering, slow to wrath— A burning and a shining light. &mdash; *Sir Walter Scott, 1771-1832*
 
 **Verse 40 &mdash;** *Quails.* The quail is met with abundantly in Syria and Judaea, and there seems to be little doubt of its identity with the quails so frequently mentioned in the Holy Scriptures. "We have, "says Tristram, "a clear proof of the identity of the common quail with the Hebrew *selac*, in its Arabic name, *salwa*, from a root signifying 'to be fat'—very descriptive of the round, plump form and fat flesh of the quail&mdash; It migrates in vast flocks, and regularly crosses the Arabian desert, flying for the most part at night, and when the birds settle they are so utterly exhausted that they may be captured in any numbers by the hand. Notwithstanding their migratory habits, they instinctively select the shortest sea passages, and avail themselves of any island as a halting place. Thus in Spring and Autumn they are slaughtered in numbers on Malta and many of the Greek islands, very few being seen till the period of migration comes round. They also fly with the wind, never facing it like many other birds." "The Israelites 'spread them out' when they had taken them before they were sufficiently refreshed to escape; exactly as Herodotus tells us that the Egyptians were in the habit of doing with quails—drying them in the sun." Brehm mentions having been a witness to the arrival of a huge flock of quails upon the coast of North Africa, and tells us that the weary birds fell at once to the ground completely exhausted by their toilsome journey, and remained therefore some minutes as though stupefied. &mdash; *Cassell's "Book of Birds"* 
 
-**Verse 40 &mdash;**  Brought from his store, at sute of Israel, Quails, in whole beavies each remove pursue; Himself from skies their hunger to repel Candies the grass with sweet congealed dew. He wounds the rock, the rock doth wounded, swell; Swelling affords new streams to channels new, All for God's mindful will can not be dryven, From sacred word once to his Abraham given. &mdash; *Sir Philip Sidney, 1554-1586*
+**Verse 40 &mdash;** Brought from his store, at sute of Israel, Quails, in whole beavies each remove pursue; Himself from skies their hunger to repel Candies the grass with sweet congealed dew. He wounds the rock, the rock doth wounded, swell; Swelling affords new streams to channels new, All for God's mindful will can not be dryven, From sacred word once to his Abraham given. &mdash; *Sir Philip Sidney, 1554-1586*
 
 **Verse 44 &mdash;** *They inherited the labour of the people.* In like manner the heavenly Canaan is enjoyed by the saints without any labour of theirs; this inheritance is not of the law, nor of the works of it; it is the gift of God. Ro 4:14 6:23. &mdash; *John Gill* 
 
 ## Hints to the Village Preacher
 
-**Verse 1 &mdash;**  1\. Praise God for former mercies. 2\. Pray for further mercies. 3\. Publish his famous mercies.
+**Verse 1 &mdash;** 1\. Praise God for former mercies. 2\. Pray for further mercies. 3\. Publish his famous mercies.
 
 **Verse 1 &mdash;** A series of holy exercises. "Give thanks"— "call upon his name"— "make known"— "sing"— "talk"— "glory"— "rejoice"— "seek"— "remember".
 
-**Verse 2 &mdash;**  1\. The pleasure of talking to God. "Sing, "etc.; making melody in the heart. 2\. The duty of talking of God. "Talk ye, "etc. &mdash; *G. R.* 
+**Verse 2 &mdash;** 1\. The pleasure of talking to God. "Sing, "etc.; making melody in the heart. 2\. The duty of talking of God. "Talk ye, "etc. &mdash; *G. R.* 
 
 **Verse 2 &mdash;** The Christian's table talk.
 
-**Verse 3 &mdash;**  1\. Those who find: or—"glory ye, "etc. 2\. Those who seek: or—"rejoice."
+**Verse 3 &mdash;** 1\. Those who find: or—"glory ye, "etc. 2\. Those who seek: or—"rejoice."
 
 **Verse 3 &mdash;** (second clause). Let the seeker rejoice that there is such a God to seek, that he invites us to seek, that he moves us to seek, enables us to seek, and promises to be found of us. The tendency of the seeker is to despond, but there are many grounds of comfort.
 
@@ -484,19 +488,19 @@ So has the promise been fulfilled to us, "the sun shall not hurt thee by day, no
 
 **Verse 12 &mdash;** Comfort to the few. The typical and spiritual Israel few at first. A few in the ark peopled the world. Small companies have done wonders. Christ's presence is promised to two or three. God saith not by many or by few, etc.
 
-**Verse 13 &mdash;**  1\. God's people may be often removed. 2\. They can never be injured. 3\. God's property in them will not be renounced.
+**Verse 13 &mdash;** 1\. God's people may be often removed. 2\. They can never be injured. 3\. God's property in them will not be renounced.
 
 **Verse 14 &mdash;** Dr. T. Goodwin has an excellent sermon on these verses, entitled "The Interest of England, "in which he condenses the history of the world, to show, that those nations which have persecuted and afflicted the people of God have invariably been broken in pieces. &mdash; *(Goodwin's Works, volume 12 pg 34-60, Nichol's edition).*
 
 **Verse 15 &mdash;** In what respect Abraham was a prophet, and how far believers are the same.
 
-**Verse 16 &mdash;**  1\. All things come at the call of God. He called for plenty, and it came, for famine, and it came; for captivity, and it came; for deliverance, and it came. 2\. The most unlikely means of accomplishing an end with man is often the direct way with God. He fulfilled the promise of Canaan to Abraham by banishing him from it; of plenty, by sending a famine; of freedom, by bringing into captivity. &mdash; *G. R.* 
+**Verse 16 &mdash;** 1\. All things come at the call of God. He called for plenty, and it came, for famine, and it came; for captivity, and it came; for deliverance, and it came. 2\. The most unlikely means of accomplishing an end with man is often the direct way with God. He fulfilled the promise of Canaan to Abraham by banishing him from it; of plenty, by sending a famine; of freedom, by bringing into captivity. &mdash; *G. R.* 
 
 **Verse 19 &mdash;** The duration of our troubles, the testing power of the promise, the comfortable issue which is secured to us.
 
 **Verse 24 &mdash;** (second clause). In what respects grace can make believers stronger than their enemies.
 
-**Verse 25 &mdash;**  1\. The natural hatred of the world to the church. 2\. God's permitting it to be shown. When? Why? 3\. The subtle manner in which this enmity seeks its object.
+**Verse 25 &mdash;** 1\. The natural hatred of the world to the church. 2\. God's permitting it to be shown. When? Why? 3\. The subtle manner in which this enmity seeks its object.
 
 **Verse 32 &mdash;** *He gave them hail for rain.* Judgment substituted for mercy.
 
@@ -504,17 +508,17 @@ So has the promise been fulfilled to us, "the sun shall not hurt thee by day, no
 
 **Verse 37 &mdash;** (second clause). A consummation to be desired. This was the direct result of the divine presence. The circumstances out of which it grew were hard labour, and persecution. It enabled them to leave Egypt, to journey far, to carry burdens, to fight enemies, etc.
 
-**Verse 39 &mdash;**  1\. A dark cloud of providence is the guide of the people of God by day. 2\. A bright cloud of promises is their guide by night. &mdash; *G. R.* 
+**Verse 39 &mdash;** 1\. A dark cloud of providence is the guide of the people of God by day. 2\. A bright cloud of promises is their guide by night. &mdash; *G. R.* 
 
 **Verse 39 &mdash;** The Lord's goodness exemplified in our varying conditions. 1\. For prosperity—a cloud. 2\. For adversity—a light. A good text would be found in "light in the night."
 
-**Verse 40 &mdash;**  1\. God often gives in love what is not asked. So the bread from heaven which was beyond all they could ask or think. 2\. He sometimes gives in anger what is asked. They asked for flesh to eat—"and he brought quails." &mdash; *G. R.* 
+**Verse 40 &mdash;** 1\. God often gives in love what is not asked. So the bread from heaven which was beyond all they could ask or think. 2\. He sometimes gives in anger what is asked. They asked for flesh to eat—"and he brought quails." &mdash; *G. R.* 
 
 **Verse 41 &mdash;** We have, 1\. A type of the person of Christ, in the rock. (a) Unsightly as Horeb—"When we shall see him, there is no beauty, "etc. (Isa 43:2). (b) Firm and immovable "Who is a rock, save our God?" (2Sa 22:32). 2\. A type of the sufferings of Christ, in the smitten rock. (a) Smitten by the rod of the Law. (b) Smitten to the heart. 3\. A type of the benefits of Christ, in the water flowing from the rock—pure, refreshing, perpetual, abundant. &mdash; *James Bennett, 1828*
 
-**Verse 41 &mdash;**  1\. The miraculous energy of God's grace in the conversion of a sinner: "He opened the rock, and the waters gushed out." 2\. The effect in relation to others, which demonstrates at once the excellence and the reality of the miracle in ourselves: "They ran in the dry places like a river." &mdash; *Thomas Dale, 1836*
+**Verse 41 &mdash;** 1\. The miraculous energy of God's grace in the conversion of a sinner: "He opened the rock, and the waters gushed out." 2\. The effect in relation to others, which demonstrates at once the excellence and the reality of the miracle in ourselves: "They ran in the dry places like a river." &mdash; *Thomas Dale, 1836*
 
-**Verse 41 &mdash;**  1\. The grand source—the rock opened. 2\. The liberal stream—"gushed out". 3\. The continued flow—"in dry places".
+**Verse 41 &mdash;** 1\. The grand source—the rock opened. 2\. The liberal stream—"gushed out". 3\. The continued flow—"in dry places".
 
 **Verse 45 &mdash;** Obedience to God the design of his mercies to us.
 
