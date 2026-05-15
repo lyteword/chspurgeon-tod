@@ -1,5 +1,9 @@
 ---
+title: "Psalm 118 | The Treasury of David"
+linkTitle: '118'
 weight: 118
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The Psalm, seems to us to describe either David or some other man of God who was appointed by the divine choice to a high and honourable office in Israel. 
 ---
 
 # Psalm 118

@@ -1,5 +1,9 @@
 ---
+title: "Psalm 116 | The Treasury of David"
+linkTitle: '116'
 weight: 116
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Since our divine Master sang this hymn, we can hardly err in seeing here words to which he could set his seal, \u2014words in a measure descriptive of his own experience; but upon this we will not enlarge, as in the notes we have indicated how the Psalm has been understood by those who love to find their Lord in every line.
 ---
 
 # Psalm 116
@@ -315,7 +319,7 @@ The man of God in paying his vows rededicates himself unto God; the offering whi
 
 **Verse 18 &mdash;** *In the presence of all his people.* Be bold, be bold, ye servants of the Lord, in sounding forth the praises of your God. Go into presses of people; and in the midst of them praise the Lord. Wicked men are over bold in pouring forth their blasphemies to the dishonour of God; they care not who hear them. They stick not to do it in the midst of cities. Shall they be more audacious to dishonour God, than ye zealous to honour him? Assuredly Christ will shew himself as forward to confess you, as you are, or can be to confess him. Mt 10:32. This holy boldness is the ready way to glory. &mdash; *William Gouge* 
 
-**Verse 19** (*second clause*). He does not simply say in the midst of Jerusalem: but, *in the midst of thee, O Jerusalem?* He speaks to the city as one who loved it and delighted in it. We see here, how the saints were affected towards the city in which was the house of God. Thus we should be moved in spirit towards that church in which God dwells, the temple he inhabits, which is built up, not of stones, but of the souls of the faithful. &mdash; *Wolfgang Musculus* 
+**Verse 19 &mdash;** (*second clause*). He does not simply say in the midst of Jerusalem: but, *in the midst of thee, O Jerusalem?* He speaks to the city as one who loved it and delighted in it. We see here, how the saints were affected towards the city in which was the house of God. Thus we should be moved in spirit towards that church in which God dwells, the temple he inhabits, which is built up, not of stones, but of the souls of the faithful. &mdash; *Wolfgang Musculus* 
 
 ## Hints to the Village Preacher
 
