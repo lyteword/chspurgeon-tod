@@ -1,5 +1,9 @@
 ---
+title: "Psalm 109 | The Treasury of David"
+linkTitle: '109'
 weight: 109
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. A Psalm of David.
 ---
 
 # Psalm 109
@@ -44,7 +48,7 @@ weight: 109
 *For my love they are my adversaries.* They hate me because I love them. One of our poets says of the Lord Jesus—"Found guilty of excess of love." Surely it was his only fault. Our Lord might have used all the language of this complaint most emphatically—they hated him without a cause and returned him hatred for love. What a smart this is to the soul, to be hated in proportion to the gratitude which it deserved, hated by those it loved, and hated because of its love. This was a cruel case, and the sensitive mind of the psalmist writhed under it. But give myself unto prayer. He did nothing else but pray. He became prayer as they became malice. This was his answer to his enemies, he appealed from men and their injustice to the Judge of all the earth, who must do right. True bravery alone can teach a man to leave his traducers unanswered, and carry the case unto the Lord.
 
 > "Men cannot help but reverence the courage that walketh amid calumnies unanswering."  
-> "He standeth as a gallant chief unheeding shot or shell."
+> "He standeth as a gallant chief unheeding shot or shell."  
 
 ### Verse 5
 
@@ -418,7 +422,7 @@ This is the summing up of the entire imprecation, and fixes it upon the persons 
 
 **Verse 22 &mdash;** The inward sorrows of a saint. Their cause, effects, consolations and cure.
 
-**Verses 26-27 &mdash;** 1\. The Prayer. 2\. The Believing Title: "O Lord my God." 3\. The attribute relied upon. 4\. The motive for the petition. **Verse 28 &mdash;** The divine cure for human ill will; and the saint's temper when he trusts therein—"let thy servant rejoice." **Verse 29 &mdash;**  1\. A prayer for the repentance of David's adversaries. 2\. A prophecy for their confusion if they remain impenitent. &mdash; *G. R.* 
+**Verses 26-27 &mdash;** 1\. The Prayer. 2\. The Believing Title: "O Lord my God." 3\. The attribute relied upon. 4\. The motive for the petition. **Verse 28 &mdash;** The divine cure for human ill will; and the saint's temper when he trusts therein—"let thy servant rejoice." **Verse 29 &mdash;** 1\. A prayer for the repentance of David's adversaries. 2\. A prophecy for their confusion if they remain impenitent. &mdash; *G. R.* 
 
 **Verse 29 &mdash;** The sinner's last mantle.
 

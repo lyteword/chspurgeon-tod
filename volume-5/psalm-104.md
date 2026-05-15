@@ -1,5 +1,9 @@
 ---
+title: "Psalm 104 | The Treasury of David"
+linkTitle: '104'
 weight: 104
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. We have no information as to the author, but the Septuagint assigns it to David, and we see no reason for ascribing it to any one else. 
 ---
 
 # Psalm 104
@@ -130,7 +134,7 @@ The trees of the Lord—the greatest, noblest, and most royal of trees; those to
 *The high hills are a refuge for the wild goats; and the rocks for the conies.* All places teem with life. We call our cities populous, but are not the forests and the high hills more densely peopled with life? We speak of uninhabitable places, but where are they? The chamois leaps from crag to crag, and the rabbit burrows beneath the soil. For one creature the loftiness of the hills, and for another the hollowness of the rocks, serves as a protection:
 
 > "Far over the crags the wild goats roam,  
-> The rocks supply the coney's home."
+> The rocks supply the coney's home."  
 
 Thus all the earth is full of happy life, every place has its appropriate in habitant, nothing is empty and void and waste. See how goats, and storks, and conies, and sparrows, each contribute a verse to the psalm of nature; have we not also our canticles to sing unto the Lord? Little though we may be in the scale of importance, yet let us fill our sphere, and so honour the Lord who made us with a purpose.
 

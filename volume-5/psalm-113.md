@@ -1,5 +1,9 @@
 ---
+title: "Psalm 113 | The Treasury of David"
+linkTitle: '113'
 weight: 113
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. No division need be made in the exposition of this Psalm, except it be that which is suggested by the always instructive headings supplied by the excellent authors of our common version: an exhortation to praise God, for his excellency, 1-5; for his mercy.
 ---
 
 # Psalm 113

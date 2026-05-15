@@ -1,5 +1,9 @@
 ---
+title: "Psalm 112 | The Treasury of David"
+linkTitle: '112'
 weight: 112
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The subject is stated in the first verse, and enlarged upon under several heads from 2 to 9. 
 ---
 
 # Psalm 112
@@ -176,7 +180,7 @@ And melt away. The heat of his passion shall melt him like wax, and the sun of G
 
 **Verse 1 &mdash;** "Praise ye the Lord." 1\. Who should be praised? Not man, self, wealth, etc., but God only. 2\. Who should praise him? All men, but specially his people, the blessed ones described in this psalm. 3\. Why should they do it? For all the reasons mentioned in succeeding verses. 4\. How should they do it? Chiefly by leading such a life as is here described.
 
-**Verse 1** (second clause). 1\. Fear of the Lord; what it is. 2\. Its connection with the delight mentioned. 3\. The qualities in the commandments which excite delight in God fearing minds.
+**Verse 1 &mdash;** (second clause). 1\. Fear of the Lord; what it is. 2\. Its connection with the delight mentioned. 3\. The qualities in the commandments which excite delight in God fearing minds.
 
 **Verse 2 &mdash;** The real might of the holy seed and their true blessedness.
 

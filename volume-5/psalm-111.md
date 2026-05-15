@@ -1,5 +1,9 @@
 ---
+title: "Psalm 111 | The Treasury of David"
+linkTitle: '111'
 weight: 111
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The psalmist begins with an invitation to praise, Ps 111:1; and then proceeds to furnish us with matter for adoration in God's works and his dealings with his people, Ps 111:2-9.
 ---
 
 # Psalm 111
@@ -199,7 +203,7 @@ weight: 111
 
 **Verses 2-9 &mdash;** The psalmist furnishes us with matter for praise from the works of God. 1\. The greatness of his works and the glory of them. 2\. The righteousness of them. 3\. The goodness of them. 4\. The power of them. 5\. The conformity of them to his word of promise. 6\. The perpetuity of them.— *Matthew Henry.* 
 
-**Verse 3** (last clause). As an essential attribute, as revealed in providence, as vindicated in redemption, as demonstrated in punishment, as appropriated by believers.
+**Verse 3 &mdash;** (last clause). As an essential attribute, as revealed in providence, as vindicated in redemption, as demonstrated in punishment, as appropriated by believers.
 
 **Verse 4 &mdash;** The compassion of the Lord as seen in aiding the memories of his people.
 

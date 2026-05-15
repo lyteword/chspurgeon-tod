@@ -1,5 +1,9 @@
 ---
+title: "Psalm 117 | The Treasury of David"
+linkTitle: '117'
 weight: 117
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This Psalm, which is very little in its letter, is exceedingly large in its spirit; for, bursting beyond all bounds of race or nationality, it calls upon all mankind to praise the name of the Lord. 
 ---
 
 # Psalm 117
@@ -52,5 +56,5 @@ weight: 117
 
 **Verse 2 &mdash;** *Merciful kindness.* In God's kindness there is mercy, because, 1\. Our sin deserves the reverse of kindness. 2\. Our weakness requires great tenderness. 3\. Our fears can only be so removed.
 
-**Verse 2** (*last clause*) 1\. In his attribute—he is always faithful. 2\. In his revelation—always infallible. 3\. In his action—always according to promise.
+**Verse 2 &mdash;** (*last clause*) 1\. In his attribute—he is always faithful. 2\. In his revelation—always infallible. 3\. In his action—always according to promise.
 

@@ -1,5 +1,9 @@
 ---
+title: "Psalm 115 | The Treasury of David"
+linkTitle: '115'
 weight: 115
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. For the better expounding of it, the psalm may be divided into an entreaty of God to vindicate his own honour, verses 1, 2; a contemptuous description of the false gods and their worshippers, 3-8; an exhortation to the faithful to trust in God and to expect great blessings from him, 9-15; an explanation of God's relationship to their present condition of things, verse 16; and a reminder, that, not the dead, but the living, must continually praise God here below.
 ---
 
 # Psalm 115
@@ -228,7 +232,7 @@ The next verse is of the same tenor— *Ye that fear the Lord, trust in the Lord
 
 **Verse 3 &mdash;** 1\. His position betokens absolute dominion. 2\. His actions prove it. 3\. Yet he condescends to be "our God."
 
-**Verse 3** (*second clause*). The sovereignty of God. Establish and improve the great scriptural doctrine, that the glorious God has a right to exercise dominion over all his creatures; and to do, in all respects, as he pleases. This right naturally results from his being the *Former* and the *Possessor* of heaven and earth. Consider 1\. He is infinitely wise; he perfectly knows all his creatures, all their actions, and all their tendencies. 2\. He is infinitely righteous. 3\. He is infinitely good. &mdash; *George Burder.* 
+**Verse 3 &mdash;** (*second clause*). The sovereignty of God. Establish and improve the great scriptural doctrine, that the glorious God has a right to exercise dominion over all his creatures; and to do, in all respects, as he pleases. This right naturally results from his being the *Former* and the *Possessor* of heaven and earth. Consider 1\. He is infinitely wise; he perfectly knows all his creatures, all their actions, and all their tendencies. 2\. He is infinitely righteous. 3\. He is infinitely good. &mdash; *George Burder.* 
 
 **Verses 4-8 &mdash;** 1\. The character of idol gods. Whether our gods are natural objects or riches or worldly pleasures, they have no eye to pity, no ear to hear petitions, no tongue to counsel, no hand to help. 2\. The character of the true God. He is all eye, all ear, all tongue, all hand, all feet, all mind, all heart. 3\. The character of the idol worshippers. All become naturally assimilated to the objects of their worship.
 
