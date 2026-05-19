@@ -1,3 +1,11 @@
+---
+title: "Verses 33-40 | The Treasury of David"
+linkTitle: 'Verses 33-40'
+weight: 5
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Teach me, O LORD, the way of thy statutes; and I shall keep it unto the end.
+---
+
 # Verses 33-40
 
 ## Exposition Verse 33

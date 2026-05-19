@@ -1,3 +1,11 @@
+---
+title: "Verses 25-32 | The Treasury of David"
+linkTitle: 'Verses 25-32'
+weight: 4
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. My soul cleaveth unto the dust: quicken thou me according to thy word.
+---
+
 # Verses 25-32
 
 ## Exposition Verse 25
