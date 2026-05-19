@@ -1,3 +1,11 @@
+---
+title: "Psalm 119 Verses 1-8 | The Treasury of David"
+linkTitle: 'Verses 1-8'
+weight: 1
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Blessed are the undefiled in the way, who walk in the law of the Lord.
+---
+
 # Verses 1-8
 
 ## Exposition Verse 1

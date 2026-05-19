@@ -1,3 +1,11 @@
+---
+title: "Verses 17-24 | The Treasury of David"
+linkTitle: 'Verses 17-24'
+weight: 3
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Deal bountifully with thy servant, that I may live, and keep thy word.
+---
+
 # Verses 17-24
 
 ## Exposition Verse 17

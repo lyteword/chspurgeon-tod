@@ -1,3 +1,11 @@
+---
+title: "Verses 9-16 | The Treasury of David"
+linkTitle: 'Verses 9-16'
+weight: 2
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Wherewithal shall a young man cleanse his way? by taking heed thereto according to thy word.
+---
+
 # Verses 9-16
 
 ## Exposition Verse 9
