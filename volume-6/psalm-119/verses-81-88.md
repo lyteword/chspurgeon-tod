@@ -1,3 +1,11 @@
+---
+title: "Psalm 119 Verses 81-88 | The Treasury of David"
+linkTitle: 'Verses 81-88'
+weight: 11
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. My soul fainteth for thy salvation: but I hope in thy word.
+---
+
 # Verses 81-88
 
 ## Exposition Verse 81

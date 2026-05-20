@@ -1,3 +1,11 @@
+---
+title: "Psalm 119 Verses 65-72 | The Treasury of David"
+linkTitle: 'Psalm 65-72'
+weight: 9
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Thou hast dealt well with thy servant, O LORD, according unto thy word.
+---
+
 # Verses 65-72
 
 ## Exposition Verse 65
