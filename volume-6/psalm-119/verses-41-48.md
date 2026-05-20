@@ -1,5 +1,5 @@
 ---
-title: "Verses 41-48 | The Treasury of David"
+title: "Psalm 119 Verses 41-48 | The Treasury of David"
 linkTitle: 'Verses 41-48'
 weight: 6
 description: >

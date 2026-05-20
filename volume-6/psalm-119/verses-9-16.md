@@ -1,5 +1,5 @@
 ---
-title: "Verses 9-16 | The Treasury of David"
+title: "Psalm 119 Verses 9-16 | The Treasury of David"
 linkTitle: 'Verses 9-16'
 weight: 2
 description: >

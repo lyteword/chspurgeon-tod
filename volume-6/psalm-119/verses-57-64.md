@@ -1,3 +1,11 @@
+---
+title: "Psalm 119 Verses 57-64 | The Treasury of David"
+linkTitle: 'Verses 57-64'
+weight: 8
+description: >
+  'Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Thou art my portion, O LORD: I have said that I would keep thy words.'
+---
+
 # Verses 57-64
 
 ## Exposition Verse 57

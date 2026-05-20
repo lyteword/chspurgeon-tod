@@ -1,5 +1,5 @@
 ---
-title: "Verses 33-40 | The Treasury of David"
+title: "Psalm 119 Verses 33-40 | The Treasury of David"
 linkTitle: 'Verses 33-40'
 weight: 5
 description: >
