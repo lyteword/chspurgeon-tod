@@ -1,3 +1,11 @@
+---
+title: "Psalm 119 Verses 97-104 | The Treasury of David"
+linkTitle: 'Verses 97-104'
+weight: 13
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. O how love I thy law! it is my meditation all the day.
+---
+
 # Verses 97-104
 
 ## Exposition Verse 97

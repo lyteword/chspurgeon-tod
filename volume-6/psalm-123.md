@@ -1,5 +1,9 @@
 ---
+title: "Psalm 123 | The Treasury of David"
+linkTitle: '123'
 weight: 123
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. A Song of degrees. We are climbing. The first step (Ps. 120) saw us lamenting our troublesome surroundings, and the next saw us lifting or eyes to the hills and resting in assured security; from this we rose to delight in the house of the Lord; but here we look to the Lord himself, and this is the highest ascent of all by many degrees. 
 ---
 
 # Psalm 123

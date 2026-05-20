@@ -1,5 +1,9 @@
 ---
+title: "Psalm 124 | The Treasury of David"
+linkTitle: '124'
 weight: 124
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This short Psalm contains an acknowledgement of favour received by way of special deliverance (1-5), then a grateful act of worship in blessing Jehovah (6, 7), and, lastly, a declaration of confidence in the Lord for all future time of trial.
 ---
 
 # Psalm 124

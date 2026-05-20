@@ -1,3 +1,11 @@
+---
+title: "Psalm 119 Verses 41-48 | The Treasury of David"
+linkTitle: 'Verses 41-48'
+weight: 6
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Let thy mercies come also unto me, O LORD, even thy salvation, according to thy word.
+---
+
 # Verse 41-48
 
 ## Exposition Verse 41

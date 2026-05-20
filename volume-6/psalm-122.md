@@ -1,5 +1,9 @@
 ---
+title: "Psalm 122 | The Treasury of David"
+linkTitle: '122'
 weight: 122
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This brief but spirited Psalm is entitled "A Song of Degrees of David", and thus we are informed as go its author, and the occasion for which it was designed: David wrote it for the people to sing at the time of their goings up to the holy feasts at Jerusalem. 
 ---
 
 # Psalm 122

@@ -1,3 +1,11 @@
+---
+title: "Psalm 119 Verses 49-56 | The Treasury of David"
+linkTitle: 'Verses 49-56'
+weight: 7
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Remember the word unto thy servant, upon which thou hast caused me to hope.
+---
+
 # Verses 49-56
 
 ## Exposition Verse 49

@@ -1,3 +1,11 @@
+---
+title: "Psalm 119 Verses 73-80 | The Treasury of David"
+linkTitle: 'Verses 73-80'
+weight: 10
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Thy hands have made me and fashioned me: give me understanding, that I may learn thy commandments.
+---
+
 # Verses 73-80
 
 ## Exposition Verse 73

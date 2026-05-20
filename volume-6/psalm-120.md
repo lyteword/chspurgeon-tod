@@ -1,5 +1,9 @@
 ---
+title: "Psalm 120 | The Treasury of David"
+linkTitle: '120'
 weight: 120
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Suddenly we have left the continent of the vast Hundred and Nineteenth Psalm for the islands and islets of the Songs of Degrees. 
 ---
 
 # Psalm 120
