@@ -1,5 +1,9 @@
 ---
+title: "Psalm 121 | The Treasury of David"
+linkTitle: '121'
 weight: 121
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This bears no other title than "A Song of degrees". 
 ---
 
 # Psalm 121
