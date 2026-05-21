@@ -1,5 +1,9 @@
 ---
+title: "Psalm 139 | The Treasury of David"
+linkTitle: '139'
 weight: 139
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon.  One of the most notable of the sacred hymns. It sings the omniscience and omnipresence of God...
 ---
 
 # Psalm 139

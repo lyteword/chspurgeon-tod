@@ -1,5 +1,9 @@
 ---
+title: "Psalm 138 | The Treasury of David"
+linkTitle: '138'
 weight: 138
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. In full confidence David is prepared to own his God before the gods of the heathen, or before angels or rulers (Ps 138:1-3); he declares that he will instruct and convert kings and nations, till on very highway men shall sing the praises of the Lord (Ps 138:4-5).
 ---
 
 # Psalm 138

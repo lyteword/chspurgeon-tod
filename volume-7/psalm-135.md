@@ -1,5 +1,9 @@
 ---
+title: "Psalm 135 | The Treasury of David"
+linkTitle: '135'
 weight: 135
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The first fourteen verses contain an exhortation to praise Jehovah for his goodness (Ps 135:3), for his electing love (Ps 135:4), his greatness (Ps 135:5-7) his judgments (Ps 135:8-12), his unchanging character (Ps 135:13), and his love towards his people. 
 ---
 
 # Psalm 135

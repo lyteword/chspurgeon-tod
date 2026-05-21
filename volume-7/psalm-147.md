@@ -1,5 +1,9 @@
 ---
+title: "Psalm 147 | The Treasury of David"
+linkTitle: '147'
 weight: 147
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The, song appears to divide itself into three portions.
 ---
 
 # Psalm 147

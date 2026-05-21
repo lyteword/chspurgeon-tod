@@ -1,5 +1,9 @@
 ---
+title: "Psalm 144 | The Treasury of David"
+linkTitle: '144'
 weight: 144
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Its title is "Of David", and its language is of David, if ever language can belong to any man.
 ---
 
 # Psalm 144

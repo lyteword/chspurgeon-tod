@@ -1,5 +1,9 @@
 ---
+title: "Psalm 137 | The Treasury of David"
+linkTitle: '137'
 weight: 137
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This plaintive ode is one of the most charming compositions in the whole Book of Psalms for its poetic power. 
 ---
 
 # Psalm 137

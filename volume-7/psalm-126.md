@@ -1,5 +1,9 @@
 ---
+title: "Psalm 126 | The Treasury of David"
+linkTitle: '126'
 weight: 126
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. There is nothing in this psalm by which we can decide its date, further than this, that it is a song after a great deliverance from oppression.
 ---
 
 # Psalm 126
