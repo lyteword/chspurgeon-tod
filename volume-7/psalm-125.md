@@ -1,5 +1,9 @@
 ---
+title: "Psalm 125 | The Treasury of David"
+linkTitle: '125'
 weight: 125
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. We do not assert that David wrote this Psalm, but we have as much ground for doing so as others have for declaring that it was written after the captivity.
 ---
 
 # Psalm 125
