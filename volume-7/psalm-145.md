@@ -1,5 +1,9 @@
 ---
+title: "Psalm 145 | The Treasury of David"
+linkTitle: '145'
 weight: 145
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. David's Psalm Of Praise. This is one of the alphabetical psalms, composed with much art, and, doubtless, so arranged that the memory might be aided. 
 ---
 
 # Psalm 145
@@ -31,6 +35,7 @@ weight: 145
 *Great is the Lord, and greatly to be praised.* Worship should be somewhat like its object—great praise for a great God. There is no part of Jehovah's greatness which is not worthy of great praise. In some beings greatness is but vastness of evil: in him it is magnificence of goodness. Praise may be said to be great when the song contains great matter, when the hearts producing it are intensely fervent, and when large numbers unite in the grand acclaim. No chorus is too loud, no orchestra too large, no psalm too lofty for the lauding of the Lord of Hosts.
 
 > "And his greatness is unsearchable."  
+
 > "Still his worth your praise exceeds,  
 > Excellent are all his deeds."  
 
