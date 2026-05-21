@@ -1,5 +1,9 @@
 ---
+title: "Psalm 140 | The Treasury of David"
+linkTitle: '140'
 weight: 140
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The writer wished this experimental hymn to be under the care of the chief master of song, that it might neither be left unsung, nor chanted in a slovenly manner.
 ---
 
 # Psalm 140
