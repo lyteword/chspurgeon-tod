@@ -1,6 +1,6 @@
 ---
 title: "Psalm 109 | The Treasury of David"
-linkTitle: '109'
+linkTitle: 'Psalm 109'
 weight: 109
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. A Psalm of David.

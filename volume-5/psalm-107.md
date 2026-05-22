@@ -1,6 +1,6 @@
 ---
 title: "Psalm 107 | The Treasury of David"
-linkTitle: '107'
+linkTitle: 'Psalm 107'
 weight: 107
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The psalmist commences by dedicating his poem to the redeemed who have been gathered from captivity, Ps 107:1-3; he then likens their history to that of travellers lost in the desert, Ps 107:4-9; to that of prisoners in iron bondage, Ps 107:10-16; to that of sick men, Ps 107:17-22; and to that of mariners tossed with tempest, Ps 107:23-32.

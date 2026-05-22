@@ -1,6 +1,6 @@
 ---
 title: "Psalm 112 | The Treasury of David"
-linkTitle: '112'
+linkTitle: 'Psalm 112'
 weight: 112
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The subject is stated in the first verse, and enlarged upon under several heads from 2 to 9. 

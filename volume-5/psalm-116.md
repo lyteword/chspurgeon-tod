@@ -1,6 +1,6 @@
 ---
 title: "Psalm 116 | The Treasury of David"
-linkTitle: '116'
+linkTitle: 'Psalm 116'
 weight: 116
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Since our divine Master sang this hymn, we can hardly err in seeing here words to which he could set his seal, \u2014words in a measure descriptive of his own experience; but upon this we will not enlarge, as in the notes we have indicated how the Psalm has been understood by those who love to find their Lord in every line.

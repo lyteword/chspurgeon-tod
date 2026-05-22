@@ -1,6 +1,6 @@
 ---
 title: "Psalm 105 | The Treasury of David"
-linkTitle: '105'
+linkTitle: 'Psalm 105'
 weight: 105
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The first verses are full of joyful praise, and call upon the people to extol Jehovah, Ps 105:1-7; then the earliest days of the infant nation, are described, Ps 105:8-15; the going into Egypt, Ps 105:16-23, the coming forth from it with the Lord's outstretched arm, Ps 105:24-38, the journeying through the wilderness and the entrance into Canaan.

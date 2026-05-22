@@ -1,6 +1,6 @@
 ---
 title: "Psalm 110 | The Treasury of David"
-linkTitle: '110'
+linkTitle: 'Psalm 110'
 weight: 110
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The subject is The Priest King.
