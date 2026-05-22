@@ -1,6 +1,6 @@
 ---
 title: "Psalm 4 | The Treasury of David"
-linkTitle: '4'
+linkTitle: 'Psalm 4'
 weight: 4
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. In the first verse David pleads with God for help...

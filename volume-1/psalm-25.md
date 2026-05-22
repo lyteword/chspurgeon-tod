@@ -1,6 +1,6 @@
 ---
 title: "Psalm 25 | The Treasury of David"
-linkTitle: '25'
+linkTitle: 'Psalm 25'
 weight: 25
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The twenty-two verses of this Psalm begin in the original with the letters of the Hebrew alphabet in their proper order.

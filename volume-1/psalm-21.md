@@ -1,6 +1,6 @@
 ---
 title: "Psalm 21 | The Treasury of David"
-linkTitle: '21'
+linkTitle: 'Psalm 21'
 weight: 21
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The division of the translators will answer every purpose.

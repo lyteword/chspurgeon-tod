@@ -1,6 +1,6 @@
 ---
 title: "Psalm 5 | The Treasury of David"
-linkTitle: '5'
+linkTitle: 'Psalm 5'
 weight: 5
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The Psalm should be divided into two parts, from the first to the seventh verse, and then from the eighth to the twelfth.

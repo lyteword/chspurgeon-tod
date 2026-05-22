@@ -1,6 +1,6 @@
 ---
 title: "Psalm 20 | The Treasury of David"
-linkTitle: '20'
+linkTitle: 'Psalm 20'
 weight: 20
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The first four verses are a prayer for the success of the king.
