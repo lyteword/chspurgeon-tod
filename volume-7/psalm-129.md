@@ -1,6 +1,6 @@
 ---
 title: "Psalm 129 | The Treasury of David"
-linkTitle: '129'
+linkTitle: 'Psalm 129'
 weight: 129
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. A Song of Degrees. I fail to see how this is a step beyond the previous Psalm; and yet it is clearly the song of an older and more tried individual, who looks back upon a life of affliction in which he suffered all along, even from his youth. 

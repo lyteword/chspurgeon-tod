@@ -1,6 +1,6 @@
 ---
 title: "Psalm 133 | The Treasury of David"
-linkTitle: '133'
+linkTitle: 'Psalm 133'
 weight: 133
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. We see no reason for depriving David of the authorship of this sparkling sonnet. 

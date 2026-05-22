@@ -1,6 +1,6 @@
 ---
 title: "Psalm 148 | The Treasury of David"
-linkTitle: '148'
+linkTitle: 'Psalm 148'
 weight: 148
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The song is one and indivisible. It seems almost impossible to expound it in detail, for a living poem is not to be dissected verse by verse. 

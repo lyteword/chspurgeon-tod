@@ -1,6 +1,6 @@
 ---
 title: "Psalm 132 | The Treasury of David"
-linkTitle: '132'
+linkTitle: 'Psalm 132'
 weight: 132
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Our translators have rightly divided this Psalm.

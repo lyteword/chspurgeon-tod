@@ -1,6 +1,6 @@
 ---
 title: "Psalm 136 | The Treasury of David"
-linkTitle: '136'
+linkTitle: 'Psalm 136'
 weight: 136
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. It commences with a threefold praise to the Triune Lord (Ps 136:1-3), then it gives us six notes of praise to the Creator (Ps 136:4-9), six more upon deliverance from Egypt (Ps 134:10-15), and seven upon the journey through the wilderness and the entrance into Canaan.

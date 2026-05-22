@@ -1,6 +1,6 @@
 ---
 title: "Psalm 141 | The Treasury of David"
-linkTitle: '141'
+linkTitle: 'Psalm 141'
 weight: 141
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The Psalmist cries for acceptance in prayer (Ps 141:1-2); Then he begs to be kept as to his speech, preserved in heart and deed, and delivered from every sort of fellowship with the ungodly.

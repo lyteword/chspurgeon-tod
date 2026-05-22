@@ -1,6 +1,6 @@
 ---
 title: "Psalm 131 | The Treasury of David"
-linkTitle: '131'
+linkTitle: 'Psalm 131'
 weight: 131
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. It is both by David and of David: he is the author and the subject of it, and many incidents of his life may be employed to illustrate it. 

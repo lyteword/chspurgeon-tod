@@ -1,6 +1,6 @@
 ---
 title: "Psalm 145 | The Treasury of David"
-linkTitle: '145'
+linkTitle: 'Psalm 145'
 weight: 145
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. David's Psalm Of Praise. This is one of the alphabetical psalms, composed with much art, and, doubtless, so arranged that the memory might be aided. 

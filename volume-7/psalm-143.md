@@ -1,6 +1,6 @@
 ---
 title: "Psalm 143 | The Treasury of David"
-linkTitle: '143'
+linkTitle: 'Psalm 143'
 weight: 143
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This psalm is divided by the Selah. A Psalm of David. It is so much like other Davidic psalms that we accept the title without a moment's hesitation. 

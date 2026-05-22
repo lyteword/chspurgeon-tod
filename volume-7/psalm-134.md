@@ -1,6 +1,6 @@
 ---
 title: "Psalm 134 | The Treasury of David"
-linkTitle: '134'
+linkTitle: 'Psalm 134'
 weight: 134
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The Psalm teaches us to pray for those who are continually ministering before the Lord, and it invites all ministers to pronounce benedictions upon their loving and prayerful people.

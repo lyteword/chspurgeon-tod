@@ -1,6 +1,6 @@
 ---
 title: "Psalm 149 | The Treasury of David"
-linkTitle: '149'
+linkTitle: 'Psalm 149'
 weight: 149
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. We are almost at the last Psalm, and still among the Hallelujahs. 

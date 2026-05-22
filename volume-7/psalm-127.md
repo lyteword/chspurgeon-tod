@@ -1,6 +1,6 @@
 ---
 title: "Psalm 127 | The Treasury of David"
-linkTitle: '127'
+linkTitle: 'Psalm 127'
 weight: 127
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. God's blessing on his people as their one great necessity and privilege is here spoken of.
