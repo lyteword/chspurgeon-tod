@@ -1,6 +1,6 @@
 ---
 title: "Psalm 74 | The Treasury of David"
-linkTitle: '74'
+linkTitle: 'Psalm 74'
 weight: 74
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. From Ps 74:1-11 the poet pleads the sorrows of the nation, and the despite done to the assemblies of the Lord; then he urges former displays of divine power as a reason for present deliverance (Ps 74:12-23).

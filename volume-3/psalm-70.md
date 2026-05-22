@@ -1,6 +1,6 @@
 ---
 title: "Psalm 70 | The Treasury of David"
-linkTitle: '70'
+linkTitle: 'Psalm 70'
 weight: 70
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. ## Exposition'

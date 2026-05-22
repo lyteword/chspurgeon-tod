@@ -1,6 +1,6 @@
 ---
 title: "Psalm 60 | The Treasury of David"
-linkTitle: '60'
+linkTitle: 'Psalm 60'
 weight: 60
 description: >
   'Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Properly the song may be said to consist of three parts: the complaining verses, Ps 60:1-3; the happy, Ps 60:4-8; the prayerful, Ps 60:9-12.'

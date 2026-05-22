@@ -1,6 +1,6 @@
 ---
 title: "Psalm 77 | The Treasury of David"
-linkTitle: '77'
+linkTitle: 'Psalm 77'
 weight: 77
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. If we follow the poetical arrangement, and divide at the Selahs, we shall find the troubled man of God pleading in Ps 77:1-3, and then we shall hear him lamenting and arguing within himself, Ps 77:4-9.

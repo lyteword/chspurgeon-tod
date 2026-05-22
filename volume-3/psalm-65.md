@@ -1,6 +1,6 @@
 ---
 title: "Psalm 65 | The Treasury of David"
-linkTitle: '65'
+linkTitle: 'Psalm 65'
 weight: 65
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. David sings of the glory of God in his church, and in the fields of nature: here is the song both of grace and providence.

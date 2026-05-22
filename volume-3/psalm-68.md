@@ -1,6 +1,6 @@
 ---
 title: "Psalm 68 | The Treasury of David"
-linkTitle: '68'
+linkTitle: 'Psalm 68'
 weight: 68
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. With the words of the first two verses the ark is uplifted, and the procession begins to move.
