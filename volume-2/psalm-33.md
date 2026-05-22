@@ -1,6 +1,6 @@
 ---
 title: "Psalm 33 | The Treasury of David"
-linkTitle: '33'
+linkTitle: 'Psalm 33'
 weight: 33
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The praise of Jehovah is the subject of this sacred song.

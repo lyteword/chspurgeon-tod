@@ -1,6 +1,6 @@
 ---
 title: "Psalm 75 | The Treasury of David"
-linkTitle: '75'
+linkTitle: 'Psalm 75'
 weight: 75
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The people's song of gratitude and adoration begins the hymn in Ps 75:1.

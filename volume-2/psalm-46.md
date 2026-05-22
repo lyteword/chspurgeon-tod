@@ -1,6 +1,6 @@
 ---
 title: "Psalm 46 | The Treasury of David"
-linkTitle: '46'
+linkTitle: 'Psalm 46'
 weight: 46
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. A Song upon Alamoth. Which may denote that the music was to be pitched high for the treble or soprano voices of the Hebrew virgins...

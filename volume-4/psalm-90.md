@@ -1,6 +1,6 @@
 ---
 title: "Psalm 90 | The Treasury of David"
-linkTitle: '90'
+linkTitle: 'Psalm 90'
 weight: 90
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Moses sings of the frailty of man, and the shortness of life, contrasting therewith the eternity of God, and founding thereon earnest appeals for compassion.

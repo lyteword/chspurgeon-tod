@@ -1,6 +1,6 @@
 ---
 title: "Psalm 96 | The Treasury of David"
-linkTitle: '96'
+linkTitle: 'Psalm 96'
 weight: 96
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. We will make none, for the song is one and indivisible, a garment of praise without seam, woven from the top throughout.

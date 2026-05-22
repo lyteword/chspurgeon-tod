@@ -1,6 +1,6 @@
 ---
 title: "Psalm 128 | The Treasury of David"
-linkTitle: '128'
+linkTitle: 'Psalm 128'
 weight: 128
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. It is a family hymn, a song for a marriage, or a birth, or for any day in which a happy household has met to praise the Lord.

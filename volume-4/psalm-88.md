@@ -1,6 +1,6 @@
 ---
 title: "Psalm 88 | The Treasury of David"
-linkTitle: '88'
+linkTitle: 'Psalm 88'
 weight: 88
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This Psalm is fragmentary, and the only division of any service to us would be that suggested by Albert Barnes, viz. A description of the sick man's sufferings (Ps 88:1-9), and a prayer for mercy and deliverance (Ps 88:10-18). 

@@ -1,6 +1,6 @@
 ---
 title: "Psalm 81 | The Treasury of David"
-linkTitle: '81'
+linkTitle: 'Psalm 81'
 weight: 81
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Praise is called for to celebrate some memorable day, perhaps the passover; whereupon the deliverance out of Egypt is described, Ps 81:1-7.

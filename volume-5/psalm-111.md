@@ -1,6 +1,6 @@
 ---
 title: "Psalm 111 | The Treasury of David"
-linkTitle: '111'
+linkTitle: 'Psalm 111'
 weight: 111
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The psalmist begins with an invitation to praise, Ps 111:1; and then proceeds to furnish us with matter for adoration in God's works and his dealings with his people, Ps 111:2-9.

@@ -1,6 +1,6 @@
 ---
 title: "Psalm 103 | The Treasury of David"
-linkTitle: '103'
+linkTitle: 'Psalm 103'
 weight: 103
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. First the Psalmist sings of personal mercies which he had himself received Ps 103:1-5; then he magnifies the attributes of Jehovah as displayed in his dealings with his people, Ps 103:6-19; and he closes by calling upon all the creatures in the universe to adore the Lord and join with himself in blessing Jehovah, the ever gracious.

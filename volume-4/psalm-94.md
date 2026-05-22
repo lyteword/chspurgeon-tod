@@ -1,6 +1,6 @@
 ---
 title: "Psalm 94 | The Treasury of David"
-linkTitle: '94'
+linkTitle: 'Psalm 94'
 weight: 94
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. In Ps 94:1-7 the psalmist utters his complaint against wicked oppressors.

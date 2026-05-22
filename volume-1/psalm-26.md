@@ -1,6 +1,6 @@
 ---
 title: "Psalm 26 | The Treasury of David"
-linkTitle: '26'
+linkTitle: 'Psalm 26'
 weight: 26
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Unity of subject is so distinctly maintained, that there are no sharp divisions.

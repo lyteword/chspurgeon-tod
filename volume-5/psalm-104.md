@@ -1,6 +1,6 @@
 ---
 title: "Psalm 104 | The Treasury of David"
-linkTitle: '104'
+linkTitle: 'Psalm 104'
 weight: 104
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. We have no information as to the author, but the Septuagint assigns it to David, and we see no reason for ascribing it to any one else. 

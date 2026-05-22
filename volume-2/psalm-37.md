@@ -1,6 +1,6 @@
 ---
 title: "Psalm 37 | The Treasury of David"
-linkTitle: '37'
+linkTitle: 'Psalm 37'
 weight: 37
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The great riddle of the prosperity of the wicked and the affliction of the righteous, which has perplexed so many, is here dealt with in the light of the future; and fretfulness and repining are most impressively forbidden.

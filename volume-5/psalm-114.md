@@ -1,6 +1,6 @@
 ---
 title: "Psalm 114 | The Treasury of David"
-linkTitle: '114'
+linkTitle: 'Psalm 114'
 weight: 114
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This sublime Song of the Exodus is one and indivisible.  

@@ -1,6 +1,6 @@
 ---
 title: "Psalm 150 | The Treasury of David"
-linkTitle: '150'
+linkTitle: 'Psalm 150'
 weight: 150
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. We have now reached the last summit of the mountain chain of Psalms. 

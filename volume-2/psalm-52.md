@@ -1,6 +1,6 @@
 ---
 title: "Psalm 52 | The Treasury of David"
-linkTitle: '52'
+linkTitle: 'Psalm 52'
 weight: 52
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. We shall follow the sacred pauses marked by the Selahs of the poet...

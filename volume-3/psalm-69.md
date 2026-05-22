@@ -1,6 +1,6 @@
 ---
 title: "Psalm 69 | The Treasury of David"
-linkTitle: '69'
+linkTitle: 'Psalm 69'
 weight: 69
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This Psalm consists of two portions of 18 verses each.

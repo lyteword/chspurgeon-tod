@@ -1,6 +1,6 @@
 ---
 title: "Psalm 19 | The Treasury of David"
-linkTitle: '19'
+linkTitle: 'Psalm 19'
 weight: 19
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This song very distinctly divides itself into three parts, very well described by the translators in the ordinary heading of our version.

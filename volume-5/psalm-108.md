@@ -1,6 +1,6 @@
 ---
 title: "Psalm 108 | The Treasury of David"
-linkTitle: '108'
+linkTitle: 'Psalm 108'
 weight: 108
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. We have before us The Warrior's Morning Song, with which he adores his God and strengthens his heart before entering upon the conflicts of the day.

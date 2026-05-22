@@ -1,6 +1,6 @@
 ---
 title: "Psalm 117 | The Treasury of David"
-linkTitle: '117'
+linkTitle: 'Psalm 117'
 weight: 117
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This Psalm, which is very little in its letter, is exceedingly large in its spirit; for, bursting beyond all bounds of race or nationality, it calls upon all mankind to praise the name of the Lord. 

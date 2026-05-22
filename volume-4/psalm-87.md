@@ -1,6 +1,6 @@
 ---
 title: "Psalm 87 | The Treasury of David"
-linkTitle: '87'
+linkTitle: 'Psalm 87'
 weight: 87
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The song is in honour of Zion, or Jerusalem, and it treats of God's favour to that city among the mountains, the prophecies which made it illustrious, and the honour of being a native of it.

@@ -1,6 +1,6 @@
 ---
 title: "Psalm 130 | The Treasury of David"
-linkTitle: '130'
+linkTitle: 'Psalm 130'
 weight: 130
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The first two verses (Ps 130:1-2) reveal an intense desire; and the next two are a humble confession of repentance and faith, Ps 130:3-4.

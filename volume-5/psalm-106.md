@@ -1,6 +1,6 @@
 ---
 title: "Psalm 106 | The Treasury of David"
-linkTitle: '106'
+linkTitle: 'Psalm 106'
 weight: 106
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Israel's history is here written with the view of showing human sin, even as the preceding psalm was composed to magnify divine goodness.

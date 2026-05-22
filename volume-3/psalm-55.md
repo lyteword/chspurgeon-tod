@@ -1,6 +1,6 @@
 ---
 title: "Psalm 55 | The Treasury of David"
-linkTitle: '55'
+linkTitle: 'Psalm 55'
 weight: 55
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. It would be idle to fix a time, and find an occasion for this Psalm with any dogmatism.

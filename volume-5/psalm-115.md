@@ -1,6 +1,6 @@
 ---
 title: "Psalm 115 | The Treasury of David"
-linkTitle: '115'
+linkTitle: 'Psalm 115'
 weight: 115
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. For the better expounding of it, the psalm may be divided into an entreaty of God to vindicate his own honour, verses 1, 2; a contemptuous description of the false gods and their worshippers, 3-8; an exhortation to the faithful to trust in God and to expect great blessings from him, 9-15; an explanation of God's relationship to their present condition of things, verse 16; and a reminder, that, not the dead, but the living, must continually praise God here below.

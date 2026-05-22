@@ -1,6 +1,6 @@
 ---
 title: "Psalm 71 | The Treasury of David"
-linkTitle: '71'
+linkTitle: 'Psalm 71'
 weight: 71
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The first four verses are faith's cry for help; the next four are a testimony of experience.

@@ -1,6 +1,6 @@
 ---
 title: "Psalm 12 | The Treasury of David"
-linkTitle: '12'
+linkTitle: 'Psalm 12'
 weight: 12
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This Psalm is headed "To the Chief Musician upon Sheminith, a Psalm of David," which title is identical with that of the sixth Psalm, except that Neginoth is here omitted.

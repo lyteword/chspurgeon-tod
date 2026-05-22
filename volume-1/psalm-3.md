@@ -1,6 +1,6 @@
 ---
 title: "Psalm 3 | The Treasury of David"
-linkTitle: '3'
+linkTitle: 'Psalm 3'
 weight: 3
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This Psalm may be divided into four parts of two verses each...

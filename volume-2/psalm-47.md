@@ -1,6 +1,6 @@
 ---
 title: "Psalm 47 | The Treasury of David"
-linkTitle: '47'
+linkTitle: 'Psalm 47'
 weight: 47
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Whether the immediate subject of this Psalm be the carrying up of the ark from the house of Obededom to Mount Zion, or the celebration of some memorable victory, it would be hard to decide.

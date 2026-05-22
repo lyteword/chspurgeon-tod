@@ -1,6 +1,6 @@
 ---
 title: "Psalm 57 | The Treasury of David"
-linkTitle: '57'
+linkTitle: 'Psalm 57'
 weight: 57
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. We have here prayer, Ps 57:1-6, and praise, Ps 57:7-11.

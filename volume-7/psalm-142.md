@@ -1,6 +1,6 @@
 ---
 title: "Psalm 142 | The Treasury of David"
-linkTitle: '142'
+linkTitle: 'Psalm 142'
 weight: 142
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. A Prayer when he was in the cave.

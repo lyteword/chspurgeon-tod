@@ -1,6 +1,6 @@
 ---
 title: "Psalm 146 | The Treasury of David"
-linkTitle: '146'
+linkTitle: 'Psalm 146'
 weight: 146
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Alexander thinks that this song may be regarded as composed of two equal parts; in the first we see the happiness of those who trust in God, and not in man (Ps 146:1-5), while the second gives the reason drawn from the Divine perfections (Ps 146:5-10).
