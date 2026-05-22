@@ -1,6 +1,6 @@
 ---
 title: "Psalm 91 | The Treasury of David"
-linkTitle: '91'
+linkTitle: 'Psalm 91'
 weight: 91
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. In the whole collection there is not a more cheering Psalm, its tone is elevated and sustained throughout, faith is at its best, and speaks nobly.

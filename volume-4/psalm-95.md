@@ -1,6 +1,6 @@
 ---
 title: "Psalm 95 | The Treasury of David"
-linkTitle: '95'
+linkTitle: 'Psalm 95'
 weight: 95
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. It would be correct as to the sense to divide this psalm into an invitation and a warning so as to commence the second part with the last clause of Ps 95:7: but upon the whole it may be more convenient to regard Ps 95:6 as "the beating heart of the psalm, "as Hengstenberg calls it, and make the division at the end of Ps 95:5.

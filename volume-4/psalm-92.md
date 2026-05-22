@@ -1,6 +1,6 @@
 ---
 title: "Psalm 92 | The Treasury of David"
-linkTitle: '92'
+linkTitle: 'Psalm 92'
 weight: 92
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The Sabbath was set apart for adoring the Lord in his finished work of creation, hence the suitableness of this Psalm; Christians may take even a higher flight, for they celebrate complete redemption. 

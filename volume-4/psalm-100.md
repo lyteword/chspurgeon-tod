@@ -1,6 +1,6 @@
 ---
 title: "Psalm 100 | The Treasury of David"
-linkTitle: '100'
+linkTitle: 'Psalm 100'
 weight: 100
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. With one consent let all the earth To God their cheerful voices raise." In this divine lyric we sing with gladness the creating power and goodness of the Lord, even as before with trembling we adored his holiness.

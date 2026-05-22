@@ -1,6 +1,6 @@
 ---
 title: "Psalm 101 | The Treasury of David"
-linkTitle: '101'
+linkTitle: 'Psalm 101'
 weight: 101
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. This is just such a psalm as the man after God's own heart would compose when he was about to become king in Israel. 

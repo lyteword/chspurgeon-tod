@@ -1,6 +1,6 @@
 ---
 title: "Psalm 89 | The Treasury of David"
-linkTitle: '89'
+linkTitle: 'Psalm 89'
 weight: 89
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. We have now reached the majestic Covenant Psalm, which, according to the Jewish arrangement closes the third book of the Psalms. 
