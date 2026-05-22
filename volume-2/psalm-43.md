@@ -1,6 +1,6 @@
 ---
 title: "Psalm 43 | The Treasury of David"
-linkTitle: '43'
+linkTitle: 'Psalm 43'
 weight: 43
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The psalmist cried to God in prayer, Ps 43:1-3.

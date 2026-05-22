@@ -1,6 +1,6 @@
 ---
 title: "Psalm 49 | The Treasury of David"
-linkTitle: '49'
+linkTitle: 'Psalm 49'
 weight: 49
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. The poet musician sings, to the accompaniment of his harp, the despicable character of those who trust in their wealth, and so he consoles the oppressed believer.

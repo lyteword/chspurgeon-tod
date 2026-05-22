@@ -1,6 +1,6 @@
 ---
 title: "Psalm 45 | The Treasury of David"
-linkTitle: '45'
+linkTitle: 'Psalm 45'
 weight: 45
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Some here see Solomon and Pharaoh's daughter only they are short sighted; others see both Solomon and Christ they are cross eyed; well focused spiritual eyes see here Jesus only, or if Solomon be present at all, it must be like those hazy shadows of by passers which cross the face of the camera, and therefore are dimly traceable upon a photographic landscape.

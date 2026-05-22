@@ -1,6 +1,6 @@
 ---
 title: "Psalm 48 | The Treasury of David"
-linkTitle: '48'
+linkTitle: 'Psalm 48'
 weight: 48
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. It would be idle dogmatically to attribute this song to any one event of Jewish history.

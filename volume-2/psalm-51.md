@@ -1,6 +1,6 @@
 ---
 title: "Psalm 51 | The Treasury of David"
-linkTitle: '51'
+linkTitle: 'Psalm 51'
 weight: 51
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. It will be simplest to note in the first twelve verses the penitent's confessions and plea for pardon, and then in the last seven his anticipatory gratitude, and the way in which he resolves to display it.

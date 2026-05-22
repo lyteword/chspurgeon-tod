@@ -1,6 +1,6 @@
 ---
 title: "Psalm 44 | The Treasury of David"
-linkTitle: '44'
+linkTitle: 'Psalm 44'
 weight: 44
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. From Ps 44:1-3, the Lord's mighty works for Israel are rehearsed, and in remembrance of them faith in the Lord is expressed Ps 44:4-8.

@@ -1,6 +1,6 @@
 ---
 title: "Psalm 42 | The Treasury of David"
-linkTitle: '42'
+linkTitle: 'Psalm 42'
 weight: 42
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. That choice band of singers, the sons of Korah, are bidden to make this delightful Psalm one of their peculiars...

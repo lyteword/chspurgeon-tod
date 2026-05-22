@@ -1,6 +1,6 @@
 ---
 title: "Psalm 41 | The Treasury of David"
-linkTitle: '41'
+linkTitle: 'Psalm 41'
 weight: 41
 description: >
   Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. Jesus Christ betrayed by Judas Iscariot is evidently the great theme of this Psalm, but we think not exclusively...
