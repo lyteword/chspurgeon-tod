@@ -1,5 +1,9 @@
 ---
+title: "Psalm 119 | The Treasury of David"
+linkTitle: 'Psalm 119'
 weight: 119
+description: >
+  Read the Treasury of David online. A verse-by-verse commentary on the Psalms by Charles Spurgeon. It is The Longest Psalm, and this is a sufficiently distinctive name for it. 
 ---
 
 # Psalm 119
