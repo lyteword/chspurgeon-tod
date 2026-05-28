@@ -1,8 +1,8 @@
 ---
 title: "Preface - Volume Seven | Read the Treasury of David, Commentary on the Psalms Online"
 linkTitle: "Preface"
-description:
-  > From Volume Seven of Charles Spurgeon's Treasury of David: At the end of all these years the last page of this Commentary is printed, and the final preface is requested. 
+description: >
+  From Volume Seven of Charles Spurgeon's Treasury of David: At the end of all these years the last page of this Commentary is printed, and the final preface is requested. 
 weight: 1
 ---
 
