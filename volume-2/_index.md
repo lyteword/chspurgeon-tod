@@ -14,7 +14,7 @@ layout: single-section
   {{< card link="./preface" title="Preface" icon="book-open" >}}
 {{< /cards >}}
 
-### Books of Volume Two
+### Psalms of Volume Two
 
 {{< cards >}}
   {{< card link="./psalm-27" title="Psalm 27" icon="book-open" >}}

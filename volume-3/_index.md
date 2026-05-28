@@ -14,7 +14,7 @@ layout: single-section
   {{< card link="./preface" title="Preface" icon="book-open" >}}
 {{< /cards >}}
 
-### Books of Volume Three
+### Psalms of Volume Three
 
 {{< cards >}}
   {{< card link="./psalm-53" title="Psalm 53" icon="book-open" >}}

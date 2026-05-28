@@ -14,7 +14,7 @@ layout: single-section
   {{< card link="./preface" title="Preface" icon="book-open" >}}
 {{< /cards >}}
 
-### Books of Volume Four
+### Psalms of Volume Four
 
 {{< cards >}}
   {{< card link="./psalm-79" title="Psalm 79" icon="book-open" >}}

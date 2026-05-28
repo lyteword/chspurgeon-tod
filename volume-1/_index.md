@@ -14,7 +14,7 @@ layout: single-section
   {{< card link="./preface" title="Preface" icon="book-open" >}}
 {{< /cards >}}
 
-### Books of Volume One
+### Psalms of Volume One
 
 {{< cards >}}
   {{< card link="./psalm-1" title="Psalm 1" icon="book-open" >}}
