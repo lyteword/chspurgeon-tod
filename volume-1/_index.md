@@ -1,25 +1,48 @@
 --- 
-title: Volume I 
+title: Volume One - The Treasury of David | Read Bible Commentaries Online
+linkTitle: "Volume One"
+description: >
+  Explore commentary on Psalms 1 through 26 in Volume One of the Treasury of David by Charles Spurgeon.
+layout: single-section
 --- 
 
-## Preface
+# Volume One - Commentary on Psalms 1 to 26
 
-My Preface shall at least possess the virtue of brevity, as I find it difficult to impart to it any other. 
+## Table of Contents
 
-The delightful study of the Psalms has yielded me boundless profit and ever-growing pleasure; common gratitude constrains me to communicate to others a portion of the benefit, with the prayer that it may induce them to search further for themselves. That I have nothing better of my own to offer upon this peerless book is to me matter of deepest regret; that I have anything whatever to present is subject for devout gratitude to the Lord of grace. I have done my best, but, conscious of many defects, I heartily wish I could have done far better. 
+{{< cards >}}
+  {{< card link="./preface" title="Preface" icon="book-open" >}}
+{{< /cards >}}
 
-The Exposition here given is my own. I consulted a few authors before penning it, to aid me in interpretation and arouse my thoughts; but, still I can claim originality for my comments, at least so I honestly think. Whether they are better or worse for that, I know not; at least I know I have sought heavenly guidance while writing them, and therefore I look for a blessing on the printing of them. 
+### Psalms of Volume One
 
-The collection of quotations was an after-thought. In fact, matter grew upon me which I thought too good to throw away. It seemed to me that it might prove serviceable to others, if I reserved portions of my reading upon the various Psalms; those reserves soon acquired considerable bulk, so. much so that even in this volume only specimens are given and not the bulk. 
+{{< cards >}}
+  {{< card link="./psalm-1" title="Psalm 1" icon="book-open" >}}
+  {{< card link="./psalm-2" title="Psalm 2" icon="book-open" >}}
+  {{< card link="./psalm-3" title="Psalm 3" icon="book-open" >}}
+  {{< card link="./psalm-4" title="Psalm 4" icon="book-open" >}}
+  {{< card link="./psalm-5" title="Psalm 5" icon="book-open" >}}
+  {{< card link="./psalm-6" title="Psalm 6" icon="book-open" >}}
+  {{< card link="./psalm-7" title="Psalm 7" icon="book-open" >}}
+  {{< card link="./psalm-8" title="Psalm 8" icon="book-open" >}}
+  {{< card link="./psalm-9" title="Psalm 9" icon="book-open" >}}
+  {{< card link="./psalm-10" title="Psalm 10" icon="book-open" >}}
+  {{< card link="./psalm-11" title="Psalm 11" icon="book-open" >}}
+  {{< card link="./psalm-12" title="Psalm 12" icon="book-open" >}}
+  {{< card link="./psalm-13" title="Psalm 13" icon="book-open" >}}
+  {{< card link="./psalm-14" title="Psalm 14" icon="book-open" >}}
+  {{< card link="./psalm-15" title="Psalm 15" icon="book-open" >}}
+  {{< card link="./psalm-16" title="Psalm 16" icon="book-open" >}}
+  {{< card link="./psalm-17" title="Psalm 17" icon="book-open" >}}
+  {{< card link="./psalm-18" title="Psalm 18" icon="book-open" >}}
+  {{< card link="./psalm-19" title="Psalm 19" icon="book-open" >}}
+  {{< card link="./psalm-20" title="Psalm 20" icon="book-open" >}}
+  {{< card link="./psalm-21" title="Psalm 21" icon="book-open" >}}
+  {{< card link="./psalm-22" title="Psalm 22" icon="book-open" >}}
+  {{< card link="./psalm-23" title="Psalm 23" icon="book-open" >}}
+  {{< card link="./psalm-24" title="Psalm 24" icon="book-open" >}}
+  {{< card link="./psalm-25" title="Psalm 25" icon="book-open" >}}
+  {{< card link="./psalm-26" title="Psalm 26" icon="book-open" >}}
+{{< /cards >}}
 
-One thing the reader will please clearly to understand, and I beg him to bear it in mind: *I am far from endorsing all I have quoted.* I am neither responsible for the scholarship or orthodoxy of the writers. The names are given that each author may bear his own burden; and a variety of writers have been quoted that the thoughts of many minds might be before the reader. Still I trust nothing evil has been admitted; if it be so it is an oversight. 
 
-The research expended on this volume would have occupied far too much of my time, had not my friend and amanuensis, Mr. John L. Keys, most diligently aided me in investigations at the British Museum, Dr. Williams's Library, and other treasuries of theological lore. With his help I have ransacked books by the hundred, often without finding a memorable line as a reward, but at other times with the most satisfactory result. Readers little know how great labour the finding of but one pertinent extract may involve; labour certainly I have not spared: my earnest prayer is that some measure of good may come of it to my brethren in the ministry and to the church at large. 
-
-The Hints to Preachers are very simple, and an apology is due to my ministerial readers for inserting them, but I humbly hope they may render assistance to those for whom alone they are designed, viz., lay preachers whose time is much occupied, and whose attainments are slender. 
-
-Should this first volume meet with the approbation of the judicious, I shall hope by God’s grace to continue the work as rapidly as I can consistently with the research demanded and my incessant pastoral duties. Another volume will follow in all probability in twelve months’ time, if life be spared and strength be given. 
-
-It may be added, that although the comments were the work of my health, the rest of the volume is the product of my sickness. When protracted illness and weakness laid me aside from daily preaching, I resorted to my pen as an available means of doing good. I would have preached had I been able, but as my Master denied me the privilege of thus serving him, I gladly availed myself of the other method of bearing testimony for his name. O that he may give me fruit in this field also, and his shall be all the praise. 
-
-&ndash; *C. H. Spurgeon*
