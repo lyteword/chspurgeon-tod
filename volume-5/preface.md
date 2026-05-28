@@ -1,4 +1,12 @@
-## Preface
+---
+title: "Preface - Volume Five | Read the Treasury of David, Commentary on the Psalms Online"
+linkTitle: "Preface"
+description:
+  > From Volume Five of Charles Spurgeon's Treasury of David: It has been three and a half years since we published volume four of The Treasury of David. 
+weight: 1
+---
+
+# Preface to Volume Five
 
 It has been three and a half years since we published volume four of The Treasury of David. We have had many inquiries as to when volume five would appear. Our publishers have given hopeful replies, but their patience has been strained with our slow progress and long intervals of inactivity. The book is finally ready, much to the author's relief, though he is not as satisfied with this volume. *There is more work in it, but less to show for the effort.* Equal diligence has been given, but the material has been extremely slender and the research has had to go further afield to discover notes and expositions. Where there was much material there was more freedom of selection and the extracts were rich and suggestive. But now that the supply is scarce, what we have discovered after much hunting, is not always of the highest value.
 

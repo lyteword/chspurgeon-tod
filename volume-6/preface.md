@@ -1,4 +1,12 @@
-## Preface
+---
+title: "Preface - Volume Six | Read the Treasury of David, Commentary on the Psalms Online"
+linkTitle: "Preface"
+description:
+  > From Volume Six of Charles Spurgeon's Treasury of David: At length I am able to present to the Christian public another part of "The Treasury of David." 
+weight: 1
+---
+
+# Preface to Volume Six
 
 At length I am able to present to the Christian public another part of "The Treasury of David." It has demanded longer labour than its predecessors, but that labour has been freely given to it; and to the utmost of my ability I have kept the volume up to the level of those which have gone before. In the production of this exposition I had far rather be long than lax; for I know by experience the disappointment which comes to readers when, after a promising beginning, they see a serious declension towards the end.
 

@@ -1,4 +1,12 @@
-## Preface
+---
+title: "Preface - Volume Seven | Read the Treasury of David, Commentary on the Psalms Online"
+linkTitle: "Preface"
+description:
+  > From Volume Seven of Charles Spurgeon's Treasury of David: At the end of all these years the last page of this Commentary is printed, and the final preface is requested. 
+weight: 1
+---
+
+# Preface to Volume Seven
 
 At the end of all these years the last page of this Commentary is printed, and the final preface is requested. The demand sounds strangely in my ears. A preface when the work is done? It can be only nominally a preface, for it is really a farewell. I beg to introduce my closing volume, and then to retire with many apologies for having trespassed so much upon my reader’s patience.
 
