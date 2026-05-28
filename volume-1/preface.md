@@ -1,8 +1,8 @@
 ---
 title: "Preface - Volume One | Read the Treasury of David, Commentary on the Psalms Online"
 linkTitle: "Preface"
-description:
-  > From Volume One of Charles Spurgeon's Treasury of David: My Preface shall at least possess the virtue of brevity, as I find it difficult to impart to it any other.
+description: > 
+  From Volume One of Charles Spurgeon's Treasury of David: My Preface shall at least possess the virtue of brevity, as I find it difficult to impart to it any other.
 weight: 1
 ---
 

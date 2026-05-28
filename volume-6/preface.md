@@ -1,8 +1,8 @@
 ---
 title: "Preface - Volume Six | Read the Treasury of David, Commentary on the Psalms Online"
 linkTitle: "Preface"
-description:
-  > From Volume Six of Charles Spurgeon's Treasury of David: At length I am able to present to the Christian public another part of "The Treasury of David." 
+description: >
+  From Volume Six of Charles Spurgeon's Treasury of David: At length I am able to present to the Christian public another part of "The Treasury of David." 
 weight: 1
 ---
 

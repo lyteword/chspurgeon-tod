@@ -1,8 +1,8 @@
 ---
 title: "Preface - Volume Two | Read the Treasury of David, Commentary on the Psalms Online"
 linkTitle: "Preface"
-description:
-  > From Volume Two of Charles Spurgeon's Treasury of David: Greatly encouraged by the generous reception awarded to my first volume, I have laboured on with diligence, and am now able to present the reader with the second installment of my work. 
+description: >
+  From Volume Two of Charles Spurgeon's Treasury of David: Greatly encouraged by the generous reception awarded to my first volume, I have laboured on with diligence, and am now able to present the reader with the second installment of my work. 
 weight: 1
 ---
 

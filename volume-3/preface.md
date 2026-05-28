@@ -1,8 +1,8 @@
 ---
 title: "Preface - Volume Three | Read the Treasury of David, Commentary on the Psalms Online"
 linkTitle: "Preface"
-description:
-  > From Volume Three of Charles Spurgeon's Treasury of David: This volume completes one half of my labour upon this priceless book, and my humble prayer is that I may be spared to conclude the other portion. 
+description: >
+  From Volume Three of Charles Spurgeon's Treasury of David: This volume completes one half of my labour upon this priceless book, and my humble prayer is that I may be spared to conclude the other portion. 
 weight: 1
 ---
 

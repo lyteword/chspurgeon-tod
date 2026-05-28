@@ -1,8 +1,8 @@
 ---
 title: "Preface - Volume Four | Read the Treasury of David, Commentary on the Psalms Online"
 linkTitle: "Preface"
-description:
-  > From Volume Four of Charles Spurgeon's Treasury of David: The labour of compiling the notes of this volume may be judged of from the fact that upon my writing to one of the most scholarly men of this age for a little assistance in my researches upon that well-known Psalm, the 103rd
+description: >
+  From Volume Four of Charles Spurgeon's Treasury of David: The labour of compiling the notes of this volume may be judged of from the fact that upon my writing to one of the most scholarly men of this age for a little assistance in my researches upon that well-known Psalm, the 103rd
 weight: 1
 ---
 
