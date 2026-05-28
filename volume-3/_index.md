@@ -1,19 +1,47 @@
 ---
-title: Volume III
---- 
+title: Volume Three - The Treasury of David | Read Bible Commentaries Online
+linkTitle: "Volume Three"
+description: >
+  Explore commentary on Psalms 53 through 78 in Volume Three of the Treasury of David by Charles Spurgeon.
+layout: single-section
+---
 
-## Preface
+# Volume Three - Commentary on Psalms 53 to 78
 
-This volume completes one half of my labour upon this priceless book, and my humble prayer is that I may be spared to conclude the other portion. So uncertain is human life, and so often have men’s best designs remained unfinished, that I will press on with all diligence, lest, perhaps, the lamp of life should go out ere the writer has seen by its light the word FINIS at the conclusion of the last verse. 
+## Table of Contents
 
-This volume has cost more labour than any other, because upon the larger proportion of the Psalms contained in it no great writers have expatiated at length. Some six or seven of them are specially notable, and have, therefore, been expounded and preached upon on all hands, but the rest remain almost untrodden ground in sacred literature, hence the gathering of extracts has required a wider range of reading and far more laborious research. Where one author writes upon a portion of Scripture, all write, while other passages remain almost untouched. This has driven me very much more to the Latin authors, and in them to a vein of exposition very little worked in these days. The neglect of these voluminous expositors is, however, not very censurable, for as a rule the authors are rather heavy than weighty. "Art is long and life is short, " hence I found myself unequal to the unaided accomplishment of my task, and I have had to call in the aid of my excellent friend Mr. Gracey, the accomplished classical tutor of "the Pastors’ College, " to assist me in the work of winnowing the enormous heaps of Latin comments. Huge folios, full of dreary wordspinning, yield here and there a few goodly grains, and these, I trust, will be valuable enough to my readers to repay my coadjutor and myself for our pains. For the selection of extracts I alone am responsible, for the accuracy of the translations we are jointly accountable. The reader will note that not without much expense of money, as well as toil, he has here furnished to his hand the pith of Venema, Le Blanc, Lorinus, Gerhohus, Musculus, Martin Geier, Mollerus, and Simon de Muis; with occasional notes from Vitringa, Jansenius, Savonarola, Vatablus, Turrecremata, Marloratus, Palanterius, Theodoret, and others, as they were judged worthy of insertion. I can truly say that I have never flinched from a difficulty, or spared exertion in order to make the work as complete as it lay in my power to render it, either by my own endeavours or the help of others, my faithful amanuensis, Mr. Keys, has been spared to me, and has been a continual visitor at the British Museum, Lambeth Palace, Dr. Williams’ Museum, and Sion College; and many have been the courtesies which, despite differences of creed, I have received in his person from those who are in authority in those treasures of literature; for all which I would now record my hearty thanks. 
+{{< cards >}}
+  {{< card link="./preface" title="Preface" icon="book-open" >}}
+{{< /cards >}}
 
-No object has been before me but that of serving the church and glorifying God by doing this work right thoroughly. I cannot hope to be remunerated pecuniarily; if only the bare outlay be met I shall be well content, the rest is an offering to the best of Masters, whose word is meat and drink to those who study it. The enjoyment of the work is more than sufficient reward, and the hope of helping my brethren in their Biblical studies is very sweet to me, 
+### Books of Volume Two
 
-The late increase of wages to printers, and the rise both in paper and binding, may compel an advance in the very low price charged for these volumes hitherto, but this shall not be made unless it becomes absolutely necessary to screen me from loss. As a larger sale will secure a return of my outlay, the matter is mainly in the hands of the public. Volume I, being now in the third edition, and the second edition of Volume II, being upon the press, I am led to hope that the present volume will also meet with a large and rapid sale; and if so, the old price may suffice to cover the outlay. 
+{{< cards >}}
+  {{< card link="./psalm-53" title="Psalm 53" icon="book-open" >}}
+  {{< card link="./psalm-54" title="Psalm 54" icon="book-open" >}}
+  {{< card link="./psalm-55" title="Psalm 55" icon="book-open" >}}
+  {{< card link="./psalm-56" title="Psalm 56" icon="book-open" >}}
+  {{< card link="./psalm-57" title="Psalm 57" icon="book-open" >}}
+  {{< card link="./psalm-58" title="Psalm 58" icon="book-open" >}}
+  {{< card link="./psalm-59" title="Psalm 59" icon="book-open" >}}
+  {{< card link="./psalm-60" title="Psalm 60" icon="book-open" >}}
+  {{< card link="./psalm-61" title="Psalm 61" icon="book-open" >}}
+  {{< card link="./psalm-62" title="Psalm 62" icon="book-open" >}}
+  {{< card link="./psalm-63" title="Psalm 63" icon="book-open" >}}
+  {{< card link="./psalm-64" title="Psalm 64" icon="book-open" >}}
+  {{< card link="./psalm-65" title="Psalm 65" icon="book-open" >}}
+  {{< card link="./psalm-66" title="Psalm 66" icon="book-open" >}}
+  {{< card link="./psalm-67" title="Psalm 67" icon="book-open" >}}
+  {{< card link="./psalm-68" title="Psalm 68" icon="book-open" >}}
+  {{< card link="./psalm-69" title="Psalm 69" icon="book-open" >}}
+  {{< card link="./psalm-70" title="Psalm 70" icon="book-open" >}}
+  {{< card link="./psalm-71" title="Psalm 71" icon="book-open" >}}
+  {{< card link="./psalm-72" title="Psalm 72" icon="book-open" >}}
+  {{< card link="./psalm-73" title="Psalm 73" icon="book-open" >}}
+  {{< card link="./psalm-74" title="Psalm 74" icon="book-open" >}}
+  {{< card link="./psalm-75" title="Psalm 75" icon="book-open" >}}
+  {{< card link="./psalm-76" title="Psalm 76" icon="book-open" >}}
+  {{< card link="./psalm-77" title="Psalm 77" icon="book-open" >}}
+  {{< card link="./psalm-78" title="Psalm 78" icon="book-open" >}}
+{{< /cards >}}
 
-My venerable friend, Mr. George Rogers, has furnished me with many hints for the notes to preachers, and it is hoped that this portion of the work has been so improved that it will not be the least useful part of it. Testimonies received lead to the belief that in the two former volumes numerous students have found help in that department. 
-
-There is no need to multiply words in this preface, but it is incumbent upon me to bless the Lord for help given, help daily and hourly sought while I have been occupied in this service; and it is also on my heart to ask a favourable mention of my volumes among their friends from those who kindly appreciate them, 
-
-&ndash; *C. H. Spurgeon*
